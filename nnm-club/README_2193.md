@@ -6,7 +6,7 @@ Stepik, Илья Перминов | Django 5 для начинающих & Пр�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E42BE381E088CEDB3579756968A8291C9F9C4FC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PassMark RAMMon 3.2 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57385.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6C5EB9955F92387FB40D8B1634BC18418EAD1785
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57386.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B1C3AA26BF46B2C7FF8A0BC4A4F8265802C66928
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57387.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57388.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BB50A8CD2EA6E1B3FD333639814107B4F16A0865
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57389.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57390.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Atlantis Word Processor 4.3.9.4 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57391.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57392.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EB9AC599CEEAB694141D6EDB3DE66845ABF9B293
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57394.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:D4C81BEB0AA848342FF41D7FE0252FCC058A25A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57395.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ TikTok 34.5.5 Mod by Dmitry Nechiporenko + Plugin 1.36 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57396.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:772C47D4D4C3908F5CED3FCDEA2ADF1BAE310768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57397.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4E1760B7C19F6DF50224010AB211424F936BA6CA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57398.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:9FEB4F245F794E3F35078E16EDA7F73C018761DD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57399.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:641CFD45D69951F53A47CD074B5AB753076E485A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57400.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8C0C78E5A4F8516C1864608EDCA55135CAB72448
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57401.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Busuu - изучение языков 31.20.1(1001751) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57402.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BC19C1BAF815E1C0B4910E958F9B6C0D06DEF569
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57404.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E35251F9A6CEA8C74D2174DA382E580FC36A0E49
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57405.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:BDFA6C8F9AA830B57D475214B6350A14340285E4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57406.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Electronic compilation part 76 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57407.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2D4E81B3DFDC819E7D8A7CB80F341C60C23B5E48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57408.jpg" />
 </div>
 
 

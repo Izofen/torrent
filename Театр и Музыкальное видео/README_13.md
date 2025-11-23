@@ -6,7 +6,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48817.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48819.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48824.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48827.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48832.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ DIO - Holy Diver Live (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48902.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ DIO - We Rock (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48909.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Judas Priest - British Steel Live - 30th Anniversary Deluxe Edition (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48924.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2FADB8E486B3270DD952DBE021C7EA22EF5C7710
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48925.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:ED0346683CBE352CD8134614D78FC6AD9892304C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48928.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:688E64754F5EFE5DAEAF048E5C28E0721276B03E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48937.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:31A7CCF9E9F9C0087301F099FDEB1F2CC4A3B0A4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48941.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:047A22915BB13FE52C2A18E96050A0C6A7A231A4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48955.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bon Jovi - Greatest Hits The Ultimate Video Collection (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48961.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Iggy Pop - Live At The Avenue B / Iggy Pop - Live At The Avenue B (2005) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49103.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5341E0E800E9AB11AF88C476C4B5347C8C4DA4FB
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49119.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:EE0ECE7B931242E44AC8F7C7A7377D8CE9F33362
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49132.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:033720EAD75F5DF5598ED7460A3416B44B58670D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49133.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:BA1EC316FB78841A9F07A05C5617D69522FD8E8E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49134.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49136.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49140.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Whitesnake - Made In Japan (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49143.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Supertramp - Live in Paris '79 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49148.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49151.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49165.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:5A4F9E97992610903371B0177B4F35553256B382
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49167.jpg" />
 </div>
 
 

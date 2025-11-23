@@ -6,7 +6,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27726.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EA7BD4B8DD1D119C2B8F9F1E0D92E04262C884F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27727.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News For Forum vol.062 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27728.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5EF269BD0AB50296E3E21493BCB9873F8DBD76C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27729.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27730.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Sly Trilogy (2010) [PS3] [EUR] 3.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27731.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Topaz Video AI Pro 6.0.4 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27732.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A82B4EEA108F3FFB24F22180CCDE89865CEAC205
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27733.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A82B4EEA108F3FFB24F22180CCDE89865CEAC205
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27734.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ IObit Uninstaller Pro 14.2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27735.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B7F4460F536639780C48FE0762C7E4DF0DBE7C0A
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27736.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3DD4710388C66178B393F4756AE9A356E60DCD61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27737.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27738.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27738.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27739.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DD78A24607EE0E8B0E7A361233A2505EAE9E605B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27740.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:9BF5258E2EE37BF4D70ABDEEA7977863916B85CD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27741.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27741.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Rake (2015) [En] (5.0.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27742.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27743.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CB7342D444CC5B0E5F2A26C96909F1D4D05128A9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27744.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27745.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:07C647B4E00F3ECBFC82D71C4D7CCCD397C1702C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27746.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:46A6FD4F5B42DC9EA5B5984644927B796D554279
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27747.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:293CB1598DF9C174A68762507AC1AAEBF08ADD3F
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27748.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27748.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:0C4848F6E548EE19A9F0E0B92866821C14B82038
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27749.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27749.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:28E0940DD1D95FE06EFBCCD0417A0434A76BA81C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27750.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27750.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27751.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27751.jpg" />
 </div>
 
 

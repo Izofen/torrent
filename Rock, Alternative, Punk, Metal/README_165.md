@@ -6,7 +6,7 @@ Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115458.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařá
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115459.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115460.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115461.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115462.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115464.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115465.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Oathbringer - Tales Of Valor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115467.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115468.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115469.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115471.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115473.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bessemer Saints - This Is BS Too (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115474.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115475.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Oroborus - Family Friendly Wall Of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115477.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115478.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Panthe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115479.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115480.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dreamstreet - Dreamstreet 2.0 (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115481.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Motorhead - The Lost Tapes - The Collection (Vol. 1-5) (2024) 5CD, (Live) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115502.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115507.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bessemer Saints - This Is BS Too (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115509.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ David Knopfler - Crow Gifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115562.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:DA1B6BDA3519C579C835AE411E00EFDA62CD98B3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115591.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Anubis - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115665.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115666.jpg" />
 </div>
 
 

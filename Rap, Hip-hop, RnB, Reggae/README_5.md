@@ -6,7 +6,7 @@ Sagath - Изгой (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169442.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:74A6043F5972E7AF63E226374E1E4CF6EF5CDC3F
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169544.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:613AF003B451EA2316CC26BB3E4DCC96F892CCFC
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169593.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:C47F02A9AC32982B1A16BAA9C1BBBF8B9AB5F961
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170261.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170273.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172479.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:90C56B8C5A92D75086E74F601C887201921DCD1F
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173162.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B95DDD6CB4B5365FBB5ADC2AC410268DD68A0B9F
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173620.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:953B6BCFBC470666E4CED546EAAC2E090EA40378
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173626.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173626.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173830.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173830.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174380.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174842.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174842.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174984.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174984.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ray Charles - True Genius (2021) 6 x CD, Compilation, Remastered, Tangerine Reco
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175441.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:893BADE8258144D89AAB6A7EB2EFD3D3E7781985
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176531.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:89A15817D7601C71BFB2CED5D4E0213C6E8E8A8D
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176610.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176610.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ram & Kommo - Delirium (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Alternativ
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178734.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:AE16279ACD8A8CCFB5C1C4C7DACE512F4F00D1D5
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178767.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178767.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:086388D1B814C5CDE86B83EAFFD01BD298A90BF6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178907.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178907.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Schokk - Л.О.Н. (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179111.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179111.jpg" />
 </div>
 
 
@@ -538,6 +538,33 @@ magnet:?xt=urn:btih:DFB83D50D87597D0F5A30BFA6A361478BDC59AF9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428097   (179953) от 02.12.2020
+
+Маваши Group (Миша Маваши) - Наши сердца (2019) [MP3|320 Kbps] <Alternative Rock, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы вам читаем стихи
+2. Лампа
+3. Спой мне
+4. Заблудшие(   Читать дальше...   )Жанр: Alternative Rock, RapПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C361B58E6BDECEC8A5809F5D40CC00A7F0B40D5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593313   (180952) от 26.11.2022
 
 Инкогнито - Наружу (2022) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -546,7 +573,7 @@ magnet:?xt=urn:btih:DFB83D50D87597D0F5A30BFA6A361478BDC59AF9
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180952.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180952.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ Pharaoh - Philarmonia (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181106.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181106.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ magnet:?xt=urn:btih:34314EFA5812E58732B10C085AC17708539FE605
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182448.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182448.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ The Brand New Heavies - Never Stop... The Best of (2023) 2 x CD [FLAC|Lossless|W
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183132.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183132.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183207.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183207.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CADE9FE5AB0AB1A9373BE56D914C5A3DA8B297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427055   (184218) от 27.11.2020
-
-Слава КПСС - ЧУДОВИЩЕ ПОГУБИВШЕЕ МИР (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чудовище погубившее мир [02:49]
-02. Чучело [03:26]
-03. В хрущевских и брежневских домах [03:18]
-04. Мертвый игрок [03:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCCD8B8BAADA9C46704A9AA120CC53173E79187
 ```
 
 

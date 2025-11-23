@@ -1,3 +1,78 @@
+###  Публикация: 1692494   (122642) от 16.01.2024
+
+Уроки Апокалипсиса / Wisdom from the Apocalypse (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посреди бесконечных пустошей далёкого будущего остатки человечества влачат своё безнадёжное существование. Однако каждый год в одном и том же месте кучка выживальщиков собирается, чтобы послушать пережитые истории. Некоторые из этих историй ужасают, другие - вдохновляют, но у всех есть кое-что общее: каждая история - это урок для человечества.Производство: СШАЖанр: ФантастикаРежиссер: Кен Мэй, Шейн Райан-РидАктеры: Ронни Энджел, Адриан Баэз, Тим Баллард, Brian Bodt, Randy Burke, Carissa Carlberg, Dan Carmichael,
+Leslie Castro, Eileen Dietz, Lucy DoradoПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:28Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A035587210C9C62D331D98215D1398648FDB7D1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692452   (122643) от 16.01.2024
+
+Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Progeria: Vae Victis - визуальная новелла, созданная по мотивам романа российского фантаста Viva la Post Mortem. Откройте для себя альтернативную вселенную, где в XXI веке существует Российская империя, а по улицам ходят волшебники и колдуны. В центре истории находится Кирилл, ученик пятого курса Академии Смерти. В попытках защитить свою семью от ложных обвинений, (   Читать дальше...   )Тип издания: SceneРазработчик: TryhardSЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF3E0265D4807CB5933A5FF1816F56B9E22492D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392878   (122644) от 16.01.2024
+
+Николай Гоголь | Вечера на хуторе близ Диканьки (2007) [MP3, Вадим Цимбалов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+«Ночь перед Рождеством», «Сорочинская ярмарка», «Майская ночь, или Утопленница», «Вий» – лучшие из ранних повестей Гоголя – фантастические и реалистические, смешные, ироничные и пугающе–мистические... (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АудиокнигаПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E2A5B7340B799790B0BDD16522401D5F400ABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692370   (122645) от 16.01.2024
 
 Мужчина к Новому году (2023) WEBRip [H.264]
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122645.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Adobe Acrobat Pro 23.8.20470 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122646.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:B6800E553FE50075A9EE7643C14CFCC5039FAF56
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122647.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:1497E4A42E0B9DBEEC93D4DA5961C7FFBE70A4F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122648.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Ashampoo Burning Studio 25.0.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122649.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:57E20B3A5BA81F8E767DFBEA1656F3FF73DCC222
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122650.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Adobe InDesign 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122651.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:1450CE86C54888E03E21D2C433758BD08CB52835
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122652.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122652.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:1450CE86C54888E03E21D2C433758BD08CB52835
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122653.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:98A068F052C4FD3605CFAFEFE3FB17719B4FB551
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122654.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:09B3AF3A7BFEBE31671461DC67FDFC8C9F3B71B4
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122655.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:2B202C481CC4828B8BE841576BC2C08016BADF07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122656.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122656.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:2B202C481CC4828B8BE841576BC2C08016BADF07
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122657.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ magnet:?xt=urn:btih:5AFBC5D2B00C58672AC98EAC7E198500A00A9C8B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122658.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:48CA13E84AC1AB597B8EFDC5C0CD294231E90A74
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122659.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Betavolt представила компактную ядерную батаре
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122660.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122660.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ Betavolt представила компактную ядерную батаре
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122661.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:D438D07186E628EAC1452849C0D54C8EBEE866D6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122662.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:6CA91EED7BDD5180F227B94D4ACD442043A12E1A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122663.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122664.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ magnet:?xt=urn:btih:F8410D24430862DDE4842540FF40AB029878A5FF
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122665.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122666.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ magnet:?xt=urn:btih:357A88524D8D10BFC662198591DB5AE4A4D1A30A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122667.jpg" />
 </div>
 
 
@@ -554,81 +629,6 @@ magnet:?xt=urn:btih:357A88524D8D10BFC662198591DB5AE4A4D1A30A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660089540E4161D7821383556029B3FC80D127C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692366   (122668) от 16.01.2024
-
-Черный шум / Black Noise (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элитную команду службы безопасности отправляют на закрытый частный остров с поручением спасти важную персону. По прибытии отряд обнаруживает, что остров в запустении, но вскоре им приходится столкнуться с незнакомыми смертоносными технологиями и жутким звуком, который невозможно выкинуть из головы.Производство: США / MSR Media, Sherborne MediaЖанр: фантастика, боевикРежиссер: Филиппе МартинесАктеры: Джексон Рэтбоун, Уэйн Энтони Гордон, Фрэнк Корби, Томас Дауни, Джин Фриман, Эштон Ли, Ив Мауро, Сэди Ньюман, Ники СпиридакосПеревод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B277242F92751FD3BC6DB42F6275E7D6A47E7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692389   (122669) от 16.01.2024
-
-Онлайн школа RealManual, Василий Егоров | ArgoCD+Keycloak: devops-практика (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс не просто учебный материал, а обширная практика, охватывающая работу с инструментами ArgoCD и Keycloak, а также множество других зависимостей и технологий. Основной упор сделан на развитие и практическое применение навыков в реальных условиях.
-Ключевые особенности курса:
-    ✅Полноценная DevOps Практика: Курс включает в себя работу с настоящими инструментами (   Читать дальше...   )Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 06:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692388   (122670) от 16.01.2024
-
-Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быстрый старт (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите полное руководство по Adobe Firefly в Photoshop с практическими навыками
-Данный класс – подробное руководство по использованию инновационного инструмента Adobe Firefly в Adobe Photoshop. В ходе класса рассматриваются основные аспекты Adobe Firefly, включая использование генеративных сетей для создания изображений на основе введенных пользователем запросов. (   Читать дальше...   )Производство: LiveclassesЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 01:57:15Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C54EDD23A9E76BD34457B98815C57F9FD7CB6B
 ```
 
 

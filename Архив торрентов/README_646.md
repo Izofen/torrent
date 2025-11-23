@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137166.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Lingon X 6.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137177.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Blackmagic Design DaVinci Resolve Studio 16.1.2.026 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137180.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ TranslucentTB 2022.1 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137193.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.95.4500 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137199.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12 из 12] WE
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137212.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:09DAC23B0A6DD7CDFA8E4C8B330D41B6A3AA6EED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137277.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ KMS Tools Portable 31.12.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137286.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Ant Download Manager Pro 2.9.1 Build 83632 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137288.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DriverPack Solution 16.12 + Драйвер-Паки 16.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137305.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ SamDrivers 16.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137312.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ WinToUSB Free / Pro / Technician 7.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137313.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WhatsApp 0.3.1847 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137383.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NAPS2 (+MSI+Potrable) 5.8.2. [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137387.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:51B023E66BA08F2155EC1E3CF29F24554C965F81
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137388.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BELOFF [dp] 2021.12.5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137389.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:DD96EEDD109807468D8BA6759D731DBB4670E7AB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137393.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ reaConverter Pro 7.618 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137401.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Daum PotPlayer 1.7.7145 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137404.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ DVDFab StreamFab 6.1.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137410.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137411.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Jixipix Premium Pack 1.2.11 (x64) Portable by Spirit Summer [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137413.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Topaz Photo AI 2.1.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137427.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137450.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1A6B3EBE615B4B2D9FBA0E9EDE51517CC2AF6357
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137468.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wallz Pro 1.3.1 [Ru] - Обои
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137472.jpg" />
 </div>
 
 

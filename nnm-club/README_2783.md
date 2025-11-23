@@ -1,3 +1,82 @@
+###  Публикация: 457886   (78345) от 25.02.2012
+
+Андрей Левшинов | Внутренний наркотик или Целительная медитация [2009] [DOC]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует в мире нечто такое, с помощью чего можно добиться богатства, уважения и здоровья, не растеряв при этом доброты и нежности. Таким универсальным средством является медитация. Я обычно преподношу свои советы по исцелению или обретению богатства таким образом, чтобы человек испытал состояние медитации. Такое состояние запоминается лучше любого рецепта из трав или комплекса упражнений. В своей новой книге я рассказываю о медитации и о том, каким образом каждый из вас может овладеть этим методом, способным изменить жизнь к лучшему.2009Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23BEE46A607D14A1BE102DD06B32A9D76004743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456220   (78350) от 25.02.2012
+
+Высшая школа рок-н-ролла / Rock ’n’ Roll High School (1979) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия происходят в 1980 году. Руководство школы Винс Ломбарди, а именно новый директор Тогар (Mary Woronov), встревожено чрезмерной любовью студентов к рок-н-роллу и их равнодушием к учебе. Рифф Рэндол (P.J. Soles) — самая ярая поклонница творчества группы Ramones в своей школе. Она ждёт три дня на улице возле билетных касс, чтобы купить билеты себе и своим школьным друзьям на концерт своей любимой группы. Мечта Рифф — увидеть Ramones, а именно своего кумира Джоуи Рамона, а также показать ему песню, которую она написала для его группы — «Rock 'n' Roll High School».
+
+Узнав про шоу Ramones, злобная директриса забирает билеты у Рифф и её лучшей подруги Кэт (Dey Young). Но девушки находят способ попасть на концерт: они выигрывают два билета в радио-шоу, отгадав название альбома их обожаемой группы.
+
+На следующий день, когда Мисс Toгар и группа родителей пытаются сжечь груду дисков Ramones, чья музыка затмила умы детей, студенты принимают решение захватить свою школу и сделать из неё первую Школу Рок-н-Ролла. Вскоре (   Читать дальше...   )Жанр: Мьюзикл, МузыкаРежиссер: Аллан Аркуш, Джо Данте, Джерри ЦукерАктеры: П.Дж. Соулз, Винсент Ван Паттен, Клинт Ховард, Дей Янг, Мэри Воронов, Пол Бартел, Дик Миллер, Дон Стил, Аликс Илайас, Лорен Лестер, Джои Рамоне, Джонни Рамоне, Ди Ди Рамоне, Марки РамонеПеревод: Одноголосый закадровыйПродолжительность: 1:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A29D269E26E17F3F14A5B71C9F8217193E7AFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458077   (78352) от 25.02.2012
+
+Александр Иванов - Неформат (2009) [WavPack|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Больше не встречу (3:55)
+02. Дом хрустальный (4:34)
+03. Мой светлый ангел (6:35)
+04. Было так, я любил и страдал (6:21)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454347   (78360) от 25.02.2012
 
 Seven Seals - ... of Contradictions (2012) Авторская раздача [FLAC|Lossless]<Heavy/Power Metal>
@@ -6,7 +85,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78360.jpg" />
 </div>
 
 
@@ -39,7 +118,7 @@ VA - A Tribute to "Чёрный Обелиск" (2012) [MP3|192 кб/с]<Heavy M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78361.jpg" />
 </div>
 
 
@@ -72,7 +151,7 @@ magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78363.jpg" />
 </div>
 
 
@@ -97,7 +176,7 @@ magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78364.jpg" />
 </div>
 
 
@@ -123,7 +202,7 @@ magnet:?xt=urn:btih:C63BC63EFA3E5D2A990E859E987A6CDE3DC3A3D9
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -147,7 +226,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78369.jpg" />
 </div>
 
 
@@ -174,7 +253,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78370.jpg" />
 </div>
 
 
@@ -198,7 +277,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78372.jpg" />
 </div>
 
 
@@ -222,7 +301,7 @@ magnet:?xt=urn:btih:ECF6E6FB517AF9CA8C44BB317C4C8586987CB1BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78376.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ magnet:?xt=urn:btih:1CD1FBFE5BC92D003E7BCC58C09D827B0D7B066C
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78382.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ magnet:?xt=urn:btih:E3B54E6649435814E4CD8F9CDEE097A4DDCD7639
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78383.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ magnet:?xt=urn:btih:765B847F818603EE4CA92A8F434A98FD4BCD2873
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78384.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ magnet:?xt=urn:btih:61AC2F6780CDC8A348DAA2208024EA1E1F2D58D5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ magnet:?xt=urn:btih:F6E41B5A517BDAFCDF865A279040D8C08A5B2B32
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78392.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ Microsoft Toolkit 2.3 Stable / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78393.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ NikitA - Машина (2009) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78394.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78406.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ magnet:?xt=urn:btih:CC3DC385E95995D02AE37560ECC1285D23FA6F80
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78409.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ magnet:?xt=urn:btih:88B8BF90DE46199CC1F1D635B03CCC48F1C11442
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78412.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ magnet:?xt=urn:btih:88B8BF90DE46199CC1F1D635B03CCC48F1C11442
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78422.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ magnet:?xt=urn:btih:BE99BAC4F94BF02B1841DE923C33D66F3A9A9405
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78423.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ magnet:?xt=urn:btih:8BF531FE066090FEDA665012AC6EED16978D7C73
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78426.jpg" />
 </div>
 
 
@@ -574,7 +653,7 @@ magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78430.jpg" />
 </div>
 
 
@@ -586,87 +665,6 @@ magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457202   (78439) от 25.02.2012
-
-Крабат. Ученик колдуна / Krabat (2008) [1080p] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Тридцатилетней войны осиротевший подросток Крабат скитается от деревни к деревне, прося милостыню. Однажды ему снится мельница, и он отправляется на её поиски. Придя на мельницу, Крабат становится одним из учеников её хозяина — колдуна, который обучает своих учеников чёрной магии. Но каждый год кто-то из учеников должен умереть, чтобы продлить жизнь колдуна, (   Читать дальше...   )Производство: ГерманияЖанр: Фэнтези, ДрамаРежиссер: Марко КройцпайнтнерАктеры: Дэвид Кросс, Даниэль Брюль, Кристиан Редль, Роберт Стадлобер, Паула Каленберг, Анна Тальбах, Ханно Коффлер, Чарли Хюбнер, Мориц Грове, Том Влашиха, Свен Хёниг, Штефан Хашке, Том Ласс, Даниэль Фрипан, Даниэль Штайнер, Давид Фишбах, Отто ЗандПеревод: ДублированныйСубтитры: нетПродолжительность: 01:59:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457725   (78440) от 25.02.2012
-
-Open Server 4.1.2 (Mini+Standart+Full) [Русский, Украинский, Белорусский, Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Open Server — это портативный локальный WAMP/WNMP сервер, созданный специально для веб-разработчиков.
-
-WAMP/WNMP — акроним, обозначающий набор (комплекс) серверного программного обеспечения, широко используемый с целью разработки, предоставления веб-сервисов. WAMP/WNMP назван по первым буквам входящих в его состав компонентов:
-
-    Windows — операционная система от компании Microsoft;
-    Apache или Nginx — веб-сервер;
-    MySQL — СУБД;
-    PHP — язык программирования, используемый для создания веб-приложений.
-
-Хотя изначально программные продукты, входящие в состав комплекса, не разрабатывались специально для работы друг с другом, такая связка стала весьма популярной среди пользователей Windows, в первую очередь из-за того, что они получали бесплатный комплекс с надежностью на уровне Linux серверов.(   Читать дальше...   )Название программы: Open ServerЯзык интерфейса: Русский, Украинский, Белорусский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457951   (78441) от 25.02.2012
-
-Кровь за кровь / Four Brothers (2005) [H.264/720p-LQ] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они вернулись домой, чтобы похоронить мать.. и её убийц… Их четверо, они братья, но абсолютно не похожи друг на друга. В детстве их усыновила и воспитала одна и та же женщина. Теперь она мертва, а братья пытаются найти ее убийцу и отплатить ему за пролитую кровь их матери. Чем больше братья занимаются поисками, тем ближе они становятся друг другу, осознавая, что (   Читать дальше...   )Жанр: Триллер, Боевик, ДрамаРежиссер: Джон СинглтонАктеры: Марк Уолберг, Тайриз Гибсон, Андре Бенджамин, Гаррет Хедлунд, Терренс Дэшон Ховард, Джош Чарльз, София Вергара, Фионнула Флэнеган, Чиветель Эджиофор, Бэрри Шебака Хенли, Джернард Буркс, Кеннет Уэлш, Тони Нэппо, Шоун СинглтонПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0349B3CC807457A3252ADF1400584CB7BB18B8AA
 ```
 
 

@@ -6,7 +6,7 @@ A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26268.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26279.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26300.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26439.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26873.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26880.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ David Rose - Perfect Harmony Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26994.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cruel Addiction - Confess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26996.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27030.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27099.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27207.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Demis Roussos - Demis (2009) Remaster, 2025, AMPSA [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27396.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27396.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dream Theater - Дискография (33 releases) (1989-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27459.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27653.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Elvis Presley - The King (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27921.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:00B96AA5A997FE534443193051927DA507DF7BE8
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28465.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:FC5649A583F267B77805B85BE2B5D692F8E1EE37
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28705.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28862.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28862.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Weeknd - Hurry Up Tomorrow (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28881.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA & Atomic Heart - Atomic Heart, Vol. 5 (2025) Original Game Soundtrack [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29233.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Linkin Park - From Zero: A Cappellas (2025) [FLAC 24/48,96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29797.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29938.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30002.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30102.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30102.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30103.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30103.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30104.jpg" />
 </div>
 
 

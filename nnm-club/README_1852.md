@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48507.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO PhotoLab Elite 7.8.0 build 254 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48508.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 3.1.3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48509.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:48306BB2866F7356FC7603C194E73903F182D415
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48510.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RustDesk 1.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48511.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4C6C15FCF0B1E81DA543FD6C8674354CE5850F57
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48512.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4C6C15FCF0B1E81DA543FD6C8674354CE5850F57
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48513.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:50C14F0096721BD9ADC5C04F3579CFFF429B79A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48514.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:92AE0D17E5B29396CEA055615CE7FE02D848EDFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48515.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:31AB09AEE88498549F062EF6E05D5DC18E79F41F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48516.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ABC27B0719A13DD9C34A406E31B4A040669F704E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48517.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:11BAFAFE4772AF447DB0C0D74D4CB0F43A1FD027
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48518.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:6F2119C34CE18C2B9A0E7B5CB63B8A9C8E71761B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48519.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Record Super Chart 27.07.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48520.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:3BE337D2CBD6AB01C18D36998A5E8DCDD44963FC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48521.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Warhammer: Хранители тайн / Warhammer: Loremasters (2021-2024) WEBR
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48522.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MInstAll v.21.07.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48523.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48524.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48525.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48526.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:ACDD35201D7EAD392FA288A4110DA80C6F42CA67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48527.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:38EF8BCB281761824772F05952782AF7EA7CA33F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48528.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48529.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:86BEF0525E09F6B793B85D224F782402E5B3C69A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48530.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A950A4EC46BB18B3D6E1FE2F971802C4D6AB62A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48531.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:1B6A4FC7C63E8B41F73179807457A4A8F68ADA42
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48532.jpg" />
 </div>
 
 

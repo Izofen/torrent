@@ -6,7 +6,7 @@ ALLPlayer 9.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62382.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander 11.03 (16.03.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62383.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:908B205C3E28E87DD92F6AD78CAF2C01C6E94562
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62390.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 11 PRO 23H2 22631.3296 Update 7 by Ghost Spectre x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62396.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.4170 x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62422.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ TreeSize Professional 9.1.3.1877 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62425.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Topaz Video AI 4.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62426.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Display Driver Uninstaller 18.0.7.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62427.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Topaz Photo AI 2.4.1 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62428.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WonderFox HD Video Converter Factory Pro 27.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62431.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.7.2 RePack (& portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62432.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Antivirus Removal Tool 2024.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62433.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wise Disk Cleaner 11.0.9.823 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62444.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ IsMyLcdOK 5.57 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62448.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Office Installer & Office Installer+ 1.07 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62453.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:EC05E4CBDDB44F175D0E02B84900E641F340BAA1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62466.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Freemake Video Converter 4.1.13.170 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62467.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tor Browser Bundle 13.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62468.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ RAR for Android v7.00 build 122 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62474.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Luxion KeyShot Enteprise / Network Rendering / VR 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62506.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Adobe Acrobat Pro 2024.001.20604 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62507.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Listen Audiobook Player v5.2.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62533.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Oracle Linux 9.3 [x64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62555.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Topaz Gigapixel AI 7.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62556.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ TikTok 33.9.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.30 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62563.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AOMEI Backupper Technician Plus 7.3.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62581.jpg" />
 </div>
 
 

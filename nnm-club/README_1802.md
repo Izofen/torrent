@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2024.002.20991 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AAB85454A70217E565ABF79300C97D2A23954D53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47208.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4C50A777683A5BBB627AB5014742F55892C17621
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47209.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47210.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C0F5DB36EAFEE6B22205CA56077588900F1CC04A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47211.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:57A6670E1CDA910D15770A7A61743A91CF924AFC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47212.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:6C8B27128BF6F76F7157523E2743E002BAAA79BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47213.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Gazebo - From Pasha with Love (Vinyl Release) (2024) Maxi Single [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47214.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E681AB613545AC7B57DFB7FFBEC34B099A115D65
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47215.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:67C677D6600791B539AAEA7F189C449542DCA28B
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47216.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ OneCommander Pro 3.88.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47217.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:93F8BD502D2DECC137E1EEE2FF04C138D2066ED9
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47218.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:3A55BA7318FB90ED06F8EA1EC17B33F7090593D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47219.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A17893565A0C7EB7D36DBE8009A7593EE0B0488A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47220.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:CA2EDA2851454B04A833D249B8F716BCDA670172
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47221.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:07091B77BFD574FE43382A560B2EE67F064B3F43
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47222.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47223.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:442B910A10BF41E21AB2A8C65894BCDBBFC96FEC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47224.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:896BE594BF83AE84A6C44B1E6122AD1D2E37D592
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47225.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ SnapEdit - AI photo editor v6.7.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47226.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Compilation part 112 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47227.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:D07B16AD2D2034D4D7EEC7DC3D4DB90931AD0388
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47228.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:14856724369D346BB4B12CE4CF4E45FDF20C3085
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47229.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ FastFlix 5.8.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47230.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Sonible - pure:EQ 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47231.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DCFAE573A775752D897318151C758EA1715BF72B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47232.jpg" />
 </div>
 
 

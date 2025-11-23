@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66476.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66477.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66478.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66479.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:95F5FA7252BBE1F557455F63E01E16C28B9EAB12
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66480.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5DC59B33C2C8496EF2736FE1FFB198EF3E6A1BC1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66481.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66482.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:60B94FA30ADDFF46563CE15DF51E7F044E949CA5
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66483.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2615D3C2DF9B8888B98EBFD07BBF8121E439F3FF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66484.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66485.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66486.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:8D97F5E7ADAAB1C8512A24099E54DC6F582290EB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66487.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:C44A7E86F57D86C1C89CE2ACB378D453004EFEF6
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66488.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Chantal - Rainbow Warrior (2025) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66489.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66490.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Clu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66491.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:6C16678308FEA884D93B82CCB79878AD4AD035FF
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66492.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66493.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:6092344FDF2391F02FAB28BABA8B5C3DF30B26F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66494.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:303885797DCEB19B6270991C40FF8103B591DE94
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66495.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:36E7ADC601249886A648931156CE99F6D8D6E0F7
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66496.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:3B27B6A6B779AEBBBD16D9F2BCBA4543AC1ED2E8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66497.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66498.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66499.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:EBFF14DB6744E0C3F34291EF62586DD9E76CEC28
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66500.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:7F5441D06F50BBAB17D879534A696A8B22456B8F
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66501.jpg" />
 </div>
 
 

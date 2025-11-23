@@ -6,7 +6,7 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141344.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141354.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141361.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141499.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Frank Wright - Unity (1974) 2006, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141544.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Claude Hopkins - 1937 - 1940 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141550.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Anders Wihk, Steve Gadd, Svante Henryson - Same Tree Different Fruit - ABBA (201
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141687.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Papik - Cocktail Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141726.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142065.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142080.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Ray Brown Trio featuring Gene Harris - Soular Energy (1984) 2013, Analogue P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142113.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142189.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142205.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kenny G - The Classic Christmas Album (2012) [MP3|320 кб/с]<Smooth Jazz, Inst
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142307.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Ray Charles - Mister Genius (1948 - 1960) 3CD, 2011, Le Chant du Monde [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142481.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ McCoy Tyner - Time For Tyner (1968) 2006, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142616.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Lee Morgan - Volume 3 (1957) 2007, Blue Note [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142740.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Yusef Lateef - The Diverse Yusef Lateef (1970) 2006, Rhino [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142765.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ T-Square - Human (1993) Sony Music[FLAC|Lossless|image + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143202.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Big Bad Family (1994) Finalmix Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143221.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143282.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143289.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Johnny Smith - Favorites (1959) Remaster, 2016, Warner[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143302.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Frank Morgan - Listen to the Dawn (1994) Verve[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143318.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143341.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143538.jpg" />
 </div>
 
 

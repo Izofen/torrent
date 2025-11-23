@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124802.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:151C038C68AFF015AB3C9C8FF31C9AFD61684F43
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SMD pro, Андрей Нифедов | Пишем трек с нуля. Виде
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124945.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124972.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Balun.Courses, Владимир Балун | System Design - 3-х недельн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124979.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125050.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:54E752CD5FF5A7CA5460DA2F12EF94312451BAB7
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125077.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125084.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Udemy, Valentina Grobler | Free To Speak Foundation (2023) WEB-DL [RU]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125136.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:395A2255C723A4237E4868E5CF246DE80285C36B
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125144.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bulavina School, Дарья Булавина | Стрим по композиц�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125220.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Brick Visual, Andras Káldos, István Lovák, Péter Pazsiczky | Post-production
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125222.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Udemy, Louay Zambarakji | The Complete Adobe After Effects Bootcamp: Basic to Ad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125241.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Dbystritskaya, Дарья Быстрицкая | Съёмка для бренд�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125258.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Domestika, Jessica Roux | Natural Illustration with Digital Painting (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125351.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4D163D2E2388D6E301ADD38AA8F0B801177C97D4
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125360.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Udemy, Ankit Shrivastava | Moonvalley AI Text-to-Video: Full Masterclass, Make A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125364.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Lectoroom, Мария Павлова | Разноцветные пионы в к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125449.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:15B5B6D2EBAC56435039F0B900AC2B46FF4394C7
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125477.jpg" />
 </div>
 
 

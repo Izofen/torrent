@@ -1,3 +1,83 @@
+###  Публикация: 1722399   (109694) от 11.05.2024
+
+Jackie McLean - Rhythm Of The Earth (1992) Antilles [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm of the Earth [15:35]
+02. For Hofsa [4:12]
+03. Sirius System [6:44]
+04. The Explorers [7:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2D04BE310E577EC7B85397AC7EECCC05F6BDF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722526   (109695) от 11.05.2024
+
+Виктор Драгунский | Виктор Драгунский (2000) [MP3, Виктор Драгунский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+Имя Виктора Драгунского знают дети в нашей стране и за рубежом. Он написал около ста историй из жизни мальчика Дениски. Эти истории, рассказанные, как говорил сам автор, «по секрету всему свету», известны читателям как «Денискины рассказы».
+В сборник вошли самые известные истории о Дениске Кораблеве, весёлом и добром мальчике, который (   Читать дальше...   )Жанр: Русская литература для детей, рассказИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC6505CAD6FBA253068E346BB331B19B8C086C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722455   (109696) от 11.05.2024
+
+Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Truly Alone (00:03:36)
+02 - First Responder (00:04:39)
+03 - I Want What I Don't Need (00:03:35)
+04 - You Lucky One (00:04:54)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B50CA680B795D23A7EA420A50C83EAA7A3808C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722512   (109697) от 11.05.2024
 
 Виктор Голявкин | Обыкновенные дела (2018) [MP3, Алла Човжик]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109697.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109698.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109699.jpg" />
 </div>
 
 
@@ -83,7 +163,7 @@ David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109700.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109701.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109702.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109703.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ VA - Deep House Essentials (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109704.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ magnet:?xt=urn:btih:FC5AC26C45950E95C00DDEC38160AC9814831CCB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109705.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Krissy Matthews - Krissy Matthews & Friends (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109706.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ magnet:?xt=urn:btih:7458EBF20DF12EFE3F56CF452252191C2A8C630F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109707.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ magnet:?xt=urn:btih:BE4964E7A90BDCCAE87284B68C8DA0B2C51019FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109708.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ magnet:?xt=urn:btih:8E6A5C75290550278425D17E6201BEBCCD0CA9D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109709.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109710.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Спринт (11.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109711.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ magnet:?xt=urn:btih:B510ECECA96534D7217675B5CC75B835B9F4502B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109712.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ magnet:?xt=urn:btih:4FECE70841652913D3D1A4457609C5973402FD06
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109713.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ magnet:?xt=urn:btih:2BDC477F0046D62E5801B2EBC375496DBA061793
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109714.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109715.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ Sonic Universe - It Is What It Is (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109716.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ Firestorm - Rooted Future (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109717.jpg" />
 </div>
 
 
@@ -555,7 +635,7 @@ In Flames - Colony (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109718.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ Reflection of Flesh - We Are Legion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109719.jpg" />
 </div>
 
 
@@ -596,87 +676,6 @@ Reflection of Flesh - We Are Legion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:750004BEC45C3BC6B80C4E23C087486348989129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722162   (109720) от 10.05.2024
-
-Burden of Oath - Shattered Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vikings of Stone (00:03:30)
-02 - Bullet (00:03:51)
-03 - Sacrifice (00:04:22)
-04 - Toxic (00:03:44)(   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19954ABF83D02C873D0F44FDCE41F5EE839FCD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722224   (109721) от 10.05.2024
-
-Fjordheksa - Ashlad (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man killed Wife [00:09:10]
-02. Deathwitch [00:05:37]
-03. Ripped Apart [00:09:07]
-04. Weltkulturende [00:06:58](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2909B1527C0F063875B0C3D56889AE5616953B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722281   (109722) от 10.05.2024
-
-Fange - Perdition (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, sludge, doommetal, gothcidoom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Césarienne Au Noir [00:05:49]
-02. Mauvais Vivant [00:04:01]
-03. Toute Honte Bue [00:04:22]
-04. Foudres Fainéantes [00:01:57](   Читать дальше...   )Жанр: industrial, sludge, doommetal, gothcidoomПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22C374A681E126409C06C7F8EE6277E09B9CF0A
 ```
 
 

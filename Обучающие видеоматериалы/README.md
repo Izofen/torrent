@@ -6,7 +6,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3444F46A470BA00AF0477ED971E457079117DF58
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_355.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:13449A90F69F7CED7EF25E5EC7955DE581E8A563
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_453.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:FD943407661972AAC20B51C57AEC6BEAF13F0353
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_567.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E967A286215113C49D1EB7EB351C7B5EC527F369
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_598.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:1887E940E2FCF3D0B2144EFB3A77DE2F435E3A2E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_609.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:96B9569A59971A22455570A0257FBAF24A9C2661
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_616.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_619.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_620.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Rebrain, Александр Марченко, Артемий Дубовой | Gr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1083.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1193.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1194.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1200.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1207.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1538.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:64E6DAE1808211A006C1BD7CEA230D12EE5F11FA
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1734.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1760.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Step Up, Step Up | Перенос онлайн-школы на Salebot (2025) WE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1832.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Stepik, Карпов и Партнёры | Основы управления п�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1847.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E79C8447C85F31529ED8427B79D6E43A953CFAB4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:A9FA46973BCDD996ED2A7D92F4E723AC6377A6B6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1861.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:204B8D9C627502F9C9D97FDB232CACC0E108CD91
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1867.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Storytelling School, Татьяна Жакова | Pinterest - с нуля до 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1873.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:19C3E9E45635605848C023B2DCBC86E533498453
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1899.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:6D4EFC6E7A3016FE5CB33796F8458829FED263FB
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1923.jpg" />
 </div>
 
 

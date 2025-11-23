@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29707.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DCE7F9904483FBDC4412E267C3BE507287EE0EC0
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29708.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29708.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IsoBuster Pro 5.51 Build 5.5.1.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EE121D19E6C1063C3D5DE3EA9719E638B814903E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29710.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29710.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29711.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D6FADE82F400A763D738222B839D950C1E08ACCA
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29712.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29712.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:285DF680B39557523B8999EE74E1738C11B2185B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29713.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29713.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29714.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Auslogics Registry Cleaner Pro 11.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29715.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CareUEyes 2.4.8.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29716.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Shotcut 25.01.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29717.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29718.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:3221A48CD806F313801672F0890DD55AF823CB9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29719.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Auslogics Disk Defrag Pro 12.0.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29720.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ashampoo WinOptimizer 2025 27.00.06 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29721.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:8C651C551C1534FAA87FAB2B42BAFD8C9E70AEDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29722.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adobe Acrobat Pro 2024.005.20392 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29723.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:379D11076B618AF30A9EC14F96550BA1904D19CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29724.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29724.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29725.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:159B355E37B21C9016EF3C9C992FF327270448D3
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29726.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Auslogics Windows Slimmer 5.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29727.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29728.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29729.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29730.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PlayerPro Music Player 5.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29731.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Aiarty Image Enhancer 3.2 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29732.jpg" />
 </div>
 
 

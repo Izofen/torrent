@@ -1,3 +1,83 @@
+###  Публикация: 596504   (130818) от 31.12.2012
+
+Туристас / Turistas (2006) [1080i] HDTV
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания шестерых студентов решила провести каникулы, путешествуя по Бразилии. Экзотические пейзажи, красивые животные, интересные встречи — ничто не предвещало беды.
+Неожиданно у затерянного острова близ бразильского побережья их автобус терпит крушение, и молодые люди остаются один на один с джунглями.
+Однако труднопроходимые тропические леса хранят свои секреты.
+Оказывается, у обычных студентов есть что-то очень ценное, и в здешних краях у них отберут это любой ценой.Жанр: УжасыРежиссер: Джон Стокуэлл / John StockwellАктеры: Джош Дюамель, Мелисса Джордж, Оливия Уайлд, Дэсмонд Эскью, Бо Гарретт, Макс БраунПеревод: Профессиональный |полное дублирование|Продолжительность: 01:33:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596916   (130819) от 31.12.2012
+
+Осень (1974) [H.264] DVDRip [Реставрация КП]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130819.jpg" />
+</div>
+
+
+###  Подробнее
+
+В юности они любили друг друга, но потом расстались. Илья женился, Александра вышла замуж. Семейная жизнь у обоих не сложилась. Встретившись вновь, они понимают, что по-прежнему любят друг друга, и решают провести вместе несколько дней в деревне... Однако, прожитые годы и ошибки молодости постоянно разрушают эту идиллию и мешают, особенно Илье, принять, пожалуй, (   Читать дальше...   )Производство: СССРЖанр: МелодрамаРежиссер: Андрей СмирновАктеры: Наталья Рудная, Леонид Кулагин, Наталья Гундарева, Александр Фатюшин, Людмила Максакова, Армен Джигарханян, Эля Макеева, Игорь Кашинцев, Юрий КузьменковСубтитры: ОтсутствуютПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D17C902D522FE929CCEBF472AEE75276567BC0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596854   (130820) от 31.12.2012
+
+Лучшие песни-2012 (2012.12.31) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничный концерт из Государственного Кремлевского дворца.
+
+На главной сцене страны собрались самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями.01. Филипп Киркоров – Мне не жаль
+02. Ани Лорак - Обними меня
+03. Сосо Павлиашвили – С Новым годом
+04. Валерия – Романсы(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:43:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596508   (130823) от 31.12.2012
 
 Эксперимент «Повиновение» / Compliance (2012) BDRip [720p] [EN]
@@ -6,7 +86,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130823.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:D7E0017AB0BA63D868A4DA36039C67921412875A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130824.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ PGWare SuperRam 6.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130826.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ PGWare SuperRam - утилита для оптимизации и управле
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130828.jpg" />
 </div>
 
 
@@ -102,7 +182,7 @@ magnet:?xt=urn:btih:CFBCA8C2734203595AD1FFE7BF60D869E6F470F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130829.jpg" />
 </div>
 
 
@@ -126,7 +206,7 @@ magnet:?xt=urn:btih:CD8AF396AF5C8A1A9069FB6527EC3284976BC9E6
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130830.jpg" />
 </div>
 
 
@@ -150,7 +230,7 @@ Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130832.jpg" />
 </div>
 
 
@@ -177,7 +257,7 @@ magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130833.jpg" />
 </div>
 
 
@@ -201,7 +281,7 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130835.jpg" />
 </div>
 
 
@@ -228,7 +308,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130836.jpg" />
 </div>
 
 
@@ -261,7 +341,7 @@ HomeBank 5.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130837.jpg" />
 </div>
 
 
@@ -287,7 +367,7 @@ magnet:?xt=urn:btih:2C77C98A5254F067BE545299851623BC4F88D3AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130839.jpg" />
 </div>
 
 
@@ -311,7 +391,7 @@ magnet:?xt=urn:btih:77BE7CA883BFAEF257F3C19561DA40E2472FCD0A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130840.jpg" />
 </div>
 
 
@@ -339,7 +419,7 @@ magnet:?xt=urn:btih:77BE7CA883BFAEF257F3C19561DA40E2472FCD0A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130841.jpg" />
 </div>
 
 
@@ -363,7 +443,7 @@ PDF24 Creator 11.15.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130842.jpg" />
 </div>
 
 
@@ -388,7 +468,7 @@ Soulsavers - The Light The Dead See (2012) [FLAC|Lossless]<Alternative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130843.jpg" />
 </div>
 
 
@@ -421,7 +501,7 @@ Soulsavers - The Light The Dead See (2012) [FLAC|Lossless]<Alternative>
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130844.jpg" />
 </div>
 
 
@@ -445,7 +525,7 @@ magnet:?xt=urn:btih:251C5F37678BD3809D5F97BB07965206059FA3EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130845.jpg" />
 </div>
 
 
@@ -469,7 +549,7 @@ magnet:?xt=urn:btih:53E61D8B32FB706630472595C9649C658ED5D9BB
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130847.jpg" />
 </div>
 
 
@@ -493,7 +573,7 @@ magnet:?xt=urn:btih:A223F01B8B5591D76E572110AD7052A48C3E9EF6
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130848.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ magnet:?xt=urn:btih:29BC9D39353A12DCC91396253463943A67C68A60
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130852.jpg" />
 </div>
 
 
@@ -543,7 +623,7 @@ VA - Новогодний Хит За Хитом (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130853.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ magnet:?xt=urn:btih:7FA9829DAF3BE914A352970E3FC9156427EC6D61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130854.jpg" />
 </div>
 
 
@@ -587,78 +667,6 @@ magnet:?xt=urn:btih:7FA9829DAF3BE914A352970E3FC9156427EC6D61
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E1DCC1D1421F70DB015C345A8DB9E70CC89F3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707701   (130856) от 08.12.2023
-
-Русалочка 2: Возвращение в море / The Little Mermaid II: Return to the Sea (2000) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня новой ленты Мелоди - дочь русалочки Ариэль и принца Эрика. Как ни пытались родители уберечь дочь от неприятностей, которые таит в себе море и его обитатели, у них ничего не вышло. Мелоди сбежала в море и встретилась с Морганой, сестрой злой морской ведьмы Урсулы. Но маленькая Мелоди любила Атлантику всем сердцем, и ее любовь помогла ей преодолеть (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: детский, музыкальный, фэнтезиРежиссер: Мультфильм, мюзикл, фэнтези, семейныйАктеры: Джоди Бенсон, Сэмюэл Э. Райт, Тара Стронг, Пэт Кэрролл, Бадди Хэкетт, Кеннет Марс и др.Перевод: Дублированный, Одноголосый профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62C8B1392C3920269EB92435358A0A59F37E84E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682308   (130858) от 08.12.2023
-
-Капитан Марвел 2 / The Marvels (2023) WEBRip [H.264/1080p] [2K]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130858.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наши дни Дар-Бенн, новому лидеру кри, удается найти одну половину Квантовых полос, из которых вторая половина принадлежит Камале Хан. Дар-Бенн использует мощь Группы, чтобы разрушить точку перехода в пространстве, которая позже будет обнаружена С.А.Б.Л.ей. Ник Фьюри ведет мирные переговоры Кри и Скруллов и приглашает Кэрол и Монику Рамбо расследовать аномалию точки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДакостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5F9192A5B02C6B0585FD442A62843660C5121E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596763   (130859) от 31.12.2012
-
-PGWare Throttle 6.1.1.2013 [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Throttle - утилита предназначена для настройки параметров ваших модемов на максимальное быстродействие, что в результате может привести к более чем 200-процентному увеличению скорости работы. Вы просто выбираете свою OS, тип соединения (14.4/28.8/33.6/56k, кабельный модем, DSL/ADSL модем, ISDN, Satellite, T1/T3/OC3/OC12+, локальная сеть, 3G-модемов) и нажимаете кнопку "Go". Остальное программа сделает сама! Как отмечают разработчики, программа изменит ряд ключевых параметров работы модема, например, улучшит определение сигнала "занято", уменьшит количество обрывов связи и т.д. Программа работает со всеми типами модемов подо всеми операционными системами семейства Windows.Название программы: PGWare ThrottleЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,150 @@
+###  Публикация: 1679091   (139516) от 24.11.2023
+
+Инспектор ГАИ (1982) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромность и принципиальность приводит инспектора ГАИ Петра Зыкина к конфликту с начальником станции технического обслуживания Труновым, который, нарушив правила дорожного движения, пытается воспользоваться своими связями и «поставить на место» не в меру ретивого милиционера. Однако ничто не может заставить Зыкина изменить своим принципам: ни связи, ни положение (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: ДрамаРежиссер: Эльдор УразбаевАктеры: Сергей Никоненко, Никита Михалков, Олег Ефремов, Марина Левтова, Николай Парфёнов, Виктор Ильичев, Раиса Рязанова, Юрий Кузьменков, Николай Засухин, Евгений Перов и др.Субтитры: РусскиеПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71B4190FFCF49960D59034C9BCB373E255AB2C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520824   (139517) от 30.12.2021
+
+Aldo Romano' New Blood - Plays "The Connection" (2013) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Killed Cock Robin [3:56]
+02. Wigglin' [4:37]
+03. Music Forever [3:58]
+04. Time to Smile [4:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE0F081B1FEAAFF1DB0D11C34DC0E5D4DFAEF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194861   (139518) от 30.12.2017
+
+Эта веселая планета (1973) DVDRip [H.264] [Реставрация КП]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прилетевшие на Землю инопланетяне попадают на встречу Нового года во Дворец культуры в Академгородке. Столкнувшись со множеством загадок, они постепенно приходят к пониманию того, что земная жизнь без шутки и смеха, без музыки и любви невозможна...Производство: СССР, киностудия: "Мосфильм"Жанр: Комедия, МузыкальныйРежиссер: Юрий Сааков, Юрий ЦветковАктеры: Савелий Крамаров, Леонид Куравлев, Александр Вокач, Виктор Сергачев, Екатерина Васильева, Лариса Барабанова, Наталья Крачковская, Владимир Носик, Игорь Кашинцев, Юрий Демин и др.Продолжительность: 01:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FE6A6CD46DB3F696D1A6CB4B60F42CF32278A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854949   (139520) от 30.12.2014
+
+VideoHive - christmas slideshow - 3509654 [AEP]
+
+>>След.
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139520.jpg" />
+</div>
+
+
+###  Подробнее
+
+christmas slideshow - проект для создания новогоднего слайд шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646996CD968FC4ECBC568FAD664E29659F68C250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348991   (139521) от 30.12.2019
+
+Любовь по расчету / For Love or Money (2019) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марк собирается заработать 20 миллионов фунтов стерлингов от коммерческой сделки, которую он держит в секрете от всех, даже от своего лучшего друга Тима. Более того, случайная встреча на похоронах дала ему еще один шанс с любовью всей его жизни Конни. Сказочный роман приобретает неожиданный поворот, когда Марк узнает, что его будущая невеста, имеет корыстные намерения.Производство: Великобритания / Goldfinch, Solar ProductionsЖанр: КомедияРежиссер: Марк МерфиАктеры: Роберт Казински, Саманта Баркс, Рэйчел Херд-Вуд, Эдвард Спелирс, Тони Вэй, Айван Кэй, Анна Чэнселлор, Дэвид Харгривз, Чарли МакДугалл, Тала ГувейяПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:31:27Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077787   (139523) от 30.12.2016
+
+Отель Элеон (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-21 из 21)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сериал телеканала СТС, который продолжит историю комедийного хита «Кухня». Шеф-повар Виктор Баринов ушел на пенсию, а Элеонора Андреевна встретила мужчину своей мечты и уехала в Петербург — на этом закончился финальный сезон «Кухни». Но жизнь в отеле и ресторане продолжается: Михаил Джекович по-прежнему отвечает за порядок в «Элеоне», шеф-поваром ресторана (   Читать дальше...   )Производство: Россия, Украина / Sisters Production, Yellow, Black and WhiteЖанр: комедияРежиссер: Антон Федотов, Антон МасловАктеры: Григорий Сиятвинда, Милош Бикович, Елена Ксенофонтова, Сергей Лавыгин, Виктор Хориняк, Ольга Кузьмина, Екатерина Вилкова, Диана Пожарская, Тимур Еремеев, Рина Гришина и др.Продолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318D247DB7B031F74002C091AD44FACE02A3B45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436019   (139524) от 30.12.2020
 
 Растровый клипарт - Girl bride in a beautiful wedding dress stock photo [JPG]
@@ -6,7 +153,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139524.jpg" />
 </div>
 
 
@@ -30,7 +177,7 @@ magnet:?xt=urn:btih:22657B1251673A956DCFC07227A2A467B301C69C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139525.jpg" />
 </div>
 
 
@@ -55,7 +202,7 @@ magnet:?xt=urn:btih:E6B084AF56BE4567CB623FA78A38384EDC7CD3E4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139526.jpg" />
 </div>
 
 
@@ -80,7 +227,7 @@ magnet:?xt=urn:btih:50FF43345A094856A43D1FD68818F1592BFACEFC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139527.jpg" />
 </div>
 
 
@@ -105,7 +252,7 @@ magnet:?xt=urn:btih:B88738B3402683496E6777B8AFD53B40DF362B67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139528.jpg" />
 </div>
 
 
@@ -130,7 +277,7 @@ BestReminder v2018.12.29.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139529.jpg" />
 </div>
 
 
@@ -157,7 +304,7 @@ VA - Relax Culture, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139530.jpg" />
 </div>
 
 
@@ -184,7 +331,7 @@ magnet:?xt=urn:btih:F057D3993BD8457CDA78B524002E083190778E23
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139532.jpg" />
 </div>
 
 
@@ -210,7 +357,7 @@ magnet:?xt=urn:btih:149FF53C38849235DF9FE970DBD8FEC67E3E045E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139533.jpg" />
 </div>
 
 
@@ -234,7 +381,7 @@ magnet:?xt=urn:btih:D8E2D3604C7889E7C1D356F934EF123F35CA86B6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139534.jpg" />
 </div>
 
 
@@ -259,7 +406,7 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139535.jpg" />
 </div>
 
 
@@ -286,7 +433,7 @@ magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139536.jpg" />
 </div>
 
 
@@ -310,7 +457,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139538.jpg" />
 </div>
 
 
@@ -337,7 +484,7 @@ magnet:?xt=urn:btih:65990FC6D4B6E8B158D6D4009C75742C2E86BD0D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139539.jpg" />
 </div>
 
 
@@ -361,7 +508,7 @@ magnet:?xt=urn:btih:E44CCF7BB8D364EB2E86D132F2C696BD38C27A2E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139540.jpg" />
 </div>
 
 
@@ -385,7 +532,7 @@ magnet:?xt=urn:btih:95381D3C65F8C6E56A8F16FDAC42FAB1890A78FE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139541.jpg" />
 </div>
 
 
@@ -409,7 +556,7 @@ magnet:?xt=urn:btih:DC7701B7A1236EDA8DFFA285CF29D46B511997F0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139543.jpg" />
 </div>
 
 
@@ -433,7 +580,7 @@ Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139544.jpg" />
 </div>
 
 
@@ -460,7 +607,7 @@ Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139546.jpg" />
 </div>
 
 
@@ -487,7 +634,7 @@ magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139548.jpg" />
 </div>
 
 
@@ -498,159 +645,6 @@ magnet:?xt=urn:btih:C048341BE21A3E5AA725366BDA5ACA8472103A69
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA3F252C65C9359409BB60E568416990A5D3D9F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195798   (139549) от 30.12.2017
-
-Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Введение в программу Houdini 15
-
-Эта серия уроков по 15-ой версии Houdini поможет вам быстро получить базовые знания в этом пакете.
-Больше всего пользы из этого курса получат абсолютные новички в Houdini, имеющие, однако, хорошее знание общей концепции работы в 3D. Мы начнём с самых азов и изучим многое, чтобы создать классную, эффектную сцену.(   Читать дальше...   )Производство: Digital-TutorsЖанр: 3D графикаПеревод: Дублированный, RastarokotПродолжительность: 07:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920419E162FBABA9C528CA6DF2F243E038A11841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740506   (139550) от 31.12.2013
-
-David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celtic Sanctuary (4:41)
-02. May It Be (3:35)
-03. He Moved Through the Fair (4:53)
-04. Sleepsong (4:54)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088375   (139552) от 30.12.2016
-
-Макс Стил / Max Steel (2016) HDRip [Line]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда подросток Макс МакГрат обнаруживает, что его тело может генерировать наиболее мощную энергию во Вселенной, ему приходится встретиться с единственным существом, способным совладать с такой энергией — таинственным техно-органическим инопланетянином по имени Стил.Производство: Великобритания, США, Dolphin Entertainment, Ingenious Media, Mattel EntertainmentЖанр: Фантастика, Боевик, ПриключенияРежиссер: Стюарт ХендлерАктеры: Бен Уинчелл, Джош Бренер, Мария Белло, Энди Гарсиа, Ана Виллафейн, Майк Дойл, Филлип ДеВона, Билли Слотер, Эл Митчелл, Лоуренс КаоПеревод: Дублированный (Чистый звук)Продолжительность: 01:32:01Реклама: Имеется реклама от спонсора показа.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA012F8B36AE2BD754ED7B816E3042629FD6A96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273161   (139554) от 30.12.2018
-
-Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birdsong
-02. In the night
-03. Under the moon
-04. Stay the night(   Читать дальше...   )Жанр: Deep House, Indie DanceПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224E72C841675F134033AFECB6C51D9B7AA6585A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436111   (139555) от 30.12.2020
-
-RAW Converter 2 v2.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время все больше и больше камер поддерживают съемку в формате RAW, но формат RAW варьируется от производителя к производителю, и большинство устройств не поддерживают их, а также они слишком велики, чтобы делиться ими с друзьями. Поэтому необходимо конвертировать фото RAW в общий формат. Программное обеспечение RAW Converter поддерживает практически популярные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A184AA237B4C224CF57D99172A2B4DACD497AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195802   (139558) от 30.12.2017
-
-Денис Деев | S-T-I-K-S. Ночь Грядущая (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты – лучший! Ты – элита! Профессиональный «пес войны», наемник, прошедший десятки вооруженных конфликтов. Ты стреляешь на слух, плевком подбиваешь танк и ходишь в туалет напалмом! Тебя отправляют в адское местечко, полное монстров? Тебе должно быть страшно? Ха, пускай монстры начинают рыть себе могилы! Ибо ты собираешься стать самым страшным злом в этом местечке.Жанр: Боевая фантастикаПродолжительность: 12:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30091C07CC4AFC1E1C543A518D4B42A516951720
 ```
 
 

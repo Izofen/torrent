@@ -6,7 +6,7 @@ VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Р
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97874.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97879.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Авто Дискотека Радио Record 50/50 (2012) [MP3|192 kbps]<C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97901.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Авторитетный Хит 11 (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97903.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Звезды Кавказа. Морское рандеву (2007) [MP3|224 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97905.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Весенний марафон Europa Plus 50/50 (2012) [MP3|256 kbps]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97933.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Живи стильно! Наслаждайся музыкой с Hit Fm (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98002.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Самые Взрывные Хиты в Авто (2012) [MP3|256-320 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98013.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Хиты Радио Record 20 50/50 (2012) [MP3|160-320 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98018.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98033.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Самый, Самый! Зарубежный (2012) [MP3|256 kbps]<Pop | Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98035.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98038.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98044.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98060.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98135.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98144.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98150.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Клубные Новинки Vol.57 from AGR (2012)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98158.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98160.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98166.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98168.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98170.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98171.jpg" />
 </div>
 
 
@@ -798,7 +798,7 @@ VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98178.jpg" />
 </div>
 
 
@@ -831,7 +831,7 @@ VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98185.jpg" />
 </div>
 
 

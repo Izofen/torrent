@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132213.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132214.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132216.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8EBB02266EBA300B52D0E7BF637252482F4B55B2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132223.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:24F02A49862A441EF1EB80384B49E473800A7745
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132229.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:8E9463BD4B7053979D8AF2F5AB4ACDE9C97E0207
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132231.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:8CCA6F3F1D1AA0977119880FD8CC54BCA4AF9178
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_132233.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_132233.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:641CF861B735F857939F011C19D4E99B0945897F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132236.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Computer Desktop Wallpapers Collection (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132239.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E79D3F8E2582106B051C5B9D4090F0DFF50FEA37
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132240.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:FEA614743AA0D9489AADEB731FB85E14F90C8174
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132241.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:00CEEA549C39B866E4D34E2497313C17809198FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132245.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A5FC7EB3B71F369238A6E1B503247947DEDF510E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132247.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:00846BC8E61933B04C68C7010AF4D7DBEB01B517
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132249.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0136FFAD86AC512209FCAE7119D36A1B865FFD63
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132251.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ TechSmith Snagit 2024.0.2 build 909 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132257.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132258.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Nature Wallpapers (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132262.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Best HD Wallpapers Pack (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132264.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:604AB23DDD46F681752BBF4DA44CA9378610A353
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132269.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CyberLink PowerDirector Ultimate 22.0.2323.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132271.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sexy Girls Pack Wallpapers (29.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132272.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:40A81B6856C980CD2A673B77704C37C4E10C1113
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132274.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sexy Girls Pack Wallpapers (28.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132276.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:C2F297A38390F3E6141B3D3BD9D807D44A172ED4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132277.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:9956E3E37F21F967A2F9BEA41ED4115D7F770C40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132278.jpg" />
 </div>
 
 

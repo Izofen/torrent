@@ -1,3 +1,76 @@
+###  Публикация: 1699045   (118222) от 11.02.2024
+
+Из глубины / No Way Up (2024) WEBRip [H.264/1080p] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious Media, Sarma FilmsЖанр: боевик, триллер, драма, приключенияРежиссер: Клаудио ФахАктеры: Софи Макинтош, Филлис Логан, Колм Мини, Уильям Аттенборо, Джеймс Кэрролл Джордан, Грэйс Неттл, Джеремия Амур, Мануэль Пасифик, Дэвид Самартин, Скотт КокерПеревод: Дублированный (Vox Records звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:04Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433729   (118223) от 11.02.2024
+
+Николай Лесков, Антон Чехов, Иван Бунин и др. | Классика русского детективного рассказа (Выпуск 1) (2011) [MP3, Александр Бордуков, Алексей Борзунов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературный аудиоальманах.
+Имена таких признанных классиков русской литературы, как Н.С. Лесков, А.П. Чехов, И.А. Бунин, А.Е. Зарин, П.П. Орловец, редко ассоциируются у широкого читателя с остросюжетной литературой. А ведь у каждого из этих авторов есть великолепные образцы детективного рассказа, в чем вы сможете легко убедиться, прослушав аудио сборник (   Читать дальше...   )Жанр: Русская литература, классика, детектив, рассказПродолжительность: 07:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E998642095B5B0B6F33CD9764451C57211A0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698944   (118224) от 11.02.2024
+
+Андердоги / The Underdoggs (2024) WEBRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейсен Дженнингс — бывший успешный профессиональный футболист, карьера которого пошла ко дну. Когда Джейсена приговаривают к общественным работам в его родном городе, он решает стать тренером самой худшей футбольной команды младшей лиги и сделать их чемпионами.Производство: США / Metro-Goldwyn-Mayer (MGM), Khalabo Ink Society, SMAC EntertainmentЖанр: комедия, спортРежиссер: Чарльз Стоун IIIАктеры: Снуп Догг, Тика Самптер, Elias Ferguson, Jonigan Booth, Caleb Dixon, Адан Джеймс Каррильо, Alexander Michael Gordon, Kylah Davila, Джордж Лопес, Shamori WashingtonПеревод: Многоголосый профессиональный (NewStudio, 18 +), Авторский (М.Яроцкий, 18 +)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698155   (118225) от 11.02.2024
 
 В китайских компьютерах нашли вирусы «из коробки»
@@ -6,7 +79,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118225.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118226.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:D35F84CBF249EFBFB21BED3EEF4DF5614B6E4E91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118227.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Sound Storm - Immortalia (2012) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118228.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ Lord Dying - Clandestine Transcendence (2024) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118229.jpg" />
 </div>
 
 
@@ -132,7 +205,7 @@ Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Dr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118230.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -186,7 +259,7 @@ The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118232.jpg" />
 </div>
 
 
@@ -213,7 +286,7 @@ Stanley Cowell - Live at Maybeck Recital Hall, Vol. 5 (1990) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118233.jpg" />
 </div>
 
 
@@ -240,7 +313,7 @@ Natalie Cole - Natalie Cole Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118234.jpg" />
 </div>
 
 
@@ -267,7 +340,7 @@ magnet:?xt=urn:btih:3EBA9DF508208B1958AECE3B11E29D7E265E761D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118235.jpg" />
 </div>
 
 
@@ -291,7 +364,7 @@ Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118236.jpg" />
 </div>
 
 
@@ -318,7 +391,7 @@ VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118237.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:589F578CC33875ECB4DED543EFC8C4D78A2BAFCF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118238.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118239.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118240.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Metropolitan Jazz Octet Featuring Dee Alexander - It's Too Hot For Words: Celebr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118241.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:B95074A3AB9F992E6064DE7243F48CF53DBD5175
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118242.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Patti Austin - Patti Austin Love Songs (2024) Compilation [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118243.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118244.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ magnet:?xt=urn:btih:713C0654F680FBC8F7EBE4D8A11C5E54C7397386
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118245.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:0317A40065B0CEDCFD5127BFF4C0A5DF66D4FA1E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118246.jpg" />
 </div>
 
 
@@ -574,7 +647,7 @@ magnet:?xt=urn:btih:8A514969D7DC2967998635AF8E22DEB70310FD89
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118247.jpg" />
 </div>
 
 
@@ -585,81 +658,6 @@ magnet:?xt=urn:btih:8A514969D7DC2967998635AF8E22DEB70310FD89
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:265F0B7644F62C2D8A1B509B8ABB5DB42610F8EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698676   (118248) от 10.02.2024
-
-Пятеро на одного (10.02.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6B6F4295FF5C39E56D584F21B3035342FF6CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698875   (118249) от 10.02.2024
-
-Сибирская Благозвонница | Избранные жития святых, изложенные по руководству Четьих-Миней архиепископа Филарета Черниговского (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых – жизнеописания духовных и светских лиц, канонизированных Русской Православной Церковью. В Древнюю Русь Жития святых перешли с началом письменности – через южных славян, а также в переводах с греческого языка. Первые жития святых – это назидательные сказания о христианских мучениках. В дальнейшем (с IV в.) жития святых объединялись в специальные сборники: (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6755971BE078B8D52DEE06D31AEBF8A26F57566E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698754   (118250) от 10.02.2024
-
-Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118250.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Anima Nera (Prologue)
-A2 Sword Of Anger
-A3 Reckless
-A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
 ```
 
 

@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42215.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A7C411DD336A88DA28CF10BB339D1BB943D510B6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42216.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7ECAAD069EDF751A45968FB7CDC244FBE77F4FD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42217.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Autorun Organizer 5.45 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42218.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ FinePrint 12.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42219.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42220.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:CC64D3A0950F245644BD11E256DFD4F4255F65A3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42221.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:18B8151E4F50DF6410E772C339E634537C143E1F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42222.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ FanControl V205 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42223.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Vocal Trance Classix Vol. 1 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42224.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:682B2615C1D3DC642541C08CDC95DD428E9D9EA8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42225.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:D9235F8126C62537C2EC2003937EBB587F37FA88
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42226.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:06D9F3567F38549CEDDF0713F79E328AA69A0CBE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42227.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:C72DA60E244EA6C566C5A946D5BB5B090DCBA70B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42228.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:D0E31617E37890C9FAF6C42D43305A89DEB082E2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42229.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:B055480031546D82F9756EB482A2111F42ABC640
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42230.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:B055480031546D82F9756EB482A2111F42ABC640
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42231.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:B055480031546D82F9756EB482A2111F42ABC640
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42232.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:B055480031546D82F9756EB482A2111F42ABC640
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42233.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Zoom Player MAX 19.5.1 Build 1951 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42234.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Wise Care 365 Pro 7.0.6.688 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42235.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:F786D6CF18A20F119DDC5591361972119F4C5DE4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42236.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ FontLab 8.4.2.8950 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42237.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:AEFCF212AAE6AEFC33E1463159476F5FF62C7836
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42238.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:43AE568544F10BC156BA4A43539142302866C324
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42239.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F25F994DC0A2437F53FD59FD53CD705688B61929
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42240.jpg" />
 </div>
 
 

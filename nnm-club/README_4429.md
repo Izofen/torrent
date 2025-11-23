@@ -1,3 +1,77 @@
+###  Публикация: 1601429   (137016) от 31.12.2022
+
+Грозный папа (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поссорившись с сыном, царь Иван Грозный случайно ранит его – как на знаменитой картине Репина. Жизнь царевича на волоске. Чтобы все исправить, Грозный хочет отправиться в прошлое с помощью волшебного гримуара. Однако что-то пошло не так, и Грозный попадает в наше время, где знакомится с семьей Осиповых. Никита Осипов – неудачливый археолог и такой же неудачливый (   Читать дальше...   )Производство: Россия / IRSNA MEDIA, Карго ФильмЖанр: комедия, фэнтези, фантастика, приключения, семейныйРежиссер: Карен Оганесян, Юрий КоробейниковАктеры: Кирилл Кяро, Евгений Гришковец, Игорь Верник, Елена Сафонова, Анастасия Тодореску, Михаил Орлов, Ирина Воронова, Ульяна Пилипенко, Игнат Акрачков, Эрик ПаничСубтитры: отсутствуютПродолжительность: 01:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60482FF8EBB9FA3B953B9C5684062BC801F876D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679521   (137017) от 25.11.2023
+
+Сергей Лукьяненко | Форсайт (2023) [MP3, Сергей Габриэлян, Дмитрий Ячевский, Федор Парамонов, Полина Кузьминская, Егор Жирнов] [AD]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Людям порой снится прошлое. Иногда хорошее, иногда не очень...
+Но что делать, если тебе начинает сниться будущее?
+И в нём ничего хорошего нет совсем.Жанр: Киберпанк, постапокалипсисИздательство: МТС СтрокиПродолжительность: 06:47:17Реклама: вставки в начале каждой главы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC704E94019D7DC8B763278FD1372ABE2B3CA86D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338543   (137018) от 31.12.2021
+
+Клаус / Klaus (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодого почтальона отправляют на работу в заснеженную деревушку с крайне недружелюбными и негостеприимными жителями. Там он встречает странного создателя игрушек, и между ними завязывается необычная дружба.Производство: Испания / The SPA Studios, Aniventure, Atresmedia CineЖанр: Мультфильм, семейный, фэнтези, комедия, приключенияРежиссер: Серджо ПаблосПеревод: Дублированный (Невафильм)Язык озвучки: Русский, румынский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH).. и др. (см. Mediainfo)Продолжительность: 01:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601339   (137019) от 31.12.2022
 
 Аватар / Avatar (2009) BDRip 3D [H.264/1080p] [Extended Cut] [Вертикальная анаморфная стереопара]
@@ -6,7 +80,7 @@
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137019.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:FA4F11AC2CC4AB4B77F8D07C201E1AE0E836FC77
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137020.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137021.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137022.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:00824A43C0148CB3A5A7D6A1C6EF203EB7CF2379
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137023.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:8F0932387ABA25C9716F3F4EF070E7B9FCD2C98D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137024.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:1129C997D8C0C6C4CE2343AF342C7544B2E6F1D9
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137025.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ magnet:?xt=urn:btih:C83CE739D4F923E5C1DB74AA709F828BB41C90AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137026.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:E9DCB48C09CB2D2A5EA5CD10AA287FF2EFD83A7E
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137027.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ magnet:?xt=urn:btih:5E1CFC5517DA400BD50290D4D94D4BD35E020D14
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137028.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ magnet:?xt=urn:btih:B2FA2727CFC88F3CFCD4BE9641AE92CBD45F8654
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137029.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:E81C0039809258D299F097790F044B8372A8A693
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137030.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.1.7f.48-1.3.3e.587,1.3.4
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137031.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137032.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137033.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:BC038FB631211FF967B89B1491F7FF50D026A28E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137034.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ magnet:?xt=urn:btih:B5429E1EE811D933EF6D775646FAC069D088F1E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137035.jpg" />
 </div>
 
 
@@ -416,7 +490,7 @@ magnet:?xt=urn:btih:24268D19D456FD0EFBD724E6BFD5ABB29C318507
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137036.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:EBFA7F05F9B7D6EC20EB4D859215C7805CDB7F3A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137037.jpg" />
 </div>
 
 
@@ -469,7 +543,7 @@ magnet:?xt=urn:btih:427BF41F57118A017FDDC5D3366C08D5DC701ED9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137038.jpg" />
 </div>
 
 
@@ -493,7 +567,7 @@ magnet:?xt=urn:btih:F76C7B646C802954A5A256FC7B7C2251B2D1F9BF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137039.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:AA70CBBDC2DFF4B68FD08F03617F27452FF4DAD1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137040.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:DE55F647FA7EA49C3B91DEF24E11835B6CF2E105
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137041.jpg" />
 </div>
 
 
@@ -552,79 +626,6 @@ magnet:?xt=urn:btih:DE55F647FA7EA49C3B91DEF24E11835B6CF2E105
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DAC844B11DD7BE9A8DF7F44DE4269C7C22E5DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501615   (137042) от 31.12.2021
-
-Меня выгнали из гильдии героев [ТВ-1] | Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shim [2021, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: Приключения, фэнтези, романтикаРежиссер: Хосино МакотоЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Briff, MyAska, Renie (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA11829A6CD3F74F96CEA67F196851C8F786035A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679307   (137043) от 25.11.2023
-
-OpenVPN 2.6.8 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137043.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenVPN – мощная программа для работы с частными виртуальными сетями. Утилита дает возможность использовать и настраивать виртуальные сети на основе точек подключения Wi-Fi или ADSL-модемов. Программа позволяет создавать зашифрованные каналы для подключения к серверу или от одной точки доступа к другой путем переадресации роутера или модема.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B66496BF51E5FE8860E830E79F13982A77753FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601328   (137044) от 31.12.2022
-
-Ламборгини: Человек-легенда / Lamborghini: The Man Behind the Legend (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137044.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самого дерзкого стартапа в мире суперкаров. Путь страсти, проб и ошибок Ферруччо Ламборгини и его превращения из сына фермера, мастерившего тракторы, в создателя легендарной машины, бросившего вызов самому Энцо Феррари.Производство: Италия, США / Ambi Pictures, Grindstone Entertainment GroupЖанр: Биография, спорт, драмаРежиссер: Бобби МорескоПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359F9DC4A18C92A3E6118692C42A12570BDEA650
 ```
 
 

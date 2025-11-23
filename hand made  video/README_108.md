@@ -1,3 +1,75 @@
+###  Публикация: 1636637   (197736) от 31.05.2023
+
+Только для твоих глаз / For Your Eyes Only (1981) BDRip [H.265/2160p] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197736.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз агенту 007 предстоит захватывающая дух гонка с русскими коллегами. Дело в том, что Британские военные умудрились утопить в Ионическом море абсолютно секретное оборудование. Если аппаратура попадет в руки советским разведчикам, это может привести к ужасающим для Великобритании и всего мира последствиям. Бонду приходится с безумной скоростью прокатиться (   Читать дальше...   )Производство: Великобритания, Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Роджер Мур, Кароль Буке, Тополь, Линн-Холли Джонсон, Джулиан Гловер, Джилл Беннетт, Джон Уаймэн, Лоис Максуэлл, Десмонд Ллевелин, Уолтер ГотеллПеревод: Дублированный (СЕЕ)Язык озвучки: русский, английскийСубтитры: русские (pgs)Продолжительность: 02:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6730CC05DEB03F2A806B2F53A9F2B8E092AA59BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636443   (197775) от 30.05.2023
+
+Лунный гонщик / Moonraker (1979) BDRip [H.265/2160p] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197775.jpg" />
+</div>
+
+
+###  Подробнее
+
+За маской добропорядочного американского миллиардера Дракса скрывается сумасшедший учёный. Он вынашивает безумный план: устроить на Земле апокалипсис, и когда на планете не останется ни одной живой души, населить её выращенными на космической станции суперлюдьми. Чтобы помешать планам Дракса, Бонду приходится побывать в Калифорнии, Бразилии, джунглях Амазонки и, (   Читать дальше...   )Производство: Великобритания,Франция, United ArtistsЖанр: боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Роджер Мур, Лоис Чайлз, Микаэль Лонсдаль, Ричард Кил, Корин Клери, Бернард Ли, Джеффри Кин, Десмонд Ллевелин, Лоис Максуэлл, Тосиро СугаПеревод: Дублированный (СЕЕ)Язык озвучки: английский, русскийСубтитры: русские, английские (pgs)Продолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F09D46BBA7E6EAC75B5DE9313A849828548690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630657   (197789) от 28.05.2023
+
+Отпетые мошенники / Dirty Rotten Scoundrels (1988) BDRip [H.265/2160p] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_197789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба сводит двух «отпетых мошенников» — Фредди Бенсона и Лоуренса Джемисона, специализирующихся в качестве жиголо в оболванивании богатеньких дам. В городке, где-то на юге Франции, Фредди сначала берёт уроки у мэтра Лоуренса, но, повздорив, коллеги заключают пари: кто из них первый охмурит незнакомую богатую женщину, тот остаётся в городе, а проигравший должен (   Читать дальше...   )Производство: США / Orion Pictures CorporationЖанр: комедия, криминалРежиссер: Фрэнк ОзАктеры: Стив Мартин, Майкл Кейн, Гленн Хедли, Антон Роджерс, Барбара Харрис, Иен МакДермид, Дэна Айви, Меган Фэй, Фрэнсис Конрой, Николь КальфанПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английские (SDH)Продолжительность: 01:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F16CEF8790053E9281029927FA3A8130E56554F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635542   (197869) от 26.05.2023
 
 Тегеран-43 (1980) WEBRip [H.264/1080p-LQ] [hand made Remastered Upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197869.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197869.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B8E30900EB6481FA35A1622A8A93BFDE3EDC88FE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197893.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197893.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:2B967D1F48862F6FFBCEC5C840085A4F4B66A16B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197899.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197899.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:63EFC3E2DDDD29BCA351A988CB3B00AAB53AF0A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197926.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197926.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:034C5029E08787379AE60C49A2E2051FC54B7E30
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197931.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197931.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:EA2C544CB50BF993366F45A0D4FE7CD35330F14A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197954.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197954.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:C3520EAFC84C37A838FA6F9359A8662A033D92AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198008.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:C87F2A8B112407EAD162C956C5912862D7046DF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198024.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198024.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:6CC27E3D3466A994AE9DBB8A35A2421F1DCBE181
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198073.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198073.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:95909F6E514CE269B5AFB39D848204C9DCE1E35D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198184.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198184.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:2337775CC41873D5447D3CB6BCFE3CA7999F2D78
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198294.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:052C75B2F5BA33B1309D3EEA7928766CD96BD7E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198301.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198301.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:DF16E0C4C09E92F6DA8A34C63F67A0EFAF5B72A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198352.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198352.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:17ED616643C41E61CD4C38D8C63E0E3F0C7DD585
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198487.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198487.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:50FCC7047FB16B526E05AC67FD30205648B64452
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198536.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198536.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:FFFA740B7DE1DCAA272ED5FEF5914A09F384C4B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198561.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198561.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:531ABE02E2EF04316B3AF50C1188C8619AD64A62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198583.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198583.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:54F869E46422F30B68772467E8E58751CDD33C4C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198607.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198607.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:25557421AAFFAE39B0E813863197DD8D322D171A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198693.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198693.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:BE535668E4483E1EEBEE249D23EC742BAE141CB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199111.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199111.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:9B382CBB2839D6DF02F23DEAC643A20AF207F380
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199269.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199269.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:783354920BBC453126E00203C9900BB4B38302BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199349.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199349.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:B68E3944E2A78852BC52EADBAC0F057FF67878B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199360.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199360.jpg" />
 </div>
 
 
@@ -553,80 +625,6 @@ magnet:?xt=urn:btih:B68E3944E2A78852BC52EADBAC0F057FF67878B9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F404B41E5E75C8EC2702B31C2BB1F8FBEFA73219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626921   (199415) от 24.04.2023
-
-Последний из могикан / Last of the Mohicans (1992) BDRip [MPEG-2/1080p] [Hand made Color correction]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённого произведения Джеймса Фенимора Купера (1826).
-Действие происходит в 1757 году в британской колонии Нью Йорк в разгар англо-французской колониальной войны в Северной Америке. В фильме поднимаются различные противоречивые темы касающиеся страниц истории британской империи включая сложные отношения с колонистами и индейцами. В основном же фильм (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: история, драма, приключения, военныйРежиссер: Майкл МаннАктеры: Дэниел Дэй-Льюис, Маделейн Стоу, Расселл Минз, Эрик Швайг, Джоди Мэй, Стивен Уоддингтон, Уэс Стьюди, Морис Роевз, Патрис Шеро, Эдвард БлэтчфордПеревод: Дублированный (со вставками MVO), многоголосый, двухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, Full), английскиеПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8212CA782FA2F98C772B72FF1371D792D18592DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627751   (199418) от 22.04.2023
-
-Хищник / Predator (1987) BDRip [H.264/1080p] [hand made remastered AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский вертолет был сбит партизанами в Южной Америке. Оставшийся в живых экипаж находится в плену. Центральное разведывательное управление США бросает свои лучшие силы для освобождения американских граждан.
-Элитная группа спецназа заброшена в южноамериканские джунгли, где внезапно сталкивается с агрессивным представителем внеземной цивилизации...Производство: США, Мексика / Twentieth Century Fox, Lawrence Gordon ProductionsЖанр: ужасы, фантастика, боевик, приключенияРежиссер: Джон МакТирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррильо, Билл Дьюк, Джесси Вентура, Сонни Лэндэм, Ричард Чавес, Р.Г. Армстронг, Шейн Блэк, Кевин Питер ХоллПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4451DB741DEC2A01FA85D9AB8050A922B877A16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628304   (199424) от 22.04.2023
-
-Укротительница тигров (1954) HDTVRip [H.264/1080p-LQ] [handmade Remastered Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своей беззаветной влюбленностью в цирковое искусство Леночка Воронцова смогла «заразить» спортсмена-мотогонщика Федора Ермолаева. Они создают новаторский номер «мотогонки под куполом цирка». Федор Ермолаев полюбил Леночку. Она, готова ответить ему взаимностью, но в последний момент отказывается от интересных гастролей, потому что руководство предложило ей стать дрессировщицей (   Читать дальше...   )Производство: СССР / МосфильмЖанр: мелодрама, комедияРежиссер: Александр Ивановский, Надежда КошевероваАктеры: Людмила Касаткина, Павел Кадочников, Леонид Быков, Павел Суханов, Сергей Филиппов, Татьяна Пельтцер, Александр Орлов, Константин Сорокин, Гликерия Богданова-Чеснокова, Нина УргантСубтитры: ОтсутствуютПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F276A74015A9EB47907B873F670EDF668E7EEB93
 ```
 
 

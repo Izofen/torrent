@@ -6,7 +6,7 @@ Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138370.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138733.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oren Lavie - Bedroom Crimes (2017) [FLAC|Lossless|tracks + .cue] <Folk, Indie, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138915.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Now That's What I Call Movies (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139004.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Now Xmas (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139033.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mylene Farmer - Desobeissance (2018) Nouvelle Edition [APE|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139104.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140247.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pentatonix - Christmas Is Here! (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141098.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Disco Fever CD3 (1998) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141230.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ciao Italia (1997) 3CD Box Set [FLAC|Lossless|tracks + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141386.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141539.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141840.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141960.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141976.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142393.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142814.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levanti
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142873.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144432.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144529.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - 100 Greatest Winter Songs (2019) [FLAC|Lossless|tracks] <Pop, Dance, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144898.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Vision Mastermixers - The Very Best 60s Megamix (1999) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145087.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145276.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Natasha St-Pier - Je n'ai que mon ame (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145332.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145763.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146340.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146497.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25776.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C3D6EEF8FD13888086C5CEDADEEA312079C9F2BA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25777.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0195900DCD9779F268D1129790FA0309DDFC6421
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25778.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:50498BFD1DB10C2694649E48A40F9F4690B5509C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25779.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9C6D838792BFD6C8F1DD538EDC39C7B92C8BDC33
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25780.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Human Anatomy Atlas 2025 v2025.00.012 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25781.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25782.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:8C67F6B6B13892E44F38C39B1C20E4D2D65131CD
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25783.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Digital Dreams (2025) [MP3|320 Kbps] <Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25784.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25785.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9A6A177EE0A2AF240E0B97E32C2213A35E6E54FE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25786.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:95E66FBA3C8A24982B09BF04C48DA17F2E740CFC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25787.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A07C1931C0FD6E2944FB709AE46E0F621431182C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25788.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25789.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25790.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:888EFF3C739B77C5C6448BF70C7181A78ADAB2AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25791.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Luther Allison - 22 Albums (1969 - 2009) 23 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25792.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DiskDigger 2.0.7.4057 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25793.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack FitGirl [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25794.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25795.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:8B529DD6B0CEFC91FBDA05DECE58A1851AEC04F2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25796.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:A077FE99ACF78EC6646F1CFDF6883DE06A80BA26
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25797.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:6992A61BD6B7FE74CC858CF0B742EB38CC8F7F95
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25798.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:8A72256B0E22F955E8B99805F20EEC23CB2A0554
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25799.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Livin' Blues - 14 Albums, 1 Box Set (1969 - 2019) 25 CD [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25800.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:5280534694C51428E762912B8E0842C97FA5052A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25801.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1681141   (132954) от 02.12.2023
+
+OneCommander Pro 3.60.0.0 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One — двухпанельный файловый менеджер, разработанный для macOS. Приложение, разработанное Electronic Team, Inc., полностью создано на Swift и призвано предоставить пользователям мощный и интуитивно понятный инструмент для навигации, управления и манипулирования файлами и папкамиЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0254AC1E14208CA1AFB3C415E43C0ED8FDCCE3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681144   (132955) от 02.12.2023
+
+Александр Сухов | Второй шанс (Книга 1). Ведун (2023) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернативная Россия век XIX. Взрослый мужчина в теле ребенка. Штампы, клише, рояли, ансамбли балалаечников и даже симфонические оркестры, ну и неограниченный плюшкопад, разумеется. Магия-шмагия и прочие чудеса в решете. А что? Другим можно, мне нельзя? Короче, я предупредил, вам решать, читать книжку или сразу фтопку.Жанр: Боевое фэнтезиИздательство: ЛитРес, АвторПродолжительность: 12:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D563929004E4CE0344CA77FB8EF61FD5E964415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681219   (132956) от 02.12.2023
+
+Журнал | PATRONES №1 (Россия) (январь 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Patrones испанского издательства RBA Revistas хорошо известен любителям шитья как в Европе, так и в нашей стране. На страницах Patrones представлены модели из сезонных коллекций pret-a-porte ведущих европейских дизайнеров. В каждом номере – около 40 женских моделей широкого размерного ряда. Эксклюзивные модели от Stella Mccartney, Marella, Antonio Garsia, (   Читать дальше...   )Жанр: Женский журнал, модаИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41529B012CC986EAFC5003565376516FA4640D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681206   (132957) от 02.12.2023
 
 Алексей Ковтунов | Системный призрак (Книга 5) (2023) [MP3, Александр Башков]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132957.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:B7B2561534244E33DCD11CDE83F49A8793D184F1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132958.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:F6D38DD0B5C12F1A40E0AC948ECED3D3F501D1F2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132959.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:52FEBFE8F3665828C218642852DE96D91685D70E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132960.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:1044E4B0E16D42F2767E0A651FE26F6DDD6677C7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132961.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:904F138029794B0F7BF2920EC44CB47E87308056
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132962.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:904F138029794B0F7BF2920EC44CB47E87308056
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132963.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:D5B0324CD79B65F97B209BCB2D89EB7C65352022
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132964.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ VA - 1993% ХИТОВ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132965.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ VA - 1993% ХИТОВ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132967.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ magnet:?xt=urn:btih:384737BED54A60BEEC47941AC8636E9F8466CFA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132968.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ magnet:?xt=urn:btih:09F330D4FD16AB1E998BF9A733B6F4256F878572
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132969.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ Efficient Sticky Notes 3.10 Build 326 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132970.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ Bazanova Art, Ольга Базанова | Практика художника.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132971.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132972.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ magnet:?xt=urn:btih:8B8040A393E618696FAC87353579C3CD3BCDC4FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132973.jpg" />
 </div>
 
 
@@ -406,7 +478,7 @@ Araxis Merge Pro 2023.5954 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132975.jpg" />
 </div>
 
 
@@ -430,7 +502,7 @@ Change MAC Address 2.5.0 Build 81 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132976.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ VA - 100 from the 90's - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132977.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132979.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ XYplorer 25.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132980.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132981.jpg" />
 </div>
 
 
@@ -570,78 +642,6 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681256   (132983) от 02.12.2023
-
-Полтергейст Энфилда / The Enfield Poltergeist (2023) WEB-DLRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интригующий документальный сериал-реконструкция в четырёх сериях, который в необычной манере повествования расскажет захватывающую историю одного из самых знаменитых случаев столкновения человека с потусторонним. Леденящая душу история, ставшая достоянием британской прессы, стартовала в 1977 году, когда непримечательная семья из обычного муниципального дома некоторое (   Читать дальше...   )Производство: Великобритания / Concordia Studio, MetFilm ProductionЖанр: документальный, ужасыРежиссер: Джерри РотуэллАктеры: Olivia Booth-Ford, Кристос Лоутон, Daniel Lee, Paula Benson, Чарли Блэквуд, Грэйс ЭвансПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F43C1584976700388A871E00E5963450D84AF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595027   (132984) от 27.12.2012
-
-Джек Ричер / Jack Reacher (2012) CamRip [EN]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снайпер убивает пять случайных прохожих, но все улики указывают на человека, заключенного под стражу. На допросе подозреваемый умоляет об одном — найти Джека Ричера.Жанр: Боевик, Триллер, КриминалРежиссер: Кристофер МакКуорриПродюсер: Том Круз, Дэвид Эллисон, Дэна ГолдбергАктеры: Том Круз, Розамунд Пайк, Ричард Дженкинс, Вернер Херцог, Дэвид Ойелоуо, Роберт Дюваль, Джей Кортни, Владимир Сизов, Джозеф Сикора, Майкл Рэймонд-ДжеймсПеревод: ОтсутствуетПродолжительность: 02:04:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681289   (132985) от 02.12.2023
-
-Гроза (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132985.jpg" />
-</div>
-
-
-###  Подробнее
-
-В привычный мир простого деревенского мужика, большую часть жизни проработавшего обходчиком железнодорожных путей, словно бешеный поезд ворвалась война. Он уже очень стар, он испуган и растерян. Ненависть к новой реальности в его израненной душе копится, словно наэлектризованные капли в огромной черной туче. Кажется, вот-вот должна разразиться гроза. Но каковы будут (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, военный, драмаРежиссер: Владимир КимАктеры: Станислав СальниковСубтитры: отсутствуютПродолжительность: 00:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5422554EC141765BF32CCA89D426B91559F6062
 ```
 
 

@@ -6,7 +6,7 @@ Windows Server [10.0.25398.1251], version 23H2 (Updated November 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36805.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8C1FB401FCF3F1FE27882BDFAEC45970206F5DF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36806.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 [10.0.22631.4460], Version 23H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36807.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TweakPower 2.065 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36808.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:435ED6A0F019AD82EDD29C8775A35ADA4F108194
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36809.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Altium Designer 25.0.2 Build 28 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36810.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Microsoft Windows 11 [10.0.26100.2314], Version 24H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36811.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6184E47BDD1AEC9A5FC5FEC9C7A3A21FC926902C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36812.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1D88AC7F3808A257A20FF6B7206C8F6125F12E7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36813.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CyberLink PowerDirector 2025 Ultimate 23.0.1113.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36814.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:1CE7696B9A886E0CECD662CD59ADE41D08F11795
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36815.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A4F265B80B5F23C41BC13D1B8E363123A42A63A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36816.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36817.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:1690544E21097F7CB5C7508F6A97E7A477C70D13
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36818.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1690544E21097F7CB5C7508F6A97E7A477C70D13
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36819.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Microsoft Windows 10 [10.0.19045.5131], Version 22H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36820.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:5E4867809A511D7667934101A8DE32CD6D7299D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36821.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3325CC89E39AFC2CDA71AB9F32EA507B927C777F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36822.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:6B68AF9235E75076093BA07DA30CAF6FADF914F2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36823.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:089AAD254862CC7599A942D4D5D4967205811F1E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36824.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7D7458A2AE2648999E5AA482B6E9F5863495DCC7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36825.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36826.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3399945F15ABBBC6D0807F508D67E0617D00B0A3
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36827.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36828.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9018A8DF3694C7ACEB82767F618BE4DA9C84A788
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36829.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:C4742E2EFBEEED93D27EF4378E80848E066E2196
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36830.jpg" />
 </div>
 
 

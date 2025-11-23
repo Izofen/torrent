@@ -6,7 +6,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28343.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.1.1-11377/dlc) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28383.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28437.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28491.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28491.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28498.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28508.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28528.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28541.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28541.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28544.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28558.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Detective Club: Missing in the Fog / Детективный Клуб: Пропа
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28566.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28573.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28573.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28578.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28594.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Great War: Western Front (2023) [Ru/Multi] (Build 822194/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28596.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28598.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28598.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28605.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28605.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28606.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28607.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28607.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28629.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28630.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (4.00.54/dlc) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28644.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28688.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28728.jpg" />
 </div>
 
 

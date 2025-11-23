@@ -1,3 +1,75 @@
+###  Публикация: 1822721   (101632) от 08.10.2025
+
+Избранный (2025) WEBRip (сезон 1, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромного сотрудника НИИ Олега Тяпина неожиданно избирают в Думу нового созыва. Он совсем не хочет быть депутатом, но долг есть долг — Тяпин отправляется из провинциального Глебова в Москву, чтобы приступить к новым обязанностям. Герой пройдет все стадии развития и становления себя как нового человека, влюбится, а самое главное — переживет массу комичных ситуаций.Производство: Россия | «MEM Cinema Production»Жанр: Комедия, драмаРежиссер: Алексей Зотов, Дмитрий ГубаревАктеры: Илья Лыков, Александр Лыков, Дмитрий Смолев, Евгения Добровольская, Артём Осипов, Нонна Гришаева, Камиль Ларин, Антон Даниленко, Ксения Теплова, Иван Писоцкий и др.Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FED958FF5D83C62B50FB1C35498102270614F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822700   (101633) от 08.10.2025
+
+Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 02.10.2025) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8691B7917F4169072E8A7577BC5818CF089BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822732   (101634) от 08.10.2025
+
+SketchUp Pro 2026 26.0.429 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101634.jpg" />
+</div>
+
+
+###  Подробнее
+
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B50B2E4C582DE32E2F42EE27817B17035B184C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822653   (101635) от 08.10.2025
 
 Microsoft усиливает борьбу с локальными аккаунтами в Windows 11
@@ -6,7 +78,7 @@ Microsoft усиливает борьбу с локальными аккаунт
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101635.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101635.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Microsoft продолжает свой крестовый поход проти
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101636.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B7CD961462B4C8C642823DEBDDA102B384D668C4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101637.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Any Video Downloader Pro 9.6.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101638.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Internet Download Manager 6.42 Build 50 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101639.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:7CDCC6AC5CFBD90C6EA00ECD66FF010313D98626
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101640.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:82CEA34887BBF32E45A8666C382FA76279E4A6A8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101641.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:907B33DFFA650D4102D4DDC26EED00F4D73B8C68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101642.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:B5BBC5344250670186D2F9821AA564008279F114
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101643.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:518002C27576908B3446594BF8DFB18B33FBEC97
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101644.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:AE9C8849150D7A0E699421ECA991DB640185771D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101645.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Kubuntu 12.04 LTS [amd64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101646.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.4 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101647.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:3849B033FA4B4E68E3926E476819B61F3BB462C0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101648.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ SQL Dynamite 2.5.2.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101649.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:61643D80C30565D5BDBD9DC88C5093F28F616DF3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101650.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:37D067885521C6A9A0F747ED546ACF4B28ACA443
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101651.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:9C46948523B9582C82C81A1EF6757F8E4A6BD2A4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101653.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:CFF8638AA8261F808DC1835B8E0AFE2B978B0D51
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101655.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:3E91CD7F5173E105A2D475DED498404C96D4D6F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101657.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:3D78367387061AA92CBC32A4DF3EF7FB34977B5A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101659.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101663.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:F89105270EBE329959CB1FE01C6708B64D7EB013
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101665.jpg" />
 </div>
 
 
@@ -553,80 +625,6 @@ magnet:?xt=urn:btih:F89105270EBE329959CB1FE01C6708B64D7EB013
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332F090AC6C5AA8504EFD6D8D3307D4ACF803AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822690   (101667) от 07.10.2025
-
-Джек Хиггинс | Орел улетел (2015) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101667.jpg" />
-</div>
-
-
-###  Подробнее
-
-В час ночи в субботу 6 ноября 1943 года шеф гестапо фашистской Германии рейхсфюрер СС Генрих Гиммлер получил короткое сообщение: «Орел приземлился». Это означало, что небольшая группа немецких воздушных десантников во главе с подполковником Куртом Штайнером при содействии боевика Ирландской республиканской армии (ИРА) Лайама Девлина тайно проникла в Англию и готова (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 09:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8506BA5361A9C1E7E278AFC31709FE77ECE90F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488238   (101668) от 27.04.2012
-
-Ordo Rosarius Equilibrio - 12 albums (1995-2010) [FLAC|Lossless] <Apocalyptic Folk, Dark Ambient, Neofolk, Martial Industrial>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Songs 4 Hate  & Devotion: (01:01:26)
-01. Where I Stand On The Holy Mountain And Pray 4 The War (06:35)
-02. A World Not So BeautifulЖанр: Apocalyptic Folk, Dark Ambient, Neofolk, Martial IndustrialПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822688   (101669) от 07.10.2025
-
-Джек Хиггинс | Гнев Божий (2024) [MP3, Nextw]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как обычно, около полудня начальник полиции для острастки кого-нибудь казнил. Экзекуции проводились почти каждый день. Такие порядки царили в этом мексиканском городишке. Я был на склоне холма на полпути от железнодорожной станции, когда раздался первый резкий залп. И я невольно вздрогнул. Большую часть пути мне удалось пройти в тени, но когда я оказался на Плаза (   Читать дальше...   )Жанр: Детектив, вестерн, триллерИздательство: Аудиокнига своими рукамиПродолжительность: 07:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2E2E5139DC071B2889A41D8D9C7486BE9B39DF
 ```
 
 

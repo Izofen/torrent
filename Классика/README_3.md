@@ -6,7 +6,7 @@ Wolfgang Amadeus Mozart-Requiem in D minor, K 626: VA, conductor Bernard Labadie
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85305.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Johann Sebastian Bach-The Organ Works vol.6: organ Peter Hurford (1982-1985)/198
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85315.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Magic of Classic music (2012) [MP3|192-256 kbps]<Classic>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85507.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D0E46F98DC7969D956D9EFB47FAE05B141B9FE90
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85809.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Brandt Brauer Frick Ensemble - Mr. Machine (2011) [MP3|~245 кб/с (V0)]<Ex
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86306.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Johann Sebastian Bach – Brandenburg Concertos 2, 4, 6; 1, 3, 5: 2CD, VA, (1991
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86778.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Basso
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86785.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87153.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87163.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wolfgang Amadeus Mozart - Requiem in D minor, K 626 Transposition for a string q
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87381.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Roberto Cacciapaglia - 4 albums (2007-2011) [MP3|320 кб/с]<Neoclassical, New 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87474.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Noella - Beautiful Sorrow (2010) [MP3|192 кб/с]<Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_88015.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_88015.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Super Classic Hits (2006) 2 CD [FLAC|Lossless]<Classic>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88077.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ C. H. Graun, J. A. Hasse, G. F. Handel, J. Mattheson – Cleopatra, soprano Isab
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88211.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88662.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di Sa
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88811.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works f
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88986.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89017.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Johann Sebastian Bach – Weihnachtsoratorium Christmas Oratorio: VA (1734) 2CD,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89415.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Johann Sebastian Bach – Fluten Sonaten BWV 1020, 1030-32, 1013, Nicolet & Rich
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90629.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Johann Sebastian Bach-Famous Organ Works: organ Helmut Walcha (1957-1972)/1985, 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90857.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100585.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Autumn Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100932.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Jascha Heifetz - The Master Violinist (2008) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102480.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ VA - Relax Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104725.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105015.jpg" />
 </div>
 
 

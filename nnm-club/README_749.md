@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19798.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0821C1FD2DEA24D1C1E6CBC853E37FB4B23603E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19800.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Nigel Poulton | Quick Start Kubernetes (2025) [PDF, EPUB, MOBI] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19801.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9631F196DC93856ADC142B4514BC9E58CF809A2E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19802.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D7E9EBEDA2DF0F70E0BC8A2FA2030CAE89E98236
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19803.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:AD324BA33F603AC3A3A4510E36BEAED70A31B893
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19804.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ WinToUSB Technician 9.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19805.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AA119AAEE00B1A2E2B4C6BFD9A2C3E3CC4020D0E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19806.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:82F27A82487C77C56DEED66745EA3BC35F631ACE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19807.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A3101C42D38B76893161A044381AA4CFFDEB145E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19808.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:219EB8E212B40679309AB0DAC65B6A01DF94C1E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19809.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:6C0D4F1501AFE8BF20A231432E9054BDFE821923
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19810.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:261B09F5E2A27195F422FD4827CB2C52ED8F1381
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19811.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19812.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19813.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ YT Downloader 9.12.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19814.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C00C2E37EFE211FE36F264AD123AB60FA0652FA1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19815.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:311B542129810B307BB44B5B00AB2FBF19C4AF2D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19816.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19816.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D6C945942CC1FE3CC23393DA294E247338328627
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19817.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6E10F02AD3BF2E92F25290D7736DCA6C249FB789
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19818.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C77F5B3FB198E2B7631EB588BDC005FA85B2DB7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19819.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E7256E7F6D1745738189F5E496A10BC3CF17F637
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19820.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Turok: Dinosaur Hunter (1997) [Multi] (kex4-3.0.1013) License GOG [Remastered]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19821.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:B0141CF7E35A5E9A6A687F9FE6D74A903F52E226
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19822.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:20575C525A069E64EB612EE0DE8048BE5EA339D8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19823.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19823.jpg" />
 </div>
 
 

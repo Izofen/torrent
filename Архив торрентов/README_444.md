@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XS [Ru] (RePack) 1996 | Pilotus, saslazoid
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98960.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98960.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ XS [Ru] (RePack) 1996 | Pilotus, saslazoid
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98962.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ BWMeter v6.2.0 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98966.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98966.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ McAfee Avert Stinger Portable 10.2.0.574 [англ]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98969.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ McAfee Avert Stinger - это бесплатный, не требующий ус
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98973.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98973.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ McAfee Avert Stinger - это бесплатный, не требующий ус
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98976.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Blue Steel - International Hu$$la (2012) [MP3|320 кб/с]<Dirty South>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98979.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Tiёsto - Club Life 262 (07-04-2012) [MP3|192 кб/с]<Trance ,Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98980.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98981.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98983.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98985.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98987.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98990.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Bennie Green - Mosaic Select (Box Set 3CD) (2003) [MP3|320 кб/с]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98991.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98995.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98996.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:73450AEC8DE398A269AAFE80AAAF429ADC44BCDA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98999.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99000.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99003.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99004.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99005.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99009.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99011.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Twin Vi - Крестовый Поход (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99012.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99014.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99014.jpg" />
 </div>
 
 

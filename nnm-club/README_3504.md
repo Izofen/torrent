@@ -1,3 +1,75 @@
+###  Публикация: 1718880   (110786) от 27.04.2024
+
+Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективно-интригующей серии игр Dark City. Над Амстердамом нависла угроза - вся надежда только на вас! Приготовьтесь к одному из самых грандиозных расследований в карьере Агаты! В порт пришвартовывается легендарный корабль "Летучий Голландец". У него на борту - целая команда моряков-призраков, которые устраивают хаос на улицах города. Они, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718994   (110787) от 27.04.2024
+
+Нелюбимая невестка (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110787.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Анны и Сергея прекрасная семья, их сыну Илье 8 лет. Но есть одно «но» – влиятельная мать Сергея, владелица мясокомбината Маргарита Петровна терпеть не может невестку и мечтает, чтобы ее любимый сын поскорее развелся. Сергей прекращает общение с матерью и отказывается от ее денег и наследства. Он берется за любую работу и бомбит по ночам на такси. От недосыпа и (   Читать дальше...   )Производство: Россия | Киностудия «Фу-24»Жанр: МелодрамаРежиссер: Альберт БарбаричАктеры: Татьяна Чердынцева, Максим Линников, Ирина Бразговка, Анастасия Меськова, Александр Лучинин, Сергей Тэсслер, Франгиз Файзиева, Артемий Корочков, Ярослав ПетрашкоПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261267DD97E4834B57D0F22B43FE271B3D86F682
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719080   (110788) от 27.04.2024
+
+Radiant Photo 1.3.1.436 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BA1AA755B7B39AC5172CDCE39A5986CF0AF886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719068   (110789) от 27.04.2024
 
 KORG - Modwave Native 1.2.7 Standalone, VSTi 3, AAX (x64) [En]
@@ -6,7 +78,7 @@ KORG - Modwave Native 1.2.7 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110789.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ FileZilla Server 1.8.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110790.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:24CE9A5716215165B7CEEA5154C279D0AA301F2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110791.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ PortableApps.com Platform 29.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110792.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110793.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110794.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:1BFB70DD83271E9229D9CB22246C2FA4157CDE6B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110795.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ TechSmith Snagit 2024.1.1 build 1964 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110796.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Tina Turner - What's Love Got to Do with It (1984) 30th Anniversary Deluxe Editi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110797.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:1065B54D042724828E036CEA02A737184CDCF5C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110798.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ EssentialPIM Pro 11.8.4 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110799.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Andromeda Dreams - Hyperion (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110800.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ magnet:?xt=urn:btih:F1F7371184B1ABE4ABAD0DD5D7DDC49983C420C0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110801.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ magnet:?xt=urn:btih:505049AA77DE5936F975ECAB443B4AE1110E779F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110802.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110803.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ Hypaton x David Guetta Feat. La Bouche - Be My Lover (2023 Mix) (2023) [FLAC|Los
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110804.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ Google Chrome 124.0.6367.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110805.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:A01887B62E6E8DAE2FB244BF7C44EAA3AE0710A7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110806.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:57BB034B4C5880990BA7BD841F09930E8A927239
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110807.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Def Leppard - Pyromania (1983) Super Deluxe, 2024, UMC [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110808.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:F66DDC641CA334E85AE52FC521F6B7A5088A5939
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110809.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ HyperSnap 9.5.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110810.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:F182CD2C14B09FFD00C57E6FCD741F2012D95C96
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110811.jpg" />
 </div>
 
 
@@ -564,78 +636,6 @@ magnet:?xt=urn:btih:F182CD2C14B09FFD00C57E6FCD741F2012D95C96
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F924DE5FF933FB136E5A0D8F6C9D0D5B1D96FBEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718843   (110812) от 27.04.2024
-
-Alt SwitchER 21.16 Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alt SwitchER - программа для автоматического исправления "раскладки" слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью "ручного" добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6FECBE52276C5B300DC2D2B002BA8D87C6C5DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718954   (110813) от 27.04.2024
-
-Заклятие. Зарождение зла / Auxilio (2023) WEB-DLRip [H.264/1080p] [Line] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110813.jpg" />
-</div>
-
-
-###  Подробнее
-
-1931 год. Эмилия, мятежная и непокорная девушка, сослана отцом в монастырь против собственной воли. Ее приезд сопровождается серией паранормальных явлений, которые со временем становятся все более сильными. Чтобы обрести свободу, Эмилии придется разгадать тайну проклятия монастыря и его обитательниц.Производство: Колумбия, Аргентина / Del Toro Films, Furia Films, Red Vector Productions S A SЖанр: ужасыРежиссер: Тамаэ ГаратегиАктеры: Кумелен Санс, Герман Баудино, Херардо Романо, Матина Гарелло, Марсела Бенхумеа, Камила Токер, Патрисия Кастро, Габи Валенти, Вероника Интиле, Паула КарруэгаПеревод: Дублированный (Paragraph Media) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:27Реклама: Присутствуют вставки аудио и видео рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7C9CF452AD942602F978FA8B630EBE56B998F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718860   (110814) от 27.04.2024
-
-Total Uninstall Pro 7.6.1.677 x64 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64440C004A4875E5FB8B1EBB8B2553914F5EF36B
 ```
 
 

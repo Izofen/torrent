@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7678.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC9CAAF668B65DAC71E271DB47B7A88ECB8387C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7679.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Martyr - Dark Believer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7680.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E41E906BBC54E116B04D099F221A0990860A5667
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7681.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F00720E66E86F000AB89F9C0DB139D66CE8254B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7682.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:1A30A394537C7CC88B6C040117415DD907A39F72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7683.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:5A8D7EB15A761EF95DBA4361AD6654F6BD8865E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7684.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:3B696158631197578B3A8B106460684D023F3078
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7685.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:24EA9DA18948CC6EEE9CD80EC3C2710FDF235AD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7686.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Black Hole House Music 08-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7687.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Armin van Buuren - A State Of Trance 1238 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7688.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:01A5464FE933CE92AA22AAAC6835894794DCECF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7689.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:698EB671BFBBF097485D870D656C2546A9C79FA2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7690.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7691.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7692.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:FEBE033FF1273B70A39416F165B58A895D8FD9D8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7693.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:A2288D435A0EBF648CD0CE2D4C64DE021071E1FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7694.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:ABBA6841808A76DED24C1AA562A1AEC93223D1DE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7695.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:808EB996965DD5B77A9F0B6A91021CB48B7A3B34
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7696.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7697.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:3747EB0D947A5FA498E7965369ACDCBAC780996B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7698.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:C85FE78E10B23F4C2EB0D4706DA681ED6170445B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7699.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:9F00593735477194294CCD413F8D898B072658DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7700.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7701.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Black Hole Trance Music 08-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7702.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:04486ABA40E74224823B13F554A31E8D4E3D4D01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7703.jpg" />
 </div>
 
 

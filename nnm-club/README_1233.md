@@ -6,7 +6,7 @@ QOwnNotes 25.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32413.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32414.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32415.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C464D2471E35C9EE617D006F8C37D7D04AF6CF96
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32416.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Soft Organizer Pro 10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32417.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:699FF9D6A3FD8D79745EA7773C0EC352292D9341
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32418.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:35495EF3AA702CF70D4A3418F3BB6F946BC29884
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32419.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Desktop Calendar 3.20.219.6934 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32420.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:94AA16F42B5EAE5624E527204A8C3D9C480AC4E1
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32421.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:24BA02E6FE3B82636A503071289EC5A5ECE8999D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32422.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Caga Tio - рассказ о рождественской каталонской
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32423.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Caga Tio - рассказ о рождественской каталонской
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32424.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:D1B29220FD522ECAF44F1A2A359FCA5D8308F51D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32425.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:731C1F5816DD5B2A0AFA3639B71628E34B5F8112
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32426.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:1ED9039A3BE7ECDDB2E4430E81E06E8A35DE9425
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32427.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Robbie Williams - Better Man (Original Motion Picture Soundtrack) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32428.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:61F934744AC8BF3737D36CD820F3739FB9DD09DD
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32429.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Chasys Draw IES 5.33.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32430.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dict Box - Английский словарь v8.9.7 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32431.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Freshlife28, Антон Петряков | Практикум осознанно
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32432.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Freshlife28, Антон Петряков | Худеем без спорта и �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32433.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DEAF4E5D2FD8933E92E2BB0ED266F93E6EEF92E8
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32434.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Topaz Photo AI 3.4.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32435.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AIMP 5.40.2653 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32436.jpg" />
 </div>
 
 

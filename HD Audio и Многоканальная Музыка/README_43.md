@@ -6,7 +6,7 @@ Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46196.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Beasto Blanco - Kinetica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46272.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Good Fortune - Stories Untold (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46279.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richard Clapton - Prussian Blue (1973) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46280.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Meg Washington\\Melbourne Symphony Orchestra - Live At Hamer Hall (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46282.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Imperia - Dark Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46283.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Brave Rival - Fight or Flight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46284.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Arielle - Reel To Real (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46286.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46287.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46288.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46488.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Meghan Trainor - Timeless (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Eur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46493.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Falling In Reverse - Popular Monster (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46520.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Marilyn Manson - Raise The Red Flag, As Sick As The Secrets Within (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46696.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46712.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mark Knopfler - One Deep River (2024) Deluxe [FLAC 24/192|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46828.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Cults - To the Ghosts (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <IndiePop, Lofi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47122.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47335.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47430.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Jack White - No Name (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47434.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mushroomhead - Call The Devil (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47435.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ James-Johnson - Midnight Blues (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47437.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47438.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Blues Pills - Birthday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47440.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Yes - The Yes Album (1971) Reissue, Remastered, 2024, Analogue Productions  [DSD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47745.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47898.jpg" />
 </div>
 
 

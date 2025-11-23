@@ -1,3 +1,76 @@
+###  Публикация: 1710119   (112736) от 26.03.2024
+
+Multitrack Editor: Beat Mixer 1.0.7 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная студия микширования. Простой, быстрый и надежный инструмент для редактирования аудио. Запустите новый проект и добавьте аудиофайл. Вы можете начать редактировать один трек или добавить больше и редактировать их одновременно. Различные эффекты, фильтры, 6-полосный эквалайзер и другие настройки.
+Лучшее в многодорожечном редактировании то, что оно позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © Inline Solutions s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF23A9955CFBEBCD9D676228C4247B9D99557B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710383   (112737) от 26.03.2024
+
+USBclean 3.9 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF30F540E359154C726A92BF38197651BEFE268F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710345   (112738) от 26.03.2024
+
+EarthView 7.9.2 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112738.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452B06345BE6ABD71590ACF98ED1A82A15004EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710073   (112739) от 26.03.2024
 
 Зелёная граница / Zielona granica (2023) HDRip [H.264] [UKR звук с ТS] [AD]
@@ -6,7 +79,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112739.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112740.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Syncovery for Mac 10.13.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112741.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112742.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ Opera GX 108.0.5067.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112743.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ magnet:?xt=urn:btih:C2BE58514DADF2506DD47CB7EE6C123E09A902A3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112744.jpg" />
 </div>
 
 
@@ -161,7 +234,7 @@ Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112745.jpg" />
 </div>
 
 
@@ -188,7 +261,7 @@ Q-Dir 11.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112746.jpg" />
 </div>
 
 
@@ -213,7 +286,7 @@ Ocenaudio 3.13.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112747.jpg" />
 </div>
 
 
@@ -237,7 +310,7 @@ magnet:?xt=urn:btih:BD2AE2A1CC45DF282A9377E6F3D8B1D15F4C205A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112748.jpg" />
 </div>
 
 
@@ -261,7 +334,7 @@ SponsorBlock for YouTube 5.5.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112749.jpg" />
 </div>
 
 
@@ -285,7 +358,7 @@ Aiseesoft Mac Screen Recorder 2.2.26 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112750.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ Hides 5.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112751.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ DataGraph for Mac 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112752.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Wing Pro 10 for Mac 10.0.3.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112753.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ magnet:?xt=urn:btih:6276F40A484FDECDD5E72667D453F47046EF8760
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112754.jpg" />
 </div>
 
 
@@ -406,7 +479,7 @@ NCH Express Invoice Plus 11.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112755.jpg" />
 </div>
 
 
@@ -430,7 +503,7 @@ magnet:?xt=urn:btih:D96CA1ECA5FB8AB0DB8D5945B5F08EA1E56FF091
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112756.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ AirMail Pro 5 v.5.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112757.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ Permute 3 v.3.11.8 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112758.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112759.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ Anime Sanjuushi | The Three Musketeers | Три мушкетера [1987, TV, 52
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112760.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ Sandboxie plus 1.13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112761.jpg" />
 </div>
 
 
@@ -562,81 +635,6 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F782867497499335B11D21AD11AC7B5960192C32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710106   (112762) от 26.03.2024
-
-Книжная серия | Очерки по истории геологических знаний (1953 - 2022) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советское и российское серийное академическое научное издание на русском языке по истории геологии. Серия основана в Институте геологических наук АН СССР, издаётся с 1953 года, первый ответственный редактор - В. В. Тихомиров.Жанр: ГеологияИздательство: НаукаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710234   (112763) от 26.03.2024
-
-Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. О мое солнце (Э. Капуа)
-02. Аве Мария (Ф. Шуберт)
-03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710376   (112764) от 26.03.2024
-
-Pale Moon 33.0.2 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с многими расширениями Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FC078B37D9C50C0309CBBDF974E4B77A29ECE1
 ```
 
 

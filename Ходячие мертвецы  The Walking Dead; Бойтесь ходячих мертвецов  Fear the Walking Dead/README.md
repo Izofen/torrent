@@ -6,7 +6,7 @@
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B735F298325A784B5F46883E87CE5F8F5A857806
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13106.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9FFD856282B04E1E75E683D732D56EE30C8224D3
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13127.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1F7E6C5DA75992A4B2ED696FB599942B3B4C8E4A
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13503.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2C2CCA927ECBF7F1668EC2C5E6BAD73D95990311
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38009.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BF44DC0D90F31008F82E29A8738CE08260E01CC2
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41140.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:96D92F4763AA0503BD11F18E9E31F146286806F1
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48350.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EEA89AB64C0373D2AAE997BAE37F8388C435DCFB
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49157.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:19D1068645AFEA562946D2626B81A07AB8248E11
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57850.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0D5F8C5729E5FB2ACBA138C8418212330799ACF9
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58429.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:DFFF1415F4F923D04DF0B29A05B9EF9010ED8BE6
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61022.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:08DB49843534DA02689D58B4730EB0A85419C967
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61153.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:2EDD18ACCECE4F9E265CC60FEC9D41EBCC49196E
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84002.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:2EDD18ACCECE4F9E265CC60FEC9D41EBCC49196E
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115134.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:9FDB1C5D05AEF3C76F0332BB08713BA00817640A
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133605.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:06FFFF5E96EF315C5F87628981F78A82F972CC16
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170625.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:4549B9F7406A2511145CD6AFBB0E8917106709BF
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171794.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:5357080990650AB2E89405367C05D60ED7DB9690
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172378.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B6C23E392051CFC47CCD53F69DFE09DDB71BF162
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172709.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:CF0EECF4D232967E2E55590F64F6AB01FFB74B2F
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174821.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174821.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:774D0C24A4D21A0E3ABC8DFD14CC79F080E4B788
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175575.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175575.jpg" />
 </div>
 
 
@@ -504,6 +504,54 @@ magnet:?xt=urn:btih:ED0DC1D8DB4D38C0116DD4DC1E44A0FE2B455F36
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539087   (180597) от 26.11.2022
+
+Ходячие мертвецы / The Walking Dead (2021-2022) WEB-DL [H.264/1080p] (сезон 11, серии 1-24 из 24) FOX
+
+>>Зарубежные сериалы
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» - эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / Circle of Confusion, AMC StudiosЖанр: ужасы, триллер, драмаРежиссер: Грег Никотеро, Майкл Е. Сатраземис, Дэвид БойдАктеры: Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Джош Макдермитт, Кристиан Серратос, Данай Гурира, Сет Гиллиам, Эндрю Линкольн, Росс Маркванд, Чендлер РиггзПеревод: Многоголосый профессиональный (FOX)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английскиеПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA535F313BECEBBD3AC46FF9A6FAFFE743CDEBE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506141   (182095) от 24.11.2022
+
+Ходячие мертвецы / The Walking Dead (2021-2022) WEB-DLRip [H.264] (сезон 11, серии 1-24 из 24) LostFilm
+
+>>Зарубежные сериалы
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_182095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / Circle of Confusion, AMC StudiosЖанр: ужасы, мистика, триллерРежиссер: Грег Никотеро, Майкл Е. Сатраземис, Дэвид БойдАктеры: Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Джош Макдермитт, Кристиан Серратос, Данай Гурира, Сет Гиллиам, Эндрю Линкольн, Росс Маркванд, Чендлер Риггз и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: русскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BB6EB0162BEBC52E5701AB9B400D5EC3B1E50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582261   (182687) от 23.11.2022
 
 Ходячие мертвецы / The Walking Dead (2021-2022) WEB-DL [H.264/1080p] (сезон 11, серии 1-24 из 24) LostFilm
@@ -512,7 +560,7 @@ magnet:?xt=urn:btih:ED0DC1D8DB4D38C0116DD4DC1E44A0FE2B455F36
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182687.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_182687.jpg" />
 </div>
 
 
@@ -536,7 +584,7 @@ magnet:?xt=urn:btih:B911B57ABF4374F1776C0250937BBEC590E72501
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188329.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188329.jpg" />
 </div>
 
 
@@ -560,7 +608,7 @@ magnet:?xt=urn:btih:5BA6CFC5FFCD73AF2AE3946F96002B883C69F0FB
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189460.jpg" />
 </div>
 
 
@@ -572,54 +620,6 @@ magnet:?xt=urn:btih:5BA6CFC5FFCD73AF2AE3946F96002B883C69F0FB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81EBCB776DE55F1A91ACB45AD85758916B6A1602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649477   (194901) от 02.08.2023
-
-Ходячие мертвецы: Мёртвый город / The Walking Dead: Dead City (2023) WEB-DLRip [H.264/720p] (сезон 1, серии 1-6 из 6) LostFilm
-
->>Зарубежные сериалы
->>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит через несколько лет после событий финала оригинального сериала «Ходячие мертвецы». Таинственный лидер группы выживших по имени Хорват нападает на Мэгги и похищает ее сына Хершела. Женщине удается выследить похитителя до Манхэттена, который теперь представляет собой изолированный остров, наполненный множеством непреодолимых смертельных опасностей. (   Читать дальше...   )Производство: США, AMC Networks, AMC StudiosЖанр: ужасы, триллер, приключенияРежиссер: Кевин Даулинг, Лорен С. Яконелли, Ганджа МонтейруАктеры: Джеффри Дин Морган, Лорен Кохэн, Гай Чарльз, Mahina Napoleon, Желько Иванек, Логан Ким, Джонатан Хиггинботэм, Карина Ортиз, Паллави Састри, Лиза ЭмериПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии по ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8E585611696AC9F7D77FFAE1F004F9AA910B76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640513   (195254) от 23.07.2023
-
-Ходячие мертвецы: Мертвый город / The Walking Dead: Dead City (2023) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) LostFilm, HDRezka, NewComers
-
->>Зарубежные сериалы
->>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195254.jpg" />
-</div>
-
-
-###  Подробнее
-
-В постапокалиптическом мире прошли годы с тех пор, как зрители в последний раз видели Мэгги (Лорен Коэн) и ее заклятого врага Нигана (Джеффри Дин Морган). Жизнь сложилась таким образом, что теперь эти двое должны сформировать хрупкий союз, чтобы выполнить опасную миссию. Мэгги и Ниган отправляются на остров Манхэттен, который, будучи изолированным от всего мира с (   Читать дальше...   )Производство: США, AMC Networks, AMC StudiosЖанр: Ужасы, триллер, приключенияРежиссер: Кевин Даулинг, Гянджа Монтейру, Лорен С. ЯконеллиАктеры: Джеффри Дин Морган, Майкл Энтони, Лорен Кохэн, Дэвид Чен, Джонатан Хиггинботэм, Карина Ортиз, Паллави Састри, Рэнди Гонзалез, Джесси РейдПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936A0A808136930ECBD2F52D2F117D71FD666AB4
 ```
 
 

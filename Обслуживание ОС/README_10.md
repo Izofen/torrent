@@ -1,3 +1,27 @@
+###  Публикация: 1642346   (196574) от 26.06.2023
+
+Ashampoo Driver Updater 1.6.0.0 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Driver Updater обеспечивает обновления для широкого набора компонентов и устройств от профессиональных, до менее известных брендов. Как только новый драйвер становится доступен, он сразу же добавляется в огромную базу Ashampoo Driver Updater и становится доступен для Вас. Доступно более 400.000 драйверов. Поддерживаются более 150.000 устройств. Максимальная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C98FB5D9CC6EA368790329A8D3BB4BF5B490D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516785   (197811) от 27.05.2023
 
 SequoiaView 1.3 [Ru/En]
@@ -6,7 +30,7 @@ SequoiaView 1.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197811.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197811.jpg" />
 </div>
 
 
@@ -32,7 +56,7 @@ jv16 PowerTools 8.1.0.1564 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198577.jpg" />
 </div>
 
 
@@ -56,7 +80,7 @@ ThisIsWin11 1.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198614.jpg" />
 </div>
 
 
@@ -80,7 +104,7 @@ OEM Info Updater 9.8 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199142.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199142.jpg" />
 </div>
 
 
@@ -104,7 +128,7 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199389.jpg" />
 </div>
 
 
@@ -130,7 +154,7 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199794.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199794.jpg" />
 </div>
 
 
@@ -154,7 +178,7 @@ Reg Organizer 9.89 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199797.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ Advanced Uninstaller PRO 13.25.0.68 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199953.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199953.jpg" />
 </div>
 
 
@@ -202,7 +226,7 @@ Reg Organizer 9.89 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199970.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199970.jpg" />
 </div>
 
 
@@ -226,7 +250,7 @@ Reset Windows Update Tool 11.1.0 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200220.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200220.jpg" />
 </div>
 
 
@@ -251,7 +275,7 @@ Extended GodMode 1.0.2.18 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200561.jpg" />
 </div>
 
 
@@ -275,7 +299,7 @@ Total Uninstall 7.3.1 Professional Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201162.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201162.jpg" />
 </div>
 
 
@@ -299,7 +323,7 @@ Driver Easy Pro 5.8.0.17776 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201295.jpg" />
 </div>
 
 
@@ -323,7 +347,7 @@ CCEnhancer 4.5.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201684.jpg" />
 </div>
 
 
@@ -347,7 +371,7 @@ WindowManager 10.23.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201856.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201856.jpg" />
 </div>
 
 
@@ -371,7 +395,7 @@ NirLauncher Package 1.30.21 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201871.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201871.jpg" />
 </div>
 
 
@@ -395,7 +419,7 @@ Reg Organizer 9.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202215.jpg" />
 </div>
 
 
@@ -419,7 +443,7 @@ Total Uninstall 7.3.1 Professional Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202655.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202655.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ Total Uninstall 7.3.1 Professional Edition [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202702.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202702.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ WinExt Pro 30.0 (ключ COMSS) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202704.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202704.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202716.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202716.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ Airytec Switch Off 3.5.0.950 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204187.jpg" />
 </div>
 
 
@@ -542,7 +566,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205671.jpg" />
 </div>
 
 
@@ -566,7 +590,7 @@ Advanced SystemCare Pro 16.0.1.82 (акция Comss) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205870.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205870.jpg" />
 </div>
 
 
@@ -590,7 +614,7 @@ EaseUS DriverHandy Pro 2.0.1.0 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205925.jpg" />
 </div>
 
 
@@ -601,30 +625,6 @@ EaseUS DriverHandy - это инструмент для сканирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2552A066F7C042390E70E18D85C5B87EE664C606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648803   (207907) от 26.07.2023
-
-LiveTcpUdpWatch 1.51  Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207907.jpg" />
-</div>
-
-
-###  Подробнее
-
-LiveTcpUdpWatch — это инструмент для Windows, который отображает оперативную информацию обо всех действиях TCP и UDP в вашей системе. Каждая строка в основной таблице LiveTcpUdpWatch отображает протокол (TCP/UDP/IPv4/IPv6), локальный/удаленный IP-адрес, локальный/удаленный порт, количество отправленных/полученных байтов, количество отправленных/полученных пакетов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB9D21D25DB570D8B67141982469ECAF24E4823
 ```
 
 

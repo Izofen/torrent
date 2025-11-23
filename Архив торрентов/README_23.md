@@ -6,7 +6,7 @@ AIMP 5.40.2683 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fast Video Cutter Joiner 6.8.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VIMAGE - AI Photo Animation v5.1.7 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10687.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:889C67314704E0C9F370194A1B632B0B196403E9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:667B7108C6E1D000E125C6EB3A87D80F760569E9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10691.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (22.07.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10705.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:618A9D0268CE25352B4DA2ED042F5A3836CAE265
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10709.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DA8101A1866B592152CFD1C4DF5C87B8EDF78BC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10719.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ v2rayN 7.13.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10723.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8554A7F4644B32099557F3A184ABE5D22A972063
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10741.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F929AA81E6416BC59511E5DD3EB3C962524B06FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10744.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:FA33DF50BFDF292F10039F74F4E1EFD829E9E2D7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10746.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AndroVid Pro Video Editor v7.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10753.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Photo Supreme 2025.3.0.7942 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10754.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MobiPDF: Редактор и сканер PDF  v11.7.1.267211 Mod by Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10783.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ jetAudio HD Music Player Plus v12.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10807.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Balabolka 2.15.0.900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10809.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Light Image Resizer 7.2.1.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10813.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:25F00E78BC43FF9F270B3B3C96678DD1E8054D1E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10814.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10816.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:012CDA21905CC828D37FE0AC30DEF418F0022D0D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10818.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Adobe Acrobat Pro 2025.001.20577 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10819.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ W10Privacy 5.2.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10828.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10833.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:D18EF964C2454A6290EFD4C8C88189EADCC9C994
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10848.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:B7BD07F690D83D5EDB6E8D66DBC8717CC8BB545B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10852.jpg" />
 </div>
 
 

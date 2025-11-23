@@ -1,3 +1,27 @@
+###  Публикация: 1835672   (251698) от 07.11.2025
+
+Проекты - VideoHive - Logo Glitch - 60061711 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Логотип Battlefield — это эпичный шаблон в разрешении 4K для After Effects. Создайте эффектный и впечатляющий логотип в кинематографичном стиле с эффектом мерцающего текста, струящимися частицами, мерцающими бликами и впечатляющей анимацией текста. Он очень прост в использовании и редактировании и идеально подходит для новичков. Отличное начало для ваших игровых (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8843ED6D8AE6ED0F20223EE7C564CA460B3B609A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835741   (251730) от 07.11.2025
 
 Проекты - VideoHive - Dynamic Stone Logo Unveil - 60095176 [AEP]
@@ -6,7 +30,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251730.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251730.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:E8365E3163B9C60C2D02EDA5805FEE1B32FF5609
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252308.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252308.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:DD92B4B02015C8058E28F453F103B0A87EF0D6A4
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254219.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254219.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:9AA143F1957B07352E846C0AD65EA95BDD430380
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255627.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:939916CB1FEB8EB989ECB01466DA1253DDCA1316
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256600.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256600.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:AB1B7535A881A0F54F129D1B08EE315DFF00193B
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256737.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256737.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:5FC58E69508534BA48AA0E871BFC873CADF70B2E
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256863.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256863.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:F0BABD77133DC702CAD3DDDF2DF931376B56BD90
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257565.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257565.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:FA6D758022870D2337EAFF709604C8E6D329767F
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257616.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257616.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:9BBF96446981A3F1B4D13187C89D81C6AC007DCF
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257910.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257910.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257911.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257911.jpg" />
 </div>
 
 
@@ -257,6 +281,30 @@ Energy Logo Reveal — это динамичный и эффектный шаб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA61B50F0D4E7D7A770ECF23460A6C5B97377ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837624   (257947) от 17.11.2025
+
+Проекты - VideoHive - Christmas Day Logo - 60756416 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это шаблон проекта Adobe After Effects, созданный специально для вашего логотипа-заставки. Вы можете представить свой логотип с помощью минималистичной и аккуратной анимации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0B60D5D905630414048B920D63799A3DFD4C60
 ```
 
 

@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65748.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7762C833403EA2D06809E298713EB105F069EF0A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65749.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Der Bote - Abbitte (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:22A4E69F77E6F89ADEC2352AB844A0C8A0F2B646
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65751.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:418013A67D035FC2B280783C7E8D7FAD2D384CB6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65752.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:EA2103417C95D4CB9B015C1AF9205E6D1336AA64
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65753.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:106E891C1BA596A32AD58D8B855E75E2FF51C199
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65754.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65755.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:AB5B3FF825CB415F793887FFF39DEF69E16ABC74
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65756.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B91C2E7CD2DB66C89C9EF2798DB9E35E4BC3A9DB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65757.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ BABY Audio - Smooth Operator Pro 1.1 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65758.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65759.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Sodom - The Arsonist (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65760.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:07DE6F35547CE443B11764E06849EAEE3B349523
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65761.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:65BCB556DDB10FCF3FE4AD7E1C56DB9E6241DFBC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65762.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:15BAAAEED5DFE99DAA80A9F3DFA7D63970FAE552
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65763.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:685C82D8478C55C507E92CE11B36F2472E808070
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65764.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Emanuel Kiriakou - Instrumental Blues (1998) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65765.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:3EC0AA3188CA98FB94AD1881E0718A276EE9A5FD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65766.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Jimmy Smith - Four Classic Albums (1957 - 1960) 2CD, 2018, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65767.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ GOODBOYS - Live From RADi Club @ INS Land, Shanghai, China (2025-04-30) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65768.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Summoning Torments - In Fine Omnium Religionum (2025) [MP3|320 Kbps] <Black, Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65769.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Starved of Light - Into Early Mourning (2025) [MP3|320 Kbps] <Death Metal, Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65770.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E0C2B446ADC0C2FF3AB005C8FE9605FDDEA1DD1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65771.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:495AD7F414349AF28987E1673D42909881F5AF03
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65772.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Pulsar Modular Complete Effects Bundle 2025.6.24 VST 3, AAX (x64) RePack by TCD 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65773.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1467198   (205514) от 06.08.2022
+
+ElectroCalc v3.2 Pro [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_205514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ElectroCalc в основном предназначено для расчетов силовых электронных схем. Это приложение полезно тем, кто проявляет интерес к электронным схемам, которые могут рассчитывать схемы, такие как таймер NE555 для нестабильного и моностабильного с операционным усилителем внутреннего обзора для инвертирования неинвертирующих суммирующих усилителей последовательные (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 30 июля 2022 г.Разработчик: SolarElectroCalcПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B13698CE2B23890F2B0B5C4BDB85FC007ECA763
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568149   (205559) от 06.08.2022
+
+Фоторедактор Fotor 7.3.11.135 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_205559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоторедактор Fotor - мощное приложение, что является одновременно и редактором для фотографий и платформой на которой можно рекламировать и продавать свои творения. Программа взаимодействует с фотобанком и тем самым обеспечивает внимание со стороны потенциальных покупателей. Ну а мощный набор функций, инструментов, эффектов и всего прочего поможет существенно улучшить (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.07.2022Разработчик: Everimaging Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7442BC2811A7A24E0BD27010B98D2C08E7F226A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654348   (205744) от 20.08.2023
+
+Flowx: Weather Map Forecast 3.404 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flowx: Weather Map Forecast - это приложение для всех поклонников погодной тематики, которые переросли стандартные варианты с плашками, красивым оформлением и всем прочим, что разработчики пытаются внедрить в свои проекты. Данный вариант больше подойдёт для профессионалов, которые не чураются впечатляющих спецэффектов и приятной анимации. Они получают визуализированный (   Читать дальше...   )Тип издания: ProРазработчик: Flowx Weather AppПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D029D22FEE074503A4C4570BAA1203E8EA72D59B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583508   (205816) от 15.10.2022
 
 SkyVPN - быстрый безопасный VPN 2.4.0 [Ru]
@@ -6,7 +78,7 @@ SkyVPN - быстрый безопасный VPN 2.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205816.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205816.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ BZ Напоминания и Дни Рождения v3.3.4 Mod by Alex.Strannik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205831.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205831.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ MyRadar - Weather Radar Pro 8.49.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205956.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Rapid VPN - Unlimited Hotspot 1.0.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206054.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206054.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Luminous Black - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206157.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Aurora - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206211.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Secure VPN－Безопаснее, быстрее 3.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206333.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Super Sound v2.4.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206372.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206372.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Lingua GO: Экранный переводчик, более 108 языков v1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206394.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206394.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Voice v4.0.16 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206419.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206419.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:3CE7EFD73BCB0AE07278F0F399E7E85DC20799AC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206711.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206711.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Delight VPN Mod by DEXUNPACKER 6.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206931.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206931.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ Words - Учи иностранные языки v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206998.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206998.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ YMusic - YouTube Music Player & Downloader Mod by ANiK555 3.7.22.1156 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207240.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207240.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:93D242605CAEC6B226EA86A8A5ECA9C85D3E5421
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207457.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207457.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:D8FB08BB6BCFE5DCEAD71503CC1E3D7483A971A5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207531.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ FamilyGo: семейный геолокатор v5.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207608.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207608.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ NYMF: Арт-проект Ню Фотографии 1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207612.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207612.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:5DEDA709E0C96BEB94F8B0846F225CB51BF8065B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207634.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ SD Maid v5.5.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207650.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:E8E8940D3549F5425E694564EBE29A5ED1D36FD2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207836.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207836.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Mi Band 7 Циферблаты 1.1.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207838.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ BetterSleep: Сон и Медитация 23.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207852.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207852.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ BetterSleep: Сон и Медитация - программа для тех, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD6FB010E68704AB9D4C9D495F11A8898854F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649349   (207856) от 27.07.2023
-
-Долги и Займы: записная книжка 4.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долги и Займы - Android приложение для ведения учета личного денежного оборота. В утилиту можно вносить имена людей, которые занимали или предоставляли финансовые средства.Релиз состоялся: 26.07.2023Разработчик: FingerDev StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A95838A6D8926E5669B7E3515F1454222AD22B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649215   (207893) от 26.07.2023
-
-Радио онлайн - PCRADIO 2.7.0.4 Mod by DATV 74 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио онлайн - PCRADIO - отличный проект, что благодаря своим качествам завоевал весьма впечатляющих размеров аудиторию пользователей. Им предлагается удобная и функциональная платформа для поиска и прослушивания радиостанций и всего прочего потокового аудиоконтента. Порадует и серьёзная экономия трафика. Это обеспечивает совершенно невысокий уровень потребления (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.07.2023Разработчик: PCRADIOПоддерживаемая ОС: Android TV 6.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA735701C3A875036D610CCBF5903F6259604C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648884   (207948) от 25.07.2023
-
-Total Commander 3.42d Mod by cvvar00 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander - Android-версия культового файлового менеджера ставшего идеальным выбором для всех пользователей предпочитающих минималистично-скромный стиль, а так же феноменально богатый набор возможностей и функционала. Который подойдёт и для повседневного использования среднестатистического человека и для профессионала в одной из сфер деятельности. Да и большинство (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.05.2023Разработчик: C. GhislerПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7415546D33E1D7A72EEE4DE85E7FD75F4F5ADE
 ```
 
 

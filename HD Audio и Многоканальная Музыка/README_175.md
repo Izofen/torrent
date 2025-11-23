@@ -6,7 +6,7 @@ Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120423.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120425.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120427.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120430.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120449.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120599.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120604.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120607.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120608.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120610.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120611.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120614.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120617.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120623.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120632.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120655.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120769.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120770.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Manag
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120788.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120797.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120799.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120814.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120862.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120932.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120946.jpg" />
 </div>
 
 

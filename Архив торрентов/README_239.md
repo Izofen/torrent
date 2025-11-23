@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55096.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F07515C9B95CFCA33AB4544CECAEBF76F724ADC3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55100.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIDA64 Engineer Edition 7.30.6900 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VideoProc Converter AI 7.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55130.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WinNTSetup 5.3.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55138.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55168.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PotPlayer 240509 (1.7.22233) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55172.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Wondershare UniConverter 15.5.9.86 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55180.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:042E48C5DCC185D0C366AE8371C03DF3DDD3F92B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55191.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Balabolka 2.15.0.870 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55196.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HomeBank 5.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55198.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Fort Firewall 3.12.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55214.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Topaz Video AI 5.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55221.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ qBittorrent 4.6.5 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55226.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A59B756661D28BBF0CE748897DB244CDECD7C716
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55227.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ FastStone Capture 10.5 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55230.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Spotify  1.2.37.701 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55232.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ LosslessCut 3.61.1 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55233.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:DABB0623C5CEC90E73C0810178DF38376BFE80AA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55238.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Foxit PDF Editor Pro 13.1.2.22442 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55245.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ qBittorrent 4.6.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55250.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Total Commander 11.03 (22.05.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55252.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:7C4B881AD2090E382A3FF45355BA3200CE26CDAD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55254.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Windows 10 Professional 22H2 x64 Game OS 1.6 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55277.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ SupRemo 4.11.2.2617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55293.jpg" />
 </div>
 
 

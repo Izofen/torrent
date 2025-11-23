@@ -6,7 +6,7 @@ RapidRAW 1.4.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cockos REAPER 7.47 RePack (& Portable) by elchupacabra [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ XnView MP 1.9.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Native Instruments - Kontakt 8.7.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_270.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ iZotope - Trash 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_277.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ iZotope - VEA 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_279.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FireAlpaca 2.13.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_285.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ reaConverter Pro 8.0.138 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_304.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Agisoft Metashape Pro 2.2.2 Build 21287 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_343.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Gigapixel 1.0.2 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_357.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ StaxRip 2.50.2.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_542.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ JRiver Media Center 34.0.71 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_582.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Topaz Video 1.0.1 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_623.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Topaz Photo 1.0.1 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_650.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kdenlive 25.08.1 + Standalone [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1013.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adobe After Effects 2025 25.5.0.4 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1036.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Krita 5.2.13 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1038.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Adobe Photoshop 2025 26.11.0.18 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1043.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VLC Media Player 3.0.22 RC1 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1051.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.1 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1055.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Serif Affinity Publisher 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1151.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Reveal Sound - Spire 1.5.19 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1162.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1166.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Serif Affinity Designer 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1177.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Serif Affinity Photo 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1179.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.3.10 RePack (& Portable) by KpoJIu
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1203.jpg" />
 </div>
 
 

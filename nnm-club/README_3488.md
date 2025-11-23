@@ -1,3 +1,84 @@
+###  Публикация: 1720140   (110370) от 02.05.2024
+
+Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down South Blues (4:45)
+02. Lonesome, On´ry and Mean (4:09)
+03. Walking The Streets Of Love Alone (3:02)
+04. Sugarfoot Rag (2:48)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5FAB164AFA4A2AE1584551702B273BC51EB4DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720104   (110371) от 02.05.2024
+
+Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day Of the Eagle (3:58)
+02. If You Love Me Like You Say (3:02)
+03. I Can't Quit You Baby (6:37)
+04. Empty Arms (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5ABBFFDEA437CCDEDCFFF0631DE5DC09D725B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720134   (110372) от 02.05.2024
+
+Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tension (4:06)
+02. Communication (3:21)
+03. All I Want (3:18)
+04. One Monkey (5:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB476A41874BF9D9CD8BDBA10DC84AD8BD549FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720194   (110373) от 02.05.2024
 
 Сладкая месть: расследование Ханны Свенсен / Sweet Revenge: A Hannah Swensen Mystery (2021) WEB-DLRip [H.264/1080p] [DVO] [AD]
@@ -6,7 +87,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110373.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Icecream Video Converter Pro 1.43 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110374.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110375.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:784E3664C0C60AD787BE1F0894A90F58C23E541A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110376.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110377.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ HWiNFO 8.01 Build 5430 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110378.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ magnet:?xt=urn:btih:8AE959240AF5A3DABFC7EA7BB5F824F7C502E62B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110379.jpg" />
 </div>
 
 
@@ -180,7 +261,7 @@ Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110380.jpg" />
 </div>
 
 
@@ -204,7 +285,7 @@ magnet:?xt=urn:btih:226505B6F53B99E4839B28209DE693C339DB3B7E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110381.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ magnet:?xt=urn:btih:217829DB01D1C9936A2F6FAEF130239A6F36272F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110382.jpg" />
 </div>
 
 
@@ -252,7 +333,7 @@ FM - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110383.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ VA - Trance Fusion Vol. 02 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110384.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ GeoGebra 6.0.840.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110385.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110386.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110387.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ ibis Paint X 12.0.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110388.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ Opera Trance Featuring Emma Shapplin - Spente Le Stelle (The Remixes - Part One)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110389.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110390.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ Bobby Watson - Keepin' It Real (2020) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110391.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110392.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110393.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:B2E6A443BC441DB20392E30E0B25B9F7A681595A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110394.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ Icecream Photo Editor Pro 1.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110395.jpg" />
 </div>
 
 
@@ -573,84 +654,6 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FC985D4B844922B9408DF7F141BEF953CAF74D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720223   (110396) от 02.05.2024
-
-VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryukhno) (4:38)
-03. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)
-04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7E511031805F8DA7314CC9A2A67AC79CE478C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720196   (110397) от 02.05.2024
-
-Google Chrome 124.0.6367.119 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F245FA6E7B19D437FFD60C14279B7C9B5023D282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720248   (110398) от 02.05.2024
-
-Severed Angel - Skyward (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Inside (3:18)
-02. Live Your Imagination (3:44)
-03. A Perfect Disaster (5:42)
-04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F5C1D6417349E1D68702420CE7A825064BE7CE
 ```
 
 

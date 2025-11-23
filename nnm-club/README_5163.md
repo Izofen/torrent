@@ -1,3 +1,190 @@
+###  Публикация: 1599765   (159656) от 24.12.2022
+
+Чарли Чейз. Простые и стильные девушки / Plain and Fancy Girls (1925) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимми Джампу кажется, что его девушка слишком простовата. То ли дело изысканная красотка, которую он замечает в парке. В конце концов, после ряда приключений, он понимает, что ему лучше со своей девушкой.
+Это формальное описание. А если от себя - мне очень понравился ролик. Очень милый. Какой-то без временной привязки. То есть, если взять современное оборудование, (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтрин Грант,  Марта Слипер,Перевод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF206F6E9362C35CBE0E4A15CC74E7264FD332C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599692   (159657) от 24.12.2022
+
+CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тень (Глава первая) [00:03:48]
+02 - Темной тропой (Глава первая) [00:01:08]
+03 - Вера (Глава первая) [00:04:15]
+04 - Пропасть (Глава вторая) [00:04:19](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599670   (159658) от 24.12.2022
+
+Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДОМ СОВЕТОВ [00:03:54]
+02. МАГАЗИН [00:03:45]
+03. ПАРА СЕКУНД [00:03:51]
+04. ГРЯЗЬ [00:03:10](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5B50927F45D7ABCA3A06E9E3CD044CC9A008EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599629   (159659) от 24.12.2022
+
+Carol Kidd - Dreamsville (2008) Linn Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Never Entered My Mind [5:40]
+02. A Nightingale Sang In Berkeley Square [2:45]
+03. How Deep Is The Ocean [4:04]
+04. How Long Has This Been Going On [5:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3019F8454806F34691B5950CE666827EE6C515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599625   (159660) от 24.12.2022
+
+Oscar Peterson - Plays Porgy and Bess (1959) 1993, PolyGram [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Plenty o'Nuttin' [6:26]
+02. I Wants to Stay Here (aka I Loves You Porgy) [6:22]
+03. Summertime [3:51]
+04. Oh Dey's So Fresh and Fine (Strawberry Woman) [0:56](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314DCEF42C5AAC716E4F34C5BAE86DD8BF15EE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599724   (159661) от 24.12.2022
+
+Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hardcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гора крестов [00:03:04]
+02. Теория относительности [00:02:34]
+03. Священная болезнь [00:04:37]
+04. Крах [00:02:48](   Читать дальше...   )Жанр: Blackened Hardcore, Female VocalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36062B0AF650506EEF9F506C700A67E7E8FCA602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599405   (159662) от 24.12.2022
+
+Nat King Cole - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Tho't You Ought to Know [2:55]
+02. It Only Happens Once [2:57]
+03. Black Market Stuff [2:46]
+04. Laguna Leap [2:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1321046A3A57EEB1522BAE467EC75A087AAE0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599698   (159663) от 24.12.2022
 
 Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Guitar Jazz>
@@ -6,7 +193,7 @@ Charlie Christian - The Original Guitar Hero (1940, 1941) 2002, Sony Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159663.jpg" />
 </div>
 
 
@@ -33,7 +220,7 @@ BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159664.jpg" />
 </div>
 
 
@@ -60,7 +247,7 @@ IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159665.jpg" />
 </div>
 
 
@@ -87,7 +274,7 @@ magnet:?xt=urn:btih:F8508C5A011563FBC5D1B1000F6992CE79918CA9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159666.jpg" />
 </div>
 
 
@@ -111,7 +298,7 @@ magnet:?xt=urn:btih:AB57E8E52E10E2482CECFE399EFEA3C541A300C9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159667.jpg" />
 </div>
 
 
@@ -135,7 +322,7 @@ DeathAwaits - XX (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159668.jpg" />
 </div>
 
 
@@ -162,7 +349,7 @@ Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Be
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159669.jpg" />
 </div>
 
 
@@ -189,7 +376,7 @@ magnet:?xt=urn:btih:6AEF7D68BD388F64FE66F74A2624623D16AAA7CE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159670.jpg" />
 </div>
 
 
@@ -214,7 +401,7 @@ Witness Effect - WE (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159671.jpg" />
 </div>
 
 
@@ -241,7 +428,7 @@ magnet:?xt=urn:btih:F18B8F6EEB2E5BDC4618A7B7A0E57360338381AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159672.jpg" />
 </div>
 
 
@@ -267,7 +454,7 @@ LG karaoke 200 ver.8.0 - 200 суперхитов (2009) DVD-9 <ПОП>
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159673.jpg" />
 </div>
 
 
@@ -294,7 +481,7 @@ magnet:?xt=urn:btih:E41F3BE558ED846C55A28F083CF905E28C29D187
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159674.jpg" />
 </div>
 
 
@@ -318,7 +505,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159675.jpg" />
 </div>
 
 
@@ -342,7 +529,7 @@ magnet:?xt=urn:btih:FB0B54A203DA1242B9DFFA04101BAA3E63EA0429
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159676.jpg" />
 </div>
 
 
@@ -368,7 +555,7 @@ Futuremark 3DMark 2.25.8056 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159677.jpg" />
 </div>
 
 
@@ -392,7 +579,7 @@ magnet:?xt=urn:btih:A4763334AC4407B4B554CE8A24A78B3A1874922A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159678.jpg" />
 </div>
 
 
@@ -417,7 +604,7 @@ Skid Row - 6 Albums, 3 EP, 1 Compilation (1989 - 2022) 15 CD [Lossless|FLAC|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159679.jpg" />
 </div>
 
 
@@ -444,7 +631,7 @@ magnet:?xt=urn:btih:3EC8C705B97B848CE962AAFDC32FF9A5C247BD02
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159680.jpg" />
 </div>
 
 
@@ -468,7 +655,7 @@ magnet:?xt=urn:btih:A529BF427205A1A544294B1104C9D9BDBB5A0A08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159681.jpg" />
 </div>
 
 
@@ -479,177 +666,6 @@ magnet:?xt=urn:btih:A529BF427205A1A544294B1104C9D9BDBB5A0A08
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6390E8332951910C889E76B37EC569D1F5F40CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599104   (159682) от 23.12.2022
-
-13 клиническая (2022) WEBRip (сезон 1, серии 1-8 из 8)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизлечимо больной хирург Кирилл находит работу в клинике, где врачи борются со сверхъестественными явлениями. Единственный способ выжить — показать себя с лучшей стороны и убедить новое руководство, что он нужен больнице. Кирилл погружается в хитросплетения отношений людей, ведьм и демонов, все больше сомневаясь, что он способен правильно определить, кто именно (   Читать дальше...   )Производство: Россия / Iney Productions, Тим ФилмзЖанр: драма, фэнтези, детективРежиссер: Клим КозинскийАктеры: Данила Козловский, Паулина Андреева, Виктория Исакова, Владимир Стеклов, Дмитрий Лысенков, Нино Нинидзе, Денис Синявский, Кристина Бабушкина, Алёна Акимова, Татьяна ЯхинаСубтитры: русские (отдельные файлы)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6E4654209B47AE293988B8A1D10A2BF32A13D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599201   (159683) от 23.12.2022
-
-Изумительный Морис / The Amazing Maurice (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159683.jpg" />
-</div>
-
-
-###  Подробнее
-
-У кота Мориса есть два таланта: говорить и проворачивать аферы. Путешествуя с говорящими грызунами из города в город, он каждый раз «спасает» местных жителей от нашествия крыс (разумеется, за хорошую оплату). Но попав в Дрянь-Блинцбург, Морис и его друзья понимают, что этот городок таит в себе нечто опасное… Теперь им предстоит сыграть в кошки-мышки с настоящим злом (   Читать дальше...   )Производство: Великобритания, Германия, США / Studio Rakete, Red Star 3D, Cantilever GroupЖанр: мультфильм, семейныйРежиссер: Тоби Генкель, Флориан ВестерманнПеревод: профессиональный многоголосый закадровый (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FB686984764A93BF6D6BD426DD736399887583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361310   (159684) от 23.12.2022
-
-Воскресение - Не торопясь. Live (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеозапись «живой» версии альбома «Не торопясь» с концерта, состоявшегося 5 марта 2003 года в УСЗ «Дружба». Видеозапись позволит Вам погрузиться в «живую» атмосферу концерта этой легендарной группы. Группа «Воскресение» как появилась в конце 70-х, так сразу и заимела привычку воскресать. Первый же альбом «79» сделал ее известной по всему Союзу, было отыграно множество (   Читать дальше...   )01. Все сначала
-02. Посмотри, как я живу
-03. Сотворю тебе мир
-04. Ветер (дыхание доброго неба)(   Читать дальше...   )Жанр: Blues, RockРежиссер: ООО «Продюсерский центр Игоря Матвиенко»Актеры: Алексей Романов, Андрей Сапунов, Евгений Маргулис, Михаил ШевяковПродолжительность: 01:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553920   (159686) от 23.12.2022
-
-ЮЗЗЗ (2022) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ростов-на-Дону, наши дни. В одном из рабочих спальных районов на юго-западе города, окрещённого жителями «ЮЗ» кипит жизнь – местная группировка молодых парней то и дело меряется силой с ровесниками из «блатного» центра, ну а взрослые «хозяева» районов ворочают делами посерьезнее. Равиль – молодой программист, живущий на ЮЗе. Окончив техникум, парень мечтает уехать (   Читать дальше...   )Производство: Россия / Russian World StudiosЖанр: драма, криминалРежиссер: Стас ИвановАктеры: Антон Кузнецов, Кузьма Котрелев, Мария Машкова, Мария Мацель, Дмитрий Чеботарёв, Гела Месхи, Александр Сошкин, Эльшан Алескеров, Виталия Корниенко, Дарья КотрелёваПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8B58B5CE2802DD0CB84FE20DBF99113663BB10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599462   (159687) от 23.12.2022
-
-Банши Инишерина / The Banshees of Inisherin (2022) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159687.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух друзей, которые вступают в конфликт на отдалённом ирландском острове.Производство: Ирландия, Великобритания, США / Blueprint Pictures, Searchlight Pictures, Film 4Жанр: драма, комедияРежиссер: Мартин МакдонаАктеры: Колин Фаррелл, Брендан Глисон, Керри Кондон, Барри Кеоган, Пэт Шорт, Гари Лайдон, Джон Кенни, Шила Флиттон, Джон Кэрти, Оливер ФарреллиПеревод: Многоголосый профессиональный (HDRezka Studio, TVShows), Авторский (Ю. Сербин, М.Яроцкий)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBAD35CAD2C768CB50702B8764A2CB519BEC24C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495901   (159688) от 23.12.2022
-
-Оборотни из глубинки / Чисто английский оборотень / A Werewolf in England (2020) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159688.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сельской местности викторианской Англии всё было довольно спокойно — если, конечно, не считать того, что раз в год там люди обращаются в страшных чудовищ и начинают жаждать мяса. Полицейский везет на суд обвиняемого в убийстве, и им нужно где-то переночевать. И так уж им повезло оказаться именно в том трактире, где хозяева как раз заготавливали человечину для оборотней (   Читать дальше...   )Производство: Великобритания / Dark Temple Motion PicturesЖанр: Ужасы, комедияРежиссер: Чарли СтидсАктеры: Рис Коннолли, Тим Картрайт, Натали Мартинс, Марк МакКирди, Жессика Алонсо, Эмма Спаргин Хасси, Бэрри Де Ла Рош, Рори Вилтон, Дерек Нельсон, Джеймс СуонтонПеревод: Любительский одноголосый (Yuri The Professional)Субтитры: ОтсутствуютПродолжительность: 01:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E03ACE8AC35ECB3E4F8EAECE1E17D0A5293897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599343   (159689) от 23.12.2022
-
-Большая четвёрка / The Big Four (2022) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив расследует смерть своего отца и отправляется за подсказкой на отдаленный тропический остров, где узнает, что он был лидером группы наемных убийц. Теперь за ней охотятся его враги, и ей приходится объединиться с мошенниками, которых тренировал её отец, - четырьмя отставными убийцами, которым не повезло и которые жаждут вернуться в игру.Производство: Индонезия / Frontier PicturesЖанр: боевик, комедия, криминалРежиссер: Тимо ТьяджантоАктеры: Абимана Арьясатья, Путри Марино, Лутеша, Арие Критин, Кристо Иммануэль, Marthino Lio, Michelle Tahalea, Kho Michael, Буди РосПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, индонезийскийСубтитры: английские (SDH), русские, украинские - отдельнымии файламиПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621AE7B9B653797620F55E4AECB519B0143546E7
 ```
 
 

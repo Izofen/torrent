@@ -1,3 +1,156 @@
+###  Публикация: 1271644   (141338) от 29.12.2018
+
+Джонатан Коу | Карлики смерти (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время: конец 80-х. Место: Лондон, уже отнюдь не свингующий. Звуковая дорожка: «The Smiths». Самые дорогие воспоминания: панк-рок второй половины 70-х. Пианист Уильям переехал из провинциального Шеффилда в столицу, стремясь стать знаменитым музыкантом, но его мелодичные танцевальные песни в исполнении довольно безнадежных соратников скорее напоминают пародии на «Status (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B77D7B716D6ABD9114EA3F90B65A6FB9483C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435775   (141340) от 29.12.2020
+
+Джон Уиндем | Кракен пробуждается (2020) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тревожные вести приходят с разных континентов: при загадочных обстоятельствах гибнут корабли, терпят бедствие научно-исследовательские экспедиции, причем в районах катастроф наблюдается активность неведомых летающих объектов. Что это – очередное столкновение международных политических сил или нечто более страшное? В ходе своего расследования журналист Майкл Ватсон (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаПеревод: Алексей ЗахаренковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2784DB3F35E9CA5B91543B8FEE2915A8290B40DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272785   (141341) от 29.12.2018
+
+Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. Словакия — Швеция (27.12.2018) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141341.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 декабря 2018, пятница. 02:30 МСК
+43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
+Предварительный раунд. Группа B.
+Словакия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05FD0530DE039633517090066AA4681568DDD33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970103   (141342) от 30.12.2015
+
+DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Cold As Ice
+02	The Player
+03	Pressing On
+04	Future Express(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195417   (141343) от 29.12.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США, 20th Century Fox Film CorporationЖанр: боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Колин Фёрт, Тэрон Эджертон, Эдвард Холкрофт, Гордон Александр, Марк Стронг, Ханна Альстрём, Кэлвин Демба, Томас Тургус, Тоби Бакаре, Джулианна МурПеревод: Дублированный (iTunes)Субтитры: Русские форсированные (отдельно)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68745D999C4B4E2FB9819810B25F6B3CF00B10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088260   (141344) от 30.12.2016
+
+Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What Is, Is [05:39]
+ 02.Breath Of Love [05:54]
+ 03.Blue Hue [05:53]
+ 04.You Are Always The One [07:35](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272763   (141345) от 29.12.2018
 
 VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
@@ -6,7 +159,7 @@ VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141345.jpg" />
 </div>
 
 
@@ -33,7 +186,7 @@ magnet:?xt=urn:btih:9F891C1BF4C4F8CFE82BE5388FACE2A8D98B9621
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141346.jpg" />
 </div>
 
 
@@ -57,7 +210,7 @@ magnet:?xt=urn:btih:5EBA764678398D74F3067A532DCB612436DDF7B9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141347.jpg" />
 </div>
 
 
@@ -82,7 +235,7 @@ VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141348.jpg" />
 </div>
 
 
@@ -109,7 +262,7 @@ magnet:?xt=urn:btih:845505FE07AE987D98AAE3793C0457B2F4B118FB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141350.jpg" />
 </div>
 
 
@@ -133,7 +286,7 @@ magnet:?xt=urn:btih:FD9D3CEA5F32532C9D5F3DE86F3F27B2443BE632
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141351.jpg" />
 </div>
 
 
@@ -157,7 +310,7 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141352.jpg" />
 </div>
 
 
@@ -181,7 +334,7 @@ magnet:?xt=urn:btih:F61BD8C190E52977ADD3D306B4DB7DC6C20F57E4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141353.jpg" />
 </div>
 
 
@@ -205,7 +358,7 @@ Digest - Digest (1994) Qvalitet[FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141354.jpg" />
 </div>
 
 
@@ -232,7 +385,7 @@ magnet:?xt=urn:btih:1659B140BF775EC40A36503B58431DB9A4A1BEA8
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141355.jpg" />
 </div>
 
 
@@ -256,7 +409,7 @@ magnet:?xt=urn:btih:609B1B2D4E21E79FEBDD0EC3F605441F6841F144
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141357.jpg" />
 </div>
 
 
@@ -280,7 +433,7 @@ magnet:?xt=urn:btih:0F8EC3BDEC028C55283ED3EEBFC1AB8DCBC5D9DA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141358.jpg" />
 </div>
 
 
@@ -304,7 +457,7 @@ magnet:?xt=urn:btih:4B63599851858A99270E55D225D3474DA0AA9329
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141359.jpg" />
 </div>
 
 
@@ -331,7 +484,7 @@ magnet:?xt=urn:btih:FFF7C64DA631027B32A5E3CCE9EC27B716527FDE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141360.jpg" />
 </div>
 
 
@@ -355,7 +508,7 @@ Eero Koivistoinen - Altered Things (1991) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141361.jpg" />
 </div>
 
 
@@ -382,7 +535,7 @@ magnet:?xt=urn:btih:9A0BA2342D07415BBAAEBBA8FBCEAC72ACAF0706
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141363.jpg" />
 </div>
 
 
@@ -406,7 +559,7 @@ VueScan Pro 9.7.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141364.jpg" />
 </div>
 
 
@@ -430,7 +583,7 @@ magnet:?xt=urn:btih:0CAF5F869A0B3BE66B906A705CC6E2E753B225CD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141365.jpg" />
 </div>
 
 
@@ -455,7 +608,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.1) Unofficial SiMPLEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141366.jpg" />
 </div>
 
 
@@ -479,7 +632,7 @@ magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141367.jpg" />
 </div>
 
 
@@ -491,150 +644,6 @@ magnet:?xt=urn:btih:726FF8BBBCDD463C613E002F1498249F407EA1FE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62261F4232A8A722AE91B0988C86A79B6DDD0F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516383   (141368) от 28.12.2021
-
-Холодный пот / Cold Sweat (1993) WEBRip [AVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный убийца Марк Кэхилл решает уйти на покой после того, как был вынужден убить случайную свидетельницу. Но его убедили пойти еще на одно дело. Крутой и жесткий бизнесмен нанимает его убрать своего партнера, который обманывает его с женой и в бизнесе. Призрак убитой свидетельницы преследует Кэхилла.Производство: Канада / First Choice Canadian Communication Corporation, Norstar Entertainment Inc.Жанр: триллер, драма, мелодрама, эротикаРежиссер: Гэйл ХарвиАктеры: Бен Кросс, Адам Болдуин, Шэннон Твид, Дэйв Томас, Генри Черни, Мария дель Мар, Ленор Занн, Эллен Дубин, Марк Стрэйндж, Джордан ХьюзПеревод: Авторский одноголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Английские (SDH) отдельным файломПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665C635A84BCB8062E489FEAC6BF2AE7B8764045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435758   (141369) от 29.12.2020
-
-Оксана Шалыгина | По лицу он меня не бил. История о насилии, абьюзе и освобождении (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Оксана Шалыгина, бывшая гражданская жена художника Петра Павленского, рассказывает историю своих отношений с ним. Это история об абьюзе и насилии, о любви и ненависти, о зависимости и равнодушии. Пронзительный, откровенный, шокирующий рассказ о том, как легко влюбленность и восхищение могут привести в ловушку и о том, какую кровавую цену в этом случае (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D31F6FCC55DB90C9EFA4289D9A730FD6AF7EB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590687   (141370) от 17.12.2012
-
-Фоны - Фоны для коллажей [JPEG,PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны для коллажей,  Предметы старины - письмо, свеча, бумага, перо, ключи.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC596299512A5B855E4C272B2B3D1C4262A9A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348957   (141371) от 29.12.2019
-
-Затерянная гавань императора / The Emperor's Lost Harbour (2012) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константинополь бывшая столица великих империй Римской и Византийской, теперь турецкий город Стамбул, стоящий на европейском и азиатском берегах Босфора, уже три с лишним тысячи лет остаётся перекрёстком двух культур. История его замечательна, но во многом прошлое этого города оставалось для нас окутанным тайной. В 2004 году турецкие инженеры начали прокладку огромного (   Читать дальше...   )Производство: PTV Co-Pro 1 Inc. and Films A Trois, ARTE, CBC, CNCЖанр: Документальный, История, АрхеологияРежиссер: Hannes SchulerПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C5E2F28C345D8BE8F5F302039AE2A99C758E9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272730   (141372) от 29.12.2018
-
-Газета | 1000 советов кулинару №21 (ноябрь 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141372.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1000 советов кулинару» - это кулинарные хитрости от шеф-поваров и опытных хозяек, фирменные рецепты читателей, советы по здоровому и правильному питанию, экономному ведению домашнего хозяйства, покупке кухонной утвари и бытовой техники, кулинарные путешествия, мастер-классы, конкурсы и призы. Статьи о том, что делает людей ближе, объединяет разные поколения и делает (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB9D56DCB06EBEACB27E7018A7242D90E7F25D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590665   (141373) от 17.12.2012
-
-Василий Сахаров | Книжная серия "Война за врата" (все 4 книги) [2011-2012] [FB2, DOC]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141373.jpg" />
-</div>
-
-
-###  Подробнее
-
-За много миров от Земли, в иных параллельных пространствах, идет война на уничтожение между империей эльфов и их созданиями, восставшими рабами-мутантами. Эльфы войну проигрывают и втягивают в нее миры, населенные людьми, которых искренне презирают. Методы их действенны, подсадить лидеров на бессмертие, манипулировать ими, и добиться их согласия и содействия, на отправку воинов-людей на фронт. Для Земли, сценарий не изменяется, и она, втягивается в ненужный ей конфликт. Однако не все желают умирать за чужие интересы. Майор спецназа ГРУ, Тимофей Кудрявцев, торговец оружием в мире Ра-Ар, идет своим путем.Жанр: Боевая фантастикаФормат: FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804C9A147932D07448CFB88E57A5907051420151
 ```
 
 

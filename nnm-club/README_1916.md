@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50171.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22E259583BDC5290DC001A02FE49925196845B8E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50172.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Rhinoceros 3D 8.10.24172.02001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50173.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:9F7535217067B805E541AE2FB2ECE6ACFE081C5A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50174.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:7704A3A1AEF542097D3104A7876F3C85638684ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50175.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [MP3|320 Kbps] <Hip-Hop
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50176.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:56083BB44EAF0CDC344FA4AE7A8373EA9513B2F5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50177.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3985930E4BA1A64EA004082CD0809DC62E84F2D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50178.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B39D6ED45C086CB2E41D680228952D6867760367
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50179.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50180.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Xiaomi запустила «тёмную фабрику»
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50181.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Xiaomi запустила «тёмную фабрику»: она может р�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50182.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D15A731A9B1C1B1B1ECBFBA85E30F54223FC191E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50183.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:1A640F069AA5C56399516937D1AE4E16CC67C6CC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50184.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:429D1980CF2D3791F5061BEFB6AB37F00569E5A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50185.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ B. Синельников | Энциклопедия бывалого дачни
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50186.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:CF08F3D755FA3BA636B55931B86FE028BA6D5940
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50187.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:DFD9FC4C3CFBEEA70465B3A544201CD751D5F798
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50188.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:DFD9FC4C3CFBEEA70465B3A544201CD751D5F798
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50189.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:7FEA5BC5EBE8DE27C7ABBFF794A1E72C38B1A0AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50190.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:9E3399D0FD8C3B11767D87ABA1D8D07FF55623BF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50191.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:B2814B3B53E3A8B137B7BC6EC5A20EE0C4460FFF
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50192.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50193.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6F2073A82B5A6D33E3F83FE5961A44677B1D5414
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50194.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:15726D9A75F8A27A8A880926F35C4D8F07911560
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50195.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:E8BA7BC3AE5FE1B390D825C9A4CB87B7927B5FB9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50196.jpg" />
 </div>
 
 

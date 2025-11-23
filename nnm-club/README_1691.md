@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE9FAD048D6EF8CA722884207E7143AFB36A5D54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44322.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A75CF0F7F2C7B2F55E47DE33384257F570896492
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44323.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3D5777E6B7BEC29F9BD8F33D97A3441E39656BBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44324.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DA11DDEC037B737F45989DB485E2EDFBBDD58F7D
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44325.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44326.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:94EC4ECFF6E0246B0041A8A92297586891C081D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44327.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DE85A080AAC1B22D0B033EF09288B5B9F07DCCF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44328.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EB8DF894F3171FC05281A1CC284F1C184C2007B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44329.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9F6AF7F1F193579B5137FD4539B2EF7D5DE174D1
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44330.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44331.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WARCANA (2024) [Multi] (15354714) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44332.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F1902B35E36F5B0D47B57C836AA62DD84FE7BA31
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44333.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:BA839B546FC26ADA05D1241C18D21B8F6E8E6145
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44334.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:BB9B36AE0D60FB4D898993C2794FAF31E2AA5A03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44335.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:74837710EC4EBABB7B681146F8AFD78F05C38250
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44336.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3EE0C483CD8B026A79E2C6CC4F829EBBF7D79554
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44337.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:DD01F420FD866DA5C7664100B29146E24A83A905
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44338.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53803) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44339.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:FFE3ED0513AC6F6ABF3599380F5721E3B8EA3427
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44340.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:16CAE9182B016339894E5064C5C03217FC83FA67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44341.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:CC8AC2AE895A2B32FEFEBEF4BF6DED4BC05F7A88
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44342.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F5E248654BC77E4C99BC5C154804B68E3E974A73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44343.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44344.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FA6864D68D50DE768278708B70A5716D4F78D5F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44345.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:9513EC04960B6BAA34E51BBD271BC6DFDB93EE9B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44346.jpg" />
 </div>
 
 

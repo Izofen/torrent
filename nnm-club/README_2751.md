@@ -1,3 +1,63 @@
+###  Публикация: 447467   (74563) от 06.02.2012
+
+The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра начинается с того, что юноша с труднопроизносимым именем Гайбраш Трипвуд (Guybrush Threepwood), желающий стать пиратом, появляется на карибском острове Mêlée (фр. рукопашная схватка, а также свалка).
+Три пиратских лидера назначают ему три задания — найти клад, украсть идола из особняка губернатора острова Элейн Марли (Elaine Marley) и победить мастера фехтования.
+Однако как только Гайбраш выполняет третье задание, пират-призрак ЛеЧак (LeChuck) похищает Элейн и увозит её на остров Обезьян (Monkey Island). Гайбраш, к тому моменту вовлечённый в романтическую связь с Элейн, набирает команду из трёх человек, покупает у торговца подержанными кораблями Стэна корабль и отправляется на поиски таинственного острова, в надежде спасти губернатора.
+ На острове Обезьян Гайбраш встречает потерпевшего кораблекрушение отшельника по имени Герман Туфрот (Herman Toothrot), а также обнаруживает поселение каннибалов-вегетарианцев, которые помогают ему найти средство против призрачной команды ЛеЧака.Тип издания: RePackЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A865979D5F04F94A92942B33B456AFC37686E04E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447277   (74570) от 06.02.2012
+
+Microsoft Windows 7 Ultimate SP1 x86 ru OPTIM v.3
+
+>>3
+>>30
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Урезанный образ сделан на основе
+оригинальной русской версии от 12.05.2011г.
+Целью ставилось не вместить систему на CD, а сделать
+сбалансированный компактный вариант,
+без ущерба полезной функциональности.
+
+Что нового/исправлено:
+- сохранены драйверы принтеров и сканеров Canon, Epson, HP (на остальные жалоб не было)
+- сохранены драйвера модемов
+- удалены драйвера для видеокарт ATI и nVidia - все равно они были бестолковые (у меня свои на АТI ставятся как установщиком, так и с центра обновлений)(   Читать дальше...   )Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447701   (74581) от 06.02.2012
 
 Коралина в Стране Кошмаров / Coraline (2009) [H.264/720p-LQ] BDRip
@@ -6,7 +66,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74581.jpg" />
 </div>
 
 
@@ -32,7 +92,7 @@ magnet:?xt=urn:btih:7920303E8FBF9F9848EA17F03EEE5AECC3898E02
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74584.jpg" />
 </div>
 
 
@@ -56,7 +116,7 @@ magnet:?xt=urn:btih:7920303E8FBF9F9848EA17F03EEE5AECC3898E02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74589.jpg" />
 </div>
 
 
@@ -80,7 +140,7 @@ magnet:?xt=urn:btih:5DCEACFD841EA60F86DADA3DA2A9B8713C83DFD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74593.jpg" />
 </div>
 
 
@@ -105,7 +165,7 @@ McAfee Avert Stinger Portable 10.2.0.502 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74598.jpg" />
 </div>
 
 
@@ -129,7 +189,7 @@ McAfee Avert Stinger - это бесплатный, не требующий ус
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74613.jpg" />
 </div>
 
 
@@ -153,7 +213,7 @@ magnet:?xt=urn:btih:20F9DA58374CFCD9872430515EBAF25F44726114
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74625.jpg" />
 </div>
 
 
@@ -177,7 +237,7 @@ magnet:?xt=urn:btih:980A8B9E68921B74EF8AA1509A29985C431EB25F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74633.jpg" />
 </div>
 
 
@@ -203,7 +263,7 @@ Van Canto - Live at Wacken (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74637.jpg" />
 </div>
 
 
@@ -231,7 +291,7 @@ magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74658.jpg" />
 </div>
 
 
@@ -255,7 +315,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74681.jpg" />
 </div>
 
 
@@ -282,7 +342,7 @@ magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74683.jpg" />
 </div>
 
 
@@ -306,7 +366,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74704.jpg" />
 </div>
 
 
@@ -332,7 +392,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74723.jpg" />
 </div>
 
 
@@ -356,7 +416,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74728.jpg" />
 </div>
 
 
@@ -381,7 +441,7 @@ magnet:?xt=urn:btih:12AEB124BA6E2810419EE0953DC4E595F5078BDD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74729.jpg" />
 </div>
 
 
@@ -405,7 +465,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74747.jpg" />
 </div>
 
 
@@ -429,7 +489,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74754.jpg" />
 </div>
 
 
@@ -453,7 +513,7 @@ magnet:?xt=urn:btih:D6DEC7928CB26876252782BFA80C93E7FC8B58CA
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74763.jpg" />
 </div>
 
 
@@ -477,7 +537,7 @@ magnet:?xt=urn:btih:7F34249DE188D332A3354881B142D02AD43D2B5D
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74774.jpg" />
 </div>
 
 
@@ -506,7 +566,7 @@ Game Prelauncher 3.2.6 [Русский\англ]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74778.jpg" />
 </div>
 
 
@@ -530,7 +590,7 @@ Game Prelauncher — это популярный полный оптимизат
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74782.jpg" />
 </div>
 
 
@@ -546,6 +606,30 @@ magnet:?xt=urn:btih:FEB9B0BA9CF9CAE9A6B6FC78EACC4933BE5E5738
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448223   (74784) от 07.02.2012
+
+Alcohol 120% 2.0.1 Build 2033 Final + SPTD 1.80 (2012) [Multilengual]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_74784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcohol 120% - очень популярная программа, позволяющая копировать на жёсткий диск компьютера точный образ CD/DVD диска, а затем подставлять образ в виртуальный дисковод. Эта программа относится к классу эмуляторов и работает со многими форматами образов, снятых с CD/DVD из других приложений. В частности, поддерживаются файл-образы CloneCD, CloneDVD и Nero Burning ROM. Большое количество настроек позволяет смонтировать образ даже защищенных дисков. Среди настроек эмулятора можно выделить следующие опции: пpoпуcк oшибoк чтeния, улучшeннoe cкaниpoвaниe ceктopoв, чтeниe cубкaнaльныx дaнныx c тeкущeгo диcкa, измepeниe пoзициoниpoвaния дaнныx с заданной тoчнocтью, эмуляция плoxиx ceктopoв, эмуляция RMPS (физичecкoй пoдпиcи зaпиcывaeмoгo диcкa). В настройках эмулятора имеется также возможность установки регионального кода виртуального привода. Интерфейс программы переведен на большое количество языков, включая русский язык.Название программы: Alcohol 120%Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447936   (74800) от 08.02.2012
 
 Подшивка журналов | 64-Шахматное обозрение [1980-1989] [DJVU]
@@ -554,7 +638,7 @@ magnet:?xt=urn:btih:FEB9B0BA9CF9CAE9A6B6FC78EACC4933BE5E5738
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74800.jpg" />
 </div>
 
 
@@ -567,85 +651,6 @@ magnet:?xt=urn:btih:FEB9B0BA9CF9CAE9A6B6FC78EACC4933BE5E5738
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448805   (74806) от 08.02.2012
-
-The Fray - Scars & Stories (2012) [FLAC|Lossless]<Alternative, Rock, Piano Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heartbeat (3:40)
-2. The Fighter (4:20)
-3. Turn Me On (3:02)
-4. Run For Your Life (3:58)(   Читать дальше...   )Жанр: Alternative, Rock, Piano RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448181   (74816) от 08.02.2012
-
-Подшивка журналов | 64-Шахматное обозрение [1968] [DJVU]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74816.jpg" />
-</div>
-
-
-###  Подробнее
-
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
-Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60A22DE7497AD1294253C5F0B1F61323FBE580E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448175   (74821) от 08.02.2012
-
-Подшивка журналов | 64-Шахматное обозрение [1928] [DJVU]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74821.jpg" />
-</div>
-
-
-###  Подробнее
-
-64 - Шахматы и шашки в рабочем клубе (1925, 1928)
-Популярный шахматно-шашечный журнал. Двухнедельный орган Шахм.-шаш. секции ВСФК и Шахбюро при ВЦСПС. Отв.ред. Н.В.Крыленко. В состав редколлегии входили также Н.Д.Григорьев, Б.С.Левман, С.С.Левман, И.Л.Майзелис, В.И.Нейштадт, Л.Я.Френкель и др.
-Со второго полугодия 1968 года в еженедельном приложении к газете "Советский (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758D108946FA112CCA50D8AD204D68411424076C
 ```
 
 

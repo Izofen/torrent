@@ -1,3 +1,75 @@
+###  Публикация: 466678   (81734) от 12.03.2012
+
+Отдача / Recoil (2011) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81734.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования бывший полицейский, жизнь которого после убийства его семьи пошла по наклонной. Однако он взял себя в руки и посвятил свою жизнь достижению единственной цели-найти виновных в гибели родных.Производство: КанадаЖанр: БоевикРежиссер: Терри МайлзАктеры: Дэнни Трехо, Стив Остин, Серинда Свон, Локлин Манро, Ноэль Гульеми, Тай Рунян, Камилль Солари, Кейт Джардин, Патрик Гилмор, Коннор СтэнхоупПеревод: Любительский (одноголосый)Субтитры: Вшитые отключаемыеЯзык субтитров: английскийПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7C61FF94B668E9BF27AA1506CD1D1FC21AA8BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466611   (81739) от 12.03.2012
+
+[XBox360] Top Gun: Hard Lock [ENG]  (PAL/NTSC-U) (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Top Gun: Hard Lock – аркадная авиаигра, часть серии Top Gun, основанной на одноименном фильме 1986 года с Томом Крузом в главной роли. Игра позволяет участвовать в военных воздушных боях. Игрок контролирует пилота легендарного истребителя F-14 Tomcats, противостоящего враждебным «Мигам».Разработчик: Headstrong GamesЖанр: Arcade/Flight Combat/3D/3rd PersonЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0C365408B018AA5699A447A151660AD196260D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466443   (81740) от 12.03.2012
+
+Зорро: Шпага и роза / Zorro: La espada y la rosa (2007) TVRip [1 - 122 серии из 122]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эсмеральда – милая, весёлая девушка, которую воспитывает жестокосердный отец , по совместительству губернатор Лос Анджелеса, Фернандо Санчес Де Монкада. После того как Эсмеральда узнает, что Фернандо разлучил её с матерью и заточил ту в темницу, ей становится понятны и та жёсткость, с которой к ней относится отец и та ненависть, с которой на неё смотрит её сестра Мари Анхель. Отныне единственной целью девушки становятся поиски матери. Для того, чтобы её разыскать она и обратилась к таинственному храбрецу Зорро, тому чьё лицо скрыто под маской. Храбрость и красота юноши сразили юную красавицу на повал и она отдалась ему, без страха и сомнений. Однако отец уже позаботился и о будущем дочери и о благосостоянии своего семейства и подыскал для Эсмеральды выгодную, по его мнению, партию. И тут в жизни девушки появляется состоятельный и благородный дон Диего Де Ла Вега, сын зажиточного землевладельца … Эсмеральде и невдомёк, что красавец в плаще и маске, с которым она проводит ночи и который зовётся Зорро и дон Диего (   Читать дальше...   )Жанр: Приключения, Мелодрама, ВестернРежиссер: Джеймс Ордонез, Маурицио Круз, Аугусто РестрепоАктеры: Лорена Ринкон, Лина Ангарита, Кристиан Мейер, Марлене Фавела, Освальдо Риос, Эрик Элиас, Гектор Суарез Гомис, Андреа Лопез, Гарри ГейтнерПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: перевод thalia-t, озвучил tornado2642Продолжительность: 122 серии по 01:06:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466939   (81742) от 12.03.2012
 
 Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
@@ -6,7 +78,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81742.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:1FCB843CD73E6ABF328AFDDA5070822263EF98BC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81743.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:24CBC115C78D7F22E049E098D59E7AC4E9A532D6
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81747.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Windows Loader 2.1.2 by Daz [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81750.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Adobe Audition CS5.5 4.0 Build 1815 Portable by punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81752.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Adobe Audition CS5.5 4.0 Build 1815 Portable by punsh [Русский]
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81753.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Adobe Audition CS5.5 4.0 Build 1815 Portable by punsh [Русский]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81754.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ Blender 2.62 [Английский, Русский и др*]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81756.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ Good Looking Organization - 8 Labels Packs (1992-2009) [MP3|~160-320 кб/с]<In
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81758.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ Linkin Park - Greatest Hits (2012) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81762.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Angry Birds (2010-2011) [Java, S^1 | 360x640] <Multi 5>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81763.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81764.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Ike Cosse - Cold Blooded World (2000) [MP3|320 кб/с]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81770.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81771.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81774.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:70A19FBE647A36BEF29390340CBF0DC650713DFC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81775.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:05DB0D25A44FF4F719E8C8C7A732670F965FF48E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81778.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81779.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81780.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ magnet:?xt=urn:btih:EA2ABF79AE6EFF75A186DEB50241EC661F6C609C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81782.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ magnet:?xt=urn:btih:AFD93B1D6254B4672879FB47C26F241058B02308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81783.jpg" />
 </div>
 
 
@@ -584,7 +656,7 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81785.jpg" />
 </div>
 
 
@@ -595,87 +667,6 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10BADF632B4109A779EAA5512403DCD919B1D917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467317   (81786) от 13.03.2012
-
-Принцесса на горошине (1976) DVD5
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81786.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказок Ганса Христиана Андерсена. Когда принцу пришла пора жениться, на воротах дворца появилось объявление: «Требуется принцесса». Но не дождался принц визита и отправился сам на поиски. Обойдя великое множество земель, принц вернулся домой, где вскоре и нашел ту, о которой мечтал.Жанр: Фэнтези, СемейныйРежиссер: Борис РыцаревАктеры: Ирина Малышева, Андрей Подошьян, Иннокентий Смоктуновский, Алиса Фрейндлих, Ирина Юревич, Юрий Чекулаев, Александр Калягин, Василий Куприянов, Игорь Кваша, Марина Либакова-Ливанова ...Продолжительность: 01:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD2633F876B2C9A18D4812750182E2EA616F489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467382   (81788) от 13.03.2012
-
-Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01- T-Town
-02- When She Whispers Your Name
-03- Misery
-04- Risk It All
-05- Cold Wind
-06- Sometimes
-07- No Time For Love
-08- Sex, Drugs, Ur Mom & Me
-09- Sweet Spot
-10- Good Days Bad Days(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972FF6C94E63B3653160C88756CC82371B158A37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466915   (81789) от 13.03.2012
-
-Эрл Стэнли Гарднер | Дело зеленоглазой сестрички [2004] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2004Жанр: детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BB5A1D271CA9FB9A38910F6D7DEB41C76DC4F8
 ```
 
 

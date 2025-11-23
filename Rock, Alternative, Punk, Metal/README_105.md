@@ -6,7 +6,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104525.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104528.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chaos Unleashed - I Am Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104532.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TooEvil - Lepers and Lace (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104535.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104537.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Skelethal - Within Corrosive Continuums (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104540.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Mourning - Hush (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104541.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104546.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carmeria - Tragedie D'amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104550.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Obscene - Agony & Wounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104554.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ellende - Todbringerin (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104562.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104563.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Transcendent - Awaken (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104565.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104567.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ellende - Todbringerin (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104569.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Scherer, Batten - BattleZone (2017) 2xCD, Reissue, Remastered, 2024, MelodicRock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104580.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tantrum - Sorrow-II (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104582.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Deadringer - Electrocution Of The Heart (1989) Reissue, Remastered, 2024, Bad Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104583.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mike Tramp - Everything Is Alright (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104584.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Moggs Motel - Moggs Motel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104597.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tears Run Rings - Everything In The End (2024) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104599.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Losing Gravity - All In (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104606.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104608.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104609.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Helvetets Port - Warlords (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104619.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Entering Polaris - 5 Albums (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104624.jpg" />
 </div>
 
 

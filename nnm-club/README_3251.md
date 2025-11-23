@@ -1,3 +1,82 @@
+###  Публикация: 1750569   (104207) от 20.09.2024
+
+Neptune - End Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Hearts
+02. Brightest Steel
+03. The End Of Time
+04. Revenge(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E937BB597093B59BF20A13A4695907446162907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750466   (104208) от 20.09.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир.Тур 1-й. Атлетико (Мадрид, Испания) - Лейпциг (Германия) (19.09.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 1-й. Атлетико (Мадрид, Испания) - Лейпциг (Германия) (19.09.2024)
+СУДЬЯ Кружляк Иван (Словакия)
+СТАДИОН «Сивитас (Ванда) Метрополитано» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452773878EC5EC5896E3A0D20C788384AF4F629F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750309   (104209) от 20.09.2024
+
+It Dies Today - Studio Albums (3 releases) (2004-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104209.jpg" />
+</div>
+
+
+###  Подробнее
+
+It Dies Today — американская металкор-группа, образованная в Буффало, штат Нью-Йорк, в сентябре 2001 года.2004 - The Caitiff Choir
+2006 - Sirens
+2009 - LividityЖанр: MetalcoreПродолжительность: 02:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7372AACEF0E2BCB6D2549DF9E4B1A1C415965A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750463   (104210) от 20.09.2024
 
 Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 1-й. Фейеноорд (Роттердам, Нидерланды) - Байер (Леверкузен, Германия) (19.09.2024) IPTV [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104210.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ magnet:?xt=urn:btih:BB131C0EC5231E499CF2AC4CADEC273077578AC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104211.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:9FD436DF4BB107152D270736095245EE7CAFFCDA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104212.jpg" />
 </div>
 
 
@@ -83,7 +162,7 @@ Savage Wizdom - No Time For Mercy (2007) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104213.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ magnet:?xt=urn:btih:7B7B8C23FA578928500AF103FC08AA13BECBBDD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104214.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_104214.jpg" />
 </div>
 
 
@@ -134,7 +213,7 @@ Savage Wizdom - A New Beginning (2014) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104215.jpg" />
 </div>
 
 
@@ -161,7 +240,7 @@ Torus - Torus (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104216.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Figen Morfen - Stay positive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104217.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ magnet:?xt=urn:btih:E88BFD5368A141F28932E73F29AFDEB895841093
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104218.jpg" />
 </div>
 
 
@@ -239,7 +318,7 @@ Charlotte Wessels - The Obsession (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104219.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104220.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ magnet:?xt=urn:btih:A2FF24D36BAE0B88665290CBB3D5BCD4950604C5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104221.jpg" />
 </div>
 
 
@@ -317,7 +396,7 @@ magnet:?xt=urn:btih:A3B6E4C978F97209B7F4D79CFFB604A62374CDB8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104222.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ magnet:?xt=urn:btih:B2CD672B57C6105CCF6A4AADF96D64A103E6A840
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104223.jpg" />
 </div>
 
 
@@ -369,7 +448,7 @@ magnet:?xt=urn:btih:45F46D0FA954C0B764B9DA3F85932A89E5CEBC49
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104224.jpg" />
 </div>
 
 
@@ -395,7 +474,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104225.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Charlotte Wessels - The Obsession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104226.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ Eclipse - Megalomanium II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104227.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ Skid Row - Live in London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104228.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ Ctraltu - NO EXIT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104229.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ Zetra - Zetra (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Synth-Rock, Synth-Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104230.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ Unto Others - Never, Neverland (2024) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104231.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104232.jpg" />
 </div>
 
 
@@ -598,80 +677,6 @@ Defiled - Horror Beyond Horror (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15FE8FA059E06B9D1C14C7DA2B6BDEDB228F9D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750339   (104233) от 19.09.2024
-
-Хоккей. КХЛ 2024-2025. Северсталь (Череповец) - Торпедо (Нижний Новгород) (18.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Северсталь (Череповец) - Торпедо (Нижний Новгород) (18.09.2024)
-СУДЬИ Сергеев Александр (Жуковский, Россия) Юдаков Сергей (Россия)
-СТАДИОН «Ледовый дворец Череповец» (Череповец) Зрителей: 4690Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE53915E91D36F56A138ED9B938FE05BB0842694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750414   (104234) от 19.09.2024
-
-Ты должен верить / You Gotta Believe (2024) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда неудачников из Малой бейсбольной лиги посвящает свой сезон умирающему отцу игрока. При этом они совершают невозможное - выходят в финал Мировой серии в игре, которая мгновенно стала классикой ESPN.Производство: США / Media Finance Capital, Santa Rita Film Co., Well GoЖанр: семейный, спортРежиссер: Тай РобертсАктеры: Сара Гадон, Молли Паркер, Люк Уилсон, Грег Кинниэр, Патрик Ренна, Лью Темпл, Этьен Келлиси, Michael Cash, Джейкоб Соли, Николас ФрайПеревод: Профессиональный многоголосый (RGB)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8DB1C4D769A18569C73448F2ED7B0292249FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750330   (104235) от 19.09.2024
-
-Vivaldi 6.9.3447.46 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84391E044164035694D7B7D99A96DEACA151BFFD
 ```
 
 

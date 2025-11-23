@@ -6,7 +6,7 @@ Aeonblack - The Time Will Come (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110022.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King of None - In the Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110023.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bilwis - Hameln (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110024.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prave Factum - «Мир» для всех (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110025.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bilwis - Sagenwelt (2020) EP, Released, 2021, Northern Silence Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110026.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:55249641EB59FA3E8C5B42BD5B76652154892BD0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110027.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Marisa And The Moths - 3 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110028.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B4B8BFE50A65CD27FE71E089728CA95F5F7B78BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110029.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Inner Me - Rosabelle Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110032.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004 - 2024) (2024) L
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110034.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cradle of Haze - Fairytales (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Got
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110035.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:301962F5F36FF1DA228C5E490AFB463FD48BD120
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110039.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Violet Eternal - Reload The Violet (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110040.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ As the Sun Falls - Kaamos (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110044.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Blaze of Perdition - In Void and Serpent the Spirit is One (2009) Split [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110051.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lares - Towards Nothingness (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110054.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blaze of Perdition - Near Death Revelations (2015) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110056.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Blaze of Perdition - Towards the Blaze of Perdition (2010) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110057.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lares - Mask of Discomfort (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110059.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blaze of Perdition - The Hierophant (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110060.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Blaze of Perdition - 418 - ATh IAV (2013) Split [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110061.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Trippelganger - Possessor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110064.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:A79EEDA7DC4D84A2ADC1E7E28245CF38A6D2C9C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110067.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Cold Years - A Different Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110070.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Scavenger - Beyond The Bells (2024) [FLAC|Lossless|WEB-DL|tracks] <Oldschool Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110074.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Christian Kallias' Steel Eternal - Battlecry Of The Galaxy (2024) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110079.jpg" />
 </div>
 
 

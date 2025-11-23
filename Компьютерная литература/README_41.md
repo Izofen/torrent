@@ -1,3 +1,125 @@
+###  Публикация: 1621506   (244574) от 25.03.2023
+
+Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Volume 2: Rendering [2] (2016, 2019) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244574.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе «Основ разработки игровых движков» обсуждается математика, необходимая инженерам, работающим над играми или другими типами виртуальных симуляций. Книга начинается с традиционных трактовок таких тем, как линейная алгебра, преобразования и геометрия. Затем он вводит алгебру Грассмана и геометрическую алгебру, чтобы обеспечить гораздо более глубокое понимание (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621261   (244862) от 24.03.2023
+
+Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свою собственную криптовалюту, реализовав технологию блокчейн с помощью Java. Это пошаговое руководство научит вас, как создать пользовательский интерфейс с помощью Java FX и реализовать SQLite DB с помощью JDBC Driver для блокчейна.
+
+Эта книга включает многочисленные упражнения и тестовые вопросы, которые помогут вам закрепить полученные знания по мере (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621549   (245052) от 25.03.2023
+
+В.П. Дьяконов | Mathematica 5.1/5.2/6 в математических и научно-технических расчетах (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245052.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии впервые описано применение трех последних версий системы Mathematica 5.1, 5.2 и 6.0 — мирового лидера среди универсальных систем компьютерной математики. Особое внимание уделено описанию возможностей новейшей системы Mathematica 6.0, в ядро которой добавлено около тысячи новых функций. Впервые описаны средства динамической оценки переменных, расширенной (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540360   (245303) от 30.03.2022
+
+21 Draw | Illustrator's Guidebook - Volume 2 (2021) [PDF] [EN]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша ПОСЛЕДНЯЯ учебная книга по рисованию проведет вас от новичка до профессионала с НОВЫМ потрясающим набором тем, включая дизайн персонажей, анатомию и многое другое! С уроками легенд индустрии, которые работали в Disney, Marvel, DC, Dreamworks, Pixar и многих других. Эта книга является продолжением нашего чрезвычайно успешного руководства иллюстратора, которое (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386B9DBE6722DBFBCB8E5A863E443B759A4A86B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621296   (245405) от 24.03.2023
+
+Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_245405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Game Coding Complete, Fourth Edition, новейшее издание важного практического руководства по разработке игр коммерческого качества. В книге, написанной двумя опытными программистами игр, рассматривается весь процесс разработки игры и все уникальные проблемы, связанные с ее созданием. В этом превосходном введении в игровую архитектуру вы изучите (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565814   (245475) от 27.07.2022
 
 Ричард Столлман | Руководство по GNU Emacs (1999) [PDF]
@@ -6,7 +128,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245475.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245475.jpg" />
 </div>
 
 
@@ -30,7 +152,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245495.jpg" />
 </div>
 
 
@@ -54,7 +176,7 @@ magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245843.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245843.jpg" />
 </div>
 
 
@@ -80,7 +202,7 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246203.jpg" />
 </div>
 
 
@@ -104,7 +226,7 @@ magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246438.jpg" />
 </div>
 
 
@@ -128,7 +250,7 @@ magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246553.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246553.jpg" />
 </div>
 
 
@@ -152,7 +274,7 @@ Chaos Software Ltd. | V-Ray 2.0 for 3ds Max [2010] [PDF]
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246662.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246662.jpg" />
 </div>
 
 
@@ -182,7 +304,7 @@ magnet:?xt=urn:btih:27C1AC6F7C0C00406EFB0D38DF25B60B5C0C8D3F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246833.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246833.jpg" />
 </div>
 
 
@@ -206,7 +328,7 @@ magnet:?xt=urn:btih:FFEFCC275E1C3FD58EA4874141AA944FB1810C1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246854.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246854.jpg" />
 </div>
 
 
@@ -230,7 +352,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247034.jpg" />
 </div>
 
 
@@ -254,7 +376,7 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247142.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247142.jpg" />
 </div>
 
 
@@ -280,7 +402,7 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247256.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247256.jpg" />
 </div>
 
 
@@ -304,7 +426,7 @@ magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247425.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247425.jpg" />
 </div>
 
 
@@ -328,7 +450,7 @@ magnet:?xt=urn:btih:AC2D996BD46A013A4D0E765CA981BB6064CDB269
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247492.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247492.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247506.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247506.jpg" />
 </div>
 
 
@@ -378,7 +500,7 @@ magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247550.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247550.jpg" />
 </div>
 
 
@@ -403,7 +525,7 @@ magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247551.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247551.jpg" />
 </div>
 
 
@@ -427,7 +549,7 @@ magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247555.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247555.jpg" />
 </div>
 
 
@@ -452,7 +574,7 @@ magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247565.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247565.jpg" />
 </div>
 
 
@@ -476,7 +598,7 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247614.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247614.jpg" />
 </div>
 
 
@@ -500,7 +622,7 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247616.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247616.jpg" />
 </div>
 
 
@@ -511,127 +633,6 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638612   (247680) от 09.06.2023
-
-Роб Персиваль и др. | JavaScript с нуля до профи (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга демонстрирует возможности javascript для разработки веб-приложений, сочетая теорию с упражнениями и интересными проектами. Она показывает, как простые методы javascript могут применяться для создания веб-приложений, начиная от динамических веб-сайтов и заканчивая простыми браузерными играми. В "javascript с нуля до профи" основное внимание уделяется (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638541   (247708) от 08.06.2023
-
-Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга показывает, как данные могут быть полезны для решения бизнес-задач. В ней рассматриваются различные методы анализа данных для обнаружения скрытых закономерностей и взаимосвязей, прогнозирования будущих результатов, оптимизации эффективности и повышения результативности работы организаций. Вы узнаете, как анализировать данные, применяя концепции статистики, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833758   (247886) от 02.11.2025
-
-Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча Леуве [48 книг] (2019-2023) [PDF] [EN]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник учебных пособий - самоучителей по рисованию от нидерландского художника Митча Леуве (Mitch Leeuwe).
-Раскройте свой творческий потенциал и улучшите свои навыки рисования с помощью пошаговых обучающих курсов! Независимо от того, новичок вы или хотите отточить свою технику, данные уроки охватывают всё: от дизайна персонажей и анатомии до рисования животных, (   Читать дальше...   )Жанр: 2D графика, рисование, самоучительЯзык: АнглийскийИздательство: Самиздат (mitchleeuwe.nl)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492398   (248094) от 05.05.2012
-
-Х. Граф | Руководство для начинающего пользователя Joomla! 2.5 [2012] [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга окажется полезной всем — тем, кто ранее не имел дела с системами управления содержимым; кто использовал другие CMS; и тем, кто знаком с Joomla! предыдущих версий. В книге рассказывается, как создать, наполнить и оптимизировать сайт на основе Joomla!, а также о том, как настроить и адаптировать данную CMS под свои нужды. Автор книги, Хаген Граф — преподаватель, консультант, разработчик. За 8 лет издательской деятельности он написал множество популярных книг технической тематики, рассказывая про Mambo, Joomla!, Drupal, Apache, вопросы безопасности Windows. Работы Хагена Графа переведены на 14 языков.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492393   (248099) от 05.05.2012
-
-С.В. Одиночкина | Разработка баз данных в Microsoft Access 2010. Учебное пособие [2012] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248099.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии излагаются методические рекомендации к выполнению лабораторных работ по работе с СУБД Microsoft Access 2010 по дисциплине "Введение в специальность". Предназначено для студентов, обучающихся по всем профилям подготовки бакалавров направления 210700 "Инфокоммуникационные технологии и системы связи".2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A7A830267022CA7BC92B37EFFD6A6870703F0F
 ```
 
 

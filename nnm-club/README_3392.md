@@ -1,3 +1,82 @@
+###  Публикация: 1730563   (107874) от 16.06.2024
+
+Moog Music - Mariana 1.2.0 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mariana - это новый программный синтезатор басов от Moog Music, способный достигать самых глубоких уровней низких частот.
+Рожденная из глубин наследия Moog Music в области синтеза басов, Mariana вдыхает новую жизнь в методы электронного саунд-дизайна для современного музыканта или продюсера.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA3C7C0BF00812E3E4411E98A19853324D2398E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730504   (107875) от 16.06.2024
+
+Black Country Communion - V (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlighten (5:20)
+02. Stay Free (4:30)
+03. Red Sun (6:33)
+04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BCA5BC5CBB48D4B567980B30C5FBCF733CC88F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730486   (107876) от 16.06.2024
+
+The Jive Aces - Keeping The Show On The Road (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесспорные короли джайва и свинга The Jive Aces вернулись со своим новым альбомом Keeping the Show on the Road, 14 треков которого охватывают захватывающие живые выступления и непоколебимую страсть к музыке. The Jive Aces очаровывал публику по всему миру на протяжении десятилетий – от восхищения судей конкурса Britain's Got Talent до аншлага на первом в истории the (   Читать дальше...   )01. Rockin' Is Our Bizness (2:36)
+02. Clementine (3:07)
+03. It Don't Mean A Thing (If It Ain't Got That Swing) (3:18)
+04. The Pink Panther Theme (3:04)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC08A87764250C6B90DA8511F4E69C5770051E58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730462   (107877) от 16.06.2024
 
 Bon Jovi - Rockin' In Cleveland 1984 (2012) Remaster, 2024, The Media Champ [MP3|320 Kbps] <Rock, Hard Rock>
@@ -6,7 +85,7 @@ Bon Jovi - Rockin' In Cleveland 1984 (2012) Remaster, 2024, The Media Champ [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107877.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ VA - Art of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107878.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark E
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107879.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ magnet:?xt=urn:btih:5FD5F5171F6B6562AAC49D50A7C5D889ED0C973C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107880.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ magnet:?xt=urn:btih:121B68D3B748C14E48D52D9252C99DE095BC3640
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107881.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ magnet:?xt=urn:btih:96DA18F966EED60589C9953FA15D800067CEBE1F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107882.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107883.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107884.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Rezn - Burden (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner, Doom, Drone>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107885.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ Annabel - Worldviews (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107886.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ Xeneris - Eternal Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107887.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107888.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ Gustave Reichert - Mars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107889.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ Finn Rees - Dawn Is A Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107890.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ Jet Engine Dragons - Ronin (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107891.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107892.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107893.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ Returned To The Earth - Stalagmite Steeple (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107894.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ Warlord - Free Spirit Soar (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107895.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ Paradise In Flames - Blindness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107896.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107897.jpg" />
 </div>
 
 
@@ -570,7 +649,7 @@ magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107898.jpg" />
 </div>
 
 
@@ -597,7 +676,7 @@ Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107899.jpg" />
 </div>
 
 
@@ -611,84 +690,6 @@ Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A375E9173174F132CF2E76C7E4CCD219BF28824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730298   (107900) от 15.06.2024
-
-Пятеро на одного (15.06.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E7179C7249FA954E0B9EDBFEF23A4235072A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730309   (107901) от 15.06.2024
-
-Dagoba - Different Breed (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Metal, Industrial Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genes15 [00:01:12]
-02. Arrival of the Dead [00:05:24]
-03. Distant Cry [00:03:07]
-04. Different Breed [00:05:29](   Читать дальше...   )Жанр: Groove Metal, Industrial Metal, Melodic Death MetalПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0A592553F2560023DF23E2FCC2CC8B93BDEF2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730330   (107902) от 15.06.2024
-
-Atlantis Drive - Atlantis Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Back When (4:21)
-02. Medusa Smile (5:16)
-03. Living For The Moment (4:43)
-04. Brand New Start (3:53)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91689DABFC33F0C448803AFADB1E8D61F79D8FA0
 ```
 
 

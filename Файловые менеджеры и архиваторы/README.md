@@ -6,7 +6,7 @@ InnoExtractor Ultra 11.1.0.153 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_297.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ InnoExtractor Ultra 11.1.0.153 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_983.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Advanced Renamer 4.16.1 + Portable (x64) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1198.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ InnoExtractor Ultra 11.1.0.152 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2171.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Q-Dir 12.34 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2494.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ OneCommander Pro 3.101.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3218.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Total Commander 11.56 Extended 25.9 Full / Lite RePack (& Portable) by BurSoft [
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3228.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Xplorer2 Ultimate 6.2.0.3 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4571.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.8.2 by SamLab [Multi/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5288.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ XYplorer 27.10.0600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6459.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ XYplorer 27.10.0600 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6463.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Total Commander 11.56 Final [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6983.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Advanced Renamer 4.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7289.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Double Commander 1.1.28 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7894.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Total Commander 11.55 MAX-Pack 2025.08.04 by Mellomann [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8735.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:0B28314A2FF48340DFDDAC3C2D0F622740BD1E74
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9372.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinRAR 7.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9584.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WinRAR 7.13 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9896.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ WinRAR 7.13 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9920.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:628AFD02E1FB32C8FC163FEEC26AC82427EFD9AB
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12249.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ WinRAR 7.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13322.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Total Commander 11.55 LitePack & PowerPack + Portable 2025.6 by SamLab [Multi/Ru
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13444.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Directory Opus 13.15.2 Beta [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16907.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Tablacus Explorer 25.5.9 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18720.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ EF Commander 25.08 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18938.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FreeCommander XE 2025 donor v929 x64 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20320.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1747198   (104754) от 04.09.2024
+
+Process Lasso Pro 15.0.0.50 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708F57B5066B476F55F300BDC79919DD34498452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747095   (104755) от 04.09.2024
+
+Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Selby (Part 1) (3:40)
+02. De Selby (Part 2) (3:48)
+03. First Time (3:53)
+04. Francesca (4:30)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776EDDAD8149EBEDEFFD2956AEA6D16F301E7BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747222   (104756) от 04.09.2024
+
+Журнал | Садовод и огородник №17 (532) (сентябрь 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104756.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AC727272142117B85395EA24C76B4DD727C653
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747184   (104757) от 04.09.2024
 
 Kdenlive 24.08.0 Portable by 7997 [Multi/Ru]
@@ -6,7 +81,7 @@ Kdenlive 24.08.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104757.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:77BC9A5A4A153A494885B42150452E626061A63D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104758.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:BE7F1DF97E7EF35022427CF5AE1452FEA0177417
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104759.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Advanced Renamer 4.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104760.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:1D0474D69925C3D58C1D6DD08B25658AAF2EDB8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104761.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:4A04E3135C10896A35F3A48D1E5DDA1F7F8E407A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104762.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:1EB70CB1205C9696B5EA23D813052887E1337FAF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104763.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ Colin James - Chasing The Sun (2024) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104764.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:ABBBFEEA36958D5529AEE0A5E2BF39960955A785
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104765.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ Abyss Gazes - 3 Albums (2018-2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104766.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ Amorphis - Rarities 1991 - 2001 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104767.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104768.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ Foxx - Sittin' Pretty (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104769.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ magnet:?xt=urn:btih:4266BC80D0CD4A2088CEAFE0325503372E9581C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104770.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ Saint - Immortalizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104771.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104772.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ YT Downloader 9.10.12 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104773.jpg" />
 </div>
 
 
@@ -436,7 +511,7 @@ magnet:?xt=urn:btih:3F216B8D720CB93B51AD4289A4D3760F935C14BB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104774.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104775.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104776.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ StartAllBack 3.8.7 build 5150 (DC-03-09-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104777.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ magnet:?xt=urn:btih:FB085122C9D0C9DC8D01D6A02E6DF0B422891A00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104778.jpg" />
 </div>
 
 
@@ -559,7 +634,7 @@ magnet:?xt=urn:btih:25417790E9601D30CD52406D3B049D028B0B5421
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104779.jpg" />
 </div>
 
 
@@ -573,79 +648,6 @@ magnet:?xt=urn:btih:25417790E9601D30CD52406D3B049D028B0B5421
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF365C34AF5A090FE9DCFEC87AE173929E20EDA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747252   (104780) от 04.09.2024
-
-Журнал | Кухонька Михалыча №9 (229) (сентябрь 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D663C1408A64B89E566C9F447C5B38931677B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747179   (104781) от 04.09.2024
-
-InnoExtractor Ultra 8.1.0.615 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104781.jpg" />
-</div>
-
-
-###  Подробнее
-
-InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
-С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F056625CB9EBF25E6E4D36CA02FD250FA2B9CDD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747130   (104782) от 04.09.2024
-
-Крот / The Mole (2024) WEBRip [H.264/1080p] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крот - американское игровое реалити-шоу, в котором участники работают группой, чтобы добавить денег в банк, который в конечном итоге выиграет только один из них. Среди участников есть один человек, которого продюсеры тайно назвали "Кротом", которому поручено саботировать усилия группы по зарабатыванию денег. В конце каждой серии участник, который меньше (   Читать дальше...   )Производство: США / Eureka Productions (II), NetflixЖанр: игра, реальное ТВ, детектив, приключенияРежиссер: нетАктеры: Алекс Вагнер, Ari Shapiro, William James Richardson, Joi Schweitzer, Kesi Neblett, Avori Henderson, Jacob Hacker, Шон Патрик Брайан, Дианна Томпсон, Hannah Burns и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EA710EF39639FEDCB01C1730900E3EB3856E40
 ```
 
 

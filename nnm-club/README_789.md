@@ -6,7 +6,7 @@ Vanced Tube v5.3.81.153 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20840.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9F753718B3D921BCF3359E5DABDD6D106866E64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20841.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:46060411E3A3B3CBDE5179D5A69D46FD0D5639C4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20842.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20842.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4A2E9FCD395614AA84391ECBF7CDDB2E7E319A21
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20843.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20843.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6764FD7210FD30A9AD900E442ED49BA4D0341111
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20844.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20844.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9F2E934DF2B8CAB30292F456117913889BEAA472
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20845.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20845.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20846.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20846.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:88EC0ED6E73829892D5678299C698F97BBAD54A2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20847.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20847.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ K-Lite Codec Pack 18.9.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20848.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:29FA8530619C103B071FBF7762118432F5398FC5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20849.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20850.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Deceptico
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20851.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20851.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20852.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:8155210F06BC56F5771E67EAA61D543457A0C5E8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20853.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20853.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FA9F543732B8EFB19468FC08E3E52F46B07C2610
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20854.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:21DE25D56B2656217F6121C8133EDB3A9C83CF68
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20855.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20855.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:4184588074A6A276D7B71EB8844BB5FB26934EBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20856.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:6F6BE8B809C82FF3818C7AFD934AE672F566D4DF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20857.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20857.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20858.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20858.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20859.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F7BC04AF07739BABDF01B8B23DB37F68D2BCF185
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20860.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20861.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20862.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20863.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20864.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ X3 Terran War Pack (2008-2012) [Ru] (3.4/3.3/1.3) Repack alexalsp
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20865.jpg" />
 </div>
 
 

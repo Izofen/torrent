@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5ED248785949147BB6B67B3AE123D2B6CD1696CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171111.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9FC43C4CA03A53E799AB88495BABF416EBE41941
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171326.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BCB1640C1A46EF98BFA34407F96B83C950678157
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171330.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C4AC18C9387053D00C9960BFA7EC66153BD4F34E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171375.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:69B3FA9C11319080E396D88B759F6E417E845838
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171391.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:42747A981F4582030F4FBF579E3D0360DE590A6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171454.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1EB1D264C9DC99DDAE211A40715F1661CC511627
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171613.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:65D8400A52FB004B942E78EB6452699381453A21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171621.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F3D36B74D9A79ACD90068B5F57E32F7A4B6C2C51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171785.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7F78017841102F00058AF239C5C038E08B7FE226
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171794.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:5357080990650AB2E89405367C05D60ED7DB9690
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171796.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:9476D5EC89EE7AD87A7A35626318D9E8EBCA80FE
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171815.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:2B6E00A627BF7B0B8BA99CD7831016F45E722B40
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171866.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:7D0FD2691F05AEBCD61EB7D1DEA05F2BF98AF670
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171869.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:07478FAE345B73CF0C2F1B98F20D535CF0ECD60E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171998.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:48D6312DEF4BFFB973904A5DA48DAEAF120DF2C4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172036.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:9F8415A7E98952ED3BC5279494653D78C09DD4A5
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172043.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:B1094F53E23890C0684B37E77606F7B0AC10F02F
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172050.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:438DBD1627AD70B68E0ADF75269DCBB0F6A6DB8B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172051.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:2CA0258FE80E58958043B3A2209F8959CBC5709A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172074.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:C4956BAE545C0807A7924AD004D44AB9C64BFCAE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172077.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:8284FF55C4A1DC81C79FC99A59F4E8D600C550B7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172083.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:5E1518D679023B01BD40800CDE08E7B09A4A55E6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172090.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:EDA74ED1C49CC6288AD16EFFF5EE25357AEBC988
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172094.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:62859EAFD7652C8FAF79BE2D52E40CF7FCD5A777
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172108.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PDF-XChange PRO 10.4.1.389 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Backupper Technician Plus 7.4.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42359.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FBReader Premium v3.7.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42371.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Light Image Resizer 7.0.7.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42396.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Opera One 114.0.5282.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Google Chrome 129.0.6668.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42423.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ IsMyLcdOK 5.79 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42432.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wise Registry Cleaner Pro 11.1.7.722 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42437.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ HiBit Uninstaller 3.2.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42455.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E94B6D45DA28397B647D8FB1CCDEFB9A86250F85
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42487.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FanControl V204 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42527.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:B2AB511E963E69D1023746A12B368F819FB12E57
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42532.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blender 3.6.16 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42535.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Icecream Video Converter Pro 1.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42540.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Format Factory 5.18.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42542.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Icecream Video Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42545.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ OCCT 13.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42550.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ IceCream Ebook Reader Pro 6.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42565.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Opera One 113.0.5230.132 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42569.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ JetBrains Rider 2024.2.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42572.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Revo Uninstaller Free 2.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42573.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Blender 4.2.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42577.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Icecream PDF Editor Pro 3.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42578.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:230169549B7AEEA90E4E7680A070EB7FF7C8AC60
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42582.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AnyMP4 Video Converter Ultimate 8.5.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42593.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ RegCool 2.013 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42604.jpg" />
 </div>
 
 

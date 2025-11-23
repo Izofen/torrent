@@ -6,7 +6,7 @@ Jimmy Smith - Four Classic Albums (1957 - 1960) 2CD, 2018, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65767.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65806.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65808.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65812.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65823.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65826.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65829.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65843.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65913.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65940.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65961.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65963.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65966.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65969.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65971.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Catfish - SAME THING EVERY DAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66000.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Larry Kurtz & The Lawbreakers - Take Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66001.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Clay Bottom Jug Busters - Too Tight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66003.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crosscut - No Easy Way to Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66004.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66005.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Grace Potter - Medicine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66011.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nicole Lawrence - Time In Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66012.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66014.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66015.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Paul Steward - You Can Dance to My Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66016.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mick Clarke - Mozelle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66017.jpg" />
 </div>
 
 

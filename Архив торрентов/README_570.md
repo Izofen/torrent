@@ -6,7 +6,7 @@ Fort Firewall 3.10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122767.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122770.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Draw.io 22.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122782.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VidCoder 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122788.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122795.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Macrorit Partition Expert 8.1.3 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122796.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122797.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ WPS Office + PDF 18.6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122798.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ KMPlayer 4.2.3.8 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122802.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Imagine 1.3.9 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122805.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ CrystalDiskInfo 9.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122815.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Topaz Photo AI 2.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122816.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DefenderKiller 11.1.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122818.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ALLPlayer 9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122821.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Topaz Video AI 4.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122822.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Total Commander 11.02 (15.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122824.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122828.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Notepad++ 8.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122829.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ WinToUSB Technician 8.5 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122832.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ R-Studio Network 9.3 Build 191269 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122870.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Navicat for Redis on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122877.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122878.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122879.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122880.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122895.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122900.jpg" />
 </div>
 
 

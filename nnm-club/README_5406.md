@@ -1,3 +1,177 @@
+###  Публикация: 1345632   (166066) от 15.12.2019
+
+Adobe Zii 2020 - Universal Patcher 5.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii Patcher - лучшая утилита от отечественного разработчика для активации любого продукта Adobe. Стоит обратить внимание на то, что с каждым обновлением продукта, существующий Adobe Zii теряет свою актуальность, однако сам Adobe Zii регулярно обновляется вслед за Adobe. Срок обновления Adobe Zii не превышает действие пробного периода.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.11 El CapitanЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F465ED264625F74F4CEC18E82792B6FCB13844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673125   (166067) от 31.10.2023
+
+Pepakura Designer 5.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1593055F293518DC0B0C2067E0AAB52E31972E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431931   (166068) от 15.12.2020
+
+VA - Best Of Toolroom 2020 (Mixed by Mark Knight) (2020) [MP3|320 Kbps] <House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight & Rene Amesz feat. Tasty Lopez - All 4 Love (Extended Mix) [6:30]
+02. KC Lights - Girl (Extended Mix) [5:46]
+03. Crazy Fluke - Obey (Iglesias Extended Mix) [7:12]
+04. Wankelmut & Anna Leyne - Free At Last (Martin Ikin Extended Remix) [5:46](   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 08:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8CCC545005F751665EDBBBE08DE9806929C3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597584   (166069) от 15.12.2022
+
+Clairisma - Choose the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Backbone (3:43)
+02. I Got Stoned (4:25)
+03. Don’t Take Advantage of Me (2:56)
+04. Palm of My Hand (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F7FE3EF1AFD7E1EF77C6D22CA488FFA2CEFC76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516406   (166070) от 11.12.2021
+
+Александр Шувалов | Агент ГРУ (Книга 3). Оживший (2018) [MP3, Сергей Ларионов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166070.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время группа спецназа ГРУ подполковника Игоря Коваленко провалила ответственное задание и была расформирована. Оказавшись не у дел, ее участники вынуждены самостоятельно приспосабливаться к жизни. Сам Игорь устроился работать контролером в супермаркет. Однажды он случайно узнает на улице главаря террористов, на которого в свое время охотились спецназовцы и (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 10:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCF5160007C6BAF5588925873C64DA8A882D8C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344266   (166071) от 15.12.2019
+
+Зеленая книга / Green Book (2018) Blu-ray [H.264/1080p] [RUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утонченный светский лев, богатый и талантливый музыкант нанимает в качестве водителя и телохранителя человека, который менее всего подходит для этой работы. Тони по прозвищу Болтун — вышибала, не умеющий держать рот на замке и пользоваться столовыми приборами, зато он хорошо работает кулаками. Это турне навсегда изменит жизнь обоих.Производство: США / Participant Media, DreamWorks SKG, Amblin Partners, Cinetic Media, Innisfree PicturesЖанр: Комедия, драма, биографияРежиссер: Питер ФарреллиАктеры: Вигго Мортенсен, Махершала Али, Линда Карделлини, Себастьян Манискалко, Димитар Маринов, Майк Хаттон, П.Дж. Бирн, Джо Кортезе, Мэгги Никсон, Фон ЛьюисПеревод: Дублированный (Лицензия RUS Transfer)Субтитры: РусскиеПродолжительность: 02:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399AD8BBFC9A2750C1EBCA012A95932D5FDCADB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516503   (166072) от 11.12.2021
+
+Martinic - AX73 1.0.3 VSTi (x86/x64) RePack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE532A53234F72517692C5B09C215594763C4F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673098   (166073) от 31.10.2023
 
 Гости из галактики / Gosti iz galaksije (1981) BDRip [H.264] [HRV / RU Sub]
@@ -6,7 +180,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166073.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ Hot Roux - In a Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166074.jpg" />
 </div>
 
 
@@ -57,7 +231,7 @@ magnet:?xt=urn:btih:7EF7ED1272B482EFADA5AB43BE77AC5040A8330A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166075.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166076.jpg" />
 </div>
 
 
@@ -105,7 +279,7 @@ Smoke Of Isengard - Orc Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166077.jpg" />
 </div>
 
 
@@ -132,7 +306,7 @@ magnet:?xt=urn:btih:5A1269F683BDAF2F5C19028C6F439830E180B316
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166078.jpg" />
 </div>
 
 
@@ -156,7 +330,7 @@ magnet:?xt=urn:btih:1569DE0A1B0319109A6B81AB402816A7AABD4519
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166079.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ magnet:?xt=urn:btih:90CEDD3333F6E4BEB6A1976E91907B88E84F908A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166081.jpg" />
 </div>
 
 
@@ -207,7 +381,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166082.jpg" />
 </div>
 
 
@@ -231,7 +405,7 @@ Ryan Foret and Foret Tradition - That’s What’s Happening Here (2022) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166083.jpg" />
 </div>
 
 
@@ -258,7 +432,7 @@ Trigg & Gusset - Black Ocean (2021) [FLAC|Lossless|tracks + .cue] <Experemental,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166084.jpg" />
 </div>
 
 
@@ -285,7 +459,7 @@ VA - Music News vol.56 (2020) [MP3|256-320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166085.jpg" />
 </div>
 
 
@@ -312,7 +486,7 @@ magnet:?xt=urn:btih:C25851639C3B82169C43955DDB00A4C537C08D7B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166086.jpg" />
 </div>
 
 
@@ -337,7 +511,7 @@ magnet:?xt=urn:btih:9A9051143A81A80E7EB5C6C63BDCDDCBB731A154
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166087.jpg" />
 </div>
 
 
@@ -361,7 +535,7 @@ magnet:?xt=urn:btih:6D3D97D34A3EF9D3BC492DB3A9E7678B46BF5DDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166088.jpg" />
 </div>
 
 
@@ -385,7 +559,7 @@ Dernesch, Kollo, Wiener Philharmoniker, Georg Solti - Wagner: Tannhäuser (1971)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166089.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ magnet:?xt=urn:btih:75D657D83388519FD0D42246E56D67DDEDEF28A8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166090.jpg" />
 </div>
 
 
@@ -439,7 +613,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166091.jpg" />
 </div>
 
 
@@ -463,7 +637,7 @@ magnet:?xt=urn:btih:4A239C4D9382E2FF13C9A5AE888651B81EADFFED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166092.jpg" />
 </div>
 
 
@@ -474,177 +648,6 @@ magnet:?xt=urn:btih:4A239C4D9382E2FF13C9A5AE888651B81EADFFED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F7E124FCC670203C1884735E7876506DCB8348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597427   (166093) от 15.12.2022
-
-Athak - Daturapyramides (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl, Avant Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleur du mal [00:03:56]
-02. Apparitions [00:04:35]
-03. Hierarchical rotating schizophrenia [00:11:07]
-04. Voyager [00:06:38](   Читать дальше...   )Жанр: Progressive Rock, Zeuhl, Avant ProgПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBA0A7B8DA799A1473E881E9D90BA59D381D322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431756   (166094) от 15.12.2020
-
-Журнал | Information security / Информационная безопасность №4 (сентябрь 2020) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30191386F00987115C76D69ED3C70380F90BAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672304   (166095) от 31.10.2023
-
-Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eurobeat>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-If You Come Back (6:31)Жанр: Pop Trance, EurobeatПродолжительность: 00:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345616   (166096) от 15.12.2019
-
-Skype 8.55.0.141 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype — программа от Microsoft, с помощью которой вы можете бесплатно звонить во все уголки мира. Skype создан авторами KaZaA. Сеть Skype базируется на прогрессивной P2P (peer-to-peer) технологии. Качество передачи голоса очень хорошее. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808102545CD024B5FE7FBECCBD5BD5A62CE9928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673173   (166097) от 31.10.2023
-
-Vivaldi for Android 6.2.3110.143 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vivaldi для Android — это новый приватный веб-браузер со встроенной бесплатной блокировкой рекламы, защитой от слежки и безопасной синхронизацией между устройствами.Тип издания: Free OriginalРелиз состоялся: 28.09.2023Разработчик: Vivaldi Technologies ASПоддерживаемая ОС: Android7+Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516499   (166098) от 11.12.2021
-
-Надин Бёрк Харрис | Колодец детских невзгод. От стресса к хроническим болезням (2021) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Надин Бёрк Харрис, известный врач, оказывающий помощь детям с психологическими травмами, проводит глубокое исследования по выявлению связи между неблагоприятным детским опытом и развитием заболеваний. Это трогательная история, в которой Надин показывает судьбы маленьких и взрослых героев, а также делится собственной скорбью. Стараясь забыть тяжелое детство, (   Читать дальше...   )Жанр: Воспитание детей/Детская психология/Литература для родителейПеревод: А.В. СоломинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F7C9E130FA7DC144D726586C182D296A8BDF1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431333   (166099) от 15.12.2020
-
-Журнал | Современная светотехника №1 (2020) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166099.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Современная светотехника» – издание, посвященное анализу проблем светотехнической отрасли, вопросам разработки, производства и внедрения современных энергоэффективных решений в области светотехники. В журнале публикуются последние новости отрасли, рассматриваются проекты, выполненные различными компаниями, печатаются статьи о новых разработках светотехников и дизайнеров. (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0218ECD889C65E47A3CBEE2DF5EACCEF0688D800
 ```
 
 

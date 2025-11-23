@@ -1,3 +1,75 @@
+###  Публикация: 1689429   (124748) от 02.01.2024
+
+Кентервильское привидение / The Canterville Ghost (2023) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Отисов приобретает старинный дом в английском поместье и переезжает туда. Но в доме уже 300 лет живет призрак мистера Саймона, который считает дом своим. Все новые владельцы, что заезжали в дом до них, сбегали оттуда через три дня. В этот раз все пошло не так. Отисы, и особенно их дочь Вирджиния, не только не боятся призрака Саймона, но и пытаются ему помочь (   Читать дальше...   )Производство: vВеликобритания / Toonz Media Group, Sprout PicturesЖанр: мультфильм, комедияРежиссер: Ким Бёрдон, Роберт ЧандлерАктеры: Ким Бёрдон, Роберт ЧандлерПеревод: Дублированный (Баритон)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4649068AEA93AEDD6281F02C2D0C4CCE02F6389E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689321   (124749) от 02.01.2024
+
+Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничем не примечательный лысеющий профессор среднего возраста Пол Мэтьюс ведёт обычную профессорскую жизнь, преподаёт в университете и много лет вынашивает идею книги о коллективном разуме муравьёв. Внезапно мужчина становится дико популярным — люди всего мира начинают видеть его во сне. Теперь о Поле трезвонят все СМИ, его хочет рекрутировать агентство талантов, (   Читать дальше...   )Производство: США / A24, Square PegЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайлПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CF473100577C17179420B2E807835EDAA4B22E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689441   (124750) от 02.01.2024
+
+Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Киран Хайндс, Зои Маргарет Коллетти, Ван Кросби, Илиана Норрис, Vienna Norris, Мэгги Кью, Джойнер Лукас, Келлен БойлПеревод: Профессиональный многоголосый (NewStudio, NewComers, Red Head Sound)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Forced, Full, SDH), иврит, украинскиеПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D5ABD06BDE724C72021718826BE5CBF479C679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689138   (124751) от 02.01.2024
 
 Одна дома (2023) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124751.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:D974C56F4CA287030B203FF6E91EF9F0E1AC278B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124752.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B2CE4790B4DED20DC47275A4BA4B4743159753ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124753.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:2FBED1CCD3F151A435099C3425A2A38721261282
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124754.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:6FEDCD783ECC22538BAE00C4DBC730D26BD8EFB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124755.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:2B5A8A2077800CA2D98EB750391E3D99BD29F81E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124756.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:F2D52C69704F967BDD459A7AD47594867D02F837
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124757.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:21ECC692AEE7637F6B76E5DE01C88CFED9E7CBCE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124758.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124759.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:091ABD2C3F6585C7D9E604ABBAECDEA3ECE0F06F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124760.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Lilly Beth - Бездарность (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124761.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ Black Rainbows - Superskull (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psyche
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124762.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ magnet:?xt=urn:btih:3777CE49F861CE17DA496284AF1CD6CAE76377DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124763.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ Demon - Hold On To The Dream (1991) Japanese Edition, Reissue, Remastered, 2020,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124764.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ Evidence One - Tattooed Heart (2004) [APE|Lossless|image + .cue] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124765.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ Evidence One - The Sky Is the Limit (2007) [APE|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124766.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Evidence One - Criticize the Truth (2002) Re-Release,  2007, AFM Records [APE|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124767.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ Hazzerd - Delirium (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124768.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ Evidence - Spiral (2002) Reissue, 2003, Irond [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124769.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ VA - Rock 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124770.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124771.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ magnet:?xt=urn:btih:6D3FA815BD7285B1B7B5F762FBE33D0D386C9E53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124772.jpg" />
 </div>
 
 
@@ -570,7 +642,7 @@ magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124773.jpg" />
 </div>
 
 
@@ -581,86 +653,6 @@ magnet:?xt=urn:btih:356BB683D0206ABBF05674CB9CC7140D5EE55283
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959FBDFFCE78B352A87982DA362A4B7BCE15FFEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689357   (124774) от 01.01.2024
-
-Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts [00:04:26]
-02. Götter in Weiss [00:03:52]
-03. Lost My Mind [00:03:48]
-04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689304   (124775) от 01.01.2024
-
-Ане Риэль | Зверь (2023) [MP3, Константин Панченко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная и вместе с тем жуткая история, которая поражает до глубины души. Роман о подлинной дружбе, предательстве, издевательствах и смерти; о мальчике с генетической мутацией, но одновременно и о каждом человеке – ведь на любого можно повесить клеймо «не такой, как все».
-Леон – необычный мальчик.
-Как и все дети, любит играть на ферме, гладить пушистых зверьков (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Анна ФедороваИздательство: INSPIRIA / ЭксмоПродолжительность: 12:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C1E7102A3880B7F8A4F6B52D68905B53102085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689252   (124776) от 01.01.2024
-
-Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Experimental, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clocktower Époque [00:03:55]
-02. Savage Grin [00:02:55]
-03. Afterimage [00:03:41]
-04. Cruel [00:03:56](   Читать дальше...   )Жанр: Ambient, Leftfield, Experimental, DowntempoПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D53255D8D3C1931ACDC5EE5A4AE2CBBE024201
 ```
 
 

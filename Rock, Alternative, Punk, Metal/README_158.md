@@ -6,7 +6,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113032.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113038.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hurricane on Saturn - Killing Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113047.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113052.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Kryuhm - Only in My Mind (2022) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113053.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113054.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Ragwater - Shifting Shapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113064.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:BE9F58E10CE925BF80609E79105D226D6B61179F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113093.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Leaves' Eyes - Myths of Fate (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113103.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113120.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Lipz - Scaryman (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113138.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Embrace Of Souls - Forever Part of Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113144.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8F3BEB5A4DB170EB8E2C1332D587F78C38E2F4D3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113181.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Feel Good Classic Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113188.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Expiatoria - Shadows (2022) [FLAC|Lossless|image + .cue] <Gothic, Doom, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113223.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Phish - Sigma Oasis (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113225.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A1F8E8E198870A064883D7281C43E980F0CE7B1E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113228.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Expiatoria - Shadows (2022) [MP3|320 Kbps] <Gothic, Doom, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113233.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sol Anahata - Syncretic Sovereignty (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113236.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Early Moods - A Sinner's Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113242.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) Remastered, 2022, Red Snow [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113250.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Crystal Darkness - Ascend Saturnine Nebulae (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113253.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Crystal Darkness - Sombre (1995) Demo, Remastered, 2022, Red Snow [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113254.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Early Moods - Early Moods (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113257.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Jethro Tull - The Chateau D’Herouville Sessions 1972 (2024) 2CD, Rhino [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113260.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Big Fat Lizard - Big Fat Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113267.jpg" />
 </div>
 
 

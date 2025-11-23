@@ -1,3 +1,102 @@
+###  Публикация: 478122   (98670) от 05.04.2012
+
+VA - EveryBody Dance Now! Весна (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astero & Inusa Dawuda - I don't know
+02. Azuro feat. Elly - Toca me (Video Edit)
+03. Radio Killer - You and me
+04. Drei Ros feat. Diedra - Crazy
+05. Mohombi - Maraca
+06. Offbeat Orchestra feat. Sunstroke Project - Epic sax
+07. David Guetta feat. Jennifer Hudson - Night of your life
+08. Nirvana - Smells like teen spirit (Larin Disco Fever remix)
+09. Deepside Deejays - Never be alone
+10. Slam DJ's feat. Zeni - Touch(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EB52D9DB2A4CD4AFBB31F6451D4E1E02FAB16C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478354   (98671) от 05.04.2012
+
+VA - Absolute Dance April (2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Voort - Driven (original mix)
+02. Rico Bernasconi & Beenie Man feat. Akon - Girls (T & K remix)
+03. Dazzle - Global Forcast (original mix)
+04. Sander Van Doorn - Outro (Edx's festival mix)
+05. Rene Rodriguez & DJ Antoine feat. MC Yankoo - Shake 3X (radio edit)
+06. Infected Mushroom - Pink Nightmares
+07. Cut & Run - Bangkokd (original mix)
+08. Stan Kolev & Matan Caspi - Nirvana (original mix)
+09. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
+10. Fresh - Hot Pursuit (Dave Lebon remix)2012Жанр: DanceПродолжительность: 05:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4692B90BC96A07F216EA20C5930E3A7FF02CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478254   (98672) от 05.04.2012
+
+VA - Громкий Успех Megapolis (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ВИА Гра - Диско
+002 Like Chocolate feat. Alex Mica - Maria Maria (Radio Edit)
+003 Никита - Прости
+004 LaRoxx Project - Jabba Jabba (Radio Edit)
+005 Бурановские Бабушки - Party For Everybody (Евровидение 2012 Россия)
+006 DJ Project feat. Adela - Bun Ramas (Radio Edit)
+007 Алина Гросу - Взрослая
+008 Sean Paul feat. Ester Dean - How Deep Is Your Love
+009 Иракли & Даша Суворова - Нелюбовь
+010 Rihanna - Birthday Cake2012Жанр: PopПродолжительность: 05:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B82ACE9A585D770355E52183C0F1DE022F258B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477531   (98673) от 05.04.2012
 
 VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
@@ -6,7 +105,7 @@ VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98673.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ magnet:?xt=urn:btih:445554B12A6938B3B1A0C8F08777544942B7DE2D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98674.jpg" />
 </div>
 
 
@@ -67,7 +166,7 @@ magnet:?xt=urn:btih:CB0333DC5491E6BBD0E6E1993541A7EA3A466320
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98675.jpg" />
 </div>
 
 
@@ -95,7 +194,7 @@ magnet:?xt=urn:btih:640FFE617127CCA5E7252E7BB64BF837D9CA41BF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98676.jpg" />
 </div>
 
 
@@ -123,7 +222,7 @@ magnet:?xt=urn:btih:1BBE441D85932FCE8BC08FEB9F04A3682A5C927B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98677.jpg" />
 </div>
 
 
@@ -147,7 +246,7 @@ magnet:?xt=urn:btih:F9EA97D0100D54E609057980959D5B0F122F5F5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98678.jpg" />
 </div>
 
 
@@ -171,7 +270,7 @@ magnet:?xt=urn:btih:D203FFAC266941C94B84A4964A9424433F1F33AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98680.jpg" />
 </div>
 
 
@@ -199,7 +298,7 @@ VA - Best-Of-Ka Высшая Лига 50x50 №45 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98681.jpg" />
 </div>
 
 
@@ -232,7 +331,7 @@ magnet:?xt=urn:btih:D09C77AB2FBEBF1CD657DF3764C97B917F95ED1F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98682.jpg" />
 </div>
 
 
@@ -260,7 +359,7 @@ Various Artists - Tranceffect 14 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98683.jpg" />
 </div>
 
 
@@ -293,7 +392,7 @@ magnet:?xt=urn:btih:62F417D0C1FA1D12417C9A5A788C08BDC9BE6E00
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98684.jpg" />
 </div>
 
 
@@ -317,7 +416,7 @@ Low Gravity - Incarnadine (2012) [MP3|320 кб/с]<Stoner Sludge Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98685.jpg" />
 </div>
 
 
@@ -343,7 +442,7 @@ VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98687.jpg" />
 </div>
 
 
@@ -376,7 +475,7 @@ magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98688.jpg" />
 </div>
 
 
@@ -400,7 +499,7 @@ E-Clip - Shuma (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98689.jpg" />
 </div>
 
 
@@ -432,7 +531,7 @@ VA - Энергия ночных дискотек 50/50 (2012) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98690.jpg" />
 </div>
 
 
@@ -465,7 +564,7 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98691.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98691.jpg" />
 </div>
 
 
@@ -495,7 +594,7 @@ Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98693.jpg" />
 </div>
 
 
@@ -523,7 +622,7 @@ magnet:?xt=urn:btih:62882D5BD883D92D1550A05CECEE6E91D14DF945
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98694.jpg" />
 </div>
 
 
@@ -547,7 +646,7 @@ Ix Lam At - Kin Ethics (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98695.jpg" />
 </div>
 
 
@@ -579,7 +678,7 @@ VA - Танцевальный клубный поп хит vol.5 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98697.jpg" />
 </div>
 
 
@@ -612,7 +711,7 @@ VA - Топ 100 3айцев.нет (04.04.2012) [MP3|128-320 кб/с]<Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98699.jpg" />
 </div>
 
 
@@ -645,7 +744,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98700.jpg" />
 </div>
 
 
@@ -658,95 +757,6 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478421   (98702) от 05.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 40
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98702.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 40 
-Название:  Desktop Wallpapers Pack 40 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х720 - 4224х3168
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F0B55E534127045877F48F7349D7084B0807A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478363   (98703) от 05.04.2012
-
-Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connexus 8:06
-02. Mistakes 7:32
-03. Spintronics 7:54
-04. Rain Of Fire (Voice Version) 8:24
-05. Circus Light (Live Mix) 7:36
-06. Crazy Squeak 7:32
-07. Atmostrips 7:37
-08. Hallisa 7:38
-09. Virtual Light - Castlevania (Te Tuna Remix) 7:50
-10. Sheitan (Vs Axone) 7:502012Жанр: Psy Trance,  Full OnПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478742   (98704) от 05.04.2012
-
-[Wallpapers] HD Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98704.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №5
-Название: HD Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
 ```
 
 

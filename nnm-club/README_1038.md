@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:981ACF2CBD445C18569EB8326C96EFAEF95373B9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27338.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27338.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:19773B17764330F0DA1165C634D4747D66700E14
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27339.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27339.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ XtraTools Professional 25.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27340.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BB1040E2527E0DB2342C19ADEFB7BDD690CA52C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27341.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:9B7BCEA60A492DF4CB449B878945396B7EF39DA5
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27342.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:68E33BB082FF3FAA2D0FD5DB7B9B322B9B5CBE39
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27343.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Vov Sticky Notes 9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27344.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27344.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BRXKEN INSIDE (2025) [Ru/En] (1.1) SteamRip
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27345.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.2) Repack EXROW [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27346.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:95A8EB07EA2AAD3724ABD5F83C7EA8D9159D6F85
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27347.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27347.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:79984208F52CAA17E9527D145E89CB383E8CD51A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27348.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27348.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AntiPlagiarism.NET 4.137.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27349.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ W.A. Production - Babylon 2.2.0 (FULL) VSTi, VSTi 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27350.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27350.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:296430AE8E136D97AEA3998CBB45CA21CC09F40C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27351.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27352.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27353.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B845ED4C9874C6F0E08D9F6606595F010946EE41
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27354.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Activation Program 1.02 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27355.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:5C6EA03A15FB1507C952A85C010A4877C4B2C405
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27356.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2CAAFD922D94469493F7B96C121B5532C42E3C0A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27357.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CAC343E0576C7148B4C88D3EE0854725CBCA6506
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27358.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:EE1E378F8A45DA4F538317634359B04B918A3949
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6589A526CD50844C98B5E6C64720FB32542E1B7C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27360.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:0FF85E1550108F59465F71003A2BC145206D970D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27361.jpg" />
 </div>
 
 

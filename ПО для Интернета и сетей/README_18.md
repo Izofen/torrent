@@ -1,3 +1,27 @@
+###  Публикация: 1836851   (255642) от 13.11.2025
+
+4K Video Downloader+ 25.4.2.0258 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255642.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CB1CEBDE3B0462A5756679E04946FAA1CB408C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836846   (255644) от 13.11.2025
 
 YT Downloader 9.18.3 [En]
@@ -6,7 +30,7 @@ YT Downloader 9.18.3 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255644.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255644.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:40404387138C92AA5A0F444682321356D038E16E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255645.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 06.11.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255646.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Chromium 142.0.7444.163 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255679.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255679.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Opera One 124.0.5705.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255865.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255865.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ Vivaldi 7.7.3851.48 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255866.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ Eclipse Community - r3dfox 144.0.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255896.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255896.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ magnet:?xt=urn:btih:892FFF3E04B4E88E52CB22551595FF22F0EA12EB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255917.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ YT Downloader 9.18.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255921.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ Firefox Browser ESR 115.30.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255928.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ magnet:?xt=urn:btih:A4D4FC600195AFE54269F9D8C991E3B7D8F1453E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255939.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255939.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ magnet:?xt=urn:btih:AF855A37413D8734E81CB90375F1D9D5FDA034D7
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256620.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256620.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ MyLanViewer 6.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256764.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ Any Video Downloader Pro 9.7.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256765.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256765.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ YT Downloader 9.18.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256784.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256784.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ Vivaldi 7.7.3851.48 (x32-x64) Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256834.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256834.jpg" />
 </div>
 
 
@@ -395,7 +419,7 @@ YT Downloader 9.18.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257540.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257540.jpg" />
 </div>
 
 
@@ -419,7 +443,7 @@ RustDesk 1.4.4 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257634.jpg" />
 </div>
 
 
@@ -445,7 +469,7 @@ Chromium 142.0.7444.176 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257638.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257638.jpg" />
 </div>
 
 
@@ -469,7 +493,7 @@ MassTube Ultra 21.2.1.179 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257653.jpg" />
 </div>
 
 
@@ -493,7 +517,7 @@ Allavsoft Video Downloader Converter 3.28.5.9439 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257654.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257654.jpg" />
 </div>
 
 
@@ -517,7 +541,7 @@ YT Downloader 9.18.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257680.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257680.jpg" />
 </div>
 
 
@@ -541,7 +565,7 @@ RadioMaximus 2.33.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257794.jpg" />
 </div>
 
 
@@ -565,7 +589,7 @@ Google Chrome 142.0.7444.176 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257814.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257814.jpg" />
 </div>
 
 
@@ -589,7 +613,7 @@ qBittorrent 5.1.4 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257826.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257826.jpg" />
 </div>
 
 
@@ -601,30 +625,6 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AA02B4FA34771959AD2229600FDD244699E1FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837964   (257831) от 20.11.2025
-
-Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 14.11.2025) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132F2D6FA7167C6829550DE4F85512D9A3A62EF8
 ```
 
 

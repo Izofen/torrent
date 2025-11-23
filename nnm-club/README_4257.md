@@ -1,3 +1,75 @@
+###  Публикация: 707701   (130856) от 08.12.2023
+
+Русалочка 2: Возвращение в море / The Little Mermaid II: Return to the Sea (2000) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня новой ленты Мелоди - дочь русалочки Ариэль и принца Эрика. Как ни пытались родители уберечь дочь от неприятностей, которые таит в себе море и его обитатели, у них ничего не вышло. Мелоди сбежала в море и встретилась с Морганой, сестрой злой морской ведьмы Урсулы. Но маленькая Мелоди любила Атлантику всем сердцем, и ее любовь помогла ей преодолеть (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: детский, музыкальный, фэнтезиРежиссер: Мультфильм, мюзикл, фэнтези, семейныйАктеры: Джоди Бенсон, Сэмюэл Э. Райт, Тара Стронг, Пэт Кэрролл, Бадди Хэкетт, Кеннет Марс и др.Перевод: Дублированный, Одноголосый профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62C8B1392C3920269EB92435358A0A59F37E84E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682308   (130858) от 08.12.2023
+
+Капитан Марвел 2 / The Marvels (2023) WEBRip [H.264/1080p] [2K]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130858.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наши дни Дар-Бенн, новому лидеру кри, удается найти одну половину Квантовых полос, из которых вторая половина принадлежит Камале Хан. Дар-Бенн использует мощь Группы, чтобы разрушить точку перехода в пространстве, которая позже будет обнаружена С.А.Б.Л.ей. Ник Фьюри ведет мирные переговоры Кри и Скруллов и приглашает Кэрол и Монику Рамбо расследовать аномалию точки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДакостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5F9192A5B02C6B0585FD442A62843660C5121E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596763   (130859) от 31.12.2012
+
+PGWare Throttle 6.1.1.2013 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Throttle - утилита предназначена для настройки параметров ваших модемов на максимальное быстродействие, что в результате может привести к более чем 200-процентному увеличению скорости работы. Вы просто выбираете свою OS, тип соединения (14.4/28.8/33.6/56k, кабельный модем, DSL/ADSL модем, ISDN, Satellite, T1/T3/OC3/OC12+, локальная сеть, 3G-модемов) и нажимаете кнопку "Go". Остальное программа сделает сама! Как отмечают разработчики, программа изменит ряд ключевых параметров работы модема, например, улучшит определение сигнала "занято", уменьшит количество обрывов связи и т.д. Программа работает со всеми типами модемов подо всеми операционными системами семейства Windows.Название программы: PGWare ThrottleЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135273   (130860) от 08.12.2023
 
 Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock, Classic Rock, Hard Rock>
@@ -6,7 +78,7 @@ Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130860.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:694FC0499D357A7E973DA582722E22148911693E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130862.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130864.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:D9C932AE9EE27E36C2F60317D79F9C8EC905EC9D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130866.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:EA0BB80AB1A0576E73261D0F3B6028EEA2C94FA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130867.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:49EFB05EDF56C41F4B874520DECADDD3C3D02284
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130869.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:FF5DEAFF3641AD68DBA706CE00E24E160A04ADF5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130870.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:285D82675700F29A6894CA854F1BC03233D6BB16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130871.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:88EDAC58D77BB18D2B2EBD802F8B8F204679C63C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130872.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:BF931069145F022D0E3E6560490AFD76D6D0CB25
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130873.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ USB Safely Remove 7.0.5.1320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130874.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130875.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130876.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:F3FDE0A6BB96895BDBE9893072B1B9489FD0283A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130877.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:B285AA6A970DE5CCCB7EE3234D52BCD5614CF794
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130878.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:4A7D4F06BE0CEA13775E888DAC9149FFC5CC6749
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130879.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:7D6ECD65C31F6AFFE00DDF3F8959E280CC5535E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130880.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:A0F83CDF0702C0EDE1A271E80EC7ECA346D6F361
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130882.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:3A408A5CFE35BE6FEC45FE1674969A0ADC25562C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130883.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:FA1761460E09FBDDA42BEE465E0A82EC16473ED4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130884.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Glenn Miller - Luxury Edition (2xCD) (2006) [FLAC|Lossless]<Jazz / Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130885.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130886.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:63BF187ECEDDACC77512A943CC63F0CFC1F45ECA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130888.jpg" />
 </div>
 
 
@@ -553,87 +625,6 @@ magnet:?xt=urn:btih:63BF187ECEDDACC77512A943CC63F0CFC1F45ECA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2CCBBAEAEE1CCAAD67BB2304E655468BA9D0B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682713   (130891) от 08.12.2023
-
-Урок / The Lesson (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиам, честолюбивый и амбициозный молодой писатель, с готовностью соглашается на должность репетитора в семейном поместье своего кумира, известного писателя Дж. М. Синклера. Но вскоре Лиам понимает, что попал в паутину семейных тайн, обид и мести.Производство: Великобритания / Bleecker Street Media, Constellation ProductionsЖанр: триллерРежиссер: Элис ТротонАктеры: Ричард Э. Грант, Жюли Дельпи, Дэрил МакКормак, Стивен Макмиллан, Криспин Леттс, Томас Спенсер, Joseph MeurerПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CF33B70818D74208A35CC909CDDA41A8676681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596807   (130892) от 31.12.2012
-
-VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кавказ>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130892.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Анжелика Начесова - Черкесский знак (3:07)
-2. Эльдар Далгатов - Милая (4:45)
-3. Хасбулат Рахманов - Раненая птица (4:12)
-4. Айдамир Эльдаров - Корочка льда (3:27)
-5. Руслана - Схожу с ума (3:32)
-6. IDAR - Вернись (3:00)
-7. Группа «СК STYLE» - Чики-чики (4:15)
-8. Айдамир Эльдаров - Не зови (3:04)
-9. Mamikon - Narine (4:36)
-10. Альберт Тлячев - Я и ты (3:29)Жанр: Pop, Dance, кавказПродолжительность: 06:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7B9FAD7A4CC92648165A16F34F5609115B695F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682732   (130893) от 08.12.2023
-
-Advanced SystemCare Pro 17.1.0.157 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced SystemCare PRO - это мощный пакет для оптимизации операционной системы, включает в себя множество модулей для оптимизации, настройки и повышения производительности компьютеров. Благодаря возможностям данной программы вы сможете настроить Windows до уровня оптимальной производительности, увеличить скорость интернета (до 300 процентов) и защитить компьютер (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785F116DFA44449025E77858FF7723D3C6290517
 ```
 
 

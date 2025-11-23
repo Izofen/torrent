@@ -6,7 +6,7 @@ Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134275.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134365.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134379.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eric Gales - 19 Albums (1991 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134408.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134537.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - New Year's Eve Jazz 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134571.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Arturo O'Farrill - Legacies (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134633.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134778.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134804.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134815.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134828.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134862.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Just jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134957.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134968.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134989.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossove
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135201.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135217.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135217.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Spoonful Of Blues - Songs From Notodden Norway (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135237.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Walter Wolfman Washington - Feel So At Home (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135247.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135262.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Shanna Waterstown - Be with You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135293.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Brianna Harness - This Too Shall Pass (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135305.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Thief River Band - Two Lane Solution (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135307.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135327.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135333.jpg" />
 </div>
 
 

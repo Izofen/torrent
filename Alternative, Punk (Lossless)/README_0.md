@@ -6,7 +6,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17529.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19026.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20259.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21765.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21814.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25730.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25808.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28119.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28375.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29901.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30005.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35404.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35409.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35435.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Japan, WPZR-30320
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35436.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Linkin Park - A Thousand Suns (2010) U.S., 525480-2, Best Buy Exclusive [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36140.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Linkin Park - Meteora (2003) Brazil, 936248462-2 [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36147.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Linkin Park - Meteora (2003) China, 7-88018-748-0 [FLAC|Lossless|image + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36150.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Linkin Park - A Thousand Suns (2010) Brazil, 9362496333, AA0021000 Pressing, Pro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36246.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2000) 2020, Brazil, 0093
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36253.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Linkin Park - Hybrid Theory (Special Edition) (2000) China, JCD-4598, 2002, 2xCD
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36256.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36258.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Linkin Park - From Zero (2024) Brazil, 0093624839842, AB1000 Pressing [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36266.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37166.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Bunuel - Mansuetude (2024) [FLAC|Lossless|WEB-DL|tracks] <Noise-Rock, Punk-Blues
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37184.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Billy Idol - Rebel Yell 2.0 - The Remixes (1983) Remixes, 2024, UME [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37308.jpg" />
 </div>
 
 

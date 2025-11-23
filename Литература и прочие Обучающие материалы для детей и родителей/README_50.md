@@ -6,7 +6,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F8DE4AEFA0325E49AB66C5990050DD22403552CF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155551.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:70080CDCF412AA2F423CF6398552F0E5DC34CEB8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155585.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EA4C603154D4B3806D4D00CCF86FB2031CAB77E0
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155681.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E092F84EEE59719AB271A42B977E23BC67C247C7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155685.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F3C842019F29167119CFEE21D12B3A3518625340
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155789.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A8CC1EADFCB56C9189ADD5DA9B6EDE0166BF030B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155808.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6C22FFE28900589BE2D70052BB861F5D3336F9BD
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155854.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7089746AC11AB2F8C8FE4AF1ED71FFB7231B90D0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155909.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E7F33A78C649328475FDC1EBC487429B5DC791E2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155957.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3FC487EBEE7CD3ADEA2C6446476EB734D1323E1B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156021.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:609631483C5BF6FDF5018F5976CBA86D3E7A0EFF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156026.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:B25149D5731A74CC44A89437C683EF18586F21B3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156043.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:30385F626B6995042BC998F82BFF1EE3AF966985
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156074.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6D397AA7EBE49DEB142674B86233F789D306DD82
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156226.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:54175F3F9700A5800C67CD1FC74193DF2FA9A51D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156289.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C8FF785AF448AE99C73B6C8AB59804CB6F942AAF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156355.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:4C8789DB7A65D2F428CFE546C1D20532795F1B7E
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156397.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D7E3FBF7AB573383A3BC9450D08B0993052D11FA
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156568.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:8990EA8A2CA7BAC0EEF14202A04A36300EB20B2A
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156572.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:265EFE54DB0A381667429C62DDCA154986304577
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156792.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:74B0848DEED07AE5E7548E392E8D06D16EAA060C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156863.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:FF02ECC2E16AFD59A15D4BD772641929A7FE6536
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156869.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:D2DF91319CE4E58274849FD84820F0672A57C8A7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156895.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D3BD718F538613607151F37411259315BAE8617B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157041.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A7C4023E2666707DAB647774ACD2E0272812B101
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157081.jpg" />
 </div>
 
 

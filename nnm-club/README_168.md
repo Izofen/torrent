@@ -6,7 +6,7 @@ De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4419.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4420.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:31403455C3D2FB020D922A73DAC147228E1783EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4421.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:EACC370E954CB33ED6247167CC00FD53C9AFC89E
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4422.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:355A52B0348B2B31485E0A82DA7D0A265B1BF96A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4423.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4424.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3E41FBBE6EC07C7C8CB5586D011A5147B809B83C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4425.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Pulsar Modular - Q Sahara 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4426.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:63F0DA0D9D25385BCDCA452A906413F790B33F84
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4427.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (2025) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4428.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:B4F85F75B654E26D5E5AE0E3494C693CA075A153
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4429.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4430.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Cockos REAPER 7.45 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4431.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Rainbow Party (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4432.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:FB7C56CEAAC60E5C8162AAAC5FB00BA8B56BFAC4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4433.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ IObit Uninstaller Pro 15.0.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4434.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:6E2FA14D63406F13F039309F33762C8D11FBCC82
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4435.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ AI Talking - Mega Collection Vol. 6 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4436.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:1207A89DE356C6EB18F0756E83333698A60E64C7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4437.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ AI Talking - Mega Album Vol. 1 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4438.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lady Gaga - Mayhem (2025) Deluxe Edition, Interscope Records [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4439.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Kiss - Unchained & Unmasked (1993) 2 x CD [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4440.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:9391EA341E61CD68D34D26603629DB63DDFDE680
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4441.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:51FB6039E98B33119919F087671278FF6BEC26B4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4442.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:3E7EA46572C4D522E848FBAA9A0F4C15C2793B08
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4443.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:347E033C5671F39188C924E260D1CA047F3ADC56
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4444.jpg" />
 </div>
 
 

@@ -1,3 +1,102 @@
+###  Публикация: 466563   (96499) от 13.03.2012
+
+Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Alwacker - Sunrise (Emotional Mix)
+ 02. Marasin Sanya - The Beautiful Melody Of The Night (Original Mix)
+ 03. Rene Ablaze & Tech Trek - Naranja (Original Mix)
+ 04. Ehren Stowers - Desire (Original Mix)
+ 05. Starline - Perfect Spring (Uplifting Trance 2012)
+ 06. Azima - Mousewille (Original Mix)
+ 07. Azima - The Saturn (Original Mix)
+ 08. N-Gate - Be Fire (Original Mix)
+ 09. MAXIMA - Solar Unity (Original Mix)
+ 10. Perfect Sound - The Cloudless (Original Mix)(   Читать дальше...   )11.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D013BFE333FF7BE5EF9AB4D5EA6705F581718A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467000   (96500) от 13.03.2012
+
+VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lucenzo feat. Don Omar - Danza Kuduro
+02 - Elena - Midnight Sun
+03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
+04 - Alexandra Stan - Get Back (asap)
+05 - R.I.O. - Miss Sunshine
+06 - Avicii - Fade Into Darkness
+07 - Sak Noel - Loca People
+08 - Nicky Romero & Mitch Crown - Schizophrenic
+09 - Inna feat. Flo Rida - Club Rocker
+10 - Benny Benassi feat. Gary Go - Cinema2011Жанр: DanceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D53EF58A0D3E61A11C7F6FC45FA0A4E173BD71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466959   (96501) от 13.03.2012
+
+Al MacDowell - Time Peace (1989) [FLAC|Lossless]<Fusion, Contemporary Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_96501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic Voyage
+02. St Alban's Tango
+03. Nina's Line Of No Return
+04. Somewhere
+05. Fantasia
+06. Maybe
+07. Feng Shui
+08. Ode Bra
+09. View From A Window
+10. Come See Tomorrow(   Читать дальше...   )1989Жанр: Fusion, Contemporary JazzПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467517   (96504) от 13.03.2012
 
 VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320 кб/с]<Ambient, Downtempo>
@@ -6,7 +105,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96504.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96505.jpg" />
 </div>
 
 
@@ -72,7 +171,7 @@ One Year Later - The Sound of a Broken World (2012) [MP3|320 кб/с]<Metalcore,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96506.jpg" />
 </div>
 
 
@@ -105,7 +204,7 @@ magnet:?xt=urn:btih:F8F11E2E1EADAAAAFB6F912A7F09949F2A218122
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96507.jpg" />
 </div>
 
 
@@ -134,7 +233,7 @@ magnet:?xt=urn:btih:C742E7DAC3D8C5A5AA843405531CBE5FD8055F15
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96509.jpg" />
 </div>
 
 
@@ -158,7 +257,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing (2012) [MP3|320 кб/с]<Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96511.jpg" />
 </div>
 
 
@@ -191,7 +290,7 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96512.jpg" />
 </div>
 
 
@@ -221,7 +320,7 @@ Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96513.jpg" />
 </div>
 
 
@@ -250,7 +349,7 @@ magnet:?xt=urn:btih:7DC9FAC594D2426BF4C475A8D2C9DDFB59388BF1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96514.jpg" />
 </div>
 
 
@@ -277,7 +376,7 @@ Archie Shepp - I Know About The Life (1981) [FLAC|Lossless]<Free Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96519.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96519.jpg" />
 </div>
 
 
@@ -304,7 +403,7 @@ Alexander Zonjic - Reach For The Sky (2001) [FLAC|Lossless]<Funk, Contemporary J
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96520.jpg" />
 </div>
 
 
@@ -337,7 +436,7 @@ MKVToolnix 5.4.0.422 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96525.jpg" />
 </div>
 
 
@@ -362,7 +461,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96530.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96530.jpg" />
 </div>
 
 
@@ -386,7 +485,7 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96531.jpg" />
 </div>
 
 
@@ -419,7 +518,7 @@ Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96534.jpg" />
 </div>
 
 
@@ -447,7 +546,7 @@ Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96543.jpg" />
 </div>
 
 
@@ -480,7 +579,7 @@ VA - Encoder Operations (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96552.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96552.jpg" />
 </div>
 
 
@@ -512,7 +611,7 @@ Anugama - Healing (2000) [FLAC|Lossless]<New Age, Therapy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96553.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96553.jpg" />
 </div>
 
 
@@ -543,7 +642,7 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96555.jpg" />
 </div>
 
 
@@ -567,7 +666,7 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96556.jpg" />
 </div>
 
 
@@ -600,7 +699,7 @@ Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96558.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96558.jpg" />
 </div>
 
 
@@ -633,7 +732,7 @@ Diabulus In Musica - Secrets (2010) [APE|Lossless]<Gothic Metal,Power Metal,Symp
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96560.jpg" />
 </div>
 
 
@@ -657,103 +756,13 @@ magnet:?xt=urn:btih:A31D1E03A3F4592BF833D6D7D87552BE318474FA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96561.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Специализированный журнал «Stereo Video & Multimedia» представляет самые последние новинки аудио- и видео-продукции на украинском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми. Журнал рассчитан на широкий круг читателей, интересующихся аудио-видеоаппаратурой и её приобретением.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466872   (96562) от 13.03.2012
-
-VA - Chillout Sessions XIV (2011) [MP3|320 кб/с]<Chillout / Downtempo / Lo-Fi>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96562.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:Жанр: Chillout / Downtempo / Lo-FiПродолжительность: 01:16:57
-1. Gotye feat. Kimbra – Somebody That I Used To Know (Bibio Remix)
-2. Feist - How Come You Never Go There
-3. Seeker Lover Keeper – All My Lights
-4. Aloe Blacc - I Need A Dollar
-5. Asa – Why Can’t We
-6. Kimbra - Cameo Lover (Electric Empire Remix)
-7. Hypnolove - Holiday Reverie
-8. Metronomy - The Look
-9. Oh Mercy - Let Me Go(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF1F43CC82BEB7DE1948647E991BEDDBDFB284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467125   (96566) от 13.03.2012
-
-Abrosoft FantaMorph Deluxe 5.3.1 Portable [Мульти/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96566.jpg" />
-</div>
-
-
-###  Подробнее
-
-FantaMorph - программа для создания анимированных изображений с эффектом морфинга и различных деформаций изображений. С помощью этой программы вы сможете создавать удивительные анимированные изображения, с плавным переходом от одной фотографии к другой с применением различных эффектов и деформаций. Программа имеет большое количество предустановок эффекта, поддерживает импорт видео, а также имеет широкие возможности по настройке и улучшению качества изображений. Вы сможете обрезать, поворачивать, регулировать цвет, добавлять различные надписи и потрясающие эффекты с помощью встроенных инструментов для редактирования без необходимости в обращении за помощью к сторонним приложениям. Программой поддерживается большое количество графических форматов, включая BMP, JPEG, TIFF, PNG, GIF, TGA, PCX и другие. Результат вы сможете экспортировать в AVI формат, анимированный GIF, флэш, формат экранной заставки, автономный EXE файл и в другие форматы.Название программы: Abrosoft FantaMorph DeluxeЯзык интерфейса: Мульти/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465328   (96567) от 13.03.2012
-
-Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic, Indian Classical Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sandhya Raga (11:23)
-2. Chase (2:21)
-3. West Eats Meat (6:11)
-4. Ragas In Minor Scale (7:36)
-5. Tarana (5:39)
-6. Tana Mana (3:42)
-7. Sadhanipa (8:35)
-8. Friar Park (5:57)
-9. Reunion (4:20)
-10. Prashanti (13:40)(   Читать дальше...   )2001Жанр: Ethnic, Indian Classical MusicПродолжительность: 01:16:6
 
 ## Скачать торент
 ```bash

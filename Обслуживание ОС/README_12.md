@@ -1,3 +1,27 @@
+###  Публикация: 1833121   (246181) от 31.10.2025
+
+Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246181.jpg" />
+</div>
+
+
+###  Подробнее
+
+С новым Ashampoo WinOptimizer 28 ты автоматически получаешь наилучший опыт работы с Windows. Новая система автоматизации ускоряет, очищает и настраивает твои приложения. Благодаря новому модулю Profile Booster твой компьютер легко адаптируется к твоим потребностям благодаря приоритизации процессов, автоматической очистке временных файлов и настраиваемым конфигурациям (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33657C658EB13F10084017EAB7D87086682A754D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833103   (246219) от 31.10.2025
 
 DISMTools 0.7.1.25103 + Portable [Multi]
@@ -6,7 +30,7 @@ DISMTools 0.7.1.25103 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246219.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246256.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Windows Update Blocker 1.8 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247667.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ Display Driver Uninstaller 18.1.3.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247751.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ Duplicate Cleaner Pro 5.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250803.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ Process Lasso Pro 16.1.0.46 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251686.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ Process Lasso Pro 16.1.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251712.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251783.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ Wise Care 365 Pro 7.3.2.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251785.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ WinDirStat 1.1.2.80 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251998.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251998.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ WinTools.net Premium 25.12.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252505.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252505.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ Windows Manager 2.2.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254186.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254186.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ IObit Driver Booster Pro 13.1.0.171 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254187.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254187.jpg" />
 </div>
 
 
@@ -319,7 +343,7 @@ Wise Disk Cleaner 11.2.8.848 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254343.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254343.jpg" />
 </div>
 
 
@@ -343,7 +367,7 @@ Driver Genius 23.0.0.137 Platinum [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254501.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254501.jpg" />
 </div>
 
 
@@ -367,7 +391,7 @@ Microsoft Edge Uninstaller by ivandubskoj 1.0 [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254900.jpg" />
 </div>
 
 
@@ -391,7 +415,7 @@ IObit Driver Booster Pro 13.1.0.171 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255643.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255643.jpg" />
 </div>
 
 
@@ -415,7 +439,7 @@ RAM Saver Professional 25.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255914.jpg" />
 </div>
 
 
@@ -439,7 +463,7 @@ Windows Manager 2.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255943.jpg" />
 </div>
 
 
@@ -464,7 +488,7 @@ Process Lasso Pro 17.0.0.13 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255947.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255947.jpg" />
 </div>
 
 
@@ -488,7 +512,7 @@ R-Wipe & Clean 20.0.2535 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256783.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256783.jpg" />
 </div>
 
 
@@ -512,7 +536,7 @@ Microsoft PowerToys 0.96.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257604.jpg" />
 </div>
 
 
@@ -536,7 +560,7 @@ Glary Utilities Pro 6.34.0.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257868.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257868.jpg" />
 </div>
 
 
@@ -547,6 +571,30 @@ Glary Utilities - функциональный набор системных т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EDFC037BD95ED9BAC1F13B1990930D422BCBCBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838270   (259849) от 
+
+Process Lasso Pro 17.0.0.47 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3192F90AFF3BF6091A48400852B38D0FD5417857
 ```
 
 

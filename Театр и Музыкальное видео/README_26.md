@@ -6,7 +6,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78740.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79182.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79558.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79575.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79691.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/1080p-LQ]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80047.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80619.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80643.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80694.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:13769DDD6C34AC5A2FB30ECA7805A58C00BAF8BC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80757.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:4764F6590F2E4964CC9070415BB01FDEEF82884C
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80883.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:61C73413EA33D70243D44C0C525D4ECF230E1AFB
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81068.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81105.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81224.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:ACE7DE87DF4664E5E1F8B2A927AB0AE42D37FF8C
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81287.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81697.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Grace Jones предстала в мире шоу бизнеса в качест
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81791.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81846.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:726444257FB6864030D8D7CCBE95745337A0FE50
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:1CB2AF6DCF97E718BED10ABD6DE52707F3EFFC9E
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81908.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:54A44EF3144AD22A850E8C0CA96C57BEE972DD8E
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82271.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82706.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82805.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83066.jpg" />
 </div>
 
 

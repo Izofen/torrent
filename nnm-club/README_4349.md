@@ -1,3 +1,75 @@
+###  Публикация: 1680575   (133985) от 29.11.2023
+
+Дом-ловушка / Accused (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133985.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как люди в интернете, а затем журналисты в теленовостях распространяют слух о причастности Гарри ко взрыву в метро, его дом превращается в настоящую ловушку, из которой нет выхода. Угрозы и оскорбления быстро сменяются попытками вторжения, а брошенный друзьями и родственниками Гарри оказывается один против всех. Ему нужно пережить эту ночь в самом опасном (   Читать дальше...   )Производство: Великобритания / Sunrise Films, Three Little Birds PicturesЖанр: триллерРежиссер: Фил БарантиниАктеры: Чанил Кулар, Нитин Чандра Ганатра, Фрэнсис Томелти, Лорин Аджуфо, Нила Аалия, Робби О’Нилл, Джей Джонсон, Бен Энрайт, Олли Тиг, Гэвин СанктисПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced), английские (SDH), португальские (SDH), испанские (SDH)Продолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C694BE4E5FB344606F43EF300D13A9A14819BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594219   (133986) от 25.12.2012
+
+Игра изменилась / Game Change (2012) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ пойдет о перипетиях президентской гонки в США в 2008 году, когда за пост главы страны боролись Барак Обама и Джон МакКейн.Жанр: ДрамаРежиссер: Джей РоучАктеры: Джулианна Мур, Вуди Харрельсон, Эд Харрис, Питер МакНикол, Джейми Шеридан, Сара Полсон, Рон Ливингстон, Дэвид Бэрри Грэй, Ларри Салливан, Микал ЭвансПеревод: Двуголосый закадровыйПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680456   (133987) от 29.11.2023
+
+1С Бухгалтерия предприятия 3.0.144.49 на платформе 8.3.23.1912 [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1С Бухгалтерия – это в первую очередь программа для бухгалтерского учета. Бухгалтерский учет – это не только обязательная активность для каждого предприятия или ИП, основной целью которого является подготовка и сдача отчетности для контролирующих органов (налоговая, пенсионный фонд и т.д.) Часто на основании данных бухгалтерского учета формируются необязательные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680266   (133989) от 29.11.2023
 
 Телохранитель на фрилансе / Freelance (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 8-bit]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133989.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133991.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:DBEAC4F441F81A1829A95482B4A006423846D738
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133993.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:895873B892CB0C1FED2416E342EC4BA11B1165F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133995.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:4D48CD019AB2CF38C568EFC3E9D591F5FB255403
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133997.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:82E72C3BF126990EA9D8306A7A105601E8C167FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133998.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133999.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:F56379256540957695F01BBE57848AEB22BDD52C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134000.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:126586D52DF8345BD9BB70DCCB557A35242E0C7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134001.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:FD2AAD38ECF967A905296A60391097A53EFDA99E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134002.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:FD2AAD38ECF967A905296A60391097A53EFDA99E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134003.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:83305E46FDA5BBC0FB8CA05FA48D35CDEAC7962A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134004.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134005.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:DCB7B2952FB4613EA6D762D298A388D1468D2ABA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134007.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:B01042AAE16CD8C75BF2CA13E38A9B7F6969B74C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134009.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:CD79731F6772EEB769201736BEF76FC2AD001532
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134011.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134012.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ DefenderKiller 11.0.4 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134013.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:32F2980CFE71CCCA4535C2D28051C1C049448853
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134014.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:E4D1A25FD63523433DD25F4B22DD934AA2CC576C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134015.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:D7955402E2455189DBD8BF24A246B6FAFF26CD2A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134016.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:831038C28A367017C8FFDB28124AEE8A2E1743CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134017.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ magnet:?xt=urn:btih:078B0B9C7EBE7B00DAA7328F529BF5414D419A2C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134018.jpg" />
 </div>
 
 
@@ -550,83 +622,6 @@ magnet:?xt=urn:btih:078B0B9C7EBE7B00DAA7328F529BF5414D419A2C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965408CA63F6670A958C70C3E38A7CFB70C9AD47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680370   (134019) от 29.11.2023
-
-Телохранитель на фрилансе / Freelance (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 8-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший оперативник спецназа променял полную экшна жизнь на серые будни в офисе. С неохотой он все-таки соглашается на простую, но высокооплачиваемую подработку — сопровождать журналистку в командировке, пока та берет интервью у обаятельного диктатора. Однако на месте они внезапно попадают в эпицентр полномасштабного переворота. Теперь, чтобы спасти всех, телохранителю (   Читать дальше...   )Производство: США, AGC Studios, Endurance Media, Sentient Pictures, Signature Films, Wideangle FilmsЖанр: боевик, комедияРежиссер: Пьер МорельАктеры: Джон Сина, Элисон Бри, Элис Ив, Кристиан Слэйтер, Мартон Чокаш, Хуан Пабло Раба, Фиона Хорси, Молли Макканн, Джулианна Александр, Дэниэл ТороПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: Русские (hardsub, Full)Продолжительность: 01:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7595968AA19387B2DBE82986FB536C5944505DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593927   (134020) от 25.12.2012
-
-VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 2004-200401. Звери & Татьяна Буланова - Дожди-пистолеты (03:19)
-02. Михаил Башаков & Александр Жигалкин - Не парься (03:27)
-03. Би-2 & ЧайФ - Достучаться до небес (04:34)
-04. СерьГа & Гуарана - Как прекрасен этот мир (03:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 423703   (134021) от 29.11.2023
-
-Габриэль Гарсиа Маркес | Осень патриарха (2011) [MP3, Олег Табаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Коллекция радиоспектаклей. Из архива «Гостелерадиофонда».
-Габриэль Гарсиа Маркес – прославленный колумбийский литератор, лауреат Нобелевской премии (1982), один из самых знаменитых писателей ХХ века.
-Произведения, подобные этому, освобождают читателя от шор повседневности, помогают увидеть мир целиком, во всем его многообразии, дают представление о жизни не (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, драмаИздательство: Звуковая книгаПродолжительность: 03:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1C83FD8267867B428BCD966C54F8BC7832DE2A
 ```
 
 

@@ -1,3 +1,183 @@
+###  Публикация: 1677687   (150550) от 18.11.2023
+
+Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sophisti-pop, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Want to Know (1999 Remaster) (4:07)
+02. N.Y.C. (1999 Remaster) (4:09)
+03. Your Painted Smile (1999 Remaster) (3:14)
+04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Sophisti-pop, Soft RockПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD0AE25CB545A12A906B7CB80EF8CD08F976DE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677579   (150551) от 18.11.2023
+
+VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bass Bumpers - Keep On Pushing
+02.  Uc Colours feat. Cool Reg - U Got The Rhythm
+03.  Holetzky - Lato
+04.  Plaza - Wild Is The Night(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1496DE8F155ABFC8F147C92926EB4F67014D5934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677667   (150552) от 18.11.2023
+
+VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Brothers On The 4th Floor feat. Des'Ray And D-Rock - Come Take My Hand
+02.  Rytmica - Up To The Sky
+03.  Interface - There Are No More Limits
+04.  Erica C. - Voice Of Fortune(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677619   (150553) от 18.11.2023
+
+Длинная тень / The Long Shadow (2023) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_150553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал повествует о самых масштабных розыскных мероприятиях за всю историю уголовного делопроизводства Британии, проходивших с октября 1975 по январь 1981, когда полиция искала Питера Сатклиффа, прозванного Йоркширским потрошителем, за убийство тринадцати женщин. К данным поискам было привлечено более тысячи констеблей, и это дело сильно изменило методы работы полиции (   Читать дальше...   )Производство: Великобритания / All3Media International, New PicturesЖанр: драма, криминал, историяРежиссер: Льюис АрнольдАктеры: Джек Дим, Крис Хитченс, Ли Инглби, Майкл МакЭлхаттон, Хлоя Харрис, Дэвид Моррисси, Стивен Уоддингтон, Лиам Гэрриган, Кристофер Хатрэлл, Джон Хеншоу и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677683   (150554) от 18.11.2023
+
+Благовест | Освящение дома (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной работе рассказывается о православной традиции освящения жилища, рассматриваются вопросы о том, зачем необходимо освящать свой дом, в чем смысл этого обряда. Для наглядности в издании приведено последование освящения жилища, которое использует Православная Церковь в своей практике. В заключении освящаются некоторые практические моменты, связанные с христианским (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAF238069BBFF013BFDE349E262C5DC0ACAAF9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677632   (150555) от 18.11.2023
+
+Бернард Шоу | Деревенское сватовство (Радиоспектакль) (2018) [MP3, Валентин Гафт, Елена Королёва]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из архива «Гостелерадиофонда».
+Радиоспектакль по одноимённой пьесе Джордж Бернард Шоу (1856–1950).
+Общение, начавшееся на отдыхе – лёгкий флирт и болтовня, не исключающая игру ума, перерастает в нечто большее, даже если Он – «литератор и джентльмен», а Она – «скромная сельская девушка, впрочем оказавшаяся не такой уж простушкой...
+Отточенное действие, великолепные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ГостелерадиофондПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5664C5E14E4E9F7690C41695A93F2BA26355E2DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677563   (150556) от 18.11.2023
+
+Этот парень Дик Миллер / That Guy Dick Miller (2014) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о ветеране-актере Дике Миллере, чья карьера в Голливуде и за его пределами насчитывает почти 200 фильмов на протяжении шести десятилетий, содержит разнообразные интервью с режиссерами, звездами и современниками.Производство: США, Plausible FilmsЖанр: документальный, история, биография, кинематографРежиссер: Элайджа ДреннерУчастники: Дик Миллер, Лэйни Миллер, Гилберт АдлерПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английскиеПродолжительность: 01:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C5599B8201194EE990D20CBB07EF5631A09FED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677574   (150557) от 18.11.2023
 
 Живая еда с Сергеем Малозёмовым (18.11.2023) WEBRip [H.264/720p]
@@ -6,7 +186,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150557.jpg" />
 </div>
 
 
@@ -31,7 +211,7 @@ MotoGP. Этап 19. Гран-при Катара. Квалификация (18.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150558.jpg" />
 </div>
 
 
@@ -55,7 +235,7 @@ magnet:?xt=urn:btih:36BE14D78BD205BBCA758D402F1D19B565CC9264
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150559.jpg" />
 </div>
 
 
@@ -79,7 +259,7 @@ Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150560.jpg" />
 </div>
 
 
@@ -104,7 +284,7 @@ magnet:?xt=urn:btih:97E585A78DF1DD635184E6FA94A55EA6E924C8D8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150561.jpg" />
 </div>
 
 
@@ -128,7 +308,7 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150562.jpg" />
 </div>
 
 
@@ -155,7 +335,7 @@ magnet:?xt=urn:btih:760A55226E3327F17C12A90ADB016A0E2639B710
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150563.jpg" />
 </div>
 
 
@@ -181,7 +361,7 @@ Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150564.jpg" />
 </div>
 
 
@@ -206,7 +386,7 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150565.jpg" />
 </div>
 
 
@@ -233,7 +413,7 @@ Destructor - Blood, Bone, And Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150566.jpg" />
 </div>
 
 
@@ -260,7 +440,7 @@ Sydra - Call of the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150567.jpg" />
 </div>
 
 
@@ -287,7 +467,7 @@ Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150568.jpg" />
 </div>
 
 
@@ -314,7 +494,7 @@ Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150569.jpg" />
 </div>
 
 
@@ -341,7 +521,7 @@ magnet:?xt=urn:btih:154BFA258670BB985B0F3236CC93781776D04564
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150570.jpg" />
 </div>
 
 
@@ -365,7 +545,7 @@ Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150571.jpg" />
 </div>
 
 
@@ -392,7 +572,7 @@ magnet:?xt=urn:btih:8ED5B93ECC42ECAA00E94C798D45C27F58816A8B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150572.jpg" />
 </div>
 
 
@@ -416,7 +596,7 @@ Dyecrest - The Way of Pain (2004) [APE|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150573.jpg" />
 </div>
 
 
@@ -443,7 +623,7 @@ Repossession - Repossession (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150574.jpg" />
 </div>
 
 
@@ -470,7 +650,7 @@ Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150575.jpg" />
 </div>
 
 
@@ -484,176 +664,6 @@ Dyecrest - This Is My World (2005) [APE|Lossless|image + .cue] <Heavy, Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8813B10741181A5349272684BE16967AA187CCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395552   (150576) от 17.11.2023
-
-Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack R.G. Catalyst
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Flight Simulator — серия гражданских авиа симуляторов, выпускаемые корпорацией Microsoft. От прочих серий авиа симуляторов MSFS отличается весьма реалистичной физикой полёта, а значит, большой сложностью управления самолётом. Наличие практически всех крупных аэропортов мира с реалистичными данными, реальным ландшафтом, реалистичными погодными условиями, (   Читать дальше...   )Тип издания: RepackРазработчик: ACES StudioЖанр: АвиасимуляторЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677273   (150577) от 17.11.2023
-
-Грохот сквозь тьму / Rumble Through the Dark (2023) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Бушэ когда-то был непобедимым бойцом рукопашного боя, но в последние годы сильно сдал. Мало того что он не в состоянии драться как прежде, так ещё и весь в долгах - он должен огромную сумму денег местной криминальной королеве Большой Мамочке и банку, который вот-вот заберёт дом его умирающей приёмной матери. Джеку необходимо срочно что-то придумать и погасить (   Читать дальше...   )Производство: США / Crooked Letter Picture Company, Elevated Films (II), Grindstone Entertainment Group, Phillips PicturesЖанр: боевик, детективРежиссер: Грэм Филлипс, Паркер ФиллипсАктеры: Белла Торн, Аарон Экхарт, Ричи Костер, Марианн Жан-Батист, Лиз Феннинг, Кристофер Уинчестер, Джо Херсли, Ричи Монтгомери, Вирджиния Ньюком, Майкл МакколлПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DA1F84849BBD8BAFCA916B8002F5430D668055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677048   (150578) от 17.11.2023
-
-Последний стрелок / The Last Rifleman (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150578.jpg" />
-</div>
-
-
-###  Подробнее
-
-92-летний ветеран Второй мировой войны Арти Кроуфорд сбегает из дома престарелых в Северной Ирландии и отправляется во Францию, чтобы почтить память павших боевых товарищей в 75-летнюю годовщину высадки в Нормандии.Производство: Великобритания / Ingenious Film Partners, Ripple World Pictures, Singer Studios, Wee BunsЖанр: драма, биография, военный, историяРежиссер: Терри ЛоанАктеры: Пирс Броснан, Клеманс Поэзи, Джон Эймос, Юрген Прохнов, Иэн Макэлхинни, Тара Линн О’Нил, Сэмюэл Боттомли, Десмонд Иствуд, Стелла МакКаскер, Клер РаффертиПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7AE47F551B94E33F3C7ED9C0A174861000CEC99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677083   (150579) от 17.11.2023
-
-Дух Байкала (2023) WEBRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В надежде отвлечь мальчика от утраты матери, отец везёт его к дедушке на зимнюю рыбалку. Но семья попадает в пургу и теряется на льду самого большого озера мира. Преодолеть горе и найти друг друга им поможет любовь и таинственные силы Байкала.Производство: Россия, NikaЖанр: приключения, драмаРежиссер: Михаил РасходниковАктеры: Илья Рязанов, Мосэ Куртанидзе, Олег Бабуев, Анастасия Цветкова, Диана АнкудиноваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA7299208363A9AB302A12D106F75F2E5DC37A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403405   (150580) от 17.11.2023
-
-Илья Соломенный | Цикл "Хроники Книжника" [5 книг] (2020-2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором магия - точная наука, которую нужно зубрить, учить и почитать. Орки, эльфы и гномы - вполне реальные расы, которые постоянно конфликтуют между собой. А человек с фотографической памятью может добиться немалых успехов. Конечно, если его не прихлопнут в первое время.
-Наш соотечественник оказался в другом мире, где-то на задворках вселенной. Ему повезло (   Читать дальше...   )Жанр: Фэнтези, ПопаданствоИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A0E5CEFB01FDF3388BCD4D071EE85BBEB04948
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677130   (150581) от 17.11.2023
-
-VPN в России: от блокировки сервисов к блокировке протоколов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование о том, как россияне пользуются инструментами обхода блокировок и как реагируют на блокировки этих сервисов.Выводы: как минимум 6 из 15 исследуемых VPN-сервисов испытывали проблемы с доступом в Сеть при блокировке протоколов OpenVPN и Wireguard;
-пользовательская стратегия перебора VPN-сервисов в поисках рабочего — большая уязвимость при блокировке популярных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677287   (150582) от 17.11.2023
-
-Воины будущего / Bian zhong ren: you ling zhan ji / Mutant Ghost Wargirl (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество мутантов, созданных для боев в битве завтрашнего дня, увеличивается со неимоверной скоростью. Международный альянс безопасности начинает борьбу с преступностью среди мутантов. Спецагент У Цинцин отправляется на задание в клинику, где создаются чудовища.Производство: Китай | «Error 404»Жанр: фантастика, боевикРежиссер: Лю БиньцзеАктеры: Мия Муци, Минсюань Ли, Лю Бэйгэ, Цуй Чжэньчжэнь, Го Цзыхэн, Му Фэнбинь, На Шанг, Ху Цзинъюнь, Юньчжэнь ЦзэнПеревод: Дублированный (Leff Sound)Язык озвучки: Русский, КитайскийСубтитры: РусскиеПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF7308EC9B3403C4F6608EFB7C8A1AA82B80DB6
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1203006   (126026) от 13.10.2025
+
+Длинное, длинное дело (1976) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма — следователь районной прокуратуры. Он — скромный, добрый и мягкий человек, но когда речь идет о чужих человеческих судьбах, становится непреклонным и ради справедливого приговора готов пожертвовать даже собственным благополучием и профессиональным статусом.Производство: СССР / ЛенфильмЖанр: Драма, криминалРежиссер: Григорий Аронов, Владимир ШредельАктеры: Евгений Леонов, Владимир Заманский, Михаил Глузский, Олег Янковский, Олег Белов (I), Николай Караченцов, Нина Ургант, Роман Мадянов, Рита Гладунко, Светлана Карпинская ...Продолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3585FF2D5881F2136F664BB0C11DE1459E00771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823985   (126027) от 13.10.2025
+
+Екатерина Латушкина | У жизни свой план. Самоподдержка в периоды тревоги и перемен (2025) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126027.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Трудности случаются, но они так же естественны как дождь или зима».
+
+Мы привыкли думать, что все под контролем: у нас есть знания, опыт, планы. Кажется, что жизнь будет развиваться так, как мы задумали. Но иногда все рушится. Сценарий будто переписывают без спроса — и остается только усталость и ощущение, что ты не справляешься. У жизни свой план.
+(   Читать дальше...   )Жанр: Саморазвитие / личностный ростИздательство: МИФФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F628D39A839A2106859148A8253FAF853D4EEFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823992   (126028) от 13.10.2025
+
+Михаил Зурков | Взломай мозг: Освой любой навык за 20 часов (2025) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126028.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Взломай мозг: Освой любой навык за 20 часов» — это практическое руководство, которое учит осваивать любые навыки за 20 часов. Используя психологию, декомпозицию и привычки, вы быстро достигнете компетентности, интегрируете навыки в жизнь и станете учеником на всю жизнь.Жанр: Общая психологияИздательство: Издательские решения в системе RideroФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904C6E7628A44C6E0541D4B2A3EAB7E5DB6A2B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823991   (126029) от 13.10.2025
 
 Паранормальное явление / Paranormal Activity (2007) BDRip [H.264/720p]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126029.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:B58D0137C72955B4E172132FD1745D991D62D27A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126030.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Fast Video Downloader 4.0.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126031.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Roma Kenga - Там, где любовь (2008) [FLAC|Lossless|tracks] <Pop, Dan
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126032.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:689E8B0C432B52FEC712A6588A42137053DDC2E6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126033.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:689E8B0C432B52FEC712A6588A42137053DDC2E6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126034.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:9007787824F4DE9676CF4AEAFD8BADF6AD0A9563
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126035.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:D0DB9EA1DB96AF147367BA37B2F54A1109869E32
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126036.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ XnView MP 1.9.5 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126037.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ VA - Music News For Forum vol.139 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126038.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ magnet:?xt=urn:btih:312BF51415EB4FEDCD8BD8B416CF092FA9A3B066
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126039.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:95C1FEF5B94A1BC1E00AA813E6411969982B9839
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126040.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:645DFF2A72BDA626E67374C5F71E4FF03A3FBF7A
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126041.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:B82E3038759656D46C43A50F4280F9C6F5CDBDEA
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126042.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:576D642C06332F3DBFB8BDB8E6215C3C15A26BC7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126043.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ magnet:?xt=urn:btih:CFA98DE2155413E951B15BA707475D3B7D6CDCEC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126044.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:2B92033DB4FAC4682619E5F0145D8C16F849746F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126045.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ Frank Walker - Live @ Breakaway Music Festival Michigan, United States (2025-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126046.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:7E2DDE7007A1D741F7421A01758785ABCD5540B1
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126047.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ magnet:?xt=urn:btih:A455A19683C7185DCE18ADA401E92078C0026034
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126048.jpg" />
 </div>
 
 
@@ -503,7 +578,7 @@ magnet:?xt=urn:btih:0266D230A98F17B60DF6B53E73AEAA1FE9402D5D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126049.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ magnet:?xt=urn:btih:0E78C00B00B1FB27CF334C5D39540F7170C9F4FA
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126050.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ magnet:?xt=urn:btih:18EBC21B5E91DAE3A389D3B924BEE40A97D0438B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126051.jpg" />
 </div>
 
 
@@ -563,78 +638,6 @@ magnet:?xt=urn:btih:18EBC21B5E91DAE3A389D3B924BEE40A97D0438B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DDCB7391BDC5981A9AFEBB1F466805AB2F4675E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823909   (126052) от 13.10.2025
-
-Дом динамита / A House of Dynamite (2025) Telecine [H.264/1080p] [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа чиновников в Белом доме пытается справиться с ракетной атакой на США.Производство: США / First Light Productions, Netflix, Prologue EntertainmentЖанр: Триллер, драмаРежиссер: Кэтрин БигелоуАктеры: Идрис Эльба, Ребекка Фергюсон, Гэбриел Бассо, Джаред Харрис, Трэйси Леттс, Энтони Рамос, Моусес Ингрэм, Джона Хауэр-Кинг, Грета Ли, Джейсон КларкПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370E488067BD21490431EE246FD9FF0705C3E4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823911   (126053) от 13.10.2025
-
-Дом динамита / A House of Dynamite (2025) Telecine [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа чиновников в Белом доме пытается справиться с ракетной атакой на США.Производство: США / First Light Productions, Netflix, Prologue EntertainmentЖанр: Триллер, драмаРежиссер: Кэтрин БигелоуАктеры: Идрис Эльба, Ребекка Фергюсон, Гэбриел Бассо, Джаред Харрис, Трэйси Леттс, Энтони Рамос, Моусес Ингрэм, Джона Хауэр-Кинг, Грета Ли, Джейсон КларкПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A838BBC7B9435DCC4CB1CB624E5CA3CF35E55776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823942   (126054) от 13.10.2025
-
-Честь дракона 2 / Tom yum goong 2 (2013) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельного владельца слоновьего заповедника Сучарта убивает неизвестный эксперт по боевым искусствам, использовавший три удара по смертельным для жизни точкам, и Кхам становится основным подозреваемым в убийстве, так как он был последним, кого видели на месте преступления. Ему пришлось бежать от властей, тем временем за ним начали охоту двойняшки — племянницы Сучарта (   Читать дальше...   )Производство: Таиланд / Sahamongkolfilm CoЖанр: боевикРежиссер: Прачья ПинкаюАктеры: Тони Джа, RZA, Петчтай Вонгкамлау, Янин Висмитананда, Маррезе Крамп, Рхатха Пхонгам, Патрик Танг, Дэвид Исмалоун, Тхирада Киттисирипрасерт, Бунсонг НакпхуПеревод: МногоголосыйЯзык озвучки: Русский, узбекскийСубтитры: Немецкие (Forced)Продолжительность: 01:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2AB44C4C4C9AD5BF75A27ADE31DE4AA252B14B
 ```
 
 

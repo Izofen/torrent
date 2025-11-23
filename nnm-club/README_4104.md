@@ -1,3 +1,80 @@
+###  Публикация: 1686540   (126391) от 24.12.2023
+
+Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и др. | Электронная музыка с нуля до PRO (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Музыка (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126391.jpg" />
+</div>
+
+
+###  Подробнее
+
+32 тематических модуля, 195 видео
+Вы научитесь писать электронную музыку в разных жанрах, профессионально её обрабатывать и продвигать свои проекты. Запишете свой первый EP, сможете развить творческие способности и подняться на новый уровень в музыкальной индустрии.
+Вы научитесь писать электронную музыку в разных жанрах. Прокачаете навыки продакшна в Ableton Live, (   Читать дальше...   )Производство: SkillboxЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682596   (126392) от 24.12.2023
+
+Война и мир (1965-1967) BDRip [H.264/1080p] (серии 1-4 из 4) [Handmade correction AI]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьбы дворян переплетаются в эпоху наполеоновских войн. Шедевр Сергея Бондарчука, удостоенный премии «Оскар», киноэпопея в четырёх частях, одна из самых высокобюджетных картин в истории кинематографа. Фильм стал известен благодаря масштабным батальным сценам и применению новаторской панорамной съёмки полей сражений. Экранизация одноимённого романа Льва Толстого.Производство: СССР, МосфильмЖанр: драма, мелодрама, военный, историяРежиссер: Сергей БондарчукАктеры: Сергей Бондарчук, Людмила Савельева, Вячеслав Тихонов, Олег Табаков, Борис Захава, Анатолий Кторов, Анастасия Вертинская, Антонина Шуранова, Виктор Станицын, Ирина Скобцева и др.Перевод: не требуетсяЯзык озвучки: русскийСубтитры: русские (forced), английские (full pgs)Продолжительность: 02:27:08 + 01:38:03 + 01:21:42 + 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EB37A3C9F7352C648A39B678A2D75FC696116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686501   (126393) от 23.12.2023
+
+Sylvania - Purgatorium (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Entre La Vida Y La Muerte (00:02:04)
+02 - Purgatorium (00:04:04)
+03 - El Rio De Los Lamentos (00:07:01)
+04 - Tu Calor Sera Mi Voz (00:04:05)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982E50824DA9CED317B07857D832082CD1946070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686346   (126394) от 23.12.2023
 
 Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
@@ -6,7 +83,7 @@ Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126394.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126395.jpg" />
 </div>
 
 
@@ -59,7 +136,7 @@ magnet:?xt=urn:btih:B0049C1E72BCA1D7DF7E63E1D079EFA2B839FFD1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126396.jpg" />
 </div>
 
 
@@ -86,7 +163,7 @@ Graeme Emmott - No Loitering (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126397.jpg" />
 </div>
 
 
@@ -113,7 +190,7 @@ magnet:?xt=urn:btih:831925967C3D19F9BC9C12134B1E7F94270CB50E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126398.jpg" />
 </div>
 
 
@@ -139,7 +216,7 @@ magnet:?xt=urn:btih:CD8F88C51694DBB152FB06B885EC7EE64CC4BEC0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126399.jpg" />
 </div>
 
 
@@ -163,7 +240,7 @@ Critical Heartbeat - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126400.jpg" />
 </div>
 
 
@@ -190,7 +267,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126401.jpg" />
 </div>
 
 
@@ -217,7 +294,7 @@ Vintas - Solar, Lunar (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126402.jpg" />
 </div>
 
 
@@ -244,7 +321,7 @@ Ingvay - One Magic Mile (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126403.jpg" />
 </div>
 
 
@@ -271,7 +348,7 @@ Jeremy Bruger Trio - Jubilation (2013) Black & Blue [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126404.jpg" />
 </div>
 
 
@@ -298,7 +375,7 @@ Pyramid - Rage (2022) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126405.jpg" />
 </div>
 
 
@@ -322,7 +399,7 @@ Banisher - Oniric Delusions (2016) [FLAC|Lossless|image + .cue] <Technical, Expe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126406.jpg" />
 </div>
 
 
@@ -349,7 +426,7 @@ Marco Machera - Dormiveglia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126407.jpg" />
 </div>
 
 
@@ -376,7 +453,7 @@ National Youth Jazz Orchestra - These Are The Jokes (1992) Ronnie Scott's Jazz H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126408.jpg" />
 </div>
 
 
@@ -403,7 +480,7 @@ Slytherin - Tales of Hogsmeade Village (2022) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126409.jpg" />
 </div>
 
 
@@ -430,7 +507,7 @@ Banisher - Degrees of Isolation (2020) [FLAC|Lossless|WEB-DL|tracks] <Technical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126410.jpg" />
 </div>
 
 
@@ -457,7 +534,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126411.jpg" />
 </div>
 
 
@@ -484,7 +561,7 @@ Go Ahead And Die - Unhealthy Mechanisms (2023) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126412.jpg" />
 </div>
 
 
@@ -511,7 +588,7 @@ Christian Sands - Facing Dragons (2018) Mack Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126413.jpg" />
 </div>
 
 
@@ -538,7 +615,7 @@ Methadol - Welcome to My World (2016) Reissue, Remastered, 2023, Methadol[FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126414.jpg" />
 </div>
 
 
@@ -565,7 +642,7 @@ magnet:?xt=urn:btih:D1D814E80903FB370F239DD88EBF766C235186FD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126415.jpg" />
 </div>
 
 
@@ -589,7 +666,7 @@ magnet:?xt=urn:btih:3885A881E064158555ACECAD90062A35E2C7023D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126416.jpg" />
 </div>
 
 
@@ -602,83 +679,6 @@ magnet:?xt=urn:btih:3885A881E064158555ACECAD90062A35E2C7023D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7751D4D17816415EB8B9AA7DE8AEC5B830EFC464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686621   (126417) от 23.12.2023
-
-Чингиз Абдуллаев | Дронго (Книга 81). Второе рождение Венеры (2023) [MP3, Татьяна Некрасова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщины коварны и непредсказуемы. В этом лишний раз убедился эксперт-аналитик Дронго, случайно, пролетом, оказавшийся на одном из островов Мадейры. Так уж совпало, что он остановился в отеле, большая часть номеров в котором заселена представительницами прекрасного пола. И какими представительницами! Все они съехались на конференцию феминисток… В ночь перед закрытием (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BBC192A0A4305AD5BC5DA1C12AE659E8A41DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686352   (126418) от 23.12.2023
-
-Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red (3:22)
-02. Elephant Tears (3:38)
-03. Bombs Away (3:44)
-04. No More (3:30)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62B5EDB64AEF39C8ED0CB62B6C55594DD781639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686653   (126419) от 23.12.2023
-
-Джером К. Джером | Энтони Джон (2014) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиокнига.
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-Роман «Энтони Джон» является одним из редчайших «серьёзных» произведений знаменитого английского писателя-юмориста Джерома Клапки Джерома, автора бессмертной повести «Трое в лодке, не считая собаки». Поклонникам творчества Джерома будет интересно познакомиться с этой (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 06:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929AD019DCDDEF4DAF3EAB800CDBC6FEFC920CA
 ```
 
 

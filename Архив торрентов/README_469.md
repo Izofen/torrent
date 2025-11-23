@@ -6,7 +6,7 @@ Cradle Of Filth - Midnight In The Labyrinth (2012) Scene [FLAC|Lossless]<Symphon
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102603.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ CD 1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102615.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102615.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ CD 1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102643.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ magnet:?xt=urn:btih:EDF4B334578DAA89B7D9451E46410B15B42D8BA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102666.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102666.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ FastStone Capture 7.1 Final RePack (& portable) by KpoJIuK [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102684.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102686.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ RegCool 2.019 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102702.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.114 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102825.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ GeoGebra 6.0.868.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103019.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Photo Lab PRO v3.13.38 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103024.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Light Image Resizer 7.1.2.63[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103032.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Telegram Desktop 5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103115.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Firefox Browser 132.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103157.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ PeaZip 10.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103188.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Photo Editor v11.0 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103269.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ PhotoDirector v19.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103278.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Firefox Browser 132.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103355.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Togu Audio Line - TAL-J-8 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103356.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PdfFactory Std & Pro 9.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103375.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.9.4 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103384.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Power Battle Watch Car | Лига WatchCar. Битвы чемпионов [2016,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103539.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Photo Lab PRO v3.13.32 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103569.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Rock Identifier - Stone ID v2.3.41 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103693.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Airborne Blues Virus - Get on Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103777.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Telegram Desktop 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103787.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ PrivaZer Pro 4.0.94 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103789.jpg" />
 </div>
 
 

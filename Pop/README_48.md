@@ -6,7 +6,7 @@ Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116016.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 23 февраля (2023) День защитника отечества [MP
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116046.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116183.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nada (Nada Malanima) - Collection (1969-2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116209.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Weeknd - The Highlights (2021) Deluxe, 2024, Universal Republic Records [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116235.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Modern Talking - Album Collection (1985-1987) 1st German Press [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116434.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Spandau Ballet - The Twelve Inch Mixes (1986) Compilation, Reissue, Disky [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116546.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116857.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Die Neue Heartbreakers Vol.3 (1991) [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116862.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Extend The 80s Groove (Essential 12" And Extended Mixes Of 80s Groove Class
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117037.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Billboard Top Pop Hits, 1961 (1994) [OGG Vorbis|480 Kbps] <Pop, Rock, Funk 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117052.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D650E26B468075164E1A88C28805037203AFD1A2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117065.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:F9402A1911E65E970076B83601F3AB15FAE79729
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117152.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:C06ACBA3C0A793D3A03B6DC7EEF2B1A897A28F0E
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117161.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:72B50ADA7ED9196E9BE901B0D670D4EEE12FDA41
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117186.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:C26964816D31893B5A0BD8BF8B7F58741E7DFA66
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117190.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:4CE4C1CBCDF7F21D622DCDF355D9F51CAEFC71DA
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117192.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117201.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117202.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Greatest Ever Decade 90s (2021) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117245.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Teach-In - The Best Of The Best (1997) [OGG Vorbis|480 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117250.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:85162C345E5075C5E7E1ED38B99720E94759FCE2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117258.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117260.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117309.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Jennifer Lopez - This Is Me...Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117425.jpg" />
 </div>
 
 

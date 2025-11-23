@@ -1,3 +1,84 @@
+###  Публикация: 1754144   (103739) от 08.10.2024
+
+Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight (6:12)
+02. Always on My Mind (8:05)
+03. Every Time You Come Home (5:59)
+04. 20 - Wien - 20 (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F062EB87B37BBACA4D190C0FCC560350924D2C7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754130   (103740) от 08.10.2024
+
+Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Tell It on the Mountain (3:40)
+02. Oh Happy Day (3:05)
+03. Come Down Angels (3:29)
+04. Wade in the Water (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3158B08EA50E6935E6E4E6E4F2A4AA5622F5AFA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754134   (103741) от 08.10.2024
+
+Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Was It the Devil? (2:49)
+02. Heavy Delta Blues (Electric) (4:29)
+03. Where Everything Began (Electric) (6:20)
+04. Called by the Devil (5:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5C584D373FBEEBB3BEA5A6D322B35BAE348184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754123   (103742) от 08.10.2024
 
 Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +87,7 @@ Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103742.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103743.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103744.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103745.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103746.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103747.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103748.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Aphex Twin - Selected Ambient Works Volume II (2024) Expanded Edition, 2024, War
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103749.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:BE84759F63BAE14740C5836588F3A5A1A8D7ECF0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103750.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ The Hu - The Trooper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103751.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ magnet:?xt=urn:btih:A2DEC00FB3F009A5AD593AB65EB43A752AEFA472
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103752.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103752.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ magnet:?xt=urn:btih:A2DEC00FB3F009A5AD593AB65EB43A752AEFA472
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103753.jpg" />
 </div>
 
 
@@ -317,7 +398,7 @@ VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103754.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ magnet:?xt=urn:btih:4E7E7D4B6B31FE72D529BB21E789A80462731B01
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103755.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ magnet:?xt=urn:btih:D9A104180490282258783E0854B1B4D06FB99DF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103756.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:AA33D54A891096C0910561211563B4308D5FE512
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103757.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103758.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Cyclone B - War (2024) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103759.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ magnet:?xt=urn:btih:E2EE49FDDCBA03E12CFC676B09F15B677F307AEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103760.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103760.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ London Grammar - The Greatest Love (2024) Deluxe, 2024, Ministry of Sound Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103761.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103762.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Babbba - Smooth jazz club (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103763.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103764.jpg" />
 </div>
 
 
@@ -588,87 +669,6 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D95F6128178387CDB31B160E4728FBE963BC52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753724   (103765) от 06.10.2024
-
-VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marko Ib - The Last of Us [06:31]
-02. Aquaella - Seeking Summer (VendettaX Remix) [06:10]
-03. SLIDER (SL) - Ghandinagar [07:52]
-04. jUjU (SE) - Zero Tolerance [06:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2356D0440B336C19E40B0D2D89D80CE1758598E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753677   (103766) от 06.10.2024
-
-Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Air Music And Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There’s No Business Like Show Business [3:21]
-02. Oh, What A Beautiful Mornin’ [2:34]
-03. Soliloquy [8:09]
-04. Time After Time [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753795   (103767) от 06.10.2024
-
-VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. t.Roy & The Smoking Section - Cute Little Thang (2:57)
-02. Chicken House Purple - That I Was Back Then (3:25)
-03. Suzanne's Band - Kick It to the Curb (2:52)
-04. Laura Vida - I Sing My Own Kind of Blues (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CBA2AF6B13A4F09173ECEB5D0FBA5F8F32751
 ```
 
 

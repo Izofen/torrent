@@ -1,3 +1,78 @@
+###  Публикация: 1763445   (102829) от 01.12.2024
+
+Журнал | Смена №12 (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367EB252434FB3D801AC9976BE4C05C29FA69B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763476   (102830) от 01.12.2024
+
+Винтовая лестница / The Spiral Staircase (1946) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий фильма написан на основе романа Этель Лины Уайт «Кто-то должен поберечься» (1933)... Начало ХХ века. Маленький городок в Новой Англии. Садист-душитель сеет страх среди местных жителей. Его жертвами становятся молодые девушки, имеющие физические недостатки или хронические заболевания. Ставшая немой из-за перенесённой в детстве травмы Хелен работает служанкой (   Читать дальше...   )Производство: США / Dore Schary Productions, RKO Radio Pictures Inc., Vanguard FilmsЖанр: нуар, ужасы, драма, детектив, триллерРежиссер: Роберт СьодмакАктеры: Дороти МакГуайр, Джордж Брент, Эльза Ланчестер, Этель БэрриморПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F94D2E08B7B15E44F835030F6EA15F9A3ACA05F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763223   (102831) от 30.11.2024
+
+Something Else! - Soul Jazz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filthy McNasty (4:56)
+02. Too Blue (7:55)
+03. Mean Greens (4:05)
+04. The Chicken (4:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A0B111D84E9A672D73767855F7C991F9204398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763326   (102832) от 30.11.2024
 
 Лента со шляпы отца / Father's Hatband (1913) WEBRip
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102832.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Hubert Laws - Carnegie Hall (1973) 2002, CTI Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102833.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Planetary People - Brace for Impact (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102834.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Road JC - Rosa Escarlate (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102835.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ magnet:?xt=urn:btih:D35134598348F4FFFCD63ADBC3D6124196A8973F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102836.jpg" />
 </div>
 
 
@@ -134,7 +209,7 @@ magnet:?xt=urn:btih:CFACB11E1BD5FD4B3209786655FE20129CEA9EC7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102837.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:74B182CCA72E1D8AD43DC95C03A68CE24E665BE9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102838.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC|Lossless|image + .cue] <Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102839.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ magnet:?xt=urn:btih:E3015DB538E908C75DC4512E095378AFAD210C45
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102840.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ Leo Sayer - 1992 (1992) Remastered, 2024, Crimson [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102841.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ magnet:?xt=urn:btih:DDF78EFCE0004BED62F5B6A13AA21663E70BEA04
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102842.jpg" />
 </div>
 
 
@@ -290,7 +365,7 @@ magnet:?xt=urn:btih:16203CD8D12EF396F55BE092A89D9D16CA2284E5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102843.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ ProCaillass - Electro Swing: Cat Songs, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102844.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ magnet:?xt=urn:btih:6E3E9F52365410376695FF64A92E2B9061C7C225
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102845.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102846.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ Confidence Man - 3AM (La La La) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102847.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ magnet:?xt=urn:btih:71EB57C4416D1796AE1DF7543A6136D30C1FAC1F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102848.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ Fire Action - Until The Heat Dies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102849.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ Supernatural Blondes - Religion Of The Heart (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102850.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ Visioneers - DEF RADIO (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102851.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ Tass Petridis - The OG Session (Vol 3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102852.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ magnet:?xt=urn:btih:83B04FBA50B402C93567615A77C3992F0D53E7F1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102853.jpg" />
 </div>
 
 
@@ -578,7 +653,7 @@ magnet:?xt=urn:btih:71101D2B87A6209B335B9EB500770C148DDEDD2B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102854.jpg" />
 </div>
 
 
@@ -591,84 +666,6 @@ magnet:?xt=urn:btih:71101D2B87A6209B335B9EB500770C148DDEDD2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F9C5E1320BDD09EA1F96C76AB4B0AA3C0914BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763106   (102855) от 29.11.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Манчестер Сити (Англия) - Фейеноорд (Нидерланды) (26.11.2024) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Манчестер Сити (Англия) - Фейеноорд (Нидерланды) (26.11.2024)
-СУДЬЯ Петреску Раду (Бухарест, Румыния)
-СТАДИОН «Сити оф Манчестер (Этихад Стэдиум)» (Манчестер) Зрителей: 47011Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF486F5CEF5CDF6141E7C05DA95575B5EE47F665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763123   (102856) от 29.11.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024)
-СУДЬЯ Кабаков Георгий (Болгария)
-СТАДИОН «Селтик Парк» (Глазго) Зрителей: 57456Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628CB31BCF0A95C3651F78E66DCAA7A9E7A26950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763116   (102857) от 29.11.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024)
-СУДЬЯ Ламбрехтс Эрик (Бельгия)
-СТАДИОН «Райко Митич (Црвена Звезда)» (Белград) Зрителей: 41372Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D4BBCA39B55688B34CF57D5F3BE67EFDC219F0
 ```
 
 

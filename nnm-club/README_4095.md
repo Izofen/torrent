@@ -1,3 +1,78 @@
+###  Публикация: 1680460   (126157) от 25.12.2023
+
+1С:Предприятие платформа 8.3.24.1342 [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сервер 8.3.24.1342 технологическая платформаЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7159D66B5ADF6E214D2BB665316BD91889C3478C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686846   (126158) от 25.12.2023
+
+Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 12.2023 1DVD
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126158.jpg" />
+</div>
+
+
+###  Подробнее
+
+64-х битная операционная система Windows® 7™ максимальная (x64) с интегрированными обновлениями, оформлением в темно-голубом стиле и стандартной ручной установкой на 1 DVD. Содержит удобное предзагрузочное меню для проверки компьютера.   Дополнительно в образ системы добавлена профессиональная редакция для установки на GPT диски.   Сборка предназначена для тех, кто предпочитает (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6606BA477912DAA649743EB3B59C18EF870BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370785   (126159) от 25.12.2023
+
+Ten Years After - 12 Studio, 5 Live Albums, 10 Compilation, 3 Box Set (1967 - 2019) 71 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Classic Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская группа, исполняющая блюз и хард-рок с джазовыми элементами и вошедшая в историю с классическими синглами «I’m Going Home» и «Love Like A Man». Группа прославилась сверхактивной концертной деятельностью: подсчитано, что в период с 1968 по 1975 годы она в среднем еженедельно выступала перед 75,000 новых зрителей. Привлекала, в основном, благодаря игре гитариста (   Читать дальше...   )Список альбомов:
+1967 - Their First Album
+1969 - Ssssh
+1969 - StonedhengeЖанр: Classic Rock, Blues-RockПродолжительность: 60:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001A50D993A4C5BCD2B2AB241D3D97F89EECCDE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687026   (126160) от 25.12.2023
 
 Папаша в бегах (2023) WEBRip [H.264/1080p]
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126160.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126161.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ Dead Mount Death Play | Смертельная игра мёртвой горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126162.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:151588AB9375103E93244F382FE35F27CD30FC19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126163.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126164.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:E4655B65C2A120AB6E63F96B00D2C4DA4B8E7EC0
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126165.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126166.jpg" />
 </div>
 
 
@@ -182,7 +257,7 @@ magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126167.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | 100 дел, которые 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126168.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ Skillbox, Илья Феоктистов, Дмитрий Зайцев | Инфр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126169.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ magnet:?xt=urn:btih:1E03C1F435D83B178EA5B749FAD9AE901005BE29
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126170.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:D12699AD6B482E9AA2A4CAB1CB10B7880533F3FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126171.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ uTorrent Pro 3.6.0 Build 46984 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126172.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:286EA0CF9B9D5A6F279C9610098D3813BBB7D708
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126173.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ Shah - Fire And Brimstone Collection (2022) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126174.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ Junkyard Heights - Junkyard Heights (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126175.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ Nightrider - Into the Future (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126176.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126177.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126178.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126179.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ Critical Heartbeat - Revolution (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126180.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ Bjorko - Heartrot (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126181.jpg" />
 </div>
 
 
@@ -568,7 +643,7 @@ Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126182.jpg" />
 </div>
 
 
@@ -582,87 +657,6 @@ Starchild - Magic Well (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy, Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68BDBB66C4ACC8C528A994E337797E651A1DA835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686704   (126183) от 24.12.2023
-
-Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drops of Poopiter (00:02:45)
-02 - Constantly Noble (00:03:27)
-03 - The Great Escalade (00:02:25)
-04 - Gator Tongue (00:03:48)(   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3E350E3B7ADDF52E0FC216A08C309B20EF6D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686623   (126184) от 24.12.2023
-
-Shallow Rivers - The Tales Told Under the Willow (2022) [FLAC|Lossless|image + .cue] <Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Desolate Daughters
-02 Not Yet An Artifact
-03 Prey In Disguise
-04 Mad Song(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BA654D184FEBAAA936865FADA2AC2C31C7344D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686875   (126185) от 24.12.2023
-
-Pedro Botero - Mas Sabe el Diablo (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR, Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ser Paranoico (00:05:05)
-02 - Desertor (00:03:22)
-03 - Rey Acero (00:04:43)
-04 - Sangre (00:03:56)(   Читать дальше...   )Жанр: AOR, Heavy Metal, Hard RockПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBF33346FE8D733AF633FDB2C77DF0C488F5AF8
 ```
 
 

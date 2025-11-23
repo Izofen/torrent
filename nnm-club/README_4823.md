@@ -1,3 +1,178 @@
+###  Публикация: 1271596   (149494) от 23.12.2018
+
+Проекты - VideoHive - Christmas Card - 13624495 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas Card - это красивый праздничный и профессиональный шаблон для создания поздравительной открытки для Новогодних и Рождественских видео проектов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DC6E11A8112DB265BEF45BA0F5F74850AB8EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969217   (149496) от 26.12.2015
+
+МастерШеф. Дети (Россия) (2015.12.26) SATRip (сезон 1, выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149496.jpg" />
+</div>
+
+
+###  Подробнее
+
+«МастерШеф. Дети» дает возможность юным поварам продемонстрировать свои кулинарные таланты и побороться за звание лучшего юного повара страны. Это единственный российский аналог всемирно известного шоу «MasterChef Junior», которое с успехом идет уже более чем в 50 странах мира. Несмотря на возраст, маленьким кулинарам предстоит столкнуться с испытаниями, которые (   Читать дальше...   )Телекомпания: СТСЖанр: Кулинарное шоуРежиссер: Роман БутовскийПродолжительность: ~ 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46AE76598A4F57707A1D0A1C1229E8A14AAF145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519278   (149497) от 23.12.2021
+
+Билл Шутт | Жуткая биология для безнадежных гуманитариев. Вампировые летучие мыши, пиявки и прочие кровососущие (2021) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Шутт — профессор биологии в LIU‑Post и научный сотрудник в Американском музее естествознания.
+
+Мир кровожадных животных, который открывает Билл Шутт, отправит вас в омерзительно‑увлекательное путешествие, где пиявки, летучие мыши и прочие «вампиры» станут главными героями почти детективных историй.
+(   Читать дальше...   )Жанр: Зоология, Научно-популярная литература, Общая биология, Природа и животныеПеревод: А. Д. ГромоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7456013F9DC25BAB27BE844208FAEA4FEC131F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434679   (149498) от 25.12.2020
+
+Фотографии - PHOTOBASH - HYBRID ENGINE [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот тематический набор включает крупные планы и сложные детали двигателя гибридного автомобиля. Фото могут быть использованы для различных футуристических роботов или научно-фантастических проектов.Формат: JPGРазрешение файлов: 3536x5404-7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7E04581C720EBA7315D5915D8542A510FF36B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677793   (149500) от 19.11.2023
+
+Рыжий пони / The Red Pony (1949) BDRemux [H.264/1080p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юному Тому дарят пони, и мальчик должен научиться нести за него ответственность.
+По произведению Джона Стейнбека.Производство: США / Chas. K. Feldman Group Productions Inc., Lewis Milestone Productions Inc., Republic Pictures (I)Жанр: драма, семейный, вестернРежиссер: Льюис МайлстоунАктеры: Мирна Лой, Роберт Митчем, Луи Кэлхерн, Шепперд Страдвик, Питер Майлз, Маргарет Хэмилтон, Мелинда Байрон, Джеки Джексон, Бо Бриджес, Don ReynoldsПеревод: одноголосый закадровый (Алексей Яковлев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D381F5746821C46E824B6A85DAE5DDA4868B90B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969188   (149501) от 26.12.2015
+
+Теория заговора. Новогодний стол (2015.12.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149501.jpg" />
+</div>
+
+
+###  Подробнее
+
+В преддверии Нового года все сотрудники нашей редакции будут «стругать» салаты. Мы исследуем каждый ингредиент, чтобы не только безболезненно отметить праздник с коллегами, но и купить домой только качественные и вкусные продукты.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD399C2FFC32D4D7BDD1AC3F1CF27CD035775D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519194   (149502) от 23.12.2021
+
+VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Set - 1:
+ 01. Steve Lisenbe - Ripples on a Blue Moon (03:01)
+ 02. Steve Lisenbe - Tribute to Syd (05:50)
+ 03. Soundelicious - Lost Romance (02:48)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic RockПродолжительность: 02:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D1FE64C1D2020C2C45A5AE48FCF4A161B517F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434685   (149503) от 25.12.2020
 
 DirPrintOK 4.71 Portable [Multi/Ru]
@@ -6,7 +181,7 @@ DirPrintOK 4.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149503.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ magnet:?xt=urn:btih:423A53404CFA255894DE23C95D06D18DC89E50A3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149504.jpg" />
 </div>
 
 
@@ -55,7 +230,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149506.jpg" />
 </div>
 
 
@@ -79,7 +254,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149508.jpg" />
 </div>
 
 
@@ -103,7 +278,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149509.jpg" />
 </div>
 
 
@@ -127,7 +302,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149510.jpg" />
 </div>
 
 
@@ -151,7 +326,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149511.jpg" />
 </div>
 
 
@@ -178,7 +353,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149512.jpg" />
 </div>
 
 
@@ -202,7 +377,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149513.jpg" />
 </div>
 
 
@@ -228,7 +403,7 @@ Stellarium 0.18.3 + classic [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149514.jpg" />
 </div>
 
 
@@ -252,7 +427,7 @@ Stellarium это бесплатный планетарий для вашего 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149515.jpg" />
 </div>
 
 
@@ -277,7 +452,7 @@ MAGIX SOUND FORGE Audio Studio 15.0.0.121 (x86/x64) [Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149516.jpg" />
 </div>
 
 
@@ -302,7 +477,7 @@ Dizzy Reece - Five Classic Albums Plus Bonus Tracks (1955 - 1960) 4CD, 2012, Rea
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149517.jpg" />
 </div>
 
 
@@ -329,7 +504,7 @@ Dizzy Reece - Five Classic Albums Plus Bonus Tracks (1955 - 1960) 4CD, 2012, Rea
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149518.jpg" />
 </div>
 
 
@@ -353,7 +528,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149519.jpg" />
 </div>
 
 
@@ -380,7 +555,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149520.jpg" />
 </div>
 
 
@@ -406,7 +581,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149521.jpg" />
 </div>
 
 
@@ -432,7 +607,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149522.jpg" />
 </div>
 
 
@@ -459,7 +634,7 @@ DownShift - One in the Chamber (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149523.jpg" />
 </div>
 
 
@@ -469,181 +644,6 @@ DownShift - One in the Chamber (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 02. Bombs Away (3:08)
 03. Lose It (3:06)
 04. Never Gonna (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969215   (149524) от 26.12.2015
-
-Тайные знаки с Олегом Девотченко (2015.12.25) SATRip (Выпуск 4)
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны повсюду... В рисунках, на страницах древних рукописей, в камнях египетских пирамид и в секретных разработках ученых. Чтобы найти к ним путь, нужно найти то, что скрыто, и расшифровать тайные знаки. На телеканале ТВ-3 стартует документальный цикл «Тайные знаки с Олегом Девотченко». 60 серий проекта расскажут телезрителям о великих пророчествах, сбывшихся легендах, (   Читать дальше...   )Производство: Россия, «FORMAT KINO» по заказу ООО «Телеканал ТВ-3»Жанр: Документальный, расследование, мистикаРежиссер: Сергей ПершинСубтитры: ОтсутствуютПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519323   (149525) от 23.12.2021
-
-Евгений Сухов | Резидент (2021) [MP3, Андрей Леонов]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1944 год. Западная Украина. Оперуполномоченный Смерш капитан Тимофей Романцев расследует дело о гибели своего заместителя. По данным разведки, в тылу наших войск действует группа диверсантов, которой поручено уничтожение комсостава и подрыв железнодорожных путей. Романцев захватывает перебежчика, который сообщает имя резидента, руководящего шпионской сетью. Но одного (   Читать дальше...   )Жанр: Боевики, Шпионские детективыПродолжительность: 07:14:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677814   (149526) от 19.11.2023
-
-David B McLaughlin - The Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Blues (5:01)
-02. Roberta (3:35)
-03. Hoochie Coochie Man (5:00)
-04. Don't Let the Devil Ride (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271595   (149527) от 23.12.2018
-
-Проекты - VideoHive - Winter Card - 13562617 [AEP]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winter Card - это анимированная рождественская открытка "волшебный вечер в рождественском лесу", с рисованными соснами и другими элементами в стиле акварели.Формат: AEP
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969287   (149528) от 26.12.2015
-
-В. Ю. Ильичев, А. С. Гринин | Основы проектирования экобиозащитных систем (2002) [DJVU]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основы проектирования экобиозащитных систем, в том числе этапы разработки технического задания готового проекта, разработка конструкторской документации. Приводится механизм определения экономического эффекта от внедрения разработанного проекта.
-Для студентов и преподавателей экологических, технологических и экономических вузов, а также широкого круга (   Читать дальше...   )Жанр: Студентам и аспирантам, ЭкологияФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677791   (149529) от 19.11.2023
-
-Clifford Jordan - Soul Fountain (1966) 2008, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.N.T. [2:40]
-02. I've Got a Feeling for You [3:01]
-03. H.N.I.C. [3:32]
-04. I Got You (I Feel Good) [2:37](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589484   (149530) от 15.12.2012
-
-Журнал | Gala Биография №11 (95) [ноябрь 2012] [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149530.jpg" />
-</div>
-
-
-###  Подробнее
-
-"GALA Биография" - это увлекательные истории из жизни знаменитых людей: королей и авантюристов, популярных актеров и выдающихся политических деятелей, известных писателей, художников, музыкантов. "GALA Биография" - это правдивые и занимательные истории, написанные самыми лучшими российскими и зарубежными журналистами, иллюстрированные эксклюзивными фотографиями. "GALA Биография" - это кино и литература, политика и бизнес, мода и спорт, самые знаменитые люди и самые интересные факты из их жизни.Формат: PDF
 
 ## Скачать торент
 ```bash

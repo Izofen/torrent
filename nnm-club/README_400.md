@@ -6,7 +6,7 @@ VA - Uplifting Only Top 15: July 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10582.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:80F983E56B10DF5BB4BBAD2CF671DF1F0AB808D5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10583.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1B700723A8B9ED8F1E4734375947E3D72ACEE0DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10584.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ MediaHuman YouTube Downloader 3.9.15 (2107) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10585.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:68BF77587B60B2FF7D26BEC2C638A0D416270578
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10586.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D90C285F8FE95ECC4CC958CAB9DE787C83D54292
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10587.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1209651E798E0E134CDC127FD0809F2A15734C04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10588.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:78D5753368DE0661874252CB26927234BBDCA889
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10589.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10590.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Alice Cooper - The Revenge of Alice Cooper (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10591.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5EF2CCD731EB392F6E39958FC41C8051100CBB2A
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10592.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ OCCT 14.2.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10593.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F5562260F5C3C9578DCCE32712D15AA303832BBC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10594.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:02B62A14937092C9B77A8E01E999A0F880E0A7DA
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10595.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:772BE553344599F630831A6AAEECC5C0902613AE
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10596.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6EC9FFA77C1263E9CCD539816B184314AFDEA327
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10597.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3B1BBCFBEE1F32A6F09248054419C4AFCFC259A3
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10598.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5897025119FE73F513C655A45A554A907CEDB07D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10599.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Summer Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10600.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:51EA941E6E6E4B666632DE82F3013CA38AF1CF5B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10601.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:BC96FD1BD8830DFD100CB798D380BD509F9D3A36
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10602.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:C3E3E20A58F7A7B80E860C186D74E3B6FEC91EEA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10603.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ LazyMedia Deluxe v3.395 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10604.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:776496E3B17EF4424AC66CF1ECE091FBA8C548FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10605.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:43893D9AB8A1897E238CE7279F57F27699C5E00F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10606.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:1ECE7DF2346E61B108E336BAFF9F0F112AB0DD1C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10607.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1696522   (119522) от 03.02.2024
+
+SimInTech 2.24.1.26 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119522.jpg" />
+</div>
+
+
+###  Подробнее
+
+SimInTech – система автоматизированного проектирования логико-динамических систем, описываемых во входо-выходных отношениях, в виде систем обыкновенных дифференциальных уравнений и/или дифференциально-алгебраических уравнений, а также описываемых в виде расчётных («нодализационных») схем для специализированных решателей (расчётных кодов) термогидродинамических и (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44E237A1F4650A4EC91AD54507D4CD66B82180C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690636   (119523) от 03.02.2024
+
+Влюбиться в невесту брата / Dan in Real Life (2007) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн — вдовец, отец трёх дочерей, остроумный журналист, ведущий популярной колонки полезных советов в престижной газете. Но когда Дэн влюбляется (и не в кого-нибудь, а в невесту собственного брата), то с удивлением для себя обнаруживает, что советы, которые на протяжении многих лет он давал своим читателям и дочерям, в его случае не действуют. Оказывается, реальная (   Читать дальше...   )Производство: США / Dan In Real Life Productions, Focus Features, Jon Shestack Productions, Touchstone PicturesЖанр: драма, мелодрама, комедияРежиссер: Питер ХеджесАктеры: Стив Карелл, Жюльетт Бинош, Дэйн Кук, Элисон Пилл, Бритт Робертсон, Марлен Лоустон, Дайэнн Уист, Джон Махони, Норберт Лео Батц, Эми Райан, Джессика Хехт, Фрэнк Вуд, Генри Миллер, Элла Миллер, С.Дж. АдамсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97095CF37F11D60B2007DF767FACA8F9DA164129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683425   (119524) от 03.02.2024
+
+Ярче звезд (2023) WEBRip [H.264/720p] (сезон 1, выпуск 1-13 из 13)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое музыкальное шоу перевоплощений «Ярче звёзд» соберёт самых талантливых вокалистов, искусных пародистов и прирождённых артистов на одной сцене. Все они будут перевоплощаться в своих любимых исполнителей, а тот, кто сделает это убедительнее остальных, получит внушительный денежный приз и, конечно, всероссийскую славу и признание звёзд эстрады. В каждом выпуске (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Музыкальное ТВ-ШоуУчастники: Гарик Мартиросян, Марина Кравец, Иван Абрамов, Алексей ЧумаковСубтитры: ОтсутствуютПродолжительность: ~01:25:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B0D1AB58C6964E65B68509CCF0E45F1B751D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696577   (119525) от 03.02.2024
 
 CyberLink PowerDirector 2024 Ultimate 22.1.2529.0 (x64) [Multi]
@@ -6,7 +78,7 @@ CyberLink PowerDirector 2024 Ultimate 22.1.2529.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119525.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4F55268EA5CEF3B23406D8A0F7DBDA9A864ADE8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119526.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:31D979661B8100C9F452950AA8AD7ACBB08D4EFC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119527.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:E8FCFA4C7B993D8226360FC03C10794AE2638835
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119528.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:58EA4F977C753ADFE1C8385337E3FB5E6CD86742
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119529.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ LightX - Фоторедактор v2.2.1 b417 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119530.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:49F924F93A8E451B32B8E246E608E2496F11E262
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119531.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:FCEAA514FE6FC25E14F16C2D93FA474C31D55FAF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119532.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119533.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:590908500613A40B16ED23D8593D6E9A7178AC33
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119534.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:336198E03EDA21D752E98EE31039037085FA8AC8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119535.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:954AB61B6A3BDDF96750CA93CF975536AEBF5E88
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119536.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:D70EED502931E9ADE6A936CBA2FDBE697BB25B9A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119537.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:27A788585ECC076FE530B61F769D1E47B2602C38
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119538.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:17E0F2E53CEE32A697659AB15F29B0E99C98E952
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119539.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:01EFA3EA586F3F52386FD98937A26C39E5D6A234
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119540.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:E97B10816B1C707F141496454E0662738A0CCA54
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119541.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:E97B10816B1C707F141496454E0662738A0CCA54
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119542.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:9E06541332D64BC2464ED53BC70EFA60B76F624C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119543.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ Lumii - Фоторедактор, Фильтры v1.621.148 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119544.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:1BBAE8619C4582C1A49BFE4781FC3829E45C5A71
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119545.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Runtu Lite 22.04 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119546.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119547.jpg" />
 </div>
 
 
@@ -553,78 +625,6 @@ magnet:?xt=urn:btih:5AFE432E8A8D2E9C63DAF87E1FA678419B32CA1D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA7252113D61D949FB5317302773198B8356A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695903   (119548) от 03.02.2024
-
-Багровый рассвет / Sunrise (2024) WEBRip [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара одна воспитывает двоих детей и пытается содержать большую ферму. Такая семья является легкой наживой, немудрено, что на ее земли позарилась местная банда головорезов. Но у женщины появляется загадочный защитник: он избегает солнечных лучей, обладает невероятными способностями и жаждет крови.Производство: США, Великобритания / 23ten, Baird Films, Creativity Capital, Dark Dreams Entertainment, LB Entertainment, Northern Ireland ScreenЖанр: Ужасы, триллерРежиссер: Эндрю БейрдАктеры: Алекс Петтифер, Гай Пирс, Кристал Ю, Уильям Гао, Олуэн Фуэре, Курт Ягер, Райли Чунг, Джон Коннорс, Лалор Родди, Форрест КэмпбеллПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:52Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696602   (119549) от 03.02.2024
-
-Нельская башня / Башня запретной любви / Der Turm der verbotenen Liebe (1968) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на пьесе "Путешествие по Неслю" Александра Дюма-отца, написанной, в свою очередь, по оригинальному тексту Фредерика Гайарде, основанному на историях разврата, касающихся Маргариты, дочери герцога Бургундского и других членов королевских семей Франции и Англии, которые, как говорили, использовали старую сторожевую башню на берегу реки Сены (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / Filmes Cinematografica, Films EGE, Rapid FilmЖанр: драма, приключенияРежиссер: Франц Антель, Фриц УмгельтерАктеры: Тери Тордаи, Жан Пиа, Уши Глас, Вероника Венделл, Мари-Анж Анье, Карлхайнц Феге, Франц Рудник, Йорг Плева, Дада Галлотти, Армандо ФранчолиПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F467A6FE9B0B874C04C368DD0A064B860005BFD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696652   (119550) от 03.02.2024
-
-Враг у ворот / Enemy at the Gates (2001) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год, разгар Сталинградской битвы. Немецкое командование направляет на передовую своего лучшего стрелка, майора Кенига, с особым заданием. Этот опытный и терпеливый профессионал - единственный, кто может попытаться справиться с русским «ангелом смерти» - неуловимым снайпером Василием Зайцевым. Зайцев - легенда и икона для защитников Сталинграда. Каждый день он (   Читать дальше...   )Производство: США, Великобритания, Франция, Германия / Paramount PicturesЖанр: боевик, драма, военныйРежиссер: Жан-Жак АнноАктеры: Джуд Лоу, Рэйчел Вайс, Джозеф Файнс, Эд Харрис, Боб Хоскинс, Ева Маттес, Рон Перлман, Гэбриел Томсон, Маттиас Хабих, София Ройз, Иван Шведов, Клеменс ШикПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, Украинские, АнглийскиеПродолжительность: 02:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E8A50FBA783A4C4B8A9418F2129E2EE3106DD1
 ```
 
 

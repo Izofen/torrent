@@ -6,7 +6,7 @@ Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59219.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Giti VPN 11.0 Mod by Nnn [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59225.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59272.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PictureThis - Plant Identification v3.82 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59289.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.8.2 Mod by FreeApkexe [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59329.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VPN.lat: Unlimited and Secure 3.8.3.9.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59330.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ XY VPN - Security Proxy VPN 4.8.022 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59331.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59422.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59459.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Super Recorder / Диктофон: Звукозапись v2.3.1 Mod by Mixroot 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59720.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59735.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59800.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59801.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Rutube v29.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59802.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Filmic Pro 6.8.4 Mod by EasyAPK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59812.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Cx Проводник / Cx File Explorer 2.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59853.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ YouTube ReVanced Extended 19.11.43 (RVP v2.224.0-dev.1) Mod by VooltMace + micro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59875.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Call of Duty: Strike Team 1.0.40 Mod by Dhаmpir & Eastlion [Ru/Uk]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59974.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ RS Explorer / RS Проводник 2.1.1.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60012.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Lark Player - YouTube Music & Audio Player 5.70.10 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60116.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64/x86) Mod by Mixroot [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60176.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe Photoshop Express 13.4.404 (ARM64) Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60349.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60448.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60492.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60498.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ GPS Локер Prime v2.4.4 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60545.jpg" />
 </div>
 
 

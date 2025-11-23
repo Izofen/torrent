@@ -6,7 +6,7 @@ The Must Die - Праздники прошли... (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126423.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126590.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126592.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:228F27E3DE3085B0568BB227CA6FEF1CC488194D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126598.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126602.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:969F998FA041C4246C08A2242783C979055F73D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126603.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:53447AA42A78EC3FC00E178826CFCB2C4D446B5C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126604.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:2AF6E8183FB76F8A321211BB965D4529DCA1A0F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126605.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3E825ED4544612B16EB64F1FB6F5B187A8AB5A41
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126625.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Митьковские песни. На море танки грохота�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126787.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tears Of Asclepius - Город призрак (2023) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126855.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C27F8EF2F0B378C3C54DA70DD0CA2FF4E95FE860
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126858.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Natalie Antares - Выдохнуть (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126882.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:10A6CA17562FA44B5B1E0141B18F11842F5DEC5C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126884.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jollo - Ведьма (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126888.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:05CF381564B3B82087F1B4669DFE941E28B39D54
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127200.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127348.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127350.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127352.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127355.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lissa - Гости без будущего (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127366.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:A998CB94DF7206062AF779FC15CB980F2BFBC07C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127368.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Impress - Враг не дремлет (2023) [FLAC|Lossless|image + .cue] <Thra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127377.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:FFC61739ED3C3CDDBA4C21447446C7EF90790225
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127378.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:67B29684DF14A9A0319CC9715C62BB35D217B484
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127386.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:4BBF7E7519CADCD05C40238E69A3BAEB48A61472
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127390.jpg" />
 </div>
 
 

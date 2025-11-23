@@ -1,3 +1,78 @@
+###  Публикация: 1693890   (121472) от 22.01.2024
+
+Джентльмен и петух (1929) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Установленная Рижским договором граница между панской Польшей и Советской Белоруссией прошла через имение польского графа Вадецкого. Лучшая часть имения с дворцом оказалась на советской территории. С этого момента граф потерял покой и сон: в бывшем господском доме поселились новые хозяева — шумный и весёлый пионерский отряд, а через границу постоянно перекликаются (   Читать дальше...   )Производство: СССР, БелгоскиноЖанр: комедия, немое киноРежиссер: Владимир БаллюзекАктеры: Лев Добровольский, В. Баранова, Елена Волынцева, Кирилл Гун, Степан Кузнецов, Дж. Раделин, Валентина БарановаСубтитры: украинские (интертитры), русскиеПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446FCF00C3F1F9C035A48E422EDE73E1F905AC57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823255   (121473) от 10.10.2025
+
+Ищу девушку с голубыми глазами (2025) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121473.jpg" />
+</div>
+
+
+###  Подробнее
+
+После развода Юлия впервые в жизни регистрируется на сайте знакомств. Она хочет как можно быстрее забыть бывшего мужа – а значит, ей срочно нужны новые отношения. Её внимание привлекает профиль симпатичного мужчины, который ищет блондинку с голубыми глазами. Роман с новым знакомым развивается стремительно. Он красив, романтичен, у него золотые руки. Дочь Юли в ужасе: (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: ДетективРежиссер: Владимир КойфманАктеры: Дана Абызова, Михаил Рябов, Михаил Гудошников, Анфиса Харизанова, Николай Смирнов, Павел Литов, Андрей Конев, Сергей Трифонов, Наталья Парашкина, Полина Липай и др.Субтитры: ОтсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D28576DAA7CC64C25EFA92495C649B3EC14324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693830   (121474) от 22.01.2024
+
+VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - One Love (5:24)
+02. Moshang - Recurring Dream (3:59)
+03. Karen Gibson Roc - We Can Shine Together (4:39)
+04. J.a.z.z.matic - Alone Now (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823233   (121475) от 10.10.2025
 
 «Интернет свободы превращается в инструмент контроля», — заявление Павла Дурова
@@ -6,7 +81,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121475.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121475.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121476.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:AC0A338497169617B10F9783963E9756575314F2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121477.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:0E4C5DE025FD848D1A207F7D07B536894EE5018C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121478.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121479.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121480.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:3CB700EDD2363E1D4C2C96C7C73F6551F2C007DE
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121481.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121482.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121483.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121484.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:FF27E30183E3970F442F8245DF46E4EB8678856D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121485.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121486.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121487.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121488.jpg" />
 </div>
 
 
@@ -353,7 +428,7 @@ magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121489.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ magnet:?xt=urn:btih:496E6243F7CF62B5493221FDBD7EC8823A3BEF96
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121490.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Pirate Hymn - Explorer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121491.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ magnet:?xt=urn:btih:E87C37156E9A6489947D8F11E770053FF74C8FFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121492.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ magnet:?xt=urn:btih:39B3AE4ABF98F8082950BB9ACABEBF4FDAE87CF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121493.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:7136321AB7122287E983C248A252BD9252ADBA0A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121494.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121495.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ magnet:?xt=urn:btih:CD7313216450A018E8BF6CE3DF0EB1D7B2E17046
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121496.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121497.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF970C02C6CB6FB724DB7F8E79A252B51B89C6C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823105   (121498) от 10.10.2025
-
-Журнал | Российское военное обозрение №07 (253) (2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121498.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Российское военное обозрение» — ежемесячное информационно-аналитическое издание Министерства обороны Российской Федерации. Эксклюзивная информация Министерства обороны и других силовых структур государства. Интервью с высшими военачальниками, аналитические статьи и экспертные оценки развития Вооруженных сил.Жанр: Информационно-аналитическое изданиеИздательство: Агентство "Военинформ" МО РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28D73DE809F86C3F04085121B6C1C68D1EF3B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823133   (121499) от 10.10.2025
-
-Журнал | Тайны ХХ века №40 (1186) (сентябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121499.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFBA3FC9E151076189B4541E47ADC7C471F053E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823136   (121500) от 10.10.2025
-
-Журнал | Тайны ХХ века №41 (1187) (октябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121500.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE90563D81C062854254DE5389BE729B1F216AC7
 ```
 
 

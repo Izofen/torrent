@@ -1,3 +1,75 @@
+###  Публикация: 1734350   (107146) от 03.07.2024
+
+Process Lasso Pro 14.2.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321C34E875D956B1BD10513DCF6B24BFF60ADDA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734509   (107147) от 03.07.2024
+
+Яндекс.Браузер 24.6.2.787 (x32) / 24.6.2.786 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3262311A34C4DCA2F7A851BC20A604403F9B72DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734471   (107148) от 03.07.2024
+
+4K Video Downloader+ 1.7.2.0098 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107148.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA13D386B3E19FD117AA40BF7802B0058FEB6C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734465   (107149) от 03.07.2024
 
 37 секунд / 37 Sekunden / The Night in Question (2023) HDTVRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +78,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107149.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:DC6790624DF3D6CBF4952CD336EF3F886E53AB96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107150.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:8FDF3DFB2F7CDCCE127324ED2FC2F8357B45B7DC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107151.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107152.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ RadioMaximus 2.33.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107153.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:253D189F47B93DC81B9842437645DEFE4965A519
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107154.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ RAM Saver Professional 24.7 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107155.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ HDCleaner 2.075 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107156.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107157.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Billie Piper - Something Deep Inside (2020) Remaster, 2024, Virgin Records[FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107158.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Altered Five Blues Band - Testifyin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107159.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ Karen Lawrence - The Blues Is Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107160.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ Grand Causse - Sauvages Celestes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107161.jpg" />
 </div>
 
 
@@ -338,7 +410,7 @@ BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107162.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ magnet:?xt=urn:btih:FC0234D017DE9CF29675FEF6DB82458E09226055
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107163.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107164.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107165.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107166.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Daniele Perrino - The Soot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107167.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ magnet:?xt=urn:btih:029E69CE76B71C2FCC0DD2313C22577D8B4A2BB1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107168.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ Gena Lanette - Hell or High Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107169.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ Corey Harris - Chicken Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107170.jpg" />
 </div>
 
 
@@ -579,7 +651,7 @@ Cole & Ward - Blues and Other Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107171.jpg" />
 </div>
 
 
@@ -593,82 +665,6 @@ Cole & Ward - Blues and Other Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:863A6FEB1CB95E6679657AE1D6669B16D12BE955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734113   (107172) от 02.07.2024
-
-Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (1954 -1961) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Not One [5:34]
-02. There Will Never Be Another You [4:48]
-03. Donna Lee [6:17]
-04. Don't Squawk [7:20](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 06:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C5713FA0F83F351E010E1E0A1CEA752F67323D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734259   (107173) от 02.07.2024
-
-Жизнь человеческая / Et menneskeliv (1910) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой ролик иллюстрирующий извечные вопросы. Что важнее в жизни? Жизнь конечна и силы наши ограничены, на все не хватит. Особенно, если начинаешь с низов. На что их тратить? Карьера или любовь женщины? Упорное движение к поставленной цели или простые житейские радости? А если вдруг решишь поменять приоритеты, не будет ли слишком поздно?
-Сохранились не все эпизоды.Производство: Дания / Regia Kunstfilms Co.Жанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Клара Понтоппидан, Адам Поулсен, Эксел СтрёмПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0AA15C41F80AA8AF4DDF027D76E5BC920C3734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734049   (107174) от 02.07.2024
-
-Как починить велосипед (2022) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Сарыал, сломав велосипед, боится, что его накажут. Он убегает из дома и попадает в неожиданные приключения.Производство: Россия / Sanaa CinemaЖанр: драмаРежиссер: Эр Санаа Ох-ХоторАктеры: Вадим Саввинов, Айсен Федоров, Валерий Андросов, Аким Федоров, Афанасий Лугинов, Дархан ТорговкинСубтитры: Русские (hardsub)Продолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D24D2FD73FD7FB083C86463ED94BED9AD0D1EA6
 ```
 
 

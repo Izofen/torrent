@@ -6,7 +6,7 @@ Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171757.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171758.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171759.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171760.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171765.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171766.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171768.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171771.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Stahlhammer - Opera Noir (2006) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171772.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Solar Sons - Subliminal Criminal (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171773.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hippie Death Cult - Helichrysum (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner/Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171775.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Within Temptation - Bleed Out (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171864.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Metal Church - Congregation Of Annihilation (2023) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171880.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dave Stewart - Who To Love: The Time Experience Project (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171889.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171920.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Kardang - Rizky Biznizz (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171921.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Rival Sons - Lightbringer (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171924.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Savage - Glory Riders (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171926.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Lazy Bonez - Eye of the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171929.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171936.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Lycania - My Kingdom Come (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171937.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Steel Rhino - In Rhino We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171938.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Elegy Of Madness - XI (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171942.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Silence Phobia - Living In Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171945.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fenrir's Scar - Love, Hate, Hope, Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171949.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Silence Phobia - Living in Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171952.jpg" />
 </div>
 
 

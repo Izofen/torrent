@@ -1,3 +1,78 @@
+###  Публикация: 1697267   (119262) от 05.02.2024
+
+Виолетта Берестова | Обработка числовой информации. Работа в MS Excel (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть 1
+План проведения вебинара:
+1. Создание и интерфейс книги Excel
+2. Ввод и редактирование данных в ячейках(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 03:27:15Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697211   (119263) от 05.02.2024
+
+Художник / The Painter (2024) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший оперативник ЦРУ снова оказывается в опасном мире, когда всплывает таинственная женщина из его прошлого. Теперь разоблаченный и ставший мишенью безжалостного убийцы и мошеннической программы секретных операций, он должен полагаться на навыки, которые, как он думал, больше никогда ему не пригодятся.Производство: США / SP Media GroupЖанр: ТриллерРежиссер: Кимани Рэй СмитАктеры: Чарли Уэбер, Мари Авгеропулос, Мэдисон Бэйли, Луиза Д’Оливера, Леа Гибсон, Джейсон Грей-Стенфорд, Rryla McIntosh, Макс Монтези, Джон ВойтПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165EE87818EA7BAD192862C46CD912DEB1E2B9AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697012   (119264) от 05.02.2024
+
+Миссия невыполнима: Племя изгоев / Mission: Impossible - Rogue Nation (2015) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда ОМН распускают, и Итан Хант остается не у дел, его команда неожиданно сталкивается с разветвленной международной сетью высокопрофессиональных спецагентов — Синдикатом. Это «племя изгоев» одержимо идеей установления нового мирового порядка и планирует серию разрушительных терактов. Итан и компания объединяются с дискредитированным британским агентом Ильзой Фауст (   Читать дальше...   )Производство: США, Китай / Paramount PicturesЖанр: боевик, триллер, приключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Ребекка Фергюсон, Саймон Пегг, Джереми Реннер, Винг Рэймс, Шон Харрис, Алек Болдуин, Саймон МакБерни, Йенс Хультен, Том ХолландерПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские (PGS)Качество: UHD BDRemuxПродолжительность: 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D7EF955A7C2A679123BA41571AC934476CADE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697011   (119265) от 05.02.2024
 
 Грязный Юг / The Dirty South (2023) BDRip [MVO]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119265.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:1638A0CB271DA3C94E37BCEAEA1243ABB1E0F69E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119266.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:C00AA5806EA0F3C4240301CED96875D4321A61C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119267.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:8E66926CF370AC0A53925DD97933392D93BFB813
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119268.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:B8BCE6A5A976FA884FE7AB361B2DBA521577BE85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119269.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:25B130E6F56201063742BBEC93FD122AC9435291
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119270.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:82649BD5F56B65948FA8EA908AA3977A34C1C2DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119271.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:536A3E4A481F9811E07C3F9A9E256B71BE4C24CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119272.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ Autodesk 3ds Max 2024.2.1 RePack by xetrin [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119273.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:2B408F7A4D6CC3C55B3B2043926B85ED38389523
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119274.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:6A460D918C46760D5C5C1094E4A9B4A6BF5AE728
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119275.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:4B93D6B36F190A2C457B8014CD0FCCB7F2A43542
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119276.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ magnet:?xt=urn:btih:F8004B99C39075617C3FC65D70AED6039EA44C84
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119277.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:7FF16EA3DAC0F86105FE0B4520C10FD4CA750AAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119278.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:2DE61BF72476A72E400E39B417C41FC7092DCDB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119279.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:1DB444324529F536626162B6C631586FAE5F73A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119280.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:6F1FAF1103C89CE703797F5FA8BC1A4711486C17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119281.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:5EC9163DD1231AE73A32667751776014EB6ECDA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119282.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:0D10A1A70E6AFF11EF280B1C957080F6188AD9EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119283.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ iTop VPN 5.3.0.5106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119284.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:E6D8E7D3D9BAD0F21FDD7F8746DE25BFE701F3E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119285.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ magnet:?xt=urn:btih:70ABDC5DD32AC40FDFBD48ABFF4A73AA3BCFC427
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119286.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ magnet:?xt=urn:btih:3D500E82A22D020C0D161A1A2D2759C3EB7B45B3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119287.jpg" />
 </div>
 
 
@@ -550,81 +625,6 @@ magnet:?xt=urn:btih:3D500E82A22D020C0D161A1A2D2759C3EB7B45B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7193646C98539C4CAB112E35FFC374BC803A3AB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696991   (119288) от 05.02.2024
-
-Internet Download Manager 6.42 Build 3 RePack by elchupacabra (04.02.2024) [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0665CD5448B7ECEBD1C0B93D36AADA2F23BF9B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696558   (119289) от 05.02.2024
-
-Банши / Banshee (2013) BDRip [H.265/1080p] [10-bit] (сезон 1, серии 1-10 из 10) TVShows, DadLab, NewStudio, 2x2
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лукас Худ — отбывший наказание в тюрьме вор, который некогда предал своих подельников. После отсидки он приезжает в небольшой городок в Пенсильвании, носящий название Банши, где обманом получает пост местного шерифа. Но это не значит, что он забыл своё криминальное прошлое и теперь служит закону. Гангстеры, которых он когда-то предал, всё еще помнят про него и стремятся (   Читать дальше...   )Производство: США / Cinemax, Your Face Goes Here EntertainmentЖанр: боевик, триллер, драма, криминал, детективРежиссер: Оле Кристиан Мадсен, Грег Яйтанс, Лони ПеристерАктеры: Энтони Старр, Ивана Миличевич, Ульрих Томсен, Хун Ли, Фрэнки Фэйзон, Лили Симмонс, Триесте Келли Данн, Рас Блэквелл, Мэтт Сервитто, Деметриус ГроссПеревод: Многоголосый профессиональный (TVShows, DadLab, 2x2), двухголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4347E217B5C8FDC05E6D6B01B5C1E7C57C5B685
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696942   (119290) от 04.02.2024
-
-Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel (7:29)
-02. High Tides (6:27)
-03. Black Limba (7:53)
-04. Pocket Sauce (6:27)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9908145C9DD937086C7FC4C9E35928C9C2751A2
 ```
 
 

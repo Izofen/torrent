@@ -1,3 +1,27 @@
+###  Публикация: 1442495   (197389) от 06.06.2023
+
+Цыган (1979) DVDRemux (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_197389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая деревенская женщина, Клавдия Пухлякова, находит у раздавленной танками кибитки цыганского мальчика. Пожалев ребенка, она берет его домой и растит как собственного сына. Проходит 17 лет. Однажды в селе появляется цыган Будулай, одинокий, много переживший человек. Он очень быстро завоевывает симпатии приемного сына Пухляковой. Подозревая, что Будулай и есть (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: ДрамаРежиссер: Александр БланкАктеры: Михай Волонтир, Клара Лучко, Алексей Никульников, Ольга Жулина, Нина Русланова, Майя Булгакова, Леонид Неведомский, Матлюба Алимова, Соня Тимофеева, Рудик ОвсепянСубтитры: Русские, эстонские, латвийские, литовскиеПродолжительность: 01:35:56 + 01:18:03 + 01:18:17 + 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E75714ECEAEF19FF57E3D7FD65594F6879D9F75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617505   (201371) от 12.03.2023
 
 Угрюм-река (1968) WEBRip [H.264/1080p] (серии 1-4 из 4)
@@ -6,7 +30,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201371.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201371.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:05288AD8E07BB2212C1693A642DEC7AF3D657698
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201504.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201504.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:39480E1D9D686B286E433A5DBD321C27AB5F1119
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202135.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202135.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:2C841A75CA91277D90C3B39E83FF4DF1674E34E1
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202342.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202342.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:A97A0A16D35EA19B67B5FA578331056F5DB16658
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202791.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202791.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:89D7CEDC6B91F62BC2B5A9013AD26AE2651ACD28
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203075.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203075.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:2186830E79BAD6734885A11AE660719FA22D3638
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203320.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203320.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:16DC1346D8BCC4991101409A230C33345CB6BFB2
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204505.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204505.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:9F54DFA2001FC31082CF34799A459ACC246E4D12
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206548.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206548.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:802C2388C4B5E338F7AAFCA4868740CECA16F16E
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206928.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:43D51CADD4CBA21D9860A9EA2C16654002243736
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207050.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:1EE7BA6B79DF584D71C5018E51D75A54A94E0186
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207757.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ magnet:?xt=urn:btih:4764CC9180A5A524FA038B8856F4A74C3F84CEE3
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207766.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207766.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ magnet:?xt=urn:btih:8982BCAB4E0CF90529B5A37E072C51E3F794975D
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207769.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207769.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ magnet:?xt=urn:btih:AD6DA327C9746F410E291D881BC0DF5914666DB6
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207772.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207772.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:E3687140D360DC3ABD61980C20F559491C7468F6
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207780.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207780.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:31EE80950E802F3BC8C61C412E80EE6D76A8B7CB
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207791.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207791.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:E3BC303F8A9353263A928A9A7FB27696EFD94347
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207800.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207800.jpg" />
 </div>
 
 
@@ -442,7 +466,7 @@ magnet:?xt=urn:btih:AE38FE5F27D0B7E3FDE39D1034554E0F56DA4936
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208027.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208027.jpg" />
 </div>
 
 
@@ -466,7 +490,7 @@ magnet:?xt=urn:btih:2A479BEBAF83D2601D3E66F56F932660D323A663
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208160.jpg" />
 </div>
 
 
@@ -490,7 +514,7 @@ magnet:?xt=urn:btih:BE4A621C680E88AC67BD9E3EE40FB3C60317E083
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208659.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208659.jpg" />
 </div>
 
 
@@ -514,7 +538,7 @@ magnet:?xt=urn:btih:B83D817B4BE6B132C43B432CD41063BD27F349F3
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208815.jpg" />
 </div>
 
 
@@ -538,7 +562,7 @@ magnet:?xt=urn:btih:32412CA2BBD4637DDD839425F58C4C11DABFCC9E
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210431.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210431.jpg" />
 </div>
 
 
@@ -562,7 +586,7 @@ magnet:?xt=urn:btih:866E0AA7234CE59E4CC231E46E5EC0AE824E8CF9
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212291.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212291.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ magnet:?xt=urn:btih:8A5B277061E4EEAE212B7EBF9EE241ED49F8BA8B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212443.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212443.jpg" />
 </div>
 
 
@@ -598,30 +622,6 @@ magnet:?xt=urn:btih:8A5B277061E4EEAE212B7EBF9EE241ED49F8BA8B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8870A38A8C210C688128D42EB7AFF50617258546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355422   (215607) от 23.11.2020
-
-Берлин, Александерплац / Berlin Alexanderplatz (1980) DVDRip (серии 1-14 из 14)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в 1927—1928 годах. Франц Биберкопф выходит из берлинской тюрьмы Тегель после четырёхлетнего заключения за убийство своей подруги Иды. В первое время он испытывает животный страх перед окружающим миром, от которого он успел отвыкнуть; земля буквально уходит у него из-под ног. Через некоторое время, придя в себя, он решает стать честным человеком (   Читать дальше...   )Производство: ФРГ / Westdeutscher Rundfunk, Bavaria FilmЖанр: драма, криминалРежиссер: Райнер Вернер ФассбиндерАктеры: Гюнтер Лампрехт, Элизабет Триссенар, Карин Баль, Франц Бухризер, Петер Коллек, Бригиттэ Мира, Мэхтильд Гроссаман, Барбара Валентин, Ханс Цандер, Яак Карзункэ и др.Перевод: Двуголосый закадровыйПродолжительность: 04:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF00B7B9FCBFEA493B3E17E619185247B641DFD
 ```
 
 

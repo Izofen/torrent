@@ -1,3 +1,57 @@
+###  Публикация: 1666061   (179698) от 04.10.2023
+
+TIR - Молчи (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rap Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Двушка [00:02:51]
+02. Детка [00:02:39]
+03. Не обламывай мне кайф [00:02:49]
+04. Мой каждый новый день [00:03:04](   Читать дальше...   )Жанр: Indie Rock, Rap RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3318C36A51B49D0B64E823E7A156841985E68D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593583   (179758) от 28.11.2022
+
+VA - Рок зима (Russian Rock Legends) (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179758.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АукцЫон - Зима
+2. Чёрный кофе - Белый ветер
+3. Воскресение - Снежная баба
+4. Александр Градский - В полях под снегом и дождём(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF525C6976B0B2D283B474D63FA9D3528FC3BECD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593636   (179848) от 28.11.2022
 
 Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Pagan Metal>
@@ -6,7 +60,7 @@ Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179848.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ magnet:?xt=urn:btih:8FE2C7441A760230EE1FD7B376555A39A4BD93AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180327.jpg" />
 </div>
 
 
@@ -52,6 +106,33 @@ magnet:?xt=urn:btih:A32065AF1BDF1B93254E4F2F7CDDF93BAF7695FF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 218617   (181011) от 01.10.2023
+
+Агата Кристи - Эпилог (2010) [FLAC|Lossless]<Gothic Rock/Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эпилог (5:25)
+02. Письмо (5:18)
+03. Небытие (3:42)
+04. Подвиг (3:02)(   Читать дальше...   )Жанр: Gothic Rock/Art RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47192FAEA904A39B071E2722D8050BD9394F20DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593051   (181825) от 25.11.2022
 
 Операция Пластилин - Блэкаут (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:A32065AF1BDF1B93254E4F2F7CDDF93BAF7695FF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181825.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:77011DC8F4A18F1DD4F4C29D4534DBADCD434F9E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181836.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181836.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Monrau - Тишина, сделай громче (2022) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181924.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181924.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:6C9E36E6ECF33A14CF99D131A2E7B7CF3333AE87
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181953.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181953.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182009.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182009.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ magnet:?xt=urn:btih:1F69F123D5CFFC0B68F461310A239AFE5796900C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182380.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ magnet:?xt=urn:btih:DE0758C5B51502F18882DD1917AB9C9FB3846B92
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182543.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182543.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Shootki - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182563.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182563.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:20345252E1437CEFF89E462DBF2E1774AD78EF2F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183120.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183120.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ magnet:?xt=urn:btih:727CCEB604FBB14A34520C9A9089EB88B9E7EA7F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183201.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ magnet:?xt=urn:btih:1DC733C8F715112C467592B02311C291233DBE2E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183214.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183214.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ magnet:?xt=urn:btih:784D24E93C2C7ADC1B001773C095F76178EEB7B6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183238.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183238.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ Savage Soul - Suffering World (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183921.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183921.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ magnet:?xt=urn:btih:D4150CD2BBD78B8B58F8B56265BADAF4897FD9AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184582.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184582.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184635.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184635.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ magnet:?xt=urn:btih:31D1431CFBF2BA95AAFB62471175943C86368309
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184753.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ Drakon - П​р​о​б​у​ж​д​е​н​и​е (2022) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185113.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ magnet:?xt=urn:btih:AC89C4F4203C7F2FC6D9ED63B11A8A02EA7700C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185447.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ magnet:?xt=urn:btih:4657DF8534E651593AEDCE2DDD205E6B086328BC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185519.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185519.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ magnet:?xt=urn:btih:98CD347EE059A86ECAE78073C402C22498BAF14E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185528.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185621.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185621.jpg" />
 </div>
 
 
@@ -609,87 +690,6 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9078B332BBC9A601E028C3013B20E91FF6D71160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664214   (185966) от 25.09.2023
-
-public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ВСЁ_ПРОПАЛО [00:05:24]
-02. ВОССТАНИЕ_КОФЕМАШИН [00:05:55]
-03. ЖЁЛТОЕ_ФОРТЕПИАНО [00:03:45]
-04. ЗАРЯДКА_ДЛЯ_ХВОСТА [00:03:16](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD770909CB7E5A3E762F4738C1046BE796F2561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664308   (186002) от 25.09.2023
-
-Сны Африканца - Кислота (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мир 2.0 [00:03:56]
-02. Мертвая порномодель [00:03:43]
-03. Черное белым [00:04:53]
-04. От одиночества [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEC584236F1B7FB160CC4DF37D4E460C2BD9C64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663915   (186201) от 24.09.2023
-
-БГ+ (БГплюс) - БОГРУКИНОГ (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Стой Над Душой, Мама
-02. Чёрный Лебедь
-03. Незабыто
-04. Минск, Пинск и СеверодвинскЖанр: RockПродолжительность: 00:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C97789F723B2105B8156D337FC3B3008DB510F
 ```
 
 

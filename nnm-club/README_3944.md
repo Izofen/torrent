@@ -1,3 +1,75 @@
+###  Публикация: 1691855   (122226) от 18.01.2024
+
+Владимир Леонченко | Электронный словарь Санскрита Saudāmanī v5.0 Beta Free (2023) [EXE]
+
+>>Мультимедийные материалы
+>>Иностранные языки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот уже пять лет как я работаю над электронным словарем Санскрита. Конечно, программа, написанная мной не является чем-то особенным - она одна из многих, хотя, конечно же, я старался добавить в нее нечто особенное. И вот, пятая версия. Как раз по версии за год. Буду рад, если кому-то она окажется полезной в учебе, работе или в собственных исследованиях.Жанр: Санскрит,  Словари электронные.Язык: РусскийФормат: EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD75D19401136D35378D9F0121A109875ACC95E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692844   (122227) от 18.01.2024
+
+NVIDIA GeForce Desktop Game Ready 546.65 WHQL + DCH [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122227.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB7EACED68D4E3593D163AEBE132C140253B526
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692716   (122228) от 18.01.2024
+
+Старые знакомые (1956) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деревянные игрушки-футболисты, снискавшие печальную славу своей грубой игрой, решают вновь померяться силами с командой СМИ (секция мягких игрушек). Лишённые за плохую игру права выступать на футбольном поле, деревянные игрушки перекрашиваются в другие цвета и под видом новой команды ватерполистов принимают участие в матче с командой ватерполистов СМИ...Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, короткометражныйРежиссер: Мстислав Пащенко, Борис ДёжкинАктеры: Виктория Иванова, Юрий Хржановский, Юлия Юльская, Борис АндреевСубтитры: нетПродолжительность: 00:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7ACAB37025EF15EB1C3A83226A5BD5ED01DD4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692915   (122229) от 18.01.2024
 
 Paul Bonner | Артбук художника Paul Bonner / Out of the Forests: The Art of Paul Bonner (2007) [CBZ] [EN]
@@ -6,7 +78,7 @@ Paul Bonner | Артбук художника Paul Bonner / Out of the Forests: 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122229.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:AECA690C646548E39453971010392D8EB5416708
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122230.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:5A32E8B114E5F62C1098D314C1A36A61D83E3A00
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122231.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Ultimaker Cura 5.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122232.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Peter Jones | Артбук Солнечный ветер / Solar Wind (1989) [CB
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122233.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ TikTok 33.0.3 Lite-Mod by Dmitry Nechiporenko + Plugin 1.24.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122234.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Tony DiTerlizzi | Артбук художника Tony DiTerlizzi / Realms: The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122235.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ WSCC (Windows System Control Center) 7.0.7.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122236.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:8BD256AE28AE0917410A281D1F8B16BEB0BEB00E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122237.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:5E88414E0A822A980ED1D087B0E0C66C06AE7CFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122238.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:54890D1A5202BA852C410184F1C228C898F5B60E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122239.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122240.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Air Explorer Pro 5.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122241.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:0B82C88F7BE4883E6B0BD859B6E0855E0A8C7005
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122242.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:63AB536A27FD4D798AB940D4969D5C5B76D6185D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122243.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Microsoft Windows 11 [10.0.22621.3007], Version 22H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122244.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:210175E43FBDEDA0E50FDB013166BF84C55AD713
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122245.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:1DCE2AEDA5F3D13A5A09EEDA5404B8BD964C377A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122246.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Capture One 23 Enterprise 16.3.4.1884 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122247.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:72F7CC92A457E7CF0322C6D4937C35572B6FE600
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122248.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:C620C2325B0A66FE57ECA92044F3A873AA7D82DC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122249.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:BCACE10D36402E58F10AAD14E921DDF4D51039AE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122250.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:32A9A6A09A5731EC974D5295614BB03129CEECA4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122251.jpg" />
 </div>
 
 
@@ -554,79 +626,6 @@ magnet:?xt=urn:btih:32A9A6A09A5731EC974D5295614BB03129CEECA4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC6A95769E7A2266F608CD442A798EAC92E20D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692926   (122252) от 18.01.2024
-
-Vit Registry Fix Pro 14.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vit Registry Fix Pro - мощная программа для очистки реестра от ошибок и устаревших данных. Программа обладает мощным автоматическим средством сканирования и удаления ошибок самых разных типов. Vit Registry Fix может находить более 50 вариантов разновидностей ошибок в реестре.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A80FE7EA9D4684F2C2F539F470DE90B8E00F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692956   (122253) от 18.01.2024
-
-qBittorrent 4.6.3 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122253.jpg" />
-</div>
-
-
-###  Подробнее
-
-qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E84A570F7B03008560DE4EF04E02D25911F26A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692941   (122254) от 18.01.2024
-
-Семён Федосеев, Алексей Ардашев | Снайперы. Самая полная энциклопедия (2021) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122254.jpg" />
-</div>
-
-
-###  Подробнее
-
-САМАЯ ПОЛНАЯ ЭНЦИКЛОПЕДИЯ СНАЙПЕРСКОГО ИСКУССТВА. Не ремесла, а именно искусства! – ведь точность выстрела зависит от десятков факторов: времени суток и температуры воздуха, скорости и направления ветра, расстояния до цели, как падает свет, куда перемещаются тени…
-Искусство боевого снайпера окружено целым ворохом мифов и легенд и часто граничит с мистикой. Эффект (   Читать дальше...   )Жанр: Военное делоИздательство: ЯузаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD16E4A99C6767C0CD237A734A91108062F1026
 ```
 
 

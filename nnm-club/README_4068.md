@@ -1,3 +1,76 @@
+###  Публикация: 1687844   (125450) от 27.12.2023
+
+Катастрофа / El accidente (2017-2018) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-13 из 13) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cамолёт терпит катастрофу, и выживших в нём нет. Люсия уверена, что её муж Хосе тоже летел на нём, однако его нет ни в списках пассажиров, ни среди погибших. И Люсия начинает искать его. Ведя расследование, она понимает, что возможно действительно не знала своего любимого мужа и что вся её жизнь основана на лжи.Производство: Испания / GlobomediaЖанр: триллерРежиссер: Сандра Гальего, Иньяки Пеньяфьель, Давид Молина ЭнсинасАктеры: Инма Куэста, Ким Гутьеррес, Берта Васкес, Ален Эрнандес, Эусебио Понсела, Хорхе Бош, Джоэль Боскед, Пилар Гомес, Хоакин Нотарио, Элена Сеихо и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:20:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3837157B4044AAB9793F9B0A534CAD9B40AD9FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687785   (125451) от 27.12.2023
+
+Журнал | Квантик №12 (декабрь 2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125451.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CBAACB2BA0B8149E81C2D57772A97A95906316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687814   (125452) от 27.12.2023
+
+Джек Лондон | Мартин Иден (2007) [MP3, Илья Бобылёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый роман выдающегося американского писателя Джека Лондона (1876-1916) «Мартин Иден». Во многом, автобиографический, являющийся одним из самых читаемых произведений писателя, роман рассказывает о жизни человека из самых низов, ставшего знаменитым писателем. Но неожиданный успех не приносит Мартину удовлетворения. Он решает приобрести в Тихом Океане небольшой (   Читать дальше...   )Жанр: Классика, РоманИздательство: ИДДКПродолжительность: 18:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A744733FA6975874C65EE97AE64893B65B044F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687364   (125453) от 27.12.2023
 
 Chris Rea - Wired To The Moon (1984) Reissue, 1990 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
@@ -6,7 +79,7 @@ Chris Rea - Wired To The Moon (1984) Reissue, 1990 [OGG Vorbis|480 Kbps] <Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125453.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:8119DB80797B25615A38320171AA6CD6D400E595
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125454.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ VA - All New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125455.jpg" />
 </div>
 
 
@@ -85,7 +158,7 @@ Chris Rea - Shamrock Diaries (1985) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125456.jpg" />
 </div>
 
 
@@ -112,7 +185,7 @@ Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125457.jpg" />
 </div>
 
 
@@ -139,7 +212,7 @@ magnet:?xt=urn:btih:18E4FDF7CA3151ECF0FA68C055E60472B7C08D2A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125458.jpg" />
 </div>
 
 
@@ -164,7 +237,7 @@ Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125459.jpg" />
 </div>
 
 
@@ -190,7 +263,7 @@ Mildreda - Blue-Devilled (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125460.jpg" />
 </div>
 
 
@@ -217,7 +290,7 @@ magnet:?xt=urn:btih:7D59996F50FB1DA371A8E944766D3E2FBBD24AE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125461.jpg" />
 </div>
 
 
@@ -241,7 +314,7 @@ HandBrake 1.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125462.jpg" />
 </div>
 
 
@@ -265,7 +338,7 @@ magnet:?xt=urn:btih:15FA05418D2DDC430E4D263FBDD8CDB08379ADBB
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125463.jpg" />
 </div>
 
 
@@ -289,7 +362,7 @@ magnet:?xt=urn:btih:0739F94563E1444E9647D43602F91B4049CF0732
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125464.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ magnet:?xt=urn:btih:53257D473D26FF7E7BE50699A8F957378780E2D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125465.jpg" />
 </div>
 
 
@@ -340,7 +413,7 @@ Ashampoo Photo Optimizer 10.0.0.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125466.jpg" />
 </div>
 
 
@@ -365,7 +438,7 @@ magnet:?xt=urn:btih:63FA3FDCF3B3EA21D76D330691B358E89BED034D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125467.jpg" />
 </div>
 
 
@@ -389,7 +462,7 @@ magnet:?xt=urn:btih:D0AB950D83D181602EF72C1C70EA5340E853DDB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125468.jpg" />
 </div>
 
 
@@ -413,7 +486,7 @@ magnet:?xt=urn:btih:41C1D2AE86CF022B72CD6BA22CD18A9ADCE637AD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125469.jpg" />
 </div>
 
 
@@ -437,7 +510,7 @@ SoundSwitch 6.8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125470.jpg" />
 </div>
 
 
@@ -462,7 +535,7 @@ Freeplane 1.11.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125471.jpg" />
 </div>
 
 
@@ -486,7 +559,7 @@ magnet:?xt=urn:btih:54608CDD0E6B39A0B3964E4A905BA85902B7EE98
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125472.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ VA - 101 70s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125473.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ Rainbow - Essential (2014) Universal Music Group Studios - 5348106 [FLAC 24/44.1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125474.jpg" />
 </div>
 
 
@@ -569,7 +642,7 @@ magnet:?xt=urn:btih:A12979B8E3D352A8A0612B9F0A1E6D87DE1D7AEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125475.jpg" />
 </div>
 
 
@@ -580,84 +653,6 @@ magnet:?xt=urn:btih:A12979B8E3D352A8A0612B9F0A1E6D87DE1D7AEE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77AA006D41693CFB8D65013BF5DDA1625034469E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687838   (125476) от 27.12.2023
-
-Миги и Дали | Migi to Dali | Migi & Dali [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125476.jpg" />
-</div>
-
-
-###  Подробнее
-
-У немолодой супружеской пары наконец-то появился ребёнок! И пускай мальчик им не родной, а усыновлённый в приюте, но радости их всё равно не было предела. К тому же, ребёнок им достался просто замечательный. Их новообретённый сын Хитори и умный, и вежливый, и послушный — ну прямо настоящий ангелочек. Правда, у него есть маленький секретик. На самом деле, Хитори — (   Читать дальше...   )Производство: Япония / Студия Geek Toys, CompTownЖанр: Детектив, драмаРежиссер: МанкюЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Gomer, Kroxxa, Lupin (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF70DEF75A8FD82A65412909977A9A797232F9E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687315   (125477) от 27.12.2023
-
-Школа Врата Изиды, Иссэт и Андрей Котельниковы | Курс Проработка Луча Миссии (2019) HDRip [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Определить свое предназначение на земле, нащупать собственный путь – естественное стремление человека. Неоценимым подспорьем в его реализации может стать эзотерическая теория о Луче и Подлуче Миссии
-
-Данные лучи характеризуют основные задачи, миссию человека в этой жизни, путь, по которому надлежит пройти при жизни, а точнее об опыте, который ему необходимо приобрести (   Читать дальше...   )Производство: Школа Врата ИзидыЖанр: ЭзотерикаЯзык озвучки: РусскийПродолжительность: 09:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586DEAD5B7362BEC2CAF41D4A2EF984BC937CDD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687926   (125478) от 27.12.2023
-
-All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Ambient, Post Rock, Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Space Jazz (Diamonds Mix)
-02 – Ancient Invocations
-03 – The Western Plains
-04 – Longevity (feat. MANNERISMS & Emily Hopkins)(   Читать дальше...   )Жанр: Electronic, Ambient, Post Rock, Trip HopПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76343340DF5EBCFCBE5D14D0BAED9AB995AEB332
 ```
 
 

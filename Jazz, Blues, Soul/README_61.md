@@ -6,7 +6,7 @@ VA - Funky Jazz Saxophone (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103655.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Funky Afro Jazz Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103656.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103657.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - It's A Groovy Thing! Vol.5 (The Amazing Jazz Funk Afro Sound) (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103658.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Nu Acid Jazz Party For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103661.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103662.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103681.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103684.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103703.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103704.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Spec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103705.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103709.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103722.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103723.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ted Heath & His Music - Swing Is King! (1992) Limelight [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103726.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Charles Mingus - Something Like A Bird (1978) 2013, Atlantic [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103728.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103764.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Ai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103766.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103767.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lemon Pepper Hangover - Lemon Pepper Hangover (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103775.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Travis Bowlin - Hooks & Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103778.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Harlem Lake - The Mirrored Mask (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103779.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Dennis Herrera - Four (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103781.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ The Heavy Hitters - The Heavy Hitters (2023) Cellar Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103782.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Sexy Money on a Friday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103786.jpg" />
 </div>
 
 

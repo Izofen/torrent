@@ -6,7 +6,7 @@ The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [M
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123845.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ About a Boy (2023) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123856.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123858.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123876.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123938.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fates of Ort (2020) [En] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123953.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123970.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123978.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124023.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124053.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ballance / Баланс (2004) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124093.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124095.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124097.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.47140) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124115.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124123.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124127.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124144.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pronty (2021) [Ru/Multi] (3.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124242.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.02/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124300.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124316.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124379.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124407.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124413.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Six Ages: Ride Like the Wind (2019) [En] (1.0.12-1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124417.jpg" />
 </div>
 
 

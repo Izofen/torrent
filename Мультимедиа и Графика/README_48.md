@@ -1,3 +1,75 @@
+###  Публикация: 1650539   (207376) от 02.08.2023
+
+3DQUAKERS - Forester 1.5.2 (x64) For Cinema4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forester - это плагин для Maxon Cinema 4D, который предоставляет инструменты для создания природных элементов, таких как деревья, растения, камни, а также их геологического распределения на полигональной местности. Forester состоит из 4 модулей, а именно Forester Trees, Multiflora, MultiCloner и Forester Rock. Forester - один из лучших и наиболее успешных подключаемых (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081E903C7EAA5EC2958AEF4188E1FA51FF24C255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612144   (207378) от 14.02.2023
+
+MAGIX Sound Forge Pro 16.1.3 Build 68 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207378.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045230566154847BC35E6EF96ED99D425A977421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650216   (207578) от 31.07.2023
+
+Wise Video Converter Pro 2.3.1.66 (акция Comss)  [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Video Converter — эффективная утилита для конвертации любых форматов видео в один клик или с помощью перетаскивания видео в окно программы. Это делает переключение между устройствами более гибким. Используете ли вы смартфон, планшет или ПК, эта программа поможет вам проигрывать видео файлы на любом из них. Видео можно подготовить для его дальнейшего просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7813D6280C45829DF4270E5AFAD129264A41724C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610348   (207930) от 08.02.2023
 
 Klevgrand Plug-ins 02.2023 VST / VSTi, VST 3 / VSTi 3, AAX (x64) [En]
@@ -6,7 +78,7 @@ Klevgrand Plug-ins 02.2023 VST / VSTi, VST 3 / VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207930.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ DrawingBotV3 Premium 1.5.3 Retail [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208058.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208058.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Cartoon Art Batch 1.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208134.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208134.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Crescendo Music Notation Editor 9.62 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208308.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208308.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ DrawingBotV3 Free 1.6.1 beta + Portable [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208376.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ CartoonArt - Prima Cartoonizer 5.0.6 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208460.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Gaea 1.3.1.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208781.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208781.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Mixxx 2.3.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208783.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208783.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ UJAM Finisher Plug-Ins 01.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209000.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209000.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Hexachords - ORB Producer Suite 3.0.1 VSTi, VSTi 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209181.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209181.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Movavi Picverse 1.11.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209306.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209306.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ Adobe InCopy 2023 18.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209648.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209648.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ MAGIX Samplitude Pro X8 Suite 19.0.0.23112 + Sam INI Tool 3.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209743.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209743.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ Movavi Video Suite 22.4.1 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209776.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209776.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ Movavi Video Suite 22.4.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209798.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209798.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:24F822BCC5966A2D8A84613745A5BC97AE7486BC
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209954.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209954.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ Serif Affinity Designer 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209992.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209992.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Serif Affinity Photo 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210016.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210016.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210024.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210024.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Serif Affinity Publisher 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210040.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210040.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ Corel PhotoMirage 1.0.0.219 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210130.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210130.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ Synfig Studio 1.4.4 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210244.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210244.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ WinX HD Video Converter Deluxe 5.17.1 RePack (& Portable) by elchupacabra [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210360.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210360.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68195F8F2986608F4EDBFAFACC227DCB9587756A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603367   (210409) от 09.01.2023
-
-HitPaw Compressor 1.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210409.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Compressor - программа для быстрого и качественного сжатия видео и изображений.
-Быстро уменьшайте размер видео и изображения без потери качества. Легко сжимайте видео и изображения в одном местеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C001BB601D96365DE14B4D921A6F0538C3AEC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603370   (210411) от 09.01.2023
-
-HitPaw Object Remover 1.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210411.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Object Remover - позволит свободно и разумно удалять ненужные объекты из видео. Этот интеллектуальный инструмент будет автоматически отслеживать движения объекта с помощью AI Power.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF76A3988CC3309C97147EE03D4BFE00E46B8EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603354   (210438) от 09.01.2023
-
-HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободно и разумно удаляйте ненужные объекты из видео с помощью HitPaw Object Remover. Этот интеллектуальный инструмент будет автоматически отслеживать движения объекта с помощью искусственного интеллекта. Возникли проблемы с нежелательными объектами в вашем видео? С этим потрясающим ластиком для объектов все станет проще, когда вы захотите удалить объект с фона (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28338F5C9847194A55B101F2C723871B99ED05D
 ```
 
 

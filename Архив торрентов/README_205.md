@@ -6,7 +6,7 @@ Veeam Agent 6.1.2.134 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48808.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 5.2.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48821.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0FD76A7A8BBFB8E9001B4DB4361DC034DEF63491
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48830.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 (25.07.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48841.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Viber 23.2.0.2 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48860.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Macrorit Partition Expert 8.2.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48862.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:91EE2C1C7473742815F2243FAB1F05F51C567039
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48863.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Opera One 112.0.5197.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48864.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Topaz Video AI 5.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48865.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48868.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Firefox Browser 128.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48874.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ KMPlayer 2024.7.24.12 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48878.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wise Care 365 Pro 6.7.5.650 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48879.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ TikTok 35.6.3 Mod by Dmitry Nechiporenko + Plugin 1.45 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48880.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Skype 8.124.0.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48881.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ PDF-XChange Editor Plus 10.3.1.387 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48883.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48886.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ DefenderKiller 12.3 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48887.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:EBA454A1CE9D0D7E34B56025FDB1917F8AE41412
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48889.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Memento Database Pro 5.4.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48890.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48898.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Youtube Downloader HD 5.7.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48899.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Internet Download Manager 6.42 Build 17 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48901.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Adobe Premiere Pro 2024 24.5.0.57 (x64) Light Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48916.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Premiere Pro 2024 24.5.0.57 (x64) Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48919.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Opera One 106.0.4998.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126512.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PhpStorm 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126530.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Adobe Lightroom - Фоторедактор v9.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126533.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ JetBrains PyCharm Professional 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126546.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Tor Browser Bundle 13.0.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126550.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126563.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Google Chrome 120.0.6099.130 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126627.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FastStone Capture 10.4 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126629.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ LDPlayer 9.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126633.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Google Chrome 120.0.6099.130 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126643.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:4455BDD8BB1480BD6D89F2F288228B51944469D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126682.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E03048986BE827D4E97EA3ACBAB275EA0274ADEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PhotoRoom 4.7.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126735.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Waterfox Current G6.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126758.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PowerDirector – Video Editor v13.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126761.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ AR Ruler App: Линейка Рулетка v2.7.6 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126781.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ AIMP 5.30 Build 2533 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126801.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:4A3A10C67F20C1A2E774AE6927E131FBA2CDFA0B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126814.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ MF Ghost | MF Призрак [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126826.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Sandboxie plus 1.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126896.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ FileZilla 3.66.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126898.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Opera GX 105.0.4970.56 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126900.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Sandboxie 5.67.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126903.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Simple Sticky Notes 6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126915.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ WinMerge 2.16.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126920.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Subtitle Edit 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126921.jpg" />
 </div>
 
 

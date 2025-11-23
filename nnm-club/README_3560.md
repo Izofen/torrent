@@ -1,3 +1,75 @@
+###  Публикация: 1712120   (112242) от 02.04.2024
+
+Kingston SSD Manager 1.5.4.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingston SSD Manager — это приложение, предоставляющее пользователям возможность контроля и управления различными параметрами твердотельных накопителей Kingston.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA035934A9197DAE3A2A23F526F1E1393AC72AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712318   (112243) от 02.04.2024
+
+Максим Зарецкий | Лабиринт (Книга 4). Край (2024) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вихрь событий закручивается вокруг Края. Всё больше сильнейших именованных обращают на него внимание, а сам Лабиринт в это время готовится к чему-то грандиозному.Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46E0D6C4E20AB078AC9A740719A2B41B6BE2E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712370   (112244) от 02.04.2024
+
+TikTok 34.1.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.31 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112244.jpg" />
+</div>
+
+
+###  Подробнее
+
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, различные эффекты, шрифты, эмодзи, фильтры (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 01.04.2024Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA408B8DF6C2B7193F17F79E7BABFDB59F393E9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712355   (112245) от 02.04.2024
 
 Предчувствие / La Bete / The Beast (2023) TS [MVO] [AD]
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112245.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_112246.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_112246.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112247.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:BD7EF8156B196CBF37524FA46D91B32A475AB92A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112248.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:7CD62F13286558CF278DB06BDBDF4A96547EBBDC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112249.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:D352BD45C6EDB5723084D1E2C3C2A0901D0BE178
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112250.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:DE0B68BA3126C1CE9EBA4E797ECFCB95A5695488
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112251.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112252.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Tad Morose - Paradigma (1996) EP [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112253.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Shadow Limb - Reclaim (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112254.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Tad Morose - Modus Vivendi (2003) Japanese Edition, Reissue, 2004, Century Media
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112255.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ Tad Morose - Reflections (2000) Compilation, 2001,  Remastered, Irond Ltd. [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112256.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ Tad Morose - A Mended Rhyme (1997) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112257.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ Tad Morose - Undead (2000) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112258.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:0D0CD445549764C6324FA6462458C663324C655A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112259.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:A2DC45EC2845A6ADE1A9B1794A86707FE5572A8A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112260.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:5A1F2E453E0059F48869D5E9F8073888D7AE612B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112261.jpg" />
 </div>
 
 
@@ -435,7 +507,7 @@ magnet:?xt=urn:btih:B3DA5E54A3B597889A6CFE46C26FE75A327B92C7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112262.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ magnet:?xt=urn:btih:BE69D7CA34F8E4A03F05CD2562B3B5CEF2F79F2E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112263.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:E03F9B6C5DCF1A8FA130343FAAF193315CB631A0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112264.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ Text Edit Plus 14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112265.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112266.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112267.jpg" />
 </div>
 
 
@@ -575,83 +647,6 @@ Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A118829623CB1F3565C61F1E5B3EFC600B01045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712031   (112268) от 01.04.2024
-
-Марк Твен | Приключения Тома Сойера (2004) [MP3, Сергей Кирсанов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Марк Твен (1835–1910) – американский писатель.
-«Приключения Тома Сойера» (1876) – повесть о Томе и его друзьях. Том – мальчик из благонравной семьи, но ему не по вкусу жить по правилам провинциального городка, где мало места свободе и романтике. Он мечтает о вольной жизни, приключениях и подвигах. И поэтому никакие запреты взрослых (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 09:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C501234B14E5551921ED3E2537154509A26E5850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711920   (112269) от 01.04.2024
-
-Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture [04:25]
-02. Heaven On Their Minds [04:45]
-03. What's the Buzz? [02:26]
-04. Strange Thing Mystifying [01:54](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5415D2A9B362BB697C404A19CF425ECBB3A8456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711932   (112270) от 01.04.2024
-
-Закон и порядок / Law & Order (2000-2001) HDTVRip [H.264/720p] (сезон 11, серии 1-24 из 24) FOX Crime
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (FOX Crime)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59B3DF429C17D10114E7FBFDA20B96E00A140E8
 ```
 
 

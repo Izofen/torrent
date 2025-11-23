@@ -6,7 +6,7 @@ Radiant Photo 1.4.1.502 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46480.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare PDFelement 11.0.5.3099 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46515.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46531.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Foxit PDF Editor Pro 13.1.3.22478 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46541.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [17.08.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46543.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:EDF7498A98CAF5AB3A72B55D7B2F0CE75890BDA7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46559.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Corona Renderer 12.1 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46570.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Abelssoft SSD Fresh Plus 2024 13.02.56042 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46574.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Foxit PDF Editor Pro Subscription 2024.2.3.25184 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46577.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PageEdit 2.3.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46591.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sigil 2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46593.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ StartAllBack 3.8.4 build 5136 (DC-15-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46594.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ FinePrint 12.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46596.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46607.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46612.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46615.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Acrobat Pro 2024.002.21005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46648.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Acrobat Pro 24.002.21005 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46655.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ OpenVPN 2.6.12 (11.08.2024) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46670.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46679.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wondershare Filmora 13.6.6.8453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46682.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Telegram Desktop 5.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46689.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46691.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ IObit Smart Defrag Pro 10.0.0.399 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46703.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Google Chrome 127.0.6533.120 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46717.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Winxvideo AI 3.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46727.jpg" />
 </div>
 
 

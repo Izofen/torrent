@@ -1,3 +1,76 @@
+###  Публикация: 1694752   (120900) от 26.01.2024
+
+Зона комфорта (2023) WEBRip [H.264] (сезон 3, серии 1-7 из 7)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пpиключения бизнесмена Ярослава Кострова из Мурманска, попавшего в норвежскую тюрьму за контрабанду алмазов, продолжаются. После побега и падения с дельтаплана, он выжил, а значит проблем у него стало еще больше…Производство: Россия / Medium Quality ProductionЖанр: комедия, скринлайфРежиссер: Михаил ШулаевАктеры: Екатерина Молоховская, Гарик Харламов, Степан Девонин, Ирина Серова, Евгений Сытый, Ульяна Чжан, Кай Алекс Гетц, Павел Алексеев, Екатерина Шкуро, Татьяна Лялина, Сергей Ланбамин, Евгений СыркинСубтитры: отсутствуютПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4FDE716F04A8F90B137951A6D8C956836D7796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436199   (120901) от 26.01.2024
+
+Кир Булычёв | Козлик Иван Иванович (2007) [MP3, Лиля Муслединова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Мировая фантастика от А до Я» из цикла «Алиса Селезнёва».
+Повесть Кира Булычёва «Козлик Иван Иванович» продолжает цикл книг о приключениях Алисы Селезнёвой – девочки из будущего. Невероятно скучно сидеть дома в хорошую погоду и зубрить марсианский язык. А так хочется приключений! Но ведь если чего-нибудь сильно захотеть, это обязательно исполнится. На этот (   Читать дальше...   )Жанр: Русская литература для детей, фантастическая повестьИздательство: Говорящая книгаПродолжительность: 05:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E200D0E16240A33FF850AAB3A88BD5D42BDD6D68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694708   (120902) от 26.01.2024
+
+Анчартед: На картах не значится / Uncharted (2022) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю происхождения Нейтана Дрейка, главного героя серии видеоигр Uncharted, созданной компанией Naughty Dog. Нейтан Дрейк и Виктор «Салли» Салливан, два искателя приключений, отправляются на поиски величайшего сокровища мира. Кроме того, они надеются найти улики, которые приведут их к давно потерянному брату Нейтана.Производство: Испания, США / Columbia Pictures, Atlas Entertainment, Arad ProductionsЖанр: приключения, боевикРежиссер: Рубен ФляйшерАктеры: Том Холланд, Марк Уолберг, Антонио Бандерас, София Али, Тати Габриэль, Стивен Уоддингтон, Пинги Моли, Тирнан Джонс, Руди Панкоу, Хесус ЭвитаПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC7EDE2E9EDE8A3FD9DD4DFB0B3963BF3584075
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694694   (120903) от 26.01.2024
 
 Плохие парни / Bad Hombres (2024) WEBRip [H.264/1080p] [звук с ТS] [AD]
@@ -6,7 +79,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120903.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:EE355A60CFB61FB942843DDD2F03BE6B4F0A7410
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120904.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:D9F2AE4A2BB467C53D800582ABB7AB88392B5D79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120905.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:9A019A6DDBD0275E183AE99708B339576BE8C9BF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120906.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:33A7EE8B52E126CC60D348016EEDB9EBF3E9E76A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120907.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:F5058126D39825926E53C17886A5DB59F2A21419
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120908.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:9FF7D2536F9C98362A6CB0BEB277723D99120E30
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120909.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120910.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:88AA8BCDC60679E2DCBC20DBC9FADC5096586F4D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120911.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:226E3C1FB043EA04ED2187C02C52885A49C64888
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120912.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:0F5A6F0A0CC9845A27B246C73C4C679F5D93BEA9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120913.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ magnet:?xt=urn:btih:F7DBFB7388C066D8761C33C5FB9946AC469317A0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120914.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120915.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:45028430A5505E5E058242FBCD085BB6BC4A8574
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120916.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ magnet:?xt=urn:btih:A3E68CB9A9C0E73A6607295EB9E546D4DD0CDADA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120917.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120918.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Modern Tweaker 2.0 Final (25.01.2024) Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120919.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120920.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ magnet:?xt=urn:btih:0F8B9BBC902C09CF63BFF8930641D7FD4AB0C247
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120921.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:3654239CF881F869B756C002B7360C6A41D8F033
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120922.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ magnet:?xt=urn:btih:5F34DACA4ED6E0F02080E535255FFF5F7AC887F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120923.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120924.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120925.jpg" />
 </div>
 
 
@@ -556,84 +629,6 @@ Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B180B0FDBB6DF549D09ACF5DB6017A86CD209893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694333   (120926) от 25.01.2024
-
-Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thief Known For Stealing Hearts  (3:44)
-02. If Only For A Day  (3:38)
-03. Paper Bag  (4:07)
-04. Spoonful  (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3BE70D8E8327CCBEBA8EF68B5A94B99EB0CB84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694417   (120927) от 25.01.2024
-
-Musify for Mac 3.5.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Musify — лучший конвертер YouTube Music, который может загружать музыку с более чем 1000 веб-сайтов обмена музыкой для прослушивания в автономном режиме без потери качества звука. Такие как: YouTube, Spotify, SoundCloud, Facebook, Instragram и другие. Легко конвертируйте музыкальные файлы mp3, в форматы для  iPhone, iPad, iPod, Samsung и другие устройства iOS и Android. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © Copyright 2023 iTubeGoПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6575CA6F89740BC00B88E2B82E96F3858797005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694343   (120928) от 25.01.2024
-
-Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shark Skin Suit (3:58)
-02. Samosas & Kingfishers (5:15)
-03. A Day In L.A. (4:20)
-04. Killzoni (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E72E28684FCBC364151980F5D0DEFA5E7EB165
 ```
 
 

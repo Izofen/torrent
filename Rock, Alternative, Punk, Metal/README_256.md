@@ -6,7 +6,7 @@ GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160687.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160688.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Saboter - Mankind Is Damned (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160689.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160690.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160691.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160692.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160693.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160694.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Red Harvest - New World Rage Music (2001) Promo CD [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160697.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ HateFrame - Sign of Demise (2005) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160699.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Skarz - What Remains (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160700.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6722215B68156F01EEEF63C8661E1B076D4B095B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160703.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:8C118599783302BA49335809E537D1B4A07E1AEC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160708.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:44C25B6413D6B4B3940480068BC50B695FC4AB73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160716.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:083760FAB2B55CF41254B28E8C344F81A7C26016
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160733.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Def Leppard - The Story So Fa (2018) Japanese Edition, 2 x CD, Compilation, Reis
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160803.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Steve Pope - The Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160855.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Two Witches - The Singles Collection (2005) [FLAC|Lossless|image + .cue] <Gothic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160863.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gutter Creek - Fangs To The Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160869.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Two Witches - Bites (1995) [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160870.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fleurety - Min Tid Skal Komme (1995) Remastered 2019 [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160871.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cosmitorium - Broken Archetypes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160872.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Acrid - Amalgamate (1999) Reissue, 2017, Self-released [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160873.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ ZveroБой (Зверобой) - Родина (2018) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160979.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160989.jpg" />
 </div>
 
 

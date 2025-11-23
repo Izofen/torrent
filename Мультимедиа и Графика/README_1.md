@@ -6,7 +6,7 @@ DumboFab Blu-ray Ripper 7.3.1 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2026.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CyberLink AudioDirector 2026 16.0.5703.0 Ultra (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2029.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PotPlayer 250909 (1.7.22619) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2086.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DxO PhotoLab 9.0.2 build 68 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2217.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2219.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite RePack by KpoJIuK [Ru/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2229.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ XMedia Recode 3.6.1.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2308.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Perfectly Clear WorkBench 4.8.0.2852 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2377.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ashampoo Photo Optimizer 11.0.0.10 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2380.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ K-Lite Codec Pack 19.2.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2391.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Aiseesoft Video Converter Ultimate 10.9.18 RePack (& Portable) by elchupacabra [
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2492.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Freemake Video Converter 5.0.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2498.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ashampoo Music Studio 12.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2505.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PotPlayer 250910 (1.7.22613) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2521.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ KMPlayer 4.2.3.25 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2525.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PotPlayer 250910 (1.7.22613) (x64) RePack (& portable) by 7sh3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2546.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:0E0E5332659FAD40D407407F162950EF1CED716B
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2651.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MKVToolNix 95.0 Stable + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2663.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2668.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Luminar Neo 1.24.7.15515 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2831.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Cinema 4D 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2838.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FireAlpaca 2.13.25 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3011.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3026.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3028.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3037.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:6B10068A8B9BF20A9142CF793BF7A5C5F34F2E90
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3064.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11758.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76109AFB9D4EBB36ADF4D1C026368413169ECB43
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11765.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TikTok Private Plus v40.8.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11770.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wondershare PDFelement 11.4.24.3620 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11771.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Vanced Tube v5.4.80.158 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11773.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ByeByeDPI v1.6.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11792.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Acrobat Pro 2025.001.20566 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11793.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ By Click Downloader Premium 2.4.23 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11830.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AnyDesk 9.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11832.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Adobe Acrobat Pro 2025.001.20566 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11853.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Purvpn 7.9 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11856.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11862.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:8243D2B5DF624E40CA82481AEE4E0DD39B576C8D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11863.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:29B88B435C73D780F58CD825397631E03A884DE4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11865.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11871.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C84E85310361549B1F52CDEE24BFB23D65CA523D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11872.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11876.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11890.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11898.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Apowersoft Video Download Capture 6.5.9.1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11925.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.8 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11937.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.49 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11943.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C73901D41BF2F7FFE81AD59B99A817F15BFE61F8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11951.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MediaHuman YouTube Downloader 3.9.14 (0807) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11952.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Total Commander 11.55 Extended 25.7 Full / Lite RePack (& Portable) by BurSoft  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11966.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Proton VPN 5.12.32.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11975.jpg" />
 </div>
 
 

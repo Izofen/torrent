@@ -1,3 +1,75 @@
+###  Публикация: 1525102   (130047) от 19.01.2022
+
+Питер Мейл | Хороший год (2020) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год у Макса не задался. Он лишился работы и надежды расплатиться с долгами. И вдруг он получает в наследство усадьбу дяди Генри в Провансе с обширным виноградником. Макс едет туда, намереваясь побыстрее продать землю и дом. Однако жизнь в Провансе пришлась ему по вкусу, к тому же все его мысли теперь занимает красавица Фанни, независимая и своенравная. Внезапно из (   Читать дальше...   )Жанр: Легкая проза, Современная зарубежная литератураПеревод: Инна СтамПродолжительность: 09:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456974194FB22B24333FC7755629F158D4374BF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491009   (130048) от 02.05.2012
+
+Adobe Photoshop CS6 13.0 RePack by MarioLast (32-bit) [Русский, Украинский, Английский] (Сборка от 02.05.2012)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации графики, цветоделения и т.д. Adobe Photoshop располагает всеми методами работы с точечными изображениями, при этом имеет возможность работы со слоями и использует контуры. Программа является безусловным лидером среди профессиональных графических редакторов за счет своих широчайших возможностей, высокой эффективности и скорости работы. Adobe Photoshop предоставляет все необходимые средства для коррекции, монтажа, подготовки изображений к печати и высококачественного вывода.Название программы: Photoshop CS6Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525276   (130049) от 19.01.2022
+
+Янн Мартел | Жизнь Пи (2020) [MP3, Денис Белых]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130049.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Жизнь Пи" почти мгновенно стала легендой. Книга получила престижные премии и собрала вокруг себя целый культ поклонников. Фантастическое путешествие юноши и бенгальского тигра, описанное в романе, перекликается с повестью "Старик и море", с магическим реализмом Маркеса и с абсурдизмом Беккета. Книга стала не только бестселлером, но и символом (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Анна И. Блейз, Игорь АлчеевПродолжительность: 10:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71871673742E62B56FDD7265D61FBC5310CCDE51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525109   (130051) от 19.01.2022
 
 Неугасимая лампада (изд.) | Введение во храм Пресвятой Богородицы [История. Богослужение. Акафист. Слово пастыря] (2015) [PDF, DJVU]
@@ -6,7 +78,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130051.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:15DA81F314A4885A6198F153A8D81F75FB79420E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130052.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130053.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ TunesKit Video Cutter 2.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130055.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Filmage Screen-Screen Recorder 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130057.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130059.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ magnet:?xt=urn:btih:0C8238804D6DD30ED08E3F61F4B7A986295C7DA3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130060.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130061.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 | R.G. UniGa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130065.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:42EF4B19309DEA19675F865AD55A6901747D0D29
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130066.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ CD 1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130068.jpg" />
 </div>
 
 
@@ -286,7 +358,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|tracks|Web-DL] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130070.jpg" />
 </div>
 
 
@@ -313,7 +385,7 @@ magnet:?xt=urn:btih:2921FB762C8AA22F946F5CDD6D5E5BB96FB800FF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130072.jpg" />
 </div>
 
 
@@ -337,7 +409,7 @@ ByClick Downloader Premium 2.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130074.jpg" />
 </div>
 
 
@@ -361,7 +433,7 @@ magnet:?xt=urn:btih:F7945FACF69C6AEE0C35931D50C07D803CE1D693
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130076.jpg" />
 </div>
 
 
@@ -385,7 +457,7 @@ magnet:?xt=urn:btih:43406E10B3501465B0BA3C9E9D9DA977E8CFFBF8
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130077.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ WonderFox HD Video Converter Factory Pro 24.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130078.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ magnet:?xt=urn:btih:1B7CD43BB271E71CFD74598568FE701553C14470
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130079.jpg" />
 </div>
 
 
@@ -457,7 +529,7 @@ Pale Moon 29.4.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130080.jpg" />
 </div>
 
 
@@ -481,7 +553,7 @@ magnet:?xt=urn:btih:3C244C82227114DCF5C1D5D4D7C268B1075AF707
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130081.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Sonic Charge - Microtonic 3.20 VSTi  [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130082.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130084.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ magnet:?xt=urn:btih:1187CF2563CB7BB507F185B4EEABCA998088E5B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130086.jpg" />
 </div>
 
 
@@ -569,81 +641,6 @@ magnet:?xt=urn:btih:1187CF2563CB7BB507F185B4EEABCA998088E5B9
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525154   (130087) от 19.01.2022
-
-PSPaudioware - PSP Plugins Bundle 01.2022 VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор VST плагинов от PSPaudioware для обработки звука и мастеринга.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E2155242F663A7CFCCF6662914CA4E3BCA914D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525257   (130088) от 19.01.2022
-
-Российский аудиофонд | Коллекция "Старое Радио" [Е] (2022) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 217:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AF1A5DCE772899957CF1D5C024F96E87F573B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525114   (130089) от 19.01.2022
-
-The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Honey (Live) (03:33)
- 02. The Living End (Live) (02:20)
- 03. Taste the Floor (Live) (03:34)
- 04. The Hardest Walk (Live) (02:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED32CE9BA8C61FB6B6006FC47319FB7BC34BD9A3
 ```
 
 

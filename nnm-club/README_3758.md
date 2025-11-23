@@ -1,3 +1,78 @@
+###  Публикация: 1700049   (117390) от 15.02.2024
+
+TinkerTool System 8 v.8.9 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117390.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Marcel BresinkПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FC76426DF7B5632142591E2F1B4C5A69343948
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699905   (117391) от 15.02.2024
+
+Cesare Verdacchi - Psychotrip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychotrip (2:59)
+02. Ball and Chain (4:15)
+03. Free Man (4:22)
+04. Fall (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D14C49EF9D2F7332AD1252E2C473802CFC4604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699852   (117392) от 15.02.2024
+
+Valentina Studio Pro 13.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: 2001 - 2024 Paradigma SoftwareПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4F29CCBF9BCC2D6C39D6A8119EBF4372522705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699850   (117393) от 15.02.2024
 
 SponsorBlock for YouTube 5.5.5 [Multi/Ru]
@@ -6,7 +81,7 @@ SponsorBlock for YouTube 5.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117393.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Pocket cleaner Pro 1.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117394.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ Air Printer - Printer Server Pro for Mac 5.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117395.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:F5A46F2EEDB03426DB22883176D56F3A8D5CAF56
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117396.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ The Twin Souls - Family & Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117397.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Anthony Phillips - Private Parts & Pieces IX-XI (2018) 4CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117398.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117399.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ RazorSQL 10.5.3 iNTEL/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117400.jpg" />
 </div>
 
 
@@ -209,7 +284,7 @@ KCNcrew Pack 02-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117401.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Directory List & Print Pro 4.30 + Standalone [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117402.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:DA37F3EB14E4EC8194E5DA0B5F4B8AB189455440
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117403.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ Perfectly Clear WorkBench 4.6.0.2639 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117404.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:1AAEC024C1A0A16AE317EC9B795979DB14338771
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117405.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ Achilles - There Will Be Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117406.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ magnet:?xt=urn:btih:A69BB3F1D2C2C6034EE91CAC5E196A0A30DA3427
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117407.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ magnet:?xt=urn:btih:CC71C75D0E8183D2AC56973182EDF6F7CECC8D0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117408.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ magnet:?xt=urn:btih:3DF1EE2A425254D0ACDF8014998432425CAF5770
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117409.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ Paul Rodgers - Midnight Rose (2023) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117410.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ magnet:?xt=urn:btih:B75A0DF67A8F3D1613B86CDC9DD341D5B9C231CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117411.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ Emurasoft EmEditor Professional 23.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117412.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ K-Lite Codec Pack Update 18.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117413.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ magnet:?xt=urn:btih:282C7B4A247D63BC788A5755750E1C1505116D92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117414.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ magnet:?xt=urn:btih:282C7B4A247D63BC788A5755750E1C1505116D92
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117415.jpg" />
 </div>
 
 
@@ -571,81 +646,6 @@ magnet:?xt=urn:btih:282C7B4A247D63BC788A5755750E1C1505116D92
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2608BB5B26419E46478D92BA765660BFF9C3E5AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700110   (117416) от 15.02.2024
-
-Honeymoon Suite - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (2:42)
-02. Find What You're Looking For (3:15)
-03. Done Doin Me (2:53)
-04. Not Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC08A391AD787E32235AFE7965550361D0F28BDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699996   (117417) от 15.02.2024
-
-Fort Firewall 3.11.6 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4B93F124914DB1CC50B6764C9428E882E2C28A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700080   (117418) от 15.02.2024
-
-Эрл Виккерс | Доллар за душу (2024) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117418.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Актуальный курс обмена человеческой души на деньги - 1 доллар за душу. Предприимчивый Джордж, уверен, что сможет скупить все души до последней на своем курсе просто ради спора с товарищем. Такому успешному ведению дел позавидовали бы в самой загробной канцелярии..." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C60F4BE5A251A17DDD06C8D5A62E0A52B4E04D
 ```
 
 

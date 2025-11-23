@@ -1,3 +1,111 @@
+###  Публикация: 1649764   (216114) от 13.08.2023
+
+Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orphaned Land — израильская рок-группа, объединяющая в своем творчестве элементы европейского метала и народной музыки Ближнего Востока.1993 - The Beloved's Cry
+1994 - Sahara
+1996 - El Norra Alila
+2004 - MaboolЖанр: Doom/Death/Middle Eastern Folk MetalПродолжительность: 11:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652456   (216793) от 12.08.2023
+
+VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216793.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
+А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
+А3 Кристоф - Рука За Руку • Ръка За Ръка
+А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651801   (216910) от 12.08.2023
+
+Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216910.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shake, Rattle & Roll
+A2 See You Later Alligator
+A3 Be Bop A Lula
+A4 Good Rockin' Tonight(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D96FA5D25F62C8B3C9AEC976E2B649BE935301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651323   (217708) от 11.08.2023
+
+VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Диана Експрес • Наследство
+A2 Вокална група ''Трик'' • Ако Държиш На Мен • Если Я Тебе Нужна
+A3 Трамвай №5 • Старият Град • Старый Город
+A4 Дует ''Акварел'' • Обич Неизбежна • Неизбежная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D83ACBC3B7D27A92BC85A6A507A68B677E5959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652169   (217891) от 11.08.2023
 
 VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Pop, Acoustic, Soft Rock>
@@ -6,7 +114,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217891.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218906.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219319.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219328.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219366.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219510.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219510.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219557.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219557.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219574.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219574.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219713.jpg" />
 </div>
 
 
@@ -273,7 +381,7 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219758.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219758.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Great White - Studio Albums (14 releases) (1991 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221365.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221365.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221879.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221879.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222548.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222548.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222635.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222635.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222673.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222893.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222893.jpg" />
 </div>
 
 
@@ -460,7 +568,7 @@ VA - ''Не люблю прощания'' - Песни на музыку Иго�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223061.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Ac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223122.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223122.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224575.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224575.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224804.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -568,7 +676,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -582,114 +690,6 @@ A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267991   (227654) от 10.12.2018
-
-Кино - Атаман (2018) [DSD2.0|11,28MHz/1bit|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227654.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман (версия 2012 г.)
-[3:04] 02. КИНО - Атаман (версия 1990 г.)
-[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CD
-(   Читать дальше...   )Жанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965009   (227704) от 13.12.2015
-
-Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Can't Stand The Rain  6:30
-2. Movin'  4:24
-3. I'll Take You There  2:52(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583598   (227970) от 16.10.2022
-
-VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227970.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Dooley Family – Hands Across The Sea
-A2 The Dooley Family – Sha La La Lullaby
-A3 The Dooley Family – Oo-Pa-Pa-Doo
-A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648182   (228434) от 29.07.2023
-
-VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FLAC|24/192|image + .cue|Vinyl-Rip]] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228434.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Edward Van Halen - Donut City
-A2 Hanover Fist - Metal Of The Night
-A3 Charlie Sexton With Ron Wood - It's Not Easy
-A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
 ```
 
 

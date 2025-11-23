@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18628.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:498436151CA8F5E2236637198A3D98FE5486A560
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18629.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E196B8F9B9E690A008F76377AC98AD922F024336
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18630.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8E76D9C2AB149623EF12C3955214B88A4A8EF05D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18631.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6AA901EC1AE6D8C1D22AD1B5B2CE6E244DC54BBF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1F3A60A34F3B13E3016A342D7092157E02D43AD4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18633.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18634.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3EE3E4B49A1D904B555BA762A83A3FBE3681A61B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18635.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EFE27322C9B9714FC46689D2CAA08B56650C9CC9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18636.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Speedtest от Ookla v6.1.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18637.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:91FF69A79C553C97A73A3CFC1DD98D0C800446D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18638.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D9DD2049634FA52C7BCBB27225885D39135D18B2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18639.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2D112AEF0A6F5B36C7C17CBB2F78FDAEA788C41F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18640.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:6F222650DCED10570CDBEE0343E75DF6AB905D6E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18641.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sting - 3.0 Live (2025) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18642.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ USB Device Tree Viewer 4.5.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18643.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:832EFA3898FAFCEABA040768355AB47E6CDFF0FD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18644.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:9B328D8C9E651404A4AFE91B51BBAEF892D10E4F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18645.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - ЕвроХит Топ 40 Europa Plus 09.05.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18646.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:BC609A6937CED616B465571B52E99BAA5366C424
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18647.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0B50F4F0A79B7F212804DB66E36C94624C5F5BB2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18648.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Windows Manager 2.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18649.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.11.6 Stab
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18650.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:32B25F8E11905811CADF563A4378E522EE480CA7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18651.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18652.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18653.jpg" />
 </div>
 
 

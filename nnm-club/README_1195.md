@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:03C03478D00C30F8260AA77F3660AB007AE423EE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D34DE4F40962A174268BF5D04B60A8E623271A7B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D34DE4F40962A174268BF5D04B60A8E623271A7B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31426.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5087F1A3AF403EAFA60D0555F1CF70A01B831966
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31427.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31428.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31429.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:8115BE693B5A3D11E65D8310551B09F6A802B9E8
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31430.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:9EFFC01B8EAAEFCA55BCE2C7E9778AA0A67C12DC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31431.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Red Button 6.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31432.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CE76EB74082C55ACD0C0EED37043859E8CD1F452
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31433.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Horizon: Zero Dawn (2020) [Ru/Multi] (1.0.10.5/dlc) Repack xatab [Complete Editi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31434.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.7 51 47889/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31435.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:CB4C839105AFF6A7A834CB9452F6566CE5E812BD
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31436.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Returnal (2023) [Ru/Multi] (1.0) License FLT
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31437.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (1.1121.0.0/dlc) Repack O
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31438.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (10776131/dlc) Repack dixen18
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31439.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (10776131/dlc) Repack dixen18
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31440.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Notification Widget v1.5.162 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31441.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Product University, Виталий Капранов, Егор Котельник
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31442.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:1B8D10E848445D14CE33965AB02D9ABBDC70AB53
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31443.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5B8D00ECF2EAAA168AC5A41665873B4149298898
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31444.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B2E42CFF85260034AC835A07EDC80AF744DC11AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31445.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:CB9968EEED8C49E8C6A86DBAE30339E755A6B2F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31446.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:73E74561BD07DDC0BB8EF23DD02D27FA3225288A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31447.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:641F845E02D9D99BD2126FAA56D0E46A900B1859
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31448.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31448.jpg" />
 </div>
 
 

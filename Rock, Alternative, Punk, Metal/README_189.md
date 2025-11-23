@@ -6,7 +6,7 @@ Cain's Dinasty - Hollow Earth (2015) Reissued 2017 Japan Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123795.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bull Angus - Bull Angus (1971) Reissue, 2010, Mandala [FLAC|Lossless|tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123804.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Two Are One - A Question Of Time (1995) Reissue, 2018, Minotauro [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123897.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kharmaguess - 9 Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indust
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123898.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Angr - II (2023) [MP3|320 Kbps] <Black Metal, Death Metal, Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123899.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Giant Crossman - Time Bending Mass (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123900.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Omicron - Entropic Entity (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123901.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Without Face - Astronomicon (2002) [FLAC|Lossless|image + .cue] <Progressive Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123902.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Even Vast - Teach Me How to Bleed (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123903.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123904.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ After Apocalypse - After Apocalypse (2015) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123905.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Stefan Gunnarsson - Stefan Gunnarsson (2010) [FLAC|Lossless|image + .cue] <Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123906.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Luzbel - Anthología Perdida I (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123907.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Pages - Pages (1981) Japanese Edition, Reissue, Remastered, 2001, Capitol Record
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123915.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123920.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123923.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123924.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123942.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Lucifer's Friend - 13 Albums (1970 - 2019) 18 CD [FLAC|Lossless|image + .cue|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124018.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Krabathor - Lies & The Rise of Brutality (2014) Compilation [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124028.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Krabathor - Orthodox (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124029.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Krabathor - Unfortunately Dead (2000) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124030.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Krabathor - Dissuade Truth (2003) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124031.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Atomic Freak - Nuclear Meltdown (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124034.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124048.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124049.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1779.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1780.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1781.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1782.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1783.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1784.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1785.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1786.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1787.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Paradise Lost - Ascension (2025) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1788.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1789.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1790.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1791.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - 100% Ibiza (The Beach Club Closings 2025) (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1792.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ The Hoochie Coochie Men - For A Good Time Call (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1793.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wailin' Walker - Blues Lightnin' (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1794.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Mississippi Black Snakes - White Buffalo (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1795.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:DCB83EF2CCA71F1F2A919E3E8A5EEEAEDF486497
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1796.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Mystix - Dream Girl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1797.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:19CFE47C508F1A3817F2FFDB5C8941D430F902C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1798.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:B225B07CDF5FB284E878C5FF9BBBE910E8B29B37
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1799.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:66552D8651178E215811AB1A08AF4AE93A6A1256
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1800.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ John Haydock - More Best of Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1801.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ John Haydock - Reckless Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1802.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:83CB13AA36753108E8D8C0091311D173E1FFDF1D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1803.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Xezzo - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1804.jpg" />
 </div>
 
 

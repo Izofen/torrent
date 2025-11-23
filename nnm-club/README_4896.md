@@ -1,3 +1,180 @@
+###  Публикация: 968801   (151725) от 25.12.2015
+
+VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Maguire - It's Complicated (Original Mix) (7:45)
+02. Pablo Anon - Andromeda (Original Mix) (6:44)
+03. Billy Rutts - You're the Cause (Original Mix) (7:24)
+04. Ian Buff - Whatever Whenever (Original Mix) (6:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DF0CBEFD15BA6B7DC4B45524B108D59574AF09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601239   (151727) от 30.12.2022
+
+Череп и кости / Crossbones (2014) BDRemux [H.264/1080p] (сезон 1, серии 1-9 из 9) Рен-ТВ, LostFilm, AlexFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о приключениях пиратов XVIII века снят по мотивам книги Колина Вударда «Республика пиратов». События разворачиваются на одном из багамских островов, Нью-Провиденсе в 1715 году, где вовсю процветает пиратство. На острове обитают злодеи-моряки, преступники и воры, а заправляет всем народом пират Эдвард Тич, которому дали прозвище Черная Борода. Но появившаяся (   Читать дальше...   )Производство: США / Mr. Cross, P + M Image Nation, Universal TVЖанр: Боевик, драма, приключенияРежиссер: Дэниэл Эттиэс, Киаран Доннелли, Деран СарафянАктеры: Джон Малкович, Ричард Койл, Клэр Фой, Ясмин Эл Массри, Дэвид Хофлин, Крис Перфетти, Трэйси Айфичор, Питер Стеббингс, Омар Крус Сото, Ali Akbar SepahiПеревод: Дублированный (Рен-ТВ), Профессиональный многоголосый (LostFilm, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C969030677A875DED42B060F96DDEA301259A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271161   (151728) от 22.12.2018
+
+Экшены - GraphicRiver - Fur Generator - 17711137 [ABR, ASL, ATN, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fur Generator - это Фотошоп экшен, вы можете превратить текст и фигуры в мех.Формат: ABR, ASL, ATN, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1522A4067C91564F3D4A9FBA116238098CC603E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677104   (151729) от 16.11.2023
+
+Его единственный сын / His Only Son (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера Авраама подвергается испытанию во время трехдневного пути к месту, где он должен принести в жертву своего сына.Производство: США / Commissioned Pictures, RockBridge ProductionsЖанр: драма, историяРежиссер: Дэвид ХеллингАктеры: Сара Сейед, Николас Муавад, Скот Купер, Луис Фернандес-Хиль, Даниэль да Сильва, Edaan Moskowitz, Стив Джадкинс, Оттавио Таддей, Арианна Уайт, Eta PicoПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2F98060C4FC0515A3FD3B23DEA47F2A797AA1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347585   (151730) от 23.12.2019
+
+Тор Хэнсон | Триумф семян: Как семена покорили растительный мир и повлияли на человеческую цивилизацию (2018) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга учёного-биолога, известного популяризатора науки Тора Хэнсона «Триумф семян» рассказывает об эволюции семенных и споровых растений и их роли в развитии человеческих цивилизаций. Автор описывает, как учёные исследуют в угольных шахтах палеонтологическую летопись растительного мира, приводит разнообразные исторические факты использования семян людьми. Большой (   Читать дальше...   )Жанр: БиологияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1DD1CAA138D18B6F783AAF6CC4D36A4C2CCE6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194461   (151731) от 27.12.2017
+
+VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam Payne – Strip That Down (Nevada Remix)
+02. Jonas Blue ft William Singe – Mama (Syn Cole Remix)
+03. Justin Beiber & Bloodpop – Friends
+04. Avicii Ft. Rita Ora – Lonely Together(   Читать дальше...   )Жанр: DanceПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE20EB3FDE3236E8298E9FBAB6132F7FC9C76FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518732   (151733) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahramji, Mashti - Awareness (7:31)
+02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
+03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
+04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 854260   (151734) от 28.12.2014
 
 В изгнании / Outcast (2014) HDRip [576p] iPad
@@ -6,7 +183,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151734.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151735.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151736.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ SMath Studio Desktop 1.0.8348 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151738.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ magnet:?xt=urn:btih:2FE8628EF54DA0D397C226D737C6D7905287B1BD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151739.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151740.jpg" />
 </div>
 
 
@@ -177,7 +354,7 @@ Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151741.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ VA - Workout Body Fitness 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151743.jpg" />
 </div>
 
 
@@ -231,7 +408,7 @@ magnet:?xt=urn:btih:7DD20328D84C6416767195EC6C049F27D92C6690
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151744.jpg" />
 </div>
 
 
@@ -255,7 +432,7 @@ magnet:?xt=urn:btih:21FE2AF237AD8EF7FB95B4A68B6034B07CAE98A3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151745.jpg" />
 </div>
 
 
@@ -279,7 +456,7 @@ WinToHDD 5.9 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151747.jpg" />
 </div>
 
 
@@ -303,7 +480,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 2 (2021) [AAC|~335 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151748.jpg" />
 </div>
 
 
@@ -330,7 +507,7 @@ magnet:?xt=urn:btih:436B2DCDA23A287632D7782A9C15C885DB4AC376
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151749.jpg" />
 </div>
 
 
@@ -354,7 +531,7 @@ The Australian Jazz Quintet - In Free Style (1958) Remaster, 2014, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151751.jpg" />
 </div>
 
 
@@ -381,7 +558,7 @@ magnet:?xt=urn:btih:1B0969400B2499A7369DC391948B51E8FEAA9955
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151752.jpg" />
 </div>
 
 
@@ -405,7 +582,7 @@ magnet:?xt=urn:btih:632838CB0D6B9A712468B9F9BAB0E210FCABC617
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151754.jpg" />
 </div>
 
 
@@ -429,7 +606,7 @@ Prince of Persia (2008) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151755.jpg" />
 </div>
 
 
@@ -453,7 +630,7 @@ magnet:?xt=urn:btih:961B5BC2020D931230F6D31AC967958C438EF98F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151756.jpg" />
 </div>
 
 
@@ -464,184 +641,6 @@ magnet:?xt=urn:btih:961B5BC2020D931230F6D31AC967958C438EF98F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E1DE6E5E95309F59D0B3163482BD3CDFF6BCC29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194965   (151757) от 27.12.2017
-
-М.П. Батура и др. | Теория электрических цепей (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория электрических цепей как наука посвящена решению задач анализа и синтеза электрических цепей, схем и устройств и является важнейшим инструментом, широко используемым в электротехнике и радиоэлектронике. К электрическим цепям относятся технические устройства самого разнообразного назначения. Там, где речь идет об электрическом токе или электрическом напряжении, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F74A722DBCC64D7253DB9AFCDB0F269A6FE77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677201   (151758) от 16.11.2023
-
-На Рубле без рубля (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастье и благополучие богатой красавицы Анны рушатся, когда муж-бизнесмен без объяснения причин бросает её и подает на развод. Незадолго до развода Анна начала активно заниматься собственным благотворительным проектом. С финансированием на первых порах должен был помочь муж, но теперь он исчез и не выходит на связь. Анна надеется, что это не разрыв, а временный (   Читать дальше...   )Производство: Россия | Кинокомпания "Ника"Жанр: КомедияРежиссер: Айсурат ШамановаАктеры: Екатерина Гусева, Светлана Пермякова, Айсурат Шаманова, Мария Палей, Мария Арнаут, Ева Серебренникова, Марина Ермошкина, Анна Михайловская, Владимир Сычев, Сергей КомаровПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CDCC33C93602AA5C6EFEC324C725246DC88AA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968802   (151759) от 25.12.2015
-
-VA - White Clouds Vol. 5 (Mixed by Manuel Rocca) (2015) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Epica (Club Mix) (7:22)
-02. Manuel Rocca - Rennervate (Original Mix) (7:26)
-03. Dimension - Origami (Ferry Tayle Emotional Radio Edit) (4:29)
-04. ReOrder - Saivan (Original Mix) (5:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE97C96A16A7F99A29A84CF5D605A4A272A4F7F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601138   (151760) от 30.12.2022
-
-Пётр Блэк | Миры Артёма Каменистого. S-T-I-K-S. Леший (2022) [MP3, Дмитрий Сидаш]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь в жилах стынет кровь, оружие на вес золота. Бывалые зовут этот мир Стиксом, новички – кромешным адом. Попав в эту кровавую мясорубку, нужно быть решительным, или твоя плоть и кости станут ужином для кровожадных монстров.
-Роман обычный лесник. Работа для него все. Попав в Стикс, он должен постоянно доказывать, что не зря его нарекли Лешим. Хитрым и отважным (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 08:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD110992551DD1FD34990D0CB4F1404DD2BF2539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675516   (151762) от 16.11.2023
-
-Uma Mohan - Sounds of Harmony (2005) [FLAC|Lossless|tracks + .cue] <Mantras, Vedic Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dhanvantri Dhyana
-02. Prarthana, Anna Brahmopasana, Paap Nivarak Mantra
-03. Roga Nivarak Sukta, Mrithika Sukta, Durva Sukta
-04. Shatangayur Sukta(   Читать дальше...   )Жанр: Mantras, Vedic ChantsПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638E4F713C95E72F84B7A8313C29FA0C509B7FD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262399   (151763) от 22.12.2018
-
-Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, которому не снилась девушка-кролик [2018, TV, 11 из 13] WEB-DL 720p rus (обновляемая)
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет полон слухов о «синдроме юности»,
-что проявляется у подростков с неустойчивой психикой.
-Старшекласснику Сакуто он знаком не понаслышке,
-ведь ему одна за другой встречаются девушки, страдающие этим загадочным синдромом.(   Читать дальше...   )Производство: Япония / Adolescence ParadoxЖанр: романтика, комедияРежиссер: Soichi MasuiАктеры: Kaito Ishikawa, Asami Seto, Nao Toyama, Yurika Kubo, Atsumi TanezakiЯзык озвучки: Русский дублированныйСубтитры: Русские не отключаемые надписиПродолжительность: 13 эпизодов по ~25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1030A8FF8BE28C7A8D4A3EDE764DF2326C8E21BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434455   (151764) от 24.12.2020
-
-AirFoil+Airfoil Satellite 5.10.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151764.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF66FD774366EA718FA63B4AAFB95BF7E2B4BAFC
 ```
 
 

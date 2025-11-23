@@ -6,7 +6,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14144.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:772CDA137FE1225B4DAF5FE048568F5324065DEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14145.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97441233C74432F19B4654DC493DD08BF697714B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14146.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:04C5177C8D01A3921CBC762514D091219D294680
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14147.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:03F593A5005C9F21C32DEEEF671685B39F00B4D9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14148.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14149.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Isshun de Chiryou Shiteita no ni Yakudatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14150.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C12E372A76D927CB340B17DA01A9D777CC776C72
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14151.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A1EB0CC32A0CCD95E31EBD5959F0B960DA1E414E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14152.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack FitGirl [Vanguard Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14153.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B0F4D314D244CD4182A436FC5C1458FA07ABECC6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14154.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:74250D2416FAB808FFC5002C4C3AAA4E09147DCA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14155.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ v2rayN 7.12.7 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14156.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D28290F7FA145F3C8FA53C6865F6E260EEAD730E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14157.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F78EF974F2C160AAB40FFE3BD0CCDF7603EF6F84
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14158.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C007C052421694300966673674C491282E63314E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14159.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Audition 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14160.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6F54DAB6217DD8955230A771C30E1B297293640B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14161.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:BE2FA1941628B4F20E3F8E423F1F69CE9E20835B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14162.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:6A10E5988CBDA884B98675949B1EF0F48575669A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14163.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:718D494AFB1A5016AD8F9BB6C7DCA1CA8DF1E8D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14164.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:87BA25B3E3F8025329D0E83C02229CD34F3A03E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14165.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:02CACEF276872F4D047AB991208FB5308E3DBEFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14166.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:0488211CFBE4F42582FBE7B6CF6ED922A58395AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14167.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:9F54B8DB153BAF6368C4A0E73699BFDCFB7EFF0E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14168.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14169.jpg" />
 </div>
 
 

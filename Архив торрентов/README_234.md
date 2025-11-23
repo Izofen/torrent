@@ -6,7 +6,7 @@ Topaz Video AI 5.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54190.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Planet VPN 2.8.26.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Driver Booster Pro 11.5.0.83 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54201.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Visual Studio Code 1.90.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54210.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cent Browser 5.1.1130.123 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54211.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MInstAll v.04.06.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54219.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54231.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FanControl V192 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54240.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PhotoRoom v4.9.9 b1431 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54246.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ IObit Driver Booster Pro 11.5.0.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54261.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Opera One 110.0.5130.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54262.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A88D80CB6DE62EF4166AB81084B7375D2A192D3E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54274.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Slimjet 43.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54275.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Comodo Dragon 124.0.6367.207 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54276.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ W10Privacy 5.1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54279.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ O&O ShutUp10 1.9.1438 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54280.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ SoundSwitch 6.11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54284.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ TreeSize Professional 9.1.5.1885 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54287.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ AyuGram - неофициальный клиент Telegram 10.12.0 Mod by NURIK 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54317.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Total Commander 11.03 Portable by DIaMONd (04.06.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54331.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Ableton - Live 12 Suite 12.0.5 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54333.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ IsMyLcdOK 5.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54340.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ DesktopOK 11.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54349.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ iZotope - Trash 1.2.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54352.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XnView MP 1.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54364.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DVDFab 13.0.1.8 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54365.jpg" />
 </div>
 
 

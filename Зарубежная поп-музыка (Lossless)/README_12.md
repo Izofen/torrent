@@ -6,7 +6,7 @@ Jennifer Lopez - This Is Me...Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117425.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117569.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117774.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul McCartney & Wings - Band On The Run (1973) 2 x CD, Reissue, 2023, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117817.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118298.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118992.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119120.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119149.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120290.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120484.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The Weeknd - Double Fantasy (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synth-P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120492.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121137.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121698.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121865.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121870.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121877.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121888.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121900.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121938.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123781.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123813.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124043.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125604.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126251.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126461.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126611.jpg" />
 </div>
 
 

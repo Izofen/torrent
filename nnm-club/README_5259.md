@@ -1,3 +1,177 @@
+###  Публикация: 1517747   (162174) от 16.12.2021
+
+Firefox Browser 95.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D706C9468DB96FF04287093C81309EBAE877C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598690   (162175) от 20.12.2022
+
+NCH Crescendo Masters Pro 8.86 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC6C73B1359CF5C2D88BFF27C78A632C43E2079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517693   (162176) от 16.12.2021
+
+Вероника Трифонова | Последняя жертва (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Георгий Карасёв и его жена Ксения – автор красочных триллеров – терпят не лучшие финансовые времена. Супруги переезжают в маленький городок, который оказывается вовсе не безобидным. Сонный, окруженный непролазными лесами, он много лет страдает от боли, причиняемой неведомым злом: в мрачных дебрях то и дело пропадают девушки. Преступления с отсутствием улик (   Читать дальше...   )Жанр: Полицейский детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E341F9A5332B0A471A9E50DB944D1E73DDB6C13F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432923   (162177) от 19.12.2020
+
+Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'Roll, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tequila Berserker [00:04:50]
+02. Tits or Face [00:03:32]
+03. Deviant Romance [00:04:23]
+04. Cutletties [00:04:25](   Читать дальше...   )Жанр: Death'n'Roll, Groove MetalПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E80F5DD989E2C00716863263047C0710AB9660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598807   (162178) от 20.12.2022
+
+Vellum 3.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37095EE9773B9884054D9891461D498D5DA37A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826469   (162179) от 19.10.2025
+
+Any Video Downloader Pro 9.6.3 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E87053F7D7FE491312385F49EE512EB8EF8EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433025   (162180) от 19.12.2020
+
+ScreenFlow 9 v9.0.6 CR2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162180.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768F4F327E667D57ABB805163B83CA1240BD27FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598683   (162181) от 20.12.2022
 
 Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
@@ -6,7 +180,7 @@ Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162181.jpg" />
 </div>
 
 
@@ -33,7 +207,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162182.jpg" />
 </div>
 
 
@@ -57,7 +231,7 @@ magnet:?xt=urn:btih:3AF2C7747681F98A152D642D81324563205474C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162183.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ Screegle - Clean Screen Sharing 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162184.jpg" />
 </div>
 
 
@@ -105,7 +279,7 @@ magnet:?xt=urn:btih:49C3282C4EC84D56C6381C2844A3CF0E99142D3E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162185.jpg" />
 </div>
 
 
@@ -129,7 +303,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -154,7 +328,7 @@ Combo Cleaner Premium 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162187.jpg" />
 </div>
 
 
@@ -178,7 +352,7 @@ magnet:?xt=urn:btih:7FC358A45FA2991D1C933038C8CBAEB565607506
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162188.jpg" />
 </div>
 
 
@@ -202,7 +376,7 @@ Wondershare PDFelement 10.1.5.2527 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162189.jpg" />
 </div>
 
 
@@ -226,7 +400,7 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|tracks + .cue] <Classic R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162190.jpg" />
 </div>
 
 
@@ -253,7 +427,7 @@ Stats 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162191.jpg" />
 </div>
 
 
@@ -277,7 +451,7 @@ magnet:?xt=urn:btih:DAA2983706CC90DB56C5937539D576D04C8854BD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162192.jpg" />
 </div>
 
 
@@ -301,7 +475,7 @@ magnet:?xt=urn:btih:94843AF78565BA25A2A7650A82A00BF1D3E52C39
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162193.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ Telegram Desktop 4.11.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162194.jpg" />
 </div>
 
 
@@ -351,7 +525,7 @@ magnet:?xt=urn:btih:043C124F3BB7DD782F6DD654B2034E51C949010A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162195.jpg" />
 </div>
 
 
@@ -376,7 +550,7 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162196.jpg" />
 </div>
 
 
@@ -403,7 +577,7 @@ magnet:?xt=urn:btih:457DFFCDEAA5B5C6021D802E157FB536C9294E0A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162197.jpg" />
 </div>
 
 
@@ -427,7 +601,7 @@ BusyContacts 2022.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162198.jpg" />
 </div>
 
 
@@ -452,7 +626,7 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162199.jpg" />
 </div>
 
 
@@ -463,184 +637,6 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3F0F29B222F447E82A69F51F9562C43E598C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517701   (162200) от 16.12.2021
-
-Rhinoceros 7 v7.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA862DC7F519725436C156A42CA4CA9FA3E3FF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432838   (162201) от 19.12.2020
-
-Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down Bound Train (06:19)
- 02. Whiskey Barrel Blues (03:23)
- 03. All I Can Do Is Cry (06:07)
- 04. Avalanche (04:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812EC81B93EF9AB2CE082C691C10C1CD579C9D41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826319   (162202) от 18.10.2025
-
-Одиночки с прицепом (2025) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162202.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном маленьком-маленьком городе одна богатая-богатая женщина, Юлия Ахромеева, решила прикупить себе целый этаж в самом лучшем доме. На этом этаже живут четыре семьи. Ну как - семьи? Четыре одинокие женщины с детьми. Каждой сделано щедрое предложение: в обмен на их квартиры Юлия предлагает варианты с большим метражом в хороших районах. Ахромеева, с ее опытом, не (   Читать дальше...   )Производство: Россия | Спутник ФильмЖанр: МелодрамаРежиссер: Александр СухаревАктеры: Виктория Полторак, Сергей Шишков, Евдокия Лаврухина, Александр Коркунов, Анна Дьяченко, Дмитрий Гудочкин, Полина Беленькая, Ольга Хохлова и др.Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7119E7342AF470EBB19C322B0EADF5F2E7F18C40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674191   (162203) от 04.11.2023
-
-VA - Music News vol.312 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andia - Solstitiu (04:09)
- 002. 5УТРА - Как Дела (02:50)
- 003. Ado - Прости (02:10)
- 004. AGAYAN - Тактильность (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575C20ACD34BFD7B26F1E2391DCD7BFCA5A9C54A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432955   (162204) от 19.12.2020
-
-Фристайл. Кубок мира 2020-2021. Идре Фьялл (Швеция). Парный могул. Финалы (2020) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап Кубка мира по фристайлу 2020-2021. Идре Фьялл (Швеция).
-13 декабря 2020 года
-Парный могул.
-Мужчины и Женщины. ФиналыТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B933140CFBFEF602C4B8329942547A65064132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517713   (162205) от 16.12.2021
-
-Андрей Сиротенко | Сон, ставший жизнью (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто нам снятся кошмарные сны? Сны, сюжеты которых не предполагают счастливого конца, оставляющие ощущение липкого страха, или же те, что слегка пугают нас, как детские страшилки? Максим видел разные сны. И в одном из них странный рыжебородый дед напророчил ему близкую кончину. Во сне и наяву. Однако есть шанс спастись. Для этого ему придется прожить в реальности (   Читать дальше...   )Жанр: Детективы, Триллер, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AA6308CB6D617E0363173B5437057DFD800330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598691   (162206) от 20.12.2022
-
-iShot Pro-ScreenShot Recording 2.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение iShot — отличное ПО для  скриншота области, окна, многооконный скриншота, скриншота оболочки, скриншот с интервальной съемкой, быстрая аннотация, текстура, выбор цвета, запись экрана, аудиозапись, оптическое распознавание символов, инструмент перевода скриншота на Мак.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2022Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC235AD18655F905A9A441646E4EEA8CCA1AE55B
 ```
 
 

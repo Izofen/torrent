@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9640.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E94816B25F778F25C551A17D56039C1C45E0355A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9641.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.40 Build 2689 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9642.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Double Commander 1.1.27 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9643.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIMP 5.40.2689 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9644.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Emurasoft EmEditor Professional 25.2.3 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9645.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C5A8AFA9230CA20B8E93EA595EFA5C9CCC14CD8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9646.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C5A8AFA9230CA20B8E93EA595EFA5C9CCC14CD8F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9647.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A438A05873D6660F350A697666B184FC53EC72D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9648.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F8AEF39A1EEEBDDDC0DD1E3B6C5821C62066FB7D
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9649.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Telegram Desktop 6.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9650.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4D37C76AED66990DE754316A579168201C9C8129
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9651.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DF94F08BAB0820DEBCC07A21EFC995DEBBFF582D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9652.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9653.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Auslogics BoostSpeed 14.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9654.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C27697A5FDD2476F9F1B08EC7F278E9BDB61857E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9655.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C27697A5FDD2476F9F1B08EC7F278E9BDB61857E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9656.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:7A2F4D2AAFA5064178162C01EDC569E69B35B453
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9657.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Roger Waters - Roger Waters: This Is Not A Drill (Live From Prague May 2023) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9658.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:6EDC1998DC4307560EC3B35AEB107C0456DC1743
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9659.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:8AC1DBECAB1211A581378A4D37924F0CA9E11075
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9660.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9661.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9662.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:89CB1BD6FFA26A215DC3C87EA753861DA871BF49
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9663.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:655542A4F06C591FB779A31267B88F234545124C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9664.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MKVToolNix 94.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9665.jpg" />
 </div>
 
 

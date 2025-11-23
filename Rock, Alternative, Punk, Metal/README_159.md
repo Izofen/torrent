@@ -6,7 +6,7 @@ Lord Goblin - Lord Goblin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113274.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113276.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Crystal Darkness - A Far Cry Paradise (2022) EP, Remastered, 2022, Red Snow [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113277.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Thin Lizzy - A Song For While I’m Away (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113287.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113329.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Almo - Reconciliation (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113331.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Bruce Springsteen - The Live Series: Songs Of Celebration (2024) Live (Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113354.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Eternal - Cryptic Lust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113373.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|image + .cue] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113374.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Progressive Souls Collective - Sonic Rebirth (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113382.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Autopilot - It Might Be Gone Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113392.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Cave - Out Of The Cave (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113393.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lutharo - Chasing Euphoria (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113394.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Vltimas - Epic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113395.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113396.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113397.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|WEB-DL|tracks] <Sout
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113408.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113412.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Aborted - Vault Of Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113458.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113472.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113487.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113489.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [MP3|320 Kbps] <Melodic Heavy, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113502.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Rathole - Out Of Phase (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113504.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:3B045D3141294A6E309020E1360BE7A553B41DD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113505.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Dragonforce - Warp Speed Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113511.jpg" />
 </div>
 
 

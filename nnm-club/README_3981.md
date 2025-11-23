@@ -1,3 +1,75 @@
+###  Публикация: 1691755   (123188) от 13.01.2024
+
+Игорь Манн | Гроуинг 1.0. 22 маркетинговых действия для роста бизнеса (2023) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга российского маркетера № 1 – краткое руководство по быстрому росту бизнеса. Хотите быстрых результатов? Для этого не обязательно читать фундаментальные труды по маркетингу на сотни страниц. Работает не теория – работает четкий пошаговый план действий. Именно его вы найдете в книге. Здесь выжата вся вода и дана только суть: что делать, как делать и даже (   Читать дальше...   )Жанр: Бизнес, продажиИздательство: Манн, Иванов и Фербер (МИФ)Формат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972C8F840DD854275B8B19A3EB522FCDC917D57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691587   (123189) от 13.01.2024
+
+Школа Коммуникации TK Education, Тина Канделаки | Курс Дизайнер общения. Тариф Базовый (2021) HDRip [AD][RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Дизайнер Общения» в отличии от многих других, создан при непосредственном участии Тины Канделаки, которая является и профессионалом-практиком (ведущая и продюсер на ТВ, спикер конференций) и одной из самых влиятельных женщин России (по версии РИА Новости). Тина неоднократно повторяет, что многого добилась именно благодаря голосу, речи и умению договариваться (   Читать дальше...   )Производство: Школа Коммуникации TK EducationЖанр: Межличностные коммуникации, Психология общения, Личностный ростЯзык озвучки: РусскийПродолжительность: 19:34:56Реклама: Сторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9700EEC1C52D867B86E2D86E5A0B90A34D3C0204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691695   (123190) от 13.01.2024
+
+Windows 10 Debloater 2.6.5 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25D396C440A33432F7243D2065A3E8ADE4EC88F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691652   (123191) от 13.01.2024
 
 MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
@@ -6,7 +78,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123191.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123193.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:4CADE84ACB68665ABD28D6196FF521B7ADDA8541
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123194.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:74E6888E239401685D3024C4CB80EEB2330A8021
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123195.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:1BFAE11C47DE413D2C445B88CE8A91E0233E4845
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123196.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123196.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:1BFAE11C47DE413D2C445B88CE8A91E0233E4845
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123197.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:615686246085557DF53CCFE2E03911FDEDBDD9C2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123198.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ VA - Mega Dance Hits Collection (1990-2001) [MP3|320 кб/с] <Eurodance, Euro-H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123199.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123200.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:E0FFCF2379B8B2C780BCE24BA7D0DCCCADC63D35
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123201.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:C104403A482DA21298AADF84BE37ABEC6ADC8FA8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123202.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:A9C420F2A8D6C663FA3C8F4B12820B0A77189B19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123203.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:B3A65CDF250990DC3323B0E1449A479A990E8B43
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123204.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:FF2AEB4F259A2AB9B72E80EB673D141ACF054296
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123205.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123206.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123206.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Start11 Version 2.05 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123207.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:82B42ADB880E7D5F7C9F2F1D4F4466B7BA414942
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123208.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:B56B09560E512EE651CDF7975A4F095EEB10118E
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123209.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ OnionFruit Connect 2023.1223 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123210.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:60B981C125D59B71F3DEAD78D957E8407795F834
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123211.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:292E49ECEF0382D8341FCF7EFEFC7CAA982A11B7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123212.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:C530C405412E2A5BEE230E612E4E506F1685F830
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123213.jpg" />
 </div>
 
 
@@ -554,81 +626,6 @@ magnet:?xt=urn:btih:C530C405412E2A5BEE230E612E4E506F1685F830
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691810   (123214) от 13.01.2024
-
-Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 3. Рисование розетки в перспективе. Натюрморт (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123214.jpg" />
-</div>
-
-
-###  Подробнее
-
-В видеокурсе "Рисование розетки в перспективе. Натюрморт" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
-
-В видеокурс входят: Рисование розетки в перспективе. Натюрморт.
-Этот курс является составной третьей частью курса "Как (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691561   (123215) от 13.01.2024
-
-Нулевой час / Zero Hour (2023) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123215.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти мужа молодую женщину начинают преследовать те, кто несёт ответственность за его смерть.Производство: США / Groetsch EntertainmentЖанр: Триллер, детективРежиссер: Джастин ГроетчАктеры: Микаэла Хувер, Сара Дюмон, Сидни Морган, Джастин Гроетч, Faith Stanley, Керрингтон Брук Дархэм, Lindsey Todd, Jenna GroetschПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:29Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630ACE6AFA558160A552205F34BC5C7EB09D7A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251622   (123216) от 13.01.2024
-
-SCUM (2018) [Ru/En] (0.9.511.80646/dlc) Repack West4it [Early Access]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами;Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Action, Survival, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304266A2CFD691C3B0398AE7147BE64ED8A78986
 ```
 
 

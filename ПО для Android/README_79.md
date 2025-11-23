@@ -1,3 +1,75 @@
+###  Публикация: 1643486   (234016) от 01.07.2023
+
+AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234016.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirBrush - удобный, быстрый и очень результативный редактор фотографий рассчитанный на портретные изображения. То есть он преимущественно предназначен для любителей селфи. Ведь функционал и инструменты предлагают не какие-то сложные и профессиональные возможности, а улучшение внешнего вида лица. Устранение дефектов кожи, ретуширование, улучшение макияжа, смена тона, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.06.2023Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48152A36A337A0176EEC7B6A5B1C44AA534B853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643106   (234199) от 30.06.2023
+
+SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234199.jpg" />
+</div>
+
+
+###  Подробнее
+
+SmartOffice Pro - это не просто сборник офисных приложений для мобильных платформ помогающих в работе и повседневной деятельности, но и целый комплекс дополнительных функций и возможностей. Пользователи смогут работать с документами, редактировать, создавать презентации, выстраивать таблицы, взаимодействовать с PDF-файлами, отправлять на печать и многое другое. И (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.07.2022Разработчик: Artifex Software Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9473600F9BB94C93595EC854BFC69448703FB9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552128   (234317) от 19.05.2022
+
+Librera PRO: Читалка для книг 8.4.56 Mod by foobnix [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Librera PRO: Читалка для книг - это Удобное и легко настраиваемое приложение для чтения, которое поддерживает большинство популярных форматов документов, включая: PDF, EPUB, EPUB3, MOBI , DjVu, FB2, FB2.zip, TXT, RTF, AZW, AZW3, CBR, CBZ, HTML, XPS, MHT а так же OPDS каталоги. Благодаря простому, но мощному интерфейсу, Librera превращает чтение книг в удобный, и (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.03.2022Разработчик: LibreraПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D43BA2F6B908C004AA7136C025B4F70DE01A64B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643816   (234383) от 03.07.2023
 
 BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
@@ -6,7 +78,7 @@ BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234383.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234383.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Briar v1.4.11 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234455.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234455.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234562.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234562.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ GIF Maker - GIF Editor 1.8.4 Mod by Balatan, Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234571.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234571.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.36 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234998.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234998.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Niagara Launcher 1.9.9 Mod by Taz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235007.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235007.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235104.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235178.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ AR GPS Compass Map 3D Pro 1.8.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235196.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235561.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ VTC Radio - Lactose / Дорожное радио 6.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235820.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Polarr v6.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235858.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235943.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ Webcams 2.0.17 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236254.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Compass Level & GPS 2.4.13 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236484.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Car Radio Reloaded 1.45.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236636.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236642.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236676.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237045.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ English Grammar & Phonetics v7.6.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237071.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ Volume Panel 21.23 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237121.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Colorfy PLUS - Coloring Book v3.19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237508.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237508.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237744.jpg" />
 </div>
 
 
@@ -557,80 +629,6 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:878537276714A4C9D772A42D8D3A6E1DBDC0EE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410718   (238528) от 29.04.2022
-
-Медиатека: молитвы, библия, евангелие, требы v1.2.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушать и читать Православную литературу с текстовой синхронизацией. Молитвослов, библия, евангелие, песнопения, акафисты, православные аудиокниги, молитвы. Слушайте 7 дней бесплатно! Читайте бесплатно всегда! Заказывайте Требы во многие храмы и монастыри прямо из приложения. Создано по благословению протоиерея Андрея Лемешонка.Тип издания: Пиратка / UnlockedРелиз состоялся: 27 апреля 2022 г.Разработчик: Audiolitera.ruПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E426F9476B3CA168E35703CB16EE6B169E332080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572472   (238863) от 27.08.2022
-
-AntiBAG Тахограф 2.0.108 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тахограф в кармане!Тип издания: PaidРелиз состоялся: 19 июл. 2022 г.Разработчик: ZlojDalnoboy.PLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572653   (238896) от 27.08.2022
-
-Learn English - 6000 Essential Words 4.1.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстро пополняйте свой словарный запас с помощью самого эффективного метода: метода визуальной памяти с картинками и карточками.
-
-Это приложение подходит для начинающего, среднего и продвинутого уровней с более чем 6000 слов с картинками и произношением носителей языка. 10 основных тем, разделенных на 145 уроков со словарем по различным темам, значительно обогатят (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22 авг. 2022 г.Разработчик: PORO ENGLISHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2042236FA0A9B200FC97B9F4CD86F9A255DDCCB7
 ```
 
 

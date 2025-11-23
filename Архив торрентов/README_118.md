@@ -6,7 +6,7 @@ Karing 1.0.39.527 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30043.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Google Chrome 132.0.6834.111 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30050.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CCleaner 6.32.11432 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30054.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Vanced Tube v5.2.80.187 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30061.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ WeNote: заметки блокнот планер v6.25 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30062.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ NewPipe v0.27.5 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30063.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hekasoft Backup & Restore 0.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30065.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CCleaner 6.32.11432 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30066.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Ventoy 1.1.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30083.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.3 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30084.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Bat! Professional 11.4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30089.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ XYplorer 26.80.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30094.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ QOwnNotes 25.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30095.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30098.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.3 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30115.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PhotoRoom v2025.04.03 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30126.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30126.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Firefox Browser 134.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30127.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Hard Disk Sentinel PRO 6.20.6 Build 13391 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30136.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30136.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Blender 4.2.6 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30141.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30141.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kalmuri 4.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30142.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Reg Organizer 9.61 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30148.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30148.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ GPU Shark II 2.5.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30149.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VirtualBox 7.1.6 Build 167084 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30156.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30156.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ AIMP 5.40.2655 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30158.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Bandicam 8.1.0.2516 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30159.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Topaz Photo AI 3.4.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30161.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30161.jpg" />
 </div>
 
 

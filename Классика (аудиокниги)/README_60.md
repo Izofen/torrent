@@ -1,3 +1,51 @@
+###  Публикация: 53561   (247365) от 25.06.2023
+
+Франц Кафка | Замок (2007) [MP3, Виктор Рудниченко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247365.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Замок» - одна из культовых книг ХХ столетия, завораживающая своим странным переплетением реальности и вымысла. Сюжетный рисунок романа прост и одновременно предельно сложен, притчеобразен, символически многозначен. Это произведение можно интерпретировать и как гениальную сатиру на бюрократическое общество, и как абсурдистский трактат, и как религиозную притчу. Но (   Читать дальше...   )Жанр: Зарубежная проза, Классическая литератураПродолжительность: 13:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F453B06FD064C6182FEB36FC0D211ACB914CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69394   (247584) от 14.06.2023
+
+Валентин Пикуль | Честь имею (2006) [MP3, Артем Карапетян]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_247584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исповедь офицера Российского Генштаба. Роман "Честь имею" - один из самых известных исторических романов В. Пикуля. Вот уже несколько десятилетий читателя буквально завораживают пpиключения офицера Российского Генерального штаба, ставшего профессиональным разведчиком и свидетелем политических и дипломатических интриг, которые привели к Первой мировой войне.Жанр: Современная проза, Исторический романПродолжительность: 28:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0EF9C2FECA4E466CDB944643A7FC8CE12493C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619135   (249801) от 14.03.2023
 
 Константин Паустовский | Старый повар (2021) [MP3, Галина Годунова]
@@ -6,7 +54,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249801.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249801.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:C954A33C04A71DC876533FB4C5BD44BCE44FD01C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250539.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250539.jpg" />
 </div>
 
 
@@ -57,7 +105,7 @@ magnet:?xt=urn:btih:6D5BD0ED220C5C67DE02CFCEBAA58E9419807E14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250553.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250553.jpg" />
 </div>
 
 
@@ -84,7 +132,7 @@ magnet:?xt=urn:btih:3360FEC250985F9B713AB3D71EF343E76AF258CF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250554.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250554.jpg" />
 </div>
 
 
@@ -110,7 +158,7 @@ magnet:?xt=urn:btih:4C4575058B9BF8BEF2DF89671B8289A2A1372310
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250555.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250555.jpg" />
 </div>
 
 
@@ -136,7 +184,7 @@ magnet:?xt=urn:btih:067D0E3A147338DC3E82A7E2233B143B61A61A1C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250556.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250556.jpg" />
 </div>
 
 
@@ -163,7 +211,7 @@ magnet:?xt=urn:btih:DE149968E5A6662FC4259BE60DC718BD4E0246A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250557.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250557.jpg" />
 </div>
 
 
@@ -190,7 +238,7 @@ magnet:?xt=urn:btih:4D5B4DB6917C331EB665EF8691C7FFE286CF7AFD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250735.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250735.jpg" />
 </div>
 
 
@@ -217,7 +265,7 @@ magnet:?xt=urn:btih:3E407CA27FBB3E5BACBADC97F06BD161615FBC53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250737.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250737.jpg" />
 </div>
 
 
@@ -244,7 +292,7 @@ magnet:?xt=urn:btih:7FB2156C5898C8B981A409A3B9AFA4135F39D81B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252318.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252318.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ magnet:?xt=urn:btih:BFF91C8B0573D8D2AC4D58F513DD4D546BC453C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252319.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252319.jpg" />
 </div>
 
 
@@ -295,7 +343,7 @@ magnet:?xt=urn:btih:DC065983E16DBDB2356E8F77F582248E483705B5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252598.jpg" />
 </div>
 
 
@@ -322,7 +370,7 @@ magnet:?xt=urn:btih:DFA66F96C95AF7D3A380BA85EA45866F283CDE8C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252599.jpg" />
 </div>
 
 
@@ -349,7 +397,7 @@ magnet:?xt=urn:btih:32DC5C3AC22115B954CC463DA9E3C5719D2B46C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252600.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252600.jpg" />
 </div>
 
 
@@ -375,7 +423,7 @@ magnet:?xt=urn:btih:7A6AA670885584FC32821CAB2DD4DB5FCFA57693
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252601.jpg" />
 </div>
 
 
@@ -400,7 +448,7 @@ magnet:?xt=urn:btih:B221AAE3BC6172612D31573ED5DA8DAA704FAE96
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253067.jpg" />
 </div>
 
 
@@ -426,7 +474,7 @@ magnet:?xt=urn:btih:32C2D3EAAC76F00F3A6D04C1E18855FA6278F72A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253075.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253075.jpg" />
 </div>
 
 
@@ -452,7 +500,7 @@ magnet:?xt=urn:btih:7F2DC3BECD00F833CF3F253E3FE068D14F4008DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254101.jpg" />
 </div>
 
 
@@ -478,7 +526,7 @@ magnet:?xt=urn:btih:6A87FC06A80CF98808ECCED8856A9DDDC0017A64
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254113.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254113.jpg" />
 </div>
 
 
@@ -505,7 +553,7 @@ magnet:?xt=urn:btih:E674F31921DFA913C97B9C0ACE3C4FB5DC228814
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254127.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254127.jpg" />
 </div>
 
 
@@ -531,7 +579,7 @@ magnet:?xt=urn:btih:B6FB5803781D576A34C6A24BEB655DC2A0AF33BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254132.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254132.jpg" />
 </div>
 
 
@@ -557,7 +605,7 @@ magnet:?xt=urn:btih:FD8E36C96B38DB6B8AA8E7D0E78CBC166714B861
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254133.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254133.jpg" />
 </div>
 
 
@@ -583,7 +631,7 @@ magnet:?xt=urn:btih:E002DA4D923D2DFDB797C17C5363C58869BD325C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254135.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254135.jpg" />
 </div>
 
 
@@ -610,7 +658,7 @@ magnet:?xt=urn:btih:356FEE932825CE37047776CFB938E5A15DB3B0E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254806.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254806.jpg" />
 </div>
 
 
@@ -621,59 +669,6 @@ magnet:?xt=urn:btih:356FEE932825CE37047776CFB938E5A15DB3B0E4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08E5FD2816834FAF2252A87704E78B7AA77883EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836913   (255590) от 13.11.2025
-
-Александр Бестужев-Марлинский | Испытание (2019) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-Александр Александрович Бестужев-Марлинский (1797–1837) – русский писатель, критик, публицист эпохи романтизма и декабрист.
-Повесть «Испытание» (1830) – это классическое романтическое произведение, в котором нашлось место не только воспеванию любви, но и самых чистых и благородных чувств и качеств человека, таких, как верность, честность, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE740C03DE5F7CF6E8B3DE5F5C24B4937772DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836910   (255593) от 13.11.2025
-
-Александр Бестужев-Марлинский | Замок Эйзен (Кровь за кровь) (1991) [MP3, Николай Мартон]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Александр Александрович Бестужев-Марлинский (1797–1837) – русский писатель, критик, публицист эпохи романтизма и декабрист.
-Рассказ «Замок Эйзен» (другое название «Кровь за кровь») был написан в 1825 году и стал одним из последних произведений автора, изданных до ссылки. Входит в условный цикл «Ливонские повести».
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D203C5F1A4AD17FD818EFE0214A8EF6A26C6AA
 ```
 
 

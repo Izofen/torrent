@@ -6,7 +6,7 @@ Topaz Video AI 5.5.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe InDesign 2025 20.0.1.32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36409.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EBD94B12DE46812E0E51959967EBD7271BA0EC7F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36417.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v22 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36420.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 11.2024 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36428.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Adobe Illustrator 2025 29.1.0.142 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36436.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r25 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36443.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ OneCommander Pro 3.93.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36497.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Vivaldi 7.0.3495.18 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36510.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:C6F9B6F6CF2659B4F73878F771ED1CD012098D54
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36529.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Windows 11 PRO 23H2 22631.4460 Update 13 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36545.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Windows 11 PRO 24H2 26100.2314 Update 9 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36547.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Exif Pilot 6.26.1 + Batchplugin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36579.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Free Hex Editor Neo 7.50.01.8790 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36580.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Caramba Switcher 2024.11.20 Test [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36597.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:DA200AF59060332BFA856E303A3B9297085823C9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36623.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ qBittorrent 5.0.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36630.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Office Installer & Office Installer+ 1.19 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36632.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D78106684098C2CB785C474EAFC7651CE801C709
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36633.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36648.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Psiphon 3 build 184 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36649.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rainbow - Star Collection (2010) 4CD Boxset [FLAC|Lossless]<Hard Rock, Heavy Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36653.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36664.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Light Image Resizer 7.1.1.61[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36672.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ FastFlix 5.8.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36685.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ultimaker Cura 5.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36686.jpg" />
 </div>
 
 

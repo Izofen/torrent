@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39900.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8CDE49962C5B2C80A0B713EF034EFB08D73B0876
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39901.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:33377EA0A43263EC89D79FD5500C72404F389058
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39902.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:223A336ACBDEECDB5F6BD8CF8D4B1C2B8A062ECB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39903.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39904.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39905.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39906.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0D26A53378F5CA22C2A09B3FD6434D836C557A39
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39907.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:5DA4D6FB60FF68E86A94E47122150E4CCC00C5A6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39908.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5DA4D6FB60FF68E86A94E47122150E4CCC00C5A6
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39909.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:EEC37B2E3319D5AEB6B370E632DCE3E349150400
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39910.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D1DC817DF09278A639DC7378DA1E33DE5A8A0203
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39911.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D1DC817DF09278A639DC7378DA1E33DE5A8A0203
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39912.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39913.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E6A6D8E89C5E3D1D29F257F7E154CA206511D9D4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39914.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39915.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39916.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:53C9477DF7E33D26B2F2B62BCAFB409B688FF17E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39917.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7095C81738422CB02B0091E74BA6C4E0BE383B6D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39918.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B6CB9EDE0AC7835A4DB9BAD7CE1D83E42B4D7925
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39919.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D031ED9E1719D09FF097204A261F6F79EE532994
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39920.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39921.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39922.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:83AE3E2E75CCD101C031D219A830AD0503734329
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39923.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1E6EF83D9EF7EDB7CAD0EAD8583BFA637B0A8DAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39924.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:57F5C49DB888187E24432C4CFFA176CAD968E38A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39925.jpg" />
 </div>
 
 

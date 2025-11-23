@@ -1,3 +1,78 @@
+###  Публикация: 1769685   (100665) от 29.12.2024
+
+НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100665.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 декабря 2024, воскресенье. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 125 зрителей (94% при вместимости 20 270)
+Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5536893E203D073336BE7E4F5CB348D549AD9550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769683   (100666) от 29.12.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Йорк Айлендерс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100666.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 декабря 2024, воскресенье. 03:30 МСК. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EEA2BA7CA3AA1E34204531EF0B683761CCC805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769468   (100667) от 28.12.2024
+
+Вражьи тропы (1935) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100667.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам романа И.Шухова "Ненависть".
+Посвящена популярной в то время теме коллективизации и раскулачивания. Сознательная беднота разоблачает кулаков-вредителей и начинает организовывать колхозы. Горе в семье богатея Епифана Окатова: решил глава семейства публично покаяться в "своей неразумной и вредной для советской власти жизни", отречься (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван Правов, Ольга ПреображенскаяАктеры: Михаил Нароков, Андрей Абрикосов, Борис Тенин, Эмма Цесарская, Марина Ладынина, Николай Плотников, Хаким Давлетбеков, Пётр Репнин, Александр Громов, Иван БобровСубтитры: отсутствуютПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D1F3D45AFC69BB525DDEE0334C3A5A224D2307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769444   (100668) от 28.12.2024
 
 VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -6,7 +81,7 @@ VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100668.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:C352CD24CDE52AE0A3C94D8DEDFA237F8ABCBB4D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100669.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ QOwnNotes 24.12.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100670.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:A60F1DD1F9ED563AAAE76D8B93C2D538538E7371
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100671.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:72C971B82BD0E64DF003C24A4FAD2B18FE16A8CD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100672.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:30F99E47D375F9BF93DFB4667951BD8AB84870BF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100673.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:059B7730BEA67E30A04713E993FCD198BFE7037A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100674.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100675.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100676.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100677.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100678.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100679.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100680.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100681.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100682.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100683.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100684.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Vintage Culture - Live @ Ushuaïa Closing Pre-Party: The Last dANTS, Cafe Mambo 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100685.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100686.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100687.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100688.jpg" />
 </div>
 
 
@@ -558,7 +633,7 @@ The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100689.jpg" />
 </div>
 
 
@@ -585,7 +660,7 @@ Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100690.jpg" />
 </div>
 
 
@@ -599,84 +674,6 @@ Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC3AEB45BE195A26CE3E9941026655E4F214BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769438   (100691) от 28.12.2024
-
-Пятеро на одного (28.12.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C538660EC7793D89D0D379544221A9FBDA9A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769333   (100692) от 28.12.2024
-
-Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truth and Bones (5:25)
-02. All or Nothing (4:46)
-03. Sea of Broken Dreams (4:52)
-04. Bleeding Spirits (5:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35289F0B62575437160EF2C09F6E58E769101D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769329   (100693) от 28.12.2024
-
-Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Susie Q (2:42)
-02. Keeper of the Fire (4:02)
-03. Heartbeat (2:45)
-04. Louie Louie (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BD6ABD9A533710E82F4002DAFB34A1BE248925
 ```
 
 

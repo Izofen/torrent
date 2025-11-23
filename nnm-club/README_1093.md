@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28771.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB2FB0D42453DC889BBACEA98E0E37BE750E1A24
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28772.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ HDCleaner 2.087 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28773.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28774.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ GPU-Z 2.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28775.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Skype 8.136.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28776.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ CoolUtils Total Audio Converter 6.1.0.278 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28777.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E7925BE91733D67B676BE19AA5CCC3F360A73961
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28778.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E0F99CDD3ED534F464BD6CE66EE7F441AFE60B00
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28779.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1C27C0684B0EF82340D12397B47A01AA17DB6D28
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28781.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ R-Drive Image Technician 7.2 Build 7207 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28782.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:47E2703B66447587C3F360F822C0C70CC35865AE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28783.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PDF-XChange Editor Plus 10.5.1.394 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28784.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:4399225B0AB906F11661344E972F7E5EA1D4194F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28785.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:687E55315F4C9E1E4E324EB10DCE145581C7C1FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28786.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ThisIsMyFile 4.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28787.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ EssentialPIM Pro 12.1.3.1030 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28788.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28789.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:FFD000817A10DFE1DCC8206DC636BB9E2DBEBE89
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28790.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:20A653BDE3A13187BE1AE21681A0B590A41BF847
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28791.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F47A2A2177B5DEFFA34515398302734C3CAEED2F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28792.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ KStars 3.7.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28793.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:397C2A37CB166840C26862A7453084666920612B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28794.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:465D6986EFBCC51E7C73EBC8E103B92C3FE761A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28795.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Cockos REAPER 7.33 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28796.jpg" />
 </div>
 
 

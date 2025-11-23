@@ -1,3 +1,77 @@
+###  Публикация: 1695248   (120536) от 28.01.2024
+
+PreSonus Studio One 6 Professional 6.5.2 + Extensions [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120536.jpg" />
+</div>
+
+
+###  Подробнее
+
+PreSonus выпустила обновлённую версию DAW PreSonus Studio One 6 в которой представлено множество улучшений и несколько новых возможностей.
+Программа получила поддержку глобальной дорожки видео, умные шаблоны и возможности полной кастомизации интерфейса.
+Основным нововведением обновления стало расширение возможностей работы со звуком и видео. В частности, DAW получила (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82ADA2D700E003BE30841BF4048E1F3D923A7853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694689   (120537) от 28.01.2024
+
+Почти нормальная семья / En helt vanlig familj / A Nearly Normal Family (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) TVShows, RuDub
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Сэнделл — обычная семья, состоящая из священника Адама, адвоката Ульрики и их 19-летней дочери Стеллы. Они живут, казалось бы, идеальной жизнью в роскошном жилом районе Лунда. Однажды все меняется, когда девятнадцатилетнюю девушку обвиняют в жестоком убийстве мужчины гораздо старше ее. Какая у нее могла быть причина знать сомнительного бизнесмена, не говоря (   Читать дальше...   )Производство: Швеция / JarowskijЖанр: Триллер, драма, криминалРежиссер: Пер ХанефьордАктеры: Бьёрн Бенгтссон, Кристиан Сундгрен, Melisa Ferhatovic, Alexandra Karlsson Tyrefors, Ло Кауппи, Хакан Бенгтссон, Седомир Глишович, Расмус Троедссон, Vera Olin, Анна-Сара КеннедиПеревод: Многоголосый профессиональный (TVShows, RuDub)Язык озвучки: Русский, шведский, английскийСубтитры: Русские, шведские (forced, full, SDH), английские (forced, full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24B8D894E2A9B2AD83852FE9CD0FC0D6EFACA08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695189   (120538) от 28.01.2024
+
+Noxia Somnia (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120538.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пробуждения в таинственном мире за Тристаном начинают охотиться тени, питающиеся тревогой и страхом. В поисках выхода из этого кошмара ужасов на выживание ему предстоит преодолеть свои самые глубокие страхи. Посмотрите в лицо своим страхам в этой леденящей душу двухмерной игре в жанре survival horror, посвященной пониманию и преодолению проблем психического (   Читать дальше...   )Тип издания: SceneРазработчик: Reframe GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8598FF84D7BFF4E0EE884EA1446D78EE54220C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695285   (120539) от 28.01.2024
 
 Volume2 1.1.9.466 Beta + Portable [Multi/Ru]
@@ -6,7 +80,7 @@ Volume2 1.1.9.466 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120539.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:D25BAF7CFE541CA17208B4ABD9C7344F6D18E70E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120540.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Ableton - Live Suite 11.3.21 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120541.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Ivan Piskunov | (Само)обучение. Исследования, факты
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120542.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:4771C6DA4AFC4F9661645FE5BDE25602C9297EA3
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120543.jpg" />
 </div>
 
 
@@ -130,7 +204,7 @@ Supermium 121.0.6167.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120544.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ Waves Ultimate 2024.01.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120545.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ magnet:?xt=urn:btih:E4C94EA762388BFE9D859BB3D02BCB024A668177
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120546.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:BDBA6B25B95B4C94B46B468FA651B7D40948AA9E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120547.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ magnet:?xt=urn:btih:4CAD9D90D7FA37FD519BB0F45017B8299FBAD6FC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120548.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ Spectrasonics Omnisphere Software 2.8.6c, Patch 2.8.2c, Soundsource 2.6.2c Libra
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120549.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120550.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120551.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ magnet:?xt=urn:btih:259E965755EC07ACD34F6662138C8A0F8C498D6D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120552.jpg" />
 </div>
 
 
@@ -351,7 +425,7 @@ magnet:?xt=urn:btih:3E0FE9B6204691C4C1FB072660C60FAC8FAF4ECC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120553.jpg" />
 </div>
 
 
@@ -375,7 +449,7 @@ magnet:?xt=urn:btih:B55F352E92E56C34B2EC077359CED4BC30280C7E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120554.jpg" />
 </div>
 
 
@@ -399,7 +473,7 @@ Old World v.70360 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120555.jpg" />
 </div>
 
 
@@ -423,7 +497,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120556.jpg" />
 </div>
 
 
@@ -447,7 +521,7 @@ magnet:?xt=urn:btih:441EED8154CB032C0F75EFBECEACB50B5F4B3D9F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120557.jpg" />
 </div>
 
 
@@ -471,7 +545,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120558.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ magnet:?xt=urn:btih:52E70ACB81B57D09511B2BE83BFADA0C0F0A1FAD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120559.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ magnet:?xt=urn:btih:181D48FC17BF995E8C4765E815BAEC3A1A986091
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120560.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ magnet:?xt=urn:btih:8E1140A049F99C2310AA7462F770BCC7D52BC955
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120561.jpg" />
 </div>
 
 
@@ -554,81 +628,6 @@ magnet:?xt=urn:btih:8E1140A049F99C2310AA7462F770BCC7D52BC955
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0204F6777B3D760C90AC5F7D5486732E4D1720D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695196   (120562) от 28.01.2024
-
-Нетология | Нутрициология для себя - как правильно питаться (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь составлять сбалансированный рацион для себя и своих близких при любом бюджете
-Сможете постепенно наладить отношения с едой и повысить качество жизни
-Развеете мифы о правильном питании и избавитесь от ограничений, связанных с едой
-В современном ритме жизни мы часто пренебрегаем возможностью нормально и без спешки позавтракать или пообедать, отдавая предпочтение (   Читать дальше...   )Производство: НетологияЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 07:13:32Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695266   (120563) от 28.01.2024
-
-Интерстеллар / Interstellar (2014) BDRip [H.264/1080p-LQ] [IMAX Edition] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания / Warner Bros. Pictures, Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Кейси Аффлек, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Джессика Честейн, Джон Литгоу, Мэтт ДэймонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53566472DB9328846B7A824DB2194F37F9F3CB12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695255   (120564) от 28.01.2024
-
-Пустоши / Hwangya / Badland Hunters (2024) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Корея Южная / Big Punch Pictures, Climax Studio, Nova FilmЖанр: Боевик, приключения, фантастика, драмаРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ли Хи-джун, Ли Джун-ён, Но Джон-и, Ан Джи-хе, Ким Ён-сон ...Перевод: Любительский многоголосый (DubLik TV)Язык озвучки: РусскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AE29708709A65E5497AAA3DDD4DDB97E182F32
 ```
 
 

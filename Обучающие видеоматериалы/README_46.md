@@ -6,7 +6,7 @@ Digital Tutors, Pluralsight, Paul Conner | Professional Tips for Modeling Comple
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CFDCBA03F97573CBEF4E96C825FDDDB725DE553B
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130766.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:3042951C3E3187016EBA3D3D925F54984257362C
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130771.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130864.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130886.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130909.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130975.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130996.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131029.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131031.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:B5466BCD4E3FAA70BC1EE98E615DA4DCBCB26386
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131229.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131231.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131232.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ School of Motion, Joey Korenman, Greg Stewart и др. | A motion design masterp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131273.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Udemy, Raj Chhabria | ChatGPT for Data Science and Machine Learning (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131275.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Mrawan Hussain | Blender: Rolls Royce Spectre in 3D (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131287.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:8ED2856C81E05C97F66CA6FCD55A3BCD220CF26E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131352.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ AmigosCode, Nelson Djalo | Functional Programming & Java Streams (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131353.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Udemy, Manas Roy | DALL-E and Adobe Firefly Course: AI Art Generation Ethically 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131359.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Udemy, Manas Roy | Adobe Firefly Course: Beginner to Pro AI In One Go (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131375.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ LinkedIn Learning, Dr. Chaz Austin | Succeeding in a New Job (2020) PCRec [EN / 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131402.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ GNEURO, Никита Глухов, Артур Форостяк | Stable Diffusio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131583.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Udemy, English Academy | Living in U.S.: Speaking English for Everyday Situation
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131625.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131627.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine:
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131658.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:1D077F75D81D9B4360E660712672404A32A18118
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131742.jpg" />
 </div>
 
 

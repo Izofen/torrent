@@ -1,3 +1,76 @@
+###  Публикация: 1692787   (116298) от 22.02.2024
+
+Прелесть (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116298.jpg" />
+</div>
+
+
+###  Подробнее
+
+25-летний автоугонщик Цыган живет в провинциальном городе, центром которого является завод по переработке драгоценных металлов. 20 лет назад на этом заводе погиб его отец, якобы замешанный в хищении золотых слитков. Следствие спустило дело на тормозах, поэтому Цыган жаждет найти убийцу и отомстить за отца, которого он толком и не помнит. Когда в городе объявляется (   Читать дальше...   )Производство: Россия / Good Story Media, PREMIERЖанр: драмаРежиссер: Динар ГариповАктеры: Олег Меньшиков, Филипп Янковский, Фёдор Федотов, Елизавета Кононова, Максим Коновалов, Назар Сафонов, Вера Панфилова, Олег Васильков, Анатолий Горячев, Константин МурзенкоПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24745BF7B964829F4EC86161BED17EE9A814A4F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701074   (116299) от 22.02.2024
+
+Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 02.2024
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116299.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых необходимых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBC093199FD55BF6D53F6E06FD0569FBA5DEDDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598639   (116300) от 22.02.2024
+
+LEX LIVE 10 RC FIX 23 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116300.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEX LIVE 10 - портативная операционная система для работы, интернета, ремонта компьютеров, которая загружается с USB устройства в оперативную память вашего ПК. Таким образом данная система может работать даже если у вас нерабочий винчестер или он совсем отсутствует.
+LEX LIVE 10 имеет достаточное количество установленного софта для того, чтобы просмотреть содержимое (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B250AC747C3FAE024C55AE5E56593F18AACAF01B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486346   (116301) от 22.02.2024
 
 Counter-Strike 1.6 (2003) [Ru/Multi] (1.1.2.5/pv48/b4554) Repack CSDnet
@@ -6,7 +79,7 @@ Counter-Strike 1.6 (2003) [Ru/Multi] (1.1.2.5/pv48/b4554) Repack CSDnet
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116301.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:C6D11D92CE86FB2DF77702EFFF80D40570ABB04B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116302.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116303.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:2F2AD814DB44489A406413AE27A80A866E153DE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116304.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:6E0B40851D11206C54F5A63A07166F6272130AE4
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116305.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116306.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Adobe Photoshop 2024 25.5.0.375 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116307.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:96640C650F680C99EC7CE7ADF1CC54740AEC517C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116308.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:7FF8E68DD3C6846BE59AF05BD6CD962F7A2EFA70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116309.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Alcohol 120% Free Edition 2.1.1 Build 2201 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116310.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ magnet:?xt=urn:btih:1B21A6E46FD35723A79554069084E28F604FB9D7
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:C26BA3D3D69503B05824FD90E9901964EA79DC71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116312.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Adobe Photoshop 2024 25.5.0.375 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116313.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:178B79CEC50D1C1A2E6701E44FAE4E9C9A5E2010
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116314.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ Starперцы / Last Vegas (2013) BDRip [H264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116315.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ magnet:?xt=urn:btih:184DD55B3F140B860C24B0C2DEBBCDFD6971D1F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116316.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ magnet:?xt=urn:btih:FCC100DFB2D83C74C652DA1FF10DB02C78EE6434
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116317.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ magnet:?xt=urn:btih:FD57DB70EEF0B0A21B161031F17B05CF818B70C8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116318.jpg" />
 </div>
 
 
@@ -440,7 +513,7 @@ magnet:?xt=urn:btih:28E2225376353A0568FBB0B84EDEAEF1BDC2E931
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116319.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Boystown - Angels with Dirty Faces (2005) [FLAC|Lossless|WEB-DL|tracks] <AOR, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116320.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ magnet:?xt=urn:btih:E8B694AA0A7B699A599B87A4B4A95225A423E56D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116321.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ Jeremy Harry Harris - Walking With My Darkness (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116322.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116323.jpg" />
 </div>
 
 
@@ -558,81 +631,6 @@ Danielle Hebert & Phil Dwyer - Paris Is For Lovers (2007) Somerset [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41517E1421AC510C140CC32C525B1EB36E553E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701521   (116324) от 21.02.2024
-
-Ataraxy - Curse of the Requiem Mass (2010) EP [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Breaking Wheel (04:38)
-02. Curse of the Requiem Mass (04:35)
-03. The Last Stare (03:20)
-04. Bleed to Death (03:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1509CB3568FEC32FC8BFF670F3824C7C0BB2EB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701551   (116325) от 21.02.2024
-
-Западня / The Decoy (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная история про семейную пару, промышлявшую шулерством. А чтобы привлекать богатеньких лохов, они приветили в семью дальнюю родственницу, молоденькую симпатичную провинциалку. Лохи, они же клюют на молоденьких. Причем, использовали втемную, наивная барышня и не подозревала, что она просто приманка.Производство: США, Thanhouser Film CorporationЖанр: короткометражный, драма, криминал, немое киноРежиссер: Карл ГрегориАктеры: Чарльз Хоран, Marie Rainford, Вирджиния Вейт, Мюриэл Остриш, Морган Джонс, Бойд Маршалл, Джон РейнхартПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1A3DEFD9D68DD01E6EDBEE281627DC81EC54F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701524   (116326) от 21.02.2024
-
-Журнал | Домашний №3 (641) (февраль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашний - это журнал для всей семьи! В каждом номере — секреты красоты и здоровья, домашнего уюта, кулинарные советы, рекомендации астролога, уход за домашними питомцами, семейная психология, юридическая консультация, житейские истории и многое-многое другое. Также на страницах журнала вас ждут интересные интервью с любимыми звездами шоу-бизнеса и кино, где они (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E639C20649DDE4012FE93B1CCE509DC4EC73B4D2
 ```
 
 

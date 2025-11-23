@@ -1,3 +1,82 @@
+###  Публикация: 1724237   (109278) от 19.05.2024
+
+Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voo Da Borboleta
+02.O Sussurro Das MontanhasЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBD1F551A0CBDD4928D849C896DA655D49583C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724199   (109279) от 19.05.2024
+
+VA - Redux Selection Vol. 6 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Binner - Vivid Dreams (Extended Mix) [6:38]
+02. Cadeya - Take Me Here (Extended Mix) [5:51]
+03. LinMou - Midnight Zero (Extended Mix) [7:40]
+04. André Wildenhues & Helena Kristiansson & Stacey Jay - Lighthouse (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9717F93B523B97F3BB2ADA95641DB5BBBB7B2B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724176   (109280) от 19.05.2024
+
+Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dust (00:02:49)
+02 - One, Two, & 3 (00:03:26)
+03 - Bang Bang! (My Neurodivergent Anthem) (00:02:47)
+04 - Dreamteam (00:03:01)(   Читать дальше...   )Жанр: House, Dance-PopПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2458631C704163AE6070D49AAD2C9A245553F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724256   (109281) от 19.05.2024
 
 Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +85,7 @@ Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109281.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109282.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109283.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Musi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109284.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109285.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109286.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109287.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109288.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ magnet:?xt=urn:btih:BCB7F7F61080A997F08C44C970459B0ECC6E408D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109289.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ magnet:?xt=urn:btih:88A52B4322CE67F13815DFC330E51AA5248322B6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109290.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ YouCut - Video Editor v1.623.1188 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109291.jpg" />
 </div>
 
 
@@ -290,7 +369,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|image + .cue] <Blues Rock, Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109292.jpg" />
 </div>
 
 
@@ -317,7 +396,7 @@ Opera GX 109.0.5097.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109293.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ Jazz Saxophone, Romantic Moods Academy - Seductive Sax: Set the Mood, Romantic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109294.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Pig - Red Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109295.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Brave Browser 1.66.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109296.jpg" />
 </div>
 
 
@@ -421,7 +500,7 @@ VA - Шансон премьера 2023 ноябрь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109297.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ magnet:?xt=urn:btih:F189B580AF790CA36EB2B9B2C152D59A56B952B6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109298.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ VA - Black Hole Trance Music 05-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109299.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ magnet:?xt=urn:btih:9D6723C14D5383429C9BF5D6EA20F9F1DF77FDB1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109300.jpg" />
 </div>
 
 
@@ -525,7 +604,7 @@ VA - Armin van Buuren - A State Of Trance 1173 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109301.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ VA - D.Trance 106 (incl. D-Techno 61) (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109302.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ Virginia Mayhew Septet - A Simple Thank You (2007) Renma Recordings [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109303.jpg" />
 </div>
 
 
@@ -593,84 +672,6 @@ Virginia Mayhew Septet - A Simple Thank You (2007) Renma Recordings [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8A8C80779354919D208A3A0C739B7BFADB9C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724170   (109304) от 18.05.2024
-
-Своя игра (18.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109304.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C6BAAB8BD67DF691AFD51E186BACDC7F6B33C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724179   (109305) от 18.05.2024
-
-Ayreon - 01011001 - Live Beneath The Waves (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109305.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. March Of The Machines (2:46)
-02. Age of Shadows (10:27)
-03. Comatose (4:23)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4AAE31FFBDF971B1C447CF99323DF2F01505D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724127   (109306) от 18.05.2024
-
-The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Years Will Not Be Kind (00:03:25)
-02 - Live Close By (Visit Often)Жанр: Blues, Country, FolkПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291CE7DCAF8FEFE89BBC6A8FCC2DD0B4EB8DFDE4
 ```
 
 

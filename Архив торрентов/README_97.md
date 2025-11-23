@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XYplorer 26.90.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26049.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare PDFelement 11.4.7.3336 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26053.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 117.0.5408.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26057.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7302 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26058.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26060.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Multi Commander Full Edition 15.1 Build 3074 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26062.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Capture One 23 Enterprise 16.5.7.2742 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26066.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Joplin 3.2.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26067.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ IObit Driver Booster Pro 12.3.0.549 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26069.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Attribute Changer 11.30c + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26071.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hard Disk Sentinel PRO 6.20.8 Build 13391 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26080.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CrystalDiskInfo 9.6.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26085.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Driver Store Explorer 0.12.40 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26088.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blender 4.2.7 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26090.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Snappy Driver Installer Origin R813 | Драйверпаки 25.01.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26093.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26093.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ IObit Driver Booster Pro 12.3.0.549 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26105.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Adguard 7.20.1 (7.20.4966.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26107.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ FanControl V215 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26135.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ BalenaEtcher 2.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26138.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26138.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ OneCommander Pro 3.95.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26142.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Light Image Resizer 7.2.0.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26146.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26148.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26148.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ R-Drive Image Technician 7.3 Build 7301 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26149.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ocenaudio 3.14.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26152.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26152.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Zettlr 3.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26170.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26170.jpg" />
 </div>
 
 

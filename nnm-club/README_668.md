@@ -6,7 +6,7 @@ Windows Server [10.0.25398.1611], version 23H2 (Updated May 2025) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Plexim Plecs 4.9.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17686.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:79317FB6EA9DA14989E480937244CB756B465565
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17687.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D654CC47EF1D7A492436AD2B9B6469DD55AE4AAB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17688.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F7D676593748E757091A5C89A019276D671D5870
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17689.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:BB97E5212BE910DEF318CA1F7222844E411E1D6A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17690.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EF0C4789614C5C32E2E31F4AA0C4E1BA8BD11B94
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17691.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17692.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9D51C1CE972E47CEB2FBB77EC153DB5A8A932699
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17693.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17694.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ACE172F5ACC3606ED39CA634A8135290F8110E73
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17695.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:26B171120F5988A3B6E91460C132D040649D3DBF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17696.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:00E9E9357A44479AB3341594905C9E0FE3EEC468
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17697.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Tor Browser Bundle 14.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17698.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.03.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17699.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BCB5FF454320782EDE1883579B9B67B055BF7C30
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17700.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wilmot Works It Out (2024) [Multi] (1.039) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17701.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 15.05.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17702.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ AOMEI Backupper Technician Plus 7.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17703.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ V: Последняя битва / V: The Final Battle (1984) BDRip [H.265/1080p
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17704.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft PowerToys 0.91.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17705.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Windows Server 2022 LTSC [10.0.20348.3692], Version 21H2 (Updated May 2025) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17706.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PotPlayer 250514 (1.7.22541) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17707.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft Windows 10 [10.0.19045.5854], Version 22H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17708.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:7DDA6112C183E0AB30E1C19F151E6ECD935110C9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17709.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:B3ACF4CECABC32BA4B61D530B41EB2DADDCF7AA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17710.jpg" />
 </div>
 
 

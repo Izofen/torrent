@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fleetwood Mac - The Dance (1997) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49427.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fleetwood Mac: Live In Boston (2003) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49428.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FA11E5FF26C9607561E400C459124D6BA596EFED
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49434.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49435.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:68B6B994FAA35AAC1BC1319660A3D2AFCF10BA87
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49454.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:F18E675CF03D94452EC4006165DD6C2D75D03A98
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49459.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49461.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49562.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:7371165C891B836470772C69750E40BB590642A2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49583.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:9F47A2DF34FE972ACEA7274A7CFC848E181024FD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49584.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:45AC667AF9F8244D2587CDF3C281CEA6F65445C0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49586.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:39515A5DD9D5993C232800FA4F8D0C4D7976A590
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49588.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:EBE12AF87D6F8F56418A54954CAC855A06096D70
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49591.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A3E105EEE23247A8876571A35B95D861BAC86408
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49644.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0AA8294FAAE4648B91B039D0DF5DB813B6220A3A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49672.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:19ACE82FC03BF1A6F41AD4658027CDF6AC92B772
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49675.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E75C3E637E4E64A2BB2D04A9683F11CEAE16644D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49687.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:4C2C669C00550329053001874E47B213ADA848B6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49689.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:F657AECDE5663095BD28641EB1D34AFBFF924F0D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49699.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Heaven and Hell - Radio City Music Hall Live! (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49742.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7EBD4DF235A26F20E9BCEB1C28D02433D56DB21F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49745.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:D6C841D137BC219363F9CCEDB78096CA36CBC61F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49746.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6CDD918F64C94994B9B14A66B41FE61BD8525B09
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49749.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8446F97125F7554BCDFA37F1D130005ABC795A90
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49752.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:FF57A29FC5959018F8635FED1E550749C17BC0FD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49753.jpg" />
 </div>
 
 

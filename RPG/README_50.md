@@ -1,3 +1,51 @@
+###  Публикация: 1626724   (255154) от 15.04.2023
+
+Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard to Be a God – ролевое приключение в стиле научной фантастики. Центральный персонаж окончил средневековую среднюю школу специальных служб. Он прошел курсы по боевой и дипломатической подготовке. Также он является самым влиятельным человеком в Аркнаре, но окружающий мир способен преподнести новые сюрпризы и преграды.Тип издания: LicenseРазработчик: Burut Creative Team, АкеллаЖанр: Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91E3E5576ADAFDD0D2210462E0F325B0503A067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626291   (255177) от 14.04.2023
+
+Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошла сотня лет с падения когда-то великой Эдоранской империи из-за невообразимой чумы, истощившей государство. В наступившем хаосе по всей земле процветают наемники, бандиты и грабители — понятие чести осталось в далеком прошлом. Вам предстоит вести за собой отряд беспринципных наемников через открытый мир, в котором бои, смерть и жажда наживы определяют вашу повседневную (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Adventure, Indie, RPG, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3367B05AF5222DEB136FA9DF5B745DC0283F72A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836790   (255662) от 12.11.2025
 
 Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Edition]
@@ -6,7 +54,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255662.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255662.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255912.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255912.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256742.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256742.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256743.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256743.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257623.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257786.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257786.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257838.jpg" />
 </div>
 
 
@@ -161,6 +209,30 @@ Sengoku Dynasty - захватывающее многожанровое соче
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A56E771C01C771B97309116F52823BA0C2674897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502950   (259096) от 28.05.2012
+
+Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из множества РПГшек с дискретным передвижением. Удобный интерфейс, качественно нарисованные и анимированные враги, интересные карты не оставят настоящих РПГшников-любителей старых игр равнодушными. С другой стороны, скучноватый геймплей (как правило приходится зачищать полностью всю карту), не слишком развитый сюжет и игровой мир - безусловно являются минусами Yendor'а.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1059485   (241130) от 17.04.2022
+
+Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241130.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Agitato
+A2 Nuclear Blues
+A3 Manic Depression
+A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625084   (241158) от 10.04.2023
+
+The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Robot (6:02)
+ 02. I Wouldn’t Want to Be Like You (3:22)
+ 03. Some Other Time (4:05)
+ 04. Breakdown (3:54)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625441   (241189) от 10.04.2023
+
+Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+A1 Jupiter Sign 4:52
+A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625184   (241666) от 10.04.2023
+
+The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_241666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+1 Living In The Plastic Age 5:12
+2 Video Killed The Radio Star 4:08(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625088   (241674) от 10.04.2023
 
 Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
@@ -6,7 +114,7 @@ Berlin - Count Three & Pray (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241674.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241674.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electron
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241702.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241702.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241806.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241806.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241807.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241807.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241857.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241857.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241973.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241973.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242025.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242025.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242193.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242193.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242217.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242217.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242453.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242453.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ The Twins - A Wild Romance (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242461.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Rebellion - Studio Albums (9 releases) (2002-2021) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242599.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ magnet:?xt=urn:btih:2086E899A69D23FA4FDEF886257285F302E36339
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242767.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242767.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Lesek Semelka (Lešek Semelka) - Coloured Dreams (1985) [FLAC 2.0 24/96|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242781.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242781.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ magnet:?xt=urn:btih:48B383381F211F2600167B9E196651428328B42B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242809.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242809.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ magnet:?xt=urn:btih:26A0EF948F1A68E406BCA6542E1D05245B67CB82
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242846.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ magnet:?xt=urn:btih:BDA781E64704F4679FE3E8297E08D77DE7F7E729
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242866.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242870.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242870.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Space - Magic Fly (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ambient, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243057.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243057.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Syn
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243080.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243080.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243174.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243174.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243215.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243215.jpg" />
 </div>
 
 
@@ -584,114 +692,6 @@ Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539354   (243251) от 27.03.2022
-
-Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243251.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sad Sad Sad
-A2 Mixed Emotions
-A3 Terrifying
-A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627034   (243295) от 17.04.2023
-
-Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Age
-02. Run Boy Run
-03. The Great Escape
-04. Boat Song(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633294   (243325) от 15.05.2023
-
-StormWarrior - Studio Albums (6 releases) (2002-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243325.jpg" />
-</div>
-
-
-###  Подробнее
-
-StormWarrior — пауэр-метал-группа из Германии, основанная в 1998 году вокалистом и гитаристом Ларсом Рамке и барабанщиком Андре Шуманном, к которым позднее присоединились гитарист Скотт Болтер и бас-гитарист Тим Зайнет.2002 - Stormwarrior
-2004 - Northern Rage
-2008 - Heading Northe
-2011 - Heathen WarriorЖанр: Power/Speed MetalПродолжительность: 05:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627110   (243370) от 17.04.2023
-
-Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk Rock, Soft Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243370.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Watching Your TV (Na Prvním Programu)
-A2 With Her Glasses On (Měla Na Očích Brýle)
-A3 You Taste Of The Meadow (Máš Chuť Majoránky)
-A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk Rock, Soft Rock, Rock & RollПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 ```
 
 

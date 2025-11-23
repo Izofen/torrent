@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108409.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108439.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108443.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108457.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108490.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108516.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108564.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108580.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108586.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108587.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108589.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108640.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - 100% Hits: DJ Hits '98 Vol. 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108641.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cicero - For Broken Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108647.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Fulltime, Vol. 1 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108823.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5F4177C7143CA2F2D61167B2AB0874E7ABA01391
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108824.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Fulltime, Vol. 5 (Reworked by DJs) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108825.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Fulltime, Vol. 4 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108831.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Fulltime, Vol. 2 (Reworked by DJs) (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108832.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Nothing But... Pure Dance, Vol. 21 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108835.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Fulltime, Vol. 3 (Reworked by DJs) (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108836.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:89BD78601CEDC7B0DC57C0DB013B1E950F7D58BB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108941.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:BA22310FABD50F17533C6921640F49618CA6EBAD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108951.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Fulltime Production Italo Disco, Vol. 2 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108996.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Fulltime Production Italo Disco, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109009.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mary Gu - luvcore (deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Поп>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109017.jpg" />
 </div>
 
 

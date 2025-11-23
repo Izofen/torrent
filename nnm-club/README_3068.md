@@ -1,3 +1,88 @@
+###  Публикация: 470937   (97292) от 20.03.2012
+
+[EN] Вонючка / Muckman (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно сведениям очевидцев, в лесах и болотах Пенсильвании обитает скверно пахнущий аналог снежного человека, которого местные жители ласково кличут Вонючкой. Найти и запечатлеть этого легендарного монстра на плёнку — последний шанс на продолжение карьеры для тележурналиста Микки. А это значит, что Микки и его съёмочная группа должны отыскать Вонючку во что бы то ни стало, даже если его не существует.Жанр: УжасыРежиссер: Бретт ПайперАктеры: А.Дж. Кхан, Элисон Уитни, Йен Пайпер, Джаред Уоррен, Даниэль ДонахьюПеревод: ОтсутствуетПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471071   (97293) от 20.03.2012
+
+[Wallpapers] Green Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97293.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Green Wallpapers
+Название: Green Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838ED7FAA00DE083DC81075748C1A7BD0AEE1E4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470390   (97295) от 20.03.2012
+
+VA - Мощная Dance Атака. Зарубежный (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dido - This Land Is Mine
+ 002. Basto! - Again And Again
+ 003. Kaskade feat. Skylar Grey - Room For Happiness (Gregori Klosman Remix)
+ 004. Sunrise Inc. & Liviu Hodor - Still The Same (Radio Edit)
+ 005. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
+ 006. Inna - Endless
+ 007. Jochen Miller - Flashback (Gregori Klosman Remix)
+ 008. Switchfoot - You
+ 009. Anastacia - Heavy On My Heart
+ 010. Bob Sinclar feat. Pitbull & DragonFly & Fatman Scoop - Rock The Boat (Club )(   Читать дальше...   )2012Жанр: РорПродолжительность: 07:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB2F29EFCA8898D7B91FE85C1185AFE525C9A33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467622   (97298) от 20.03.2012
 
 VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/с]<Pop>
@@ -6,7 +91,7 @@ VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97298.jpg" />
 </div>
 
 
@@ -39,7 +124,7 @@ Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97299.jpg" />
 </div>
 
 
@@ -71,7 +156,7 @@ magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97302.jpg" />
 </div>
 
 
@@ -95,7 +180,7 @@ magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97303.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97304.jpg" />
 </div>
 
 
@@ -143,7 +228,7 @@ magnet:?xt=urn:btih:AD78C51EC669ADCBB965ED9646A7617AA3BB1231
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97305.jpg" />
 </div>
 
 
@@ -167,7 +252,7 @@ magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97306.jpg" />
 </div>
 
 
@@ -195,7 +280,7 @@ magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97307.jpg" />
 </div>
 
 
@@ -223,7 +308,7 @@ magnet:?xt=urn:btih:FDD69F0F64B9CB9949D6D5B8029C9D81B2FF2CD4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97309.jpg" />
 </div>
 
 
@@ -249,7 +334,7 @@ magnet:?xt=urn:btih:0512AD7B2B1BE6D0B5FC62F85431B421A459DEE2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97310.jpg" />
 </div>
 
 
@@ -273,7 +358,7 @@ Meshuggah - Koloss (2012) [MP3|~245 кб/с (V0)]<Progressive Post-Thrash / Math
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97313.jpg" />
 </div>
 
 
@@ -306,7 +391,7 @@ magnet:?xt=urn:btih:1F9581A028D278682979458DA39FBA7D4828ED72
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97314.jpg" />
 </div>
 
 
@@ -330,7 +415,7 @@ VA - TMP: Clear Sky 065 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97315.jpg" />
 </div>
 
 
@@ -363,7 +448,7 @@ magnet:?xt=urn:btih:9C6A93A85520676A86003FAB7F8B2F54F9827768
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97317.jpg" />
 </div>
 
 
@@ -387,7 +472,7 @@ magnet:?xt=urn:btih:A53599AED5C626CFB43FA9A7A6CC963252ED2272
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97321.jpg" />
 </div>
 
 
@@ -411,7 +496,7 @@ magnet:?xt=urn:btih:0E0B10B9A953FCB0FD7CC5B1939751C7356C27CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97323.jpg" />
 </div>
 
 
@@ -435,7 +520,7 @@ VA - Super Dance (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97324.jpg" />
 </div>
 
 
@@ -468,7 +553,7 @@ magnet:?xt=urn:btih:A665F992560BA6D0CBDAA872EECCA0605B7C28D1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97326.jpg" />
 </div>
 
 
@@ -496,7 +581,7 @@ VA - To The Point (Remixed) (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97327.jpg" />
 </div>
 
 
@@ -527,7 +612,7 @@ VA - Ahora 012 (2012) [MP3|231-279 kbps]<House | Dance | Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97330.jpg" />
 </div>
 
 
@@ -560,7 +645,7 @@ magnet:?xt=urn:btih:4D6C306528629F065997639C6650766FCDA73FCD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97332.jpg" />
 </div>
 
 
@@ -588,7 +673,7 @@ Google выступила в защиту Hotfile и Megaupload
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97333.jpg" />
 </div>
 
 
@@ -612,7 +697,7 @@ Google выступила в защиту Hotfile и Megaupload
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97334.jpg" />
 </div>
 
 
@@ -627,90 +712,6 @@ Google выступила в защиту Hotfile и Megaupload
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C81D20F455EB34AB49D9248C3BE541AC44E2931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471476   (97335) от 21.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97335.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 16
-Название: Avto Wallpapers Pack 16
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9411A9005F35A965D7A50909EDA397C8C48C4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471068   (97336) от 21.03.2012
-
-[Wallpapers] HD Pictures №3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97336.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №3
-Название: HD Pictures №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA7EF50829523D7497521A181821578F2A9F8F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471494   (97339) от 21.03.2012
-
-[Wallpapers] HD Pictures №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97339.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №5
-Название: HD Pictures №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D61EF6F2D104BD91487833F9B4DCD2A54E663D
 ```
 
 

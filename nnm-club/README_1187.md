@@ -6,7 +6,7 @@ Altus 5.4.0 (Альтернатива WhatsApp Desktop) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31215.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:71CFBADC7E43D78F0E0533D06C06D39B7809DAF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31216.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31216.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Shadows of the Damned: Hella Remastered (2024) [Ru/Multi] (Build 15991776) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31217.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31217.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2E99E48B6C6A5A3A5D501DEABB7F40CCC6D2A3A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31218.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31219.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ WinToUSB Technician 9.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31220.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31221.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31221.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:ABA4F703EF80D7608497546366F11940D08F6BC8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31222.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31222.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8835F122DDE7CE0DF8BEA67DEFB06A0228043864
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31223.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31223.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:51E229AA84129E9D4BB95C93B09BED1498153720
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31224.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:31AB2AC991DA0172F4BE5E371E80EA3A9F407F51
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31225.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31225.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.03 update 3/dlc) Repack Oth
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31226.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:0A22D41546FCE4CD8B5C9135E8B7B27A74F07281
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31227.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31227.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E044C592671A9E58F58A350BD020754A0C203154
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31228.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31229.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:AAD42B102F78A58D8DE1FB41C0F41D1323B50115
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31230.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:03B46C2E772E630E2D7A1FB2F97385EC1D1FA085
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31231.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DA68C7F3B908812F3A3D7CE22327DDA10A935C2B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31232.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:DA68C7F3B908812F3A3D7CE22327DDA10A935C2B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31233.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1480E2957F0683EAA33F4DE67F4D9AEE76B2CC73
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31234.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:82DD5D0B125C553C6D422038A4D3D43389A9ADBF
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31235.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ IObit Driver Booster Pro 12.2.0.542 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31236.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:CCFE0A89C5700B088E0A98D2155E950FE3DA69D3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31237.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:807E273F9EB232F43B58A296C13C83A3BEEC007E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31238.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:788E0CC9182EF69132C5D1F5081AB69E1A753AFF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31239.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AI Photo Editor Pro - Polish v1.603.201 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31240.jpg" />
 </div>
 
 

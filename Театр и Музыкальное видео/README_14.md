@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D79363C1C3D38138CC61EAF8B97B06C417C55EDD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49170.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:269C47D091FE9B48E9BD83D81B7C3E1D05FFE9B8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49218.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:592FB51E4D30D06A9C55F5BCFE8EA9DDB8ADB73D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49222.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:114C80D0E8B11C1895DBA2B1CC3ED7673697D0B0
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49224.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ George Thorogood And The Destroyers / 30th Anniversary Tour: Live (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49226.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D114AD6E060D70B8240B7B01E427C4F19FB0E74C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49228.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:0C8A9B29B80592540E5B3C80C0E72FC92C9C6B05
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49234.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:98947CA777549C758AC64DCF41EDCE42BFDA802B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49239.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:F75D30D6EFE9A41A8205F42BA943F775EA93207C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49243.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C224A7863902BC5134A34C02F1A546E0483EC0D8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49244.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Janis Joplin / The Kozmic Blues (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49246.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F7AC5BE149D04BF34E101A6E5F3203ADBF8C7A6E
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49255.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:513CF1B70D25A047A954600685694C64A3CFC549
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49271.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AFCEECA7AB064E5CE767939803DE7EDE00069A71
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49272.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:FDB850747D6D2355CC22B1962E7C7B7F3419FF01
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49273.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6C935D9BF97C470B29D9044FE7D5C4926E55649D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49275.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A397D980983CD64302F7FD75B806C8085CE663C5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49276.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ BAND-MAID - LIVE at AKASAKA BLITZ (2017) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49282.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:306F2FD6482809458CE435CE6B989C1114137DFD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49336.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3722149F46F736712BC46A5B9A8D30444FEE60CC
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49344.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:13A2849D13F6A65D71310EA337B57ADF5D92A76B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49349.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:29F601403F7AB408B2E2ECEC8429823F750FA570
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49357.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3ED8A794F8A7B78A56E8F3665388F29EFD10B442
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49358.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:DAB3F67EECF62A209294B8C394B1580906305B83
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49372.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:8BA3EEB59A3F93B82EFBD33D40431D323F5E2B59
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49375.jpg" />
 </div>
 
 

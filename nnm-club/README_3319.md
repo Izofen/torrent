@@ -1,3 +1,79 @@
+###  Публикация: 1739925   (105976) от 30.07.2024
+
+Молчание моря / Le silence de la mer (1949) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа «Молчание моря» Жана Марселя Брюллера под псевдонимом «Веркор» (1942)... Вторая мировая война.Тихий провинциальный французский городок. В дом, где живёт молодая учительница музыки Жанна с дедушкой Андре, вселяется молодой немецкий офицер Вернер фон Эбреннак. Андре и Жанна не могут повлиять на присутствие «гостя», который, вдобавок, занял комнату (   Читать дальше...   )Производство: Франция, Бельгия / Antenne-2 (A2), Expand Drama, Radio Télévision Belge Francofone (RTBF)...Жанр: драма, военный, экранизацияРежиссер: Жан-Пьер МельвильАктеры: Говард Вернон, Николь Стефани, Жан-Мари Робен, Ами Аарэ, Жорж Патрикс, Дени Садье, Рюдель, Макс Фромм, Клод Вернье, Макс Хэрман, Фриц ШмидельПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Nosoglotka), английскиеПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268568EAE238AEAE246166FCA66A1B5E0745AF93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739812   (105977) от 30.07.2024
+
+Другая жизнь / Zeytin Agaci / Another Self (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три подруги приезжают в морской городок на сеанс групповой терапии и неожиданно для себя узнают о непроработанных травмах своих семей.
+"Другая Жизнь" - это не просто сериал о любви и интригах, это история о поиске своего истинного "Я" в мире, полном лжи и предательства. Этот сериал заставит вас задуматься о жизненных ценностях, о том, что по-настоящему (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу АлптекинАктеры: Туба Бюйюкюстюн, Седа Бакан, Бонджук Йылмаз, Мурат Боз, Фырат Таныш, Серкан Алтунорак, Рыза Коджаолу, Фюсун Дэмирэль, Умут Курт, Mehmet Aybars Kaya и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284746BAC5A33E3C994927D19CEA480B5570103D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739861   (105978) от 30.07.2024
+
+The Soul of John Black - Sweet Summer Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Summer Love (4:05)
+02. They Don't Know (4:15)
+03. Dance Your Troubles Away (4:03)
+04. Anywhere in the World (4:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46A9FDB670C324FEEAC3CC5F1DA527D99800492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739967   (105979) от 30.07.2024
 
 Александр Куприн | Механическое правосудие (2022) [MP3, Puffin Сafe]
@@ -6,7 +82,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105979.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105980.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ VA - Surf - Rock & Pop (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Surf>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105981.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105982.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ Mike Sponza - Sounds Like Sunday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105983.jpg" />
 </div>
 
 
@@ -138,7 +214,7 @@ magnet:?xt=urn:btih:21044E61C9C8309FB2A39E3E454D6AD2ACB475DA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105984.jpg" />
 </div>
 
 
@@ -165,7 +241,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105985.jpg" />
 </div>
 
 
@@ -192,7 +268,7 @@ Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105986.jpg" />
 </div>
 
 
@@ -219,7 +295,7 @@ Fab Manzini Music - Chapter One (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105987.jpg" />
 </div>
 
 
@@ -246,7 +322,7 @@ Hall Aflame - Amplifire (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105988.jpg" />
 </div>
 
 
@@ -273,7 +349,7 @@ Band of the Underhand - A Cheap Ride To Heaven (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105989.jpg" />
 </div>
 
 
@@ -300,7 +376,7 @@ magnet:?xt=urn:btih:0763B423D7BE702D0073DA431FD8D652FCB70B2C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105990.jpg" />
 </div>
 
 
@@ -324,7 +400,7 @@ magnet:?xt=urn:btih:8B175DF05014B679EE9E29461017A5F5A45C84F9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105991.jpg" />
 </div>
 
 
@@ -348,7 +424,7 @@ Chris Connor - A Portrait Of Chris (1960) 2012, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105992.jpg" />
 </div>
 
 
@@ -375,7 +451,7 @@ Crusade - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105993.jpg" />
 </div>
 
 
@@ -402,7 +478,7 @@ Fractured Truth - Radiopaque (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105994.jpg" />
 </div>
 
 
@@ -429,7 +505,7 @@ Skullboogey - Dirty Bones Rolling (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105995.jpg" />
 </div>
 
 
@@ -456,7 +532,7 @@ Art Sherrod Jr - Feels So Good (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105996.jpg" />
 </div>
 
 
@@ -483,7 +559,7 @@ Rathole - Out of Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105997.jpg" />
 </div>
 
 
@@ -510,7 +586,7 @@ Photo Supreme 2024.2.2.6605 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105998.jpg" />
 </div>
 
 
@@ -534,7 +610,7 @@ magnet:?xt=urn:btih:462CC3CB6B1D0395359BC42872523B2860464788
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105999.jpg" />
 </div>
 
 
@@ -560,7 +636,7 @@ VA - Paradise Ibiza Summer 2024: Best of Deep & Tropical House (2024) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106000.jpg" />
 </div>
 
 
@@ -587,7 +663,7 @@ magnet:?xt=urn:btih:9D3D88D8D4232A5DB0D4AF5A1376F99D0DBA3D42
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106001.jpg" />
 </div>
 
 
@@ -598,87 +674,6 @@ magnet:?xt=urn:btih:9D3D88D8D4232A5DB0D4AF5A1376F99D0DBA3D42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE1C23DA95C68C740B6C61218693B79EE396B100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739674   (106002) от 28.07.2024
-
-Chris Slade Timeline - Timescape (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. SUNDANCE (6:00)
-02. WE WILL SURVIVE (7:20)
-03. JOYBRINGER (4:19)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E8E40A23457422C7B1C87AB70AD7B38ED9D1FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739560   (106003) от 28.07.2024
-
-Serious Noise Maker - Take Me to the Show (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Satan (Take Me to the Show) (4:12)
-02. In the Darkness (4:42)
-03. I Don't Give a F*Ck (3:57)
-04. Burn Down (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE12B8E8951F38E6FEA739578A9E8DDFE5E8920E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739561   (106004) от 28.07.2024
-
-Sonic Scope - Tales of Shangri-La (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance of Jungle (4:56)
-02. One Moment (5:47)
-03. Life Flower (5:12)
-04. Ambient (6:34)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD66793ECAB7517F3F472FCFC88D8B00969B5192
 ```
 
 

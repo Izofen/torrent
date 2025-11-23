@@ -1,3 +1,77 @@
+###  Публикация: 470354   (83004) от 19.03.2012
+
+Google Chrome 18.0.1025.109 Beta [Русский/Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это браузер, обеспечивающий более удобную, быструю и безопасную работу в Интернете, который имеет облегчающий работу упрощенный дизайн.
+Chrome спроектирован сотрудниками Google с нуля, а для обработки HTML использует движок Webkit, который уже применяет браузер Apple Safari.
+В отличие от других браузеров, Chrome для стабильности оформляет каждую вкладку как отдельный процесс. В случае, если содержимое вкладки зависнет, ее можно будет закрыть без риска потерять все данные в браузере.Название программы: Google ChromeЯзык интерфейса: Русский/Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470402   (83006) от 19.03.2012
+
+Сергей Волков | Красный террор в Москве [2010] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены свидетельства очевидцев о фактах революционного террора в Москве в 1917-1922 гг., осуществлявшегося большевиками в отношении лиц, не угодных новому режиму. Московские тюрьмы не справлялись с потоком арестованных, поэтому уже в 1918 г. в городе было организовано свыше десятка концентрационных лагерей, прежде всего в старинных московских монастырях (Ивановском, Спасо-Андрониковом, Новоспасском и др.). Расстрелы заключенных приобрели особенно массовый характер после покушения на Ленина и принятия в сентябре 1918 г. Постановления Совета народных комиссаров "О красном терроре". Свидетельства об этих событиях оставили лица, которым удалось избежать гибели и эмигрировать из советской России. Большинство из них публикуется в нашей стране впервые.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B797DD970B77F3E960C551830B390F7196DCCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470253   (83007) от 19.03.2012
+
+Созданы друг для друга / Made for Each Other (2009) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83007.jpg" />
+</div>
+
+
+###  Подробнее
+
+У всех вокруг есть секс. У лучшего друга, и у мамы, у пенсионеров из соседнего дома и даже у соседской собаки! Только Ден вот уже ТРИ МЕСЯЦА не может заняться сексом… с собственной женой! Что же случилось? Они по-прежнему любят друг друга, но секса нет! Как же привлечь жену к этому увлекательному занятию? И главное как устоять против соблазна, когда самая сексапильная в мире начальница делает тебе недвусмысленные намеки?Жанр: КомедияРежиссер: Дэрил ГолдбергАктеры: Бижу Филлипс, Патрик Варбертон, Дэнни Мастерсон, Кристофер Мастерсон, Лорен Джерман, Сэмм Ливайн, Кайл Ховард, Джордж Сигал, Лесли Хендрикс, Адриан МартинезПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470171   (83008) от 19.03.2012
 
 [Wallpapers] Sexy Girl Wallpapers Pack 43
@@ -6,7 +80,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83008.jpg" />
 </div>
 
 
@@ -34,7 +108,7 @@ magnet:?xt=urn:btih:4C2AFD40951DB211211CF3322BA1A9AD29A54223
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83009.jpg" />
 </div>
 
 
@@ -58,7 +132,7 @@ magnet:?xt=urn:btih:15B0A83E9177EC9C886B49E4A1F72834FE3B0149
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83010.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:2021192EF0F76813C067E3015706FFDC325611C9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83011.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ magnet:?xt=urn:btih:2021192EF0F76813C067E3015706FFDC325611C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83014.jpg" />
 </div>
 
 
@@ -134,7 +208,7 @@ magnet:?xt=urn:btih:ACE2354946624EFFE4C20CEB585DBEA992B4E1A4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83016.jpg" />
 </div>
 
 
@@ -158,7 +232,7 @@ magnet:?xt=urn:btih:293C2C6A2E01DF9EF33C0AC13FB4FC399302C926
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83017.jpg" />
 </div>
 
 
@@ -182,7 +256,7 @@ magnet:?xt=urn:btih:97CEEFE0BEE67C5C94C67F10ED18AE866F5CC625
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83019.jpg" />
 </div>
 
 
@@ -206,7 +280,7 @@ magnet:?xt=urn:btih:C21C132B3909279E06F1A3A32B50177E61DAFD0C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83021.jpg" />
 </div>
 
 
@@ -230,7 +304,7 @@ magnet:?xt=urn:btih:19B3D01C97EF3EF646D8A9EAB3AC2DA175593D04
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83022.jpg" />
 </div>
 
 
@@ -254,7 +328,7 @@ magnet:?xt=urn:btih:9633BC6412AC9AF57CC83310D036DD107EC29A0C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83023.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ magnet:?xt=urn:btih:C532F751DD5A1390ECC0B6AD53D513142DB6FC4B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83025.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83026.jpg" />
 </div>
 
 
@@ -336,7 +410,7 @@ VA - Жажда Скорости XXX (2012) [MP3|160-192 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83027.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:688BE7F6548D54F3CF95C6AFE5C0976463339FCD
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83028.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ magnet:?xt=urn:btih:F3DF841DE5725DA528BBE896BAFCED6522C1F274
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83032.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ magnet:?xt=urn:btih:30A3DA1F9E1072D6100C98ECA2373B989B4A1AAF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83034.jpg" />
 </div>
 
 
@@ -450,7 +524,7 @@ VA - Душевная музыка (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83035.jpg" />
 </div>
 
 
@@ -483,7 +557,7 @@ magnet:?xt=urn:btih:E596C508AA71C679EF0EA2FF8AAC5711342188C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83036.jpg" />
 </div>
 
 
@@ -509,7 +583,7 @@ magnet:?xt=urn:btih:B42199B12ECBE687ECFDD3B3C6A7A2CE084EDC96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83037.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ magnet:?xt=urn:btih:9F8CA2F3E1B936FBF6358EE97AE509AA1109A9A8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83038.jpg" />
 </div>
 
 
@@ -560,7 +634,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83039.jpg" />
 </div>
 
 
@@ -584,7 +658,7 @@ magnet:?xt=urn:btih:C433A30D3B5E4ACF634D21C241CAE3316A721959
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83040.jpg" />
 </div>
 
 
@@ -595,83 +669,6 @@ magnet:?xt=urn:btih:C433A30D3B5E4ACF634D21C241CAE3316A721959
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98BA3C5ABA42D2F79EA12CB9E7C6F1E13950FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470425   (83041) от 19.03.2012
-
-Turbo Gems (P) [En] 2010
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo Gems - красиво оформленная игра, в современном стиле с хорошей графикой, для любителей match-3 и тетриса. Сидите Вы в своем космическом корабле, бездельничаете, как вдруг внезапно, без предупреждения, блестящие драгоценные камни начинают материализоваться прямо в Вашем космическом корабле! Располагайте их по принципу "3 в ряд" и препятствуйте тому, чтобы стек драгоценных камней заполнил Ваш космический корабль, иначе Ваш полет окончен. 3 замечательных режима игры и 21 трофей для победителя!Тип издания: ПираткаЖанр: Три в ряд, тетрисыЯзык озвучки: n/aЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470166   (83045) от 19.03.2012
-
-Парижанка / A Woman of Paris: A Drama of Fate (1923) [1080p] Blu-Ray
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологическая драма «Парижанка» легендарный немой фильм о нравах высшего общества, в котором Чарли Чаплин продемонстрировал целый набор новых выразительных средств, совершенно неожиданных для кино того времени. Критикам этот фильм Чаплина очень понравился, но зрители, влюбленные в Маленького Бродягу, отнеслись к нему с прохладцей.
-
-Только по прошествии многих лет стало очевидно, что гений Чаплина распространяется далеко за пределы образа Бродяги Чарли. Фильм «Парижанка», направленный против ханжества и аморальности современного общества, оказал огромное влияние на многих режиссеров мелодрам о жизни высшего света.Жанр: драма, мелодрамаРежиссер: Чарльз ЧаплинАктеры: Эдна Пурвинс, Кларенс Гелдарт, Карл Миллер, Лидия Нотт, Чарльз К. Френч, Адольф Менжу, Бетти Мориссей, Мальвина Поло, Нелли Блай Бэйкер, Генри Бергман,Перевод: НемойПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A467841A944BE0B1FC4EEEA592741668BA43566
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469910   (83048) от 19.03.2012
-
-Формула 1. Сезон 2012. Этап 1. Гран-при Австралии. Гонка (Эфир 18.03.2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
-Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
-Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".
-Состав участников: Red Bull Racing (Vettel - Webber), McLaren Mercedes (Button - Hamilton), Ferrari (Alonso - Massa), Mercedes (Schumacher - Rosberg), Lotus Renault (Raikkonen - Grosjean), Force India (di Resta - Hulkenberg), Sauber (Kobayashi - Perez), Scuderia Toro Rosso (Ricciardo - Vergne), Williams (Maldonado - Senna), Caterham (Kovalainen - Petrov), HRT (de la Rosa - Karthikeyan), Marussia (Glock - Pic).Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F45C2CCDB113F60811C352BF39E27A6B026ACA
 ```
 
 

@@ -6,7 +6,7 @@ Funko Fusion (2024) [Ru/Multi] (1.2.10.143142/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36416.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F789465720C4D5B8D4D7639D41265FEFAEF1D96C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36417.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5268A8A9650B45D33AC3BA7D9A4F65237CD841E7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36418.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Valheim - Ashlands (2021) [Ru/Multi] (0.219.16) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36419.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v22 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36420.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CB4F6EAF05A685E71CA752C6CBD47646F02773C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36421.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CB4F6EAF05A685E71CA752C6CBD47646F02773C5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36422.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:4A0D5FD05938A364EE10B31A2AF7C884708CF3FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36423.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36424.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E6F4BC8DB72EC3C1C7A10170728CD58789E1E9ED
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36425.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Guitardo, Александр Литвак | Фортепиано 30 за 30. 1 �
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36426.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4C2B0106CA8B85378FA440F6D3C5DE3576DEE7FB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36427.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 11.2024 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36428.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Queen - Greatest Hits II (1991) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36429.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157) Repack Fit
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36430.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:3718BAB83FB6FA3CBFD5E3B22F21C673CD78302D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36431.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36432.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:D9AE3BA2D5175726BC1915A5C8EB9B25B7C25DAF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36433.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36434.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A784E0CC7E62E368706EA1DCD4FACB7086004869
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36435.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Adobe Illustrator 2025 29.1.0.142 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36436.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36437.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:6A0B5ABBE3ABDE46969392CA8F9EC48B0970690D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36438.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9887F6EEBF816F2DFCC0F4863B9E616E64929731
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36439.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:4A5651AF0660237B3A19BAF2C7FA20C4A21D0D80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36440.jpg" />
 </div>
 
 

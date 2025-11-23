@@ -1,3 +1,100 @@
+###  Публикация: 1671489   (171388) от 24.10.2023
+
+Waterfox Current G6.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C5BD73434FE1B747BE72D34EFD531A0B6A09E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671365   (171390) от 24.10.2023
+
+PrivaZer 4.0.79 Donors Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171390.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287D3E137D3D41C4F5936344458D6B8E821F3B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671473   (171392) от 24.10.2023
+
+Privacy Eraser Free 6.0.0 Build 4760 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71977D851890DD542B4FD8C0EA0E0EC8954715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671312   (171395) от 24.10.2023
+
+PeaZip 9.5.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171395.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F24D56A70DD7219CCBED43835E5A7A66EFD7556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671334   (171417) от 24.10.2023
 
 VideoProc Converter 6.0 [Multi]
@@ -6,7 +103,7 @@ VideoProc Converter 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171417.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ High-Logic FontCreator Professional 15.0.0.2945 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171419.jpg" />
 </div>
 
 
@@ -54,7 +151,7 @@ TinkerTool System 8 v.8.87 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171421.jpg" />
 </div>
 
 
@@ -78,7 +175,7 @@ Wondershare UniConverter for Mac 15.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171423.jpg" />
 </div>
 
 
@@ -103,7 +200,7 @@ Wondershare Recoverit for Mac 12.0.15.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171425.jpg" />
 </div>
 
 
@@ -128,7 +225,7 @@ Aiseesoft Mac FoneTrans 9.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171427.jpg" />
 </div>
 
 
@@ -152,7 +249,7 @@ VideoProc Converter 4K 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171431.jpg" />
 </div>
 
 
@@ -176,7 +273,7 @@ Blocs 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171436.jpg" />
 </div>
 
 
@@ -201,7 +298,7 @@ Kaleidoscope 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171438.jpg" />
 </div>
 
 
@@ -227,7 +324,7 @@ Unite 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171443.jpg" />
 </div>
 
 
@@ -251,7 +348,7 @@ System Dashboard Pro 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171445.jpg" />
 </div>
 
 
@@ -275,7 +372,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171448.jpg" />
 </div>
 
 
@@ -300,7 +397,7 @@ magnet:?xt=urn:btih:F40556E48FB029E18D2812C82B2AF4182CF108C6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171458.jpg" />
 </div>
 
 
@@ -324,7 +421,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171459.jpg" />
 </div>
 
 
@@ -348,7 +445,7 @@ FL Studio Producer Edition 21.1.1.3750 (X64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171471.jpg" />
 </div>
 
 
@@ -373,7 +470,7 @@ qBittorrent 4.6.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171476.jpg" />
 </div>
 
 
@@ -398,7 +495,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171477.jpg" />
 </div>
 
 
@@ -422,7 +519,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171480.jpg" />
 </div>
 
 
@@ -446,7 +543,7 @@ WinRAR 7.00 Beta 1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171486.jpg" />
 </div>
 
 
@@ -470,7 +567,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171490.jpg" />
 </div>
 
 
@@ -494,7 +591,7 @@ Screaming Frog SEO Spider 19.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171492.jpg" />
 </div>
 
 
@@ -518,7 +615,7 @@ DxO PhotoLab Elite 6.10.1 build 292 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171498.jpg" />
 </div>
 
 
@@ -529,103 +626,6 @@ DxO PhotoLab Elite 6.10.1 build 292 RePack by KpoJIuK [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9071AD98F4DB90FA37E9339F68679C83EAF9D121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671198   (171499) от 23.10.2023
-
-Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322B78F98672CCE5A77C5197C61F092EE892EFF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671214   (171501) от 23.10.2023
-
-Firefox Browser 119.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D76FF60CEF15C1B8711878CFE00883D6DE0CDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671136   (171503) от 23.10.2023
-
-OneCommander Pro 3.57.0.0 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171503.jpg" />
-</div>
-
-
-###  Подробнее
-
-OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
-Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17FADB58549F450A002D19C06B80E880E8A889D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671153   (171505) от 23.10.2023
-
-Artweaver Plus 7.0.16.15569 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artweaver - это полнофункциональный инструмент рисования с огромным набором предопределенных реалистичных кистей.Предназначен для рисования и для обработки изображений. Имеется большое количество инструментов, позволяющее имитировать рисование мелком, пастелью, кистью, губкой,карандашом, акриловой, масляной красками или углем. Кисти легко настраивать в соответствии (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B33CF05DE0D760D0641869647D59EAAE0120D7
 ```
 
 

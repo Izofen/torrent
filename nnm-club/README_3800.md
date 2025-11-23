@@ -1,3 +1,75 @@
+###  Публикация: 1698518   (118482) от 09.02.2024
+
+Канал / The Channel (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118482.jpg" />
+</div>
+
+
+###  Подробнее
+
+После неудачного ограбления банка отчаявшийся преступник, его неуправляемый брат и их разношерстная команда бывших морских пехотинцев должны сбежать из Нового Орлеана от преследующего их агента ФБР.Производство: США / Appalachian Film, Denton Film., Roosevelt Film LabЖанр: боевик, триллер, криминалРежиссер: Уильям КауфманАктеры: Клейн Кроуфорд, Макс Мартини, Никойе Бэнкс, Жюльен Джойнер, Лаки Джонсон, Джарен Митчелл, Эд Спила, Линдс Эдвардс, Тодд Дженкинс, Гари Кейрнс IIПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7F78B89C1AFC9D69D1A1775FA4B2E0F577207B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698415   (118483) от 09.02.2024
+
+River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118483.jpg" />
+</div>
+
+
+###  Подробнее
+
+River Town Factory – а что вы скажете на то, чтобы открыть фабрику, заняться переработкой нефти или же построить настоящий большой компьютера? И все это в условиях древнего времени? Ведь после того как на Ривер-Таун случайно упал метеорит, у вас появилась собственная мастерская. И отсюда начнется вершится история… Во-первых, займитесь созданием различных автоматизированных (   Читать дальше...   )Тип издания: RepackРазработчик: iFAction StudioЖанр: Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698589   (118484) от 09.02.2024
+
+Угон рейса 375 / O Sequestro do Voo 375 / The Hijacking of Flight 375 (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время экономического кризиса в Бразилии в 1988 году вооруженный преступник угнал самолет, чтобы направить его в штаб-квартиру президента.Производство: Бразилия /     Star Original Productions, Escarlate Conteúdo AudiovisualЖанр: Боевик, драмаРежиссер: Маркус БальдиниАктеры: Данило Грангейя, Хорхе Пас, Роберта Гуальда, Сезар Мелло, Хулиана Алвес, Адриано Гариб, Клаудио Хаборанди, Габриэль Годой, Вагнер Сантистебан, Диего МонтесПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:33Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078A162C8651A938EF4813B4D3F89C58154EE127
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698341   (118485) от 09.02.2024
 
 Испытание аулом (2023) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118485.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:8115B5C9C7F32EDBDEA9A68B58C82D19BE30A0DF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118486.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:D6CCB0E3A7975B596E62713393E62B22E195932C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118487.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:61413FE1985CF9B8D8AA75A717DA753FC2E823E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118488.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:EA6143BD9AB2E7663CA27B4028187F2CAF3CC33D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118489.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ ProfiCAD 12.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118490.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:48648ACBD26417FDA8E6A87EBC1292A0E757B8D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118491.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:48648ACBD26417FDA8E6A87EBC1292A0E757B8D6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118492.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:26956857408BB68E99A75B10B4E6B4777D77AD3C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118493.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:DD90CDFAD30AC898F95E63F0975C7E474FE3FEA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118494.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ Icecream PDF Editor Pro 3.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118495.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:4CA2CF850E9F84C7B512FF1FC18820CF6A3B40CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118496.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118497.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:5904AEE6BF2D3616D606CFB313600E179FD03BFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118498.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:ADF35D6AE7EE1AF40975556BA3DA5D0C1200DB04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118499.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ AIDA64 Extreme Edition 7.00.6742 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118500.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118501.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ magnet:?xt=urn:btih:DEA552B08E96F0B0F5897D76A1C65D3AFE754B32
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118502.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:749F1D5E40ADD8B71721D0E297C2AA4ED79284E1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118503.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:FACB4B1EE75954BD9F8FE79ED16952EF9C0A630A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118504.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:923E7DE797C6669AD84B0FDD538F2AA2002D089C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118505.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118506.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118507.jpg" />
 </div>
 
 
@@ -549,79 +621,6 @@ magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A697B07B403E639E97904738BCF78E0C7C52952D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698395   (118508) от 09.02.2024
-
-Самозванка / Some Other Woman (2023) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ева и Питер переезжают на тропический остров, чтобы Питер мог строить там карьеру. Ради мужа Ева вынуждена отказаться от своих профессиональных амбиций, что мешает ей искренне радоваться его успехам. После очередного выкидыша Ева и вовсе впадает в депрессию.Производство: США / Balcony 9 Productions, Productivity MediaЖанр: ТриллерРежиссер: Джоэль МурАктеры: Эшли Грин, Том Фелтон, Аманда Крю, Рик Фокс, Брук Лайонс, Саманта Бэнтон, Эмбер Эшли Смит, Каролина Рейно, Джим Ригли, Jeton BennettПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1FE3BFC7F0887FA7EE5CF78B1EDBAED38F895F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698500   (118509) от 09.02.2024
-
-Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Флорида Пантерз (08.02.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118509.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 февраля 2024, пятница. 03:00 МСК. Стадион: Амерант Банк Арена (Санрайз, США), 17 645 зрителей (91% при вместимости 19 434)
-Главный судья: Майкл Маркович (Скарборо, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8122D91209F290B7A8F87715E61038E0D1C9DB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698355   (118510) от 09.02.2024
-
-Шум моря / Son de Mar (2001) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118510.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком прибрежном городке появляется Улисес - бродяга и фантазер, а по совместительству преподаватель литературы. Однажды в кафе он встречает очаровательную Мартину, которая моментально в него влюбляется, пленившись его внешностью, обаянием и умением рассказывать красивые истории из Гомера и Вергилия...Производство: ИспанияЖанр: драма, мелодрама, эротикаРежиссер: Бигас ЛунаАктеры: Хорди Молья, Леонор Уотлинг, Эдуард Фернандес, Карла Коллар, Хавьер Коромина, Алехандро Тоус, Хуан Муньос, Хулио Канто, Пеп Кортес, Рикардо Лопес, Пабло Риверо, Серхио КабальероПеревод: Двухголосый профессиональныйЯзык озвучки: Русский, ИспанскийСубтитры: русские, испанские, английскиеПродолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EFB7EF016659F7AA321E23E83D2013EAC13221
 ```
 
 

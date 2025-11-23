@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39717.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39718.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:E30A6F5BA71B19F8A50A70EA244D9D632B17F318
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39720.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:DD9AC2B4E5EA72B6103DC977AADFC625442DC36E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39721.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A2EA95A1645BAC1FFC4C9AE7FEE635CF91AB151E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39722.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A2EA95A1645BAC1FFC4C9AE7FEE635CF91AB151E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39723.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39724.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C09E14C583134F13B5E0749C1017B1FB315B36FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39725.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Modern Talking & Blue System - Das Nummer 1. Album! (2010) [MP3|320 kbps]<Pop|Eu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39726.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Windows 11 PRO 23H2 22631.4317 Update 12 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39727.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C923306C3AFF8F90D60A60432D1D75824F768673
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39728.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39729.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2318F439C94D5039699FCA59E07E011B95B8C97D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39730.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:DC7B4E37A6E1EDAC2F3D6D3126CDA03FCF03192B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39731.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39732.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:26C3148B4B039FE65E6DA8E760B352EEE1D9CB8C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39733.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:580967232A82F9A86F020DEF9EF77BB1BD3FFD06
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39734.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FDD045FFED5173035C7D3B1AE9D11E03FA2F34F6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39735.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ MeldaProduction - MCompleteBundle 17.01 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39736.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Pencil Photo Sketch : Drawing v2.0.95 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39737.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:748ABB9FE47A927B9CCB527033ADBBA3F6C4C419
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39738.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ TechSmith Camtasia 24.0.7 Build 3801 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39739.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1846515E2CC0DCC1C885C2211C393A85F267E1B7
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39740.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9D6984C500D2098097F89EC935F2A0D055263646
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39741.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1D0C484A0E82788C9498285C4D59E98E63B325EE
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39742.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ High Contrast - Restoration (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39743.jpg" />
 </div>
 
 

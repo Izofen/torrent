@@ -1,3 +1,76 @@
+###  Публикация: 1691889   (122954) от 14.01.2024
+
+PhotoTune - Улучшитель фото v4.4.8 Mod by Raju054 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свои старые, пиксельные, размытые или поврежденные изображения в фотографии высокой четкости одним касанием! PhotoTune использует современный искусственный интеллект, чтобы размыть, восстановить и улучшить любое изображение, которое вы хотите.Тип издания: ProРелиз состоялся: 13.01.2024Разработчик: Vyro AIПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7BE5970D18773B80EBB59713881D749A3648EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692050   (122955) от 14.01.2024
+
+Алексей Кузнецов | Храм Фемиды. Знаменитые судебные процессы прошлого (2024) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство, кража, изнасилование… Преступник схвачен – суд идёт. В суде – храме Фемиды, богини правосудия – стороны спорят в поисках справедливости. Но всегда ли ее находят?.. Ох, как непросто Фемиде, этой героической женщине! В ее руках разящий острый меч, но глаза-то – завязаны, а судьи, юристы и присяжные – все те же люди, не ангелы…
+Алексей Кузнецов, известный (   Читать дальше...   )Жанр: Публицистика, Криминальные хроникиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4495378CD50B1FA95B53415622F5E4872B33BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692013   (122956) от 14.01.2024
+
+Илья Виницкий | О чем молчит соловей. Филологические новеллы о русской культуре от Петра Великого до кобылы Буденного (2022) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе книги – цикл «детективных» статей и заметок о культовых и незаслуженно забытых авторах, героях и текстах русской литературы от Александра Пушкина, Льва Толстого, Осипа Мандельштама, Даниила Хармса и Велимира Хлебникова до эстонского фантазера Ивана Народного и безымянного создателя трагической украинской народной песни; от разочарованного офицера Печорина, (   Читать дальше...   )Жанр: Филологические науки, Литературоведение и критикаИздательство: ИД Ивана ЛимбахаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F391E9A197273813ECE310B6D8630C0202C673B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692004   (122957) от 14.01.2024
 
 Александр Эткинд | Эрос невозможного. История психоанализа в России (2023) [FB2]
@@ -6,7 +79,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122957.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122958.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:5D28F9EBD66592DCE1EE493D117FE71344E4B0D6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122959.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Michael Cretu - 5 Albums (1979-1992) LP [MP3|320 Kbps] <Electronic, Pop, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122960.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:1FF9DBA75AA60DDFD43AAC81E81EC03A62441523
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122961.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:AE0468F8AC86E8ABF53D91B48F5201A0129B7D27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122962.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:F8D79B8DFE6A1456865F9E8304BE42D017069FB6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122963.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:EC944B2CCB335E26B0616FA0016B82E981D5340E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122964.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:BC23A8F73951BE7F18227540502047E81F31F5DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122965.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:135A05DF8222CE905D14837D3EA0A0D1EEFEEE27
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122966.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ magnet:?xt=urn:btih:C220A15CF957AE52D3309A9D36018A7420C255B1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122967.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:F7F2CB2BE0E32DB250EC4E1B584AF48731F90E08
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122968.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122969.jpg" />
 </div>
 
 
@@ -326,7 +399,7 @@ magnet:?xt=urn:btih:C6E9790B71131BC6D17035FF86E911309A3664AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122970.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ magnet:?xt=urn:btih:C6E9790B71131BC6D17035FF86E911309A3664AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122971.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ magnet:?xt=urn:btih:25F663BB2800D36D77513718AEE801784101029B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122972.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ magnet:?xt=urn:btih:25F663BB2800D36D77513718AEE801784101029B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122973.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ V.A. - ITALO DISCO 90's remember (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122974.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ magnet:?xt=urn:btih:025B2FF5883D27D3134F5E5DE45A1C9C9E979800
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122975.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:AD7A29E3AC5EA16AF8218C94C9F5EABE90C24F98
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122976.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ magnet:?xt=urn:btih:08E3218E704AF7647270957D0B4B5421E7A67DE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122977.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ magnet:?xt=urn:btih:08E3218E704AF7647270957D0B4B5421E7A67DE2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122978.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ magnet:?xt=urn:btih:5230B0F05932A6F2A0F092A04F1C50F682AA285C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122979.jpg" />
 </div>
 
 
@@ -559,78 +632,6 @@ magnet:?xt=urn:btih:5230B0F05932A6F2A0F092A04F1C50F682AA285C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E26043DEBA62C752CC5D2CFEFA53EB2F713562D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691891   (122980) от 14.01.2024
-
-Дом / Home (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватив Землю, раса пришельцев Був тут же начинает заниматься её благоустройством и реорганизацией. «Не стоит благодарности!» — заявляют они землянам, собранным на время в отдельных резервациях. Находчивая и рисковая девочка по имени Дар, чудом сбежавшая от пришельцев, встречает на своем пути самого раздражающе-оптимистичного Бува по имени О, отвергнутого своими (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Тим ДжонсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C756B22F2CD16F185E98343A03D3CAD54774513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691885   (122981) от 14.01.2024
-
-Воздушное ограбление / Lift (2024) WEBRip [H.265/1080p] [10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сайрус — профессиональный вор, вместе со своей международной командой проворачивающий самые невероятные и сложные аферы. Его бывшая девушка теперь работает в ФБР и могла бы с легкостью арестовать Сайруса, но к его удивлению… официально просит его совершить ограбление. Вместе они должны украсть золотые слитки на сумму 100 миллионов долларов прямиком из самолета, направляющегося (   Читать дальше...   )Производство: США / 6th & Idaho Productions, Genre Films, Genre PicturesЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Ф. Гэри ГрейАктеры: Кевин Харт, Гугу Эмбата-Ро, Сэм Уортингтон, Винсент Д’Онофрио, Урсула Корберо, Билли Магнуссен, Yun Jee Kim, Вивеик Калра, Жан Рено, Джейкоб БаталонПеревод: Двуголосый любительский (Zetflix)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), украинские, английские (forced, full, SDH) и др.Продолжительность: 01:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBE6262FD0735B060779562A844F09924EDAC8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691342   (122982) от 14.01.2024
-
-Теперь  видео в YouTube можно будет улучшать посредством апскейла.
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания AMD собирается расширить работу своей технологии суперсемплинга FSR за пределы игр. В ближайшее время FSR сможет повышать разрешение не только в играх, но и для видео.Первоначально это будет работать с платформой YouTube, а позже FSR будет интегрирована в популярный плеер VLC.Суть работы FSR для YouTube такая же, как и для игр. Система повышает разрешение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

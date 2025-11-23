@@ -1,3 +1,76 @@
+###  Публикация: 926215   (114582) от 03.03.2024
+
+Чертёнок / Nukitsamees (1981) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Кусти и его младшая сестренка, заблудились в лесу и оказались в плену у семейства чертей. Старая и злая Карга заставляет их работать от зари до зари, и вскоре дети собираются бежать. Но ребятам очень понравился симпатичный и непоседливый чертенок, которого они забирают с собой. Так в их дружной и трудолюбивой семье появился маленький проказник с рожками, (   Читать дальше...   )Производство: СССР, ТаллинфильмЖанр: Детский, Фэнтези, МузыкальныйРежиссер: Хелле КерисАктеры: Эгерт Солль, Анна-Лиза Курве, Юлари Кирсипуу, Инес Ару, Аарне Юкскюла, Сулев Ныммик, Ита Эвер, Урмас Кибуспуу, Тыну КаркПеревод: Фильм дублирован на киностудии "Ленфильм"Субтитры: РусскиеПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B58072FED0AD2CA642902E02FEA8932386CF151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403059   (114583) от 03.03.2024
+
+Владимир Зотов | Лесная азбука–2 (2005) [MP3, Олег Анофриев, Михаил Козаков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир удивительных историй
+«Лесная азбука–2» – это продолжение серии познавательных сказок о животном и растительном мире нашего леса, которые помогут детям ближе познакомиться с зеленым чудом, название которому – лес, с удивительным и неповторимым миром его обитателей. Сказки написаны в увлекательной игровой форме. В их озвучивании принимали участие известные (   Читать дальше...   )Жанр: Русская литература для детей, сказкаПродолжительность: 05:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E10810F6997CA341B33BD21FA14487A6ED501A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704125   (114584) от 03.03.2024
+
+Нежный восток / The Sweet East (2023) WEBRip [H.265/1080p-LQ] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114584.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о крайне необычном путешествии по городам и лесам восточного побережья США, которое совершает Лилиан — старшеклассница из Южной Каролины. Она впервые видит мир под более широким углом во время школьной поездки в Вашингтон.Производство: США / Base 12 Productions, Marathon FilmsЖанр: драмаРежиссер: Шон Прайс УильямсАктеры: Талия Райдер, Эрл Кейв, Саймон Рекс, Айо Эдебири, Джереми О. Харрис, Джейкоб Элорди, Риш Шах, Гибби Хэйнс, Джек Ирв, Мазин АкарПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3721E2D72EADBBC6E8007DCEA9C7E0ED06F79B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704116   (114585) от 03.03.2024
 
 The Brew Barons (2024) [En] (1.0) Repack FitGirl
@@ -6,7 +79,7 @@ The Brew Barons (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114585.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:D346663C6F804A071E4602A3920F25E87498D344
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114586.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:31F31B891E8BBF8977585B38ACF84885031980F4
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114587.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:D546B16F76DDE68D6EEDC2029B350839880CC0A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114588.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:7903F71EA43A64D7EAC1486B2758DA0380D60FB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114589.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:D7CF2A7AE700E8499EDFEE6D77C2C1C05EF2B435
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114590.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:6CA1BEC8577392EEC0CB15AF60BAAE875DAB4A01
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114591.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:7D11315686BABDEB55F4F58CBE4AC0E6DBBFB111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114592.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:27670ED162DE94482763E9AE12D1DA6E24840726
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114593.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:55533ACC561047638A1BC81B12483224A977CA9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114594.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:24B17EC0E2F2555BDE217A50C63941FECFB88ADC
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114595.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ magnet:?xt=urn:btih:D9135761FFD70E7F6C6B02ACC6EFFDE0E83C4A41
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114596.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ magnet:?xt=urn:btih:2CA006FECBE7166C03E9C806A7B26AA8EF4CF0B9
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114597.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:CC65EEF2DB9FAF7EFEBF139B582DB8BB7DAA5C67
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114598.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:152AA994CD94FB1478E5C9A53DD42FB8DAC492CC
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114599.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ magnet:?xt=urn:btih:A47D60E692706A0DA18D48919DE215E773B7998B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114600.jpg" />
 </div>
 
 
@@ -407,7 +480,7 @@ magnet:?xt=urn:btih:E696DC6F789BAE4074E5ABABEF8E98028321C657
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114601.jpg" />
 </div>
 
 
@@ -431,7 +504,7 @@ Microsoft Activation Scripts (MAS) 2.5 (03.03.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114602.jpg" />
 </div>
 
 
@@ -455,7 +528,7 @@ magnet:?xt=urn:btih:6A7D55772610269FC4ED60EC8E7490D799C103AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114603.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ magnet:?xt=urn:btih:09A5D755F69728F9AF558528945973B5FCD44743
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114604.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ magnet:?xt=urn:btih:490D1FAB1B7F295B6C23A462817A9B2A749B9567
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114605.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ magnet:?xt=urn:btih:D8C54E30C7A361BC40A29A2867904D05F44ABE32
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114606.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114607.jpg" />
 </div>
 
 
@@ -565,87 +638,6 @@ Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E57E5E8BE18A98CF7CEB1DFA51CE8654790FB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703894   (114608) от 02.03.2024
-
-Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 When The Lions Die 5:46
-2 Crypts Of Madness 4:22
-3 Purified By Fire 4:45
-4 Deathstalker 4:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5C79DB10B740FD1CB7B0DBE5EDE72C9EACC15F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703903   (114609) от 02.03.2024
-
-Георгий Береши - Вниз по реке (1997) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вниз по реке 5:10
-02. Танцы с дождём 5:53
-03. Солнечный удар 4:28
-04. Делай всё, что ns умеешь 4:25(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C512893B13384D3CC872F799A7F2A30C224208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703937   (114610) от 02.03.2024
-
-Ансамбль «ИТС» - Это любовь (1987) [FLAC 24/192|Lossless|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Наша любовь вечна. Our Love Is Here To Stay. (G.Gershwin - I.Gershwin)
-02 - Тайная любовь. Secret Love. (S.Fain - P.F.Webster)
-03 - Письма о любви. Love Letters. (V.Young - E.Heyman)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF7A3A60A00F78AAFC079B7E8E90FA26C126491
 ```
 
 

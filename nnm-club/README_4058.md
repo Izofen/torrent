@@ -1,3 +1,77 @@
+###  Публикация: 1688420   (125190) от 29.12.2023
+
+Александр Тамоников | «Тамоников. Честь имею». Спецотряд «Скорпион» (2023) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хороший снайпер всем нужен. Майор Пашин из спецотряда «Скорпион» – отличный стрелок, потому-то им и заинтересовались люди из крупной криминальной группировки. Они хотят прибрать к рукам богатейшую российскую область, а для этого нужно сделать несколько ювелирных выстрелов. Чтобы майор работал на совесть, они взяли в заложницы его невесту. Преступники, похоже, не (   Читать дальше...   )Жанр: БоевикиИздательство: Нигде не КупишьПродолжительность: 11:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404342FAE0F16B9D4AFE060F677EEAEBE1C0EB4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601421   (125191) от 29.12.2023
+
+Макс Глебов и др. | Новогодние чудеса. Сборник лучших историй конкурса «Новогодняя сказка» (2020) [MP3, Алиса Поздняк и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год – время чудес и волшебства. И чтобы это чудо произошло – нужно в него поверить!
+
+Поверить, что Злюка-Холодюка, вторая внучка Деда Мороза, сможет стать доброй, что маленький полярный лис узнает, где спрятан волшебный амулет, что снежинки найдут свои белые платья и будут кружить, и что волшебники-воришки из Гуртауна снова захотят отмечать Новый год, а не (   Читать дальше...   )Жанр: детские приключения, сказкиПродолжительность: 08:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4704428DF14C6CCF3190FE166016020426A3A35B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688430   (125192) от 29.12.2023
+
+Журнал | Военно-исторический журнал №1 (январь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125192.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFDEE8CF0F5D5EF963C8C747423D22AAEB657B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688308   (125193) от 29.12.2023
 
 Журнал | Инженер и Промышленник сегодня №5 (65) (ноябрь 2023) [PDF]
@@ -6,7 +80,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125193.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:D914C8D4B42DC0B48A1AFA5B08857F50B767674D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125194.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:2BB92D226CC06CAD490F9886B881709F460CEF8C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125195.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ magnet:?xt=urn:btih:78EA3567C9C5B64BA77502F455B146A595A8D295
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125196.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:99AF2773ACAF561D4C82AA9696357B5AE0369467
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125197.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ magnet:?xt=urn:btih:74E7F20DEA09CB688EEEC3461FDE27AD96A443DF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125198.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125199.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125200.jpg" />
 </div>
 
 
@@ -206,7 +280,7 @@ magnet:?xt=urn:btih:08F4C21C5278967EF97402C9253779960478D1A2
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125201.jpg" />
 </div>
 
 
@@ -230,7 +304,7 @@ magnet:?xt=urn:btih:5C316189F07561F6F1907E92B175670D7CE36695
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125202.jpg" />
 </div>
 
 
@@ -254,7 +328,7 @@ magnet:?xt=urn:btih:E66B77FD1F3610802D9595F80FCFD69AAE2416EB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125203.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ FileZilla 3.66.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125204.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ magnet:?xt=urn:btih:D35EEA676103E780D0F58E18DAA846B20D069DB7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125205.jpg" />
 </div>
 
 
@@ -328,7 +402,7 @@ magnet:?xt=urn:btih:0BE11B1B9EED9FA8423E66B08554049AB995CDAD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125206.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ magnet:?xt=urn:btih:2767EE88CA562B0185C86808FA1497273702C5EC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125207.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ magnet:?xt=urn:btih:616AFEDB60E0F61BB6133841A1AA48A416117364
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_125208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_125208.jpg" />
 </div>
 
 
@@ -402,7 +476,7 @@ magnet:?xt=urn:btih:616AFEDB60E0F61BB6133841A1AA48A416117364
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_125209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_125209.jpg" />
 </div>
 
 
@@ -426,7 +500,7 @@ Transcend SSD Scope 4.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125210.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ VA - Music News vol.327 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125211.jpg" />
 </div>
 
 
@@ -478,7 +552,7 @@ magnet:?xt=urn:btih:7EB00B189A33607B5BCD857C6286F95427221667
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125212.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ VA - 101 Electronic 80s (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125213.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:F18452F569ED1D8704FAD33B97B88A5596BFF5AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125214.jpg" />
 </div>
 
 
@@ -553,7 +627,7 @@ magnet:?xt=urn:btih:7CF1DF6B343F27D80B1E2B7A52C87D9AAE24E5B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125215.jpg" />
 </div>
 
 
@@ -566,78 +640,6 @@ magnet:?xt=urn:btih:7CF1DF6B343F27D80B1E2B7A52C87D9AAE24E5B1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1168A98347FA6387A1572E27825C490CC4DFFB31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688435   (125216) от 29.12.2023
-
-Цвет Южной Африки / Southern Africa (2016) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вода. Именно её изобилие и недостаток формирует пейзажи Африки.Само существование местных обитателей может превратиться в вечный поиск воды - источник жизни. Она нужна чтобы пить, есть, сполоснуть пищу, поиграть, охладиться. А также встретить пару и продолжить род. Тысячелетиями хищники и их добыча сливались с золотистыми пейзажами высохшей африканской саванны. Но (   Читать дальше...   )Производство: ЮАР, Франция / Songes de MoaiЖанр: документальный, природа, флора, фаунаРежиссер: Ронан Фурнье-КристолПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:49:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEEA757201773981C85E6F92636AEB47D6F8325C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688369   (125217) от 29.12.2023
-
-Журнал | Знание-сила №1 (1159) (январь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E802D5D5D77A17891C1B3AF45F0F204F3BBE3697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688358   (125218) от 29.12.2023
-
-Бычара / Rundskop (2011) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о запрещённом применении гормонов роста к крупному рогатому скоту фермерами, связанными с "гормональной" мафией, и рассказывает историю Джеки Ванмарсенилла, молодого лимбургского фермера, к которому обращается его ветеринарный врач с просьбой заключить сделку с западно-фламандским торговцем говядиной. Но убийство федерального полицейского и неожиданное (   Читать дальше...   )Производство: Бельгия, Нидерланды / Eyeworks Film & TV DramaЖанр: драма, криминалРежиссер: Михаэль Р. РоскамАктеры: Маттиас Шонартс, Джероен Персеваль, Жанна Дандуа, Барбара Сарафьян, Тибо Ванденборре, Франк Ламерс, Сэм Лаувейк, Робин Вальвекенс, Баудоин Вольверц, Давид МуржиаПеревод: профессиональный многоголосый (НТВ+), любительский одноголосый (den904)Язык озвучки: русский, фламандскийСубтитры: русские (Mokum), английскиеПродолжительность: 02:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A07F1540EDA9F574E789F79FAA3A014BBE4385
 ```
 
 

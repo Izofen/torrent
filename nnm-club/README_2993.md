@@ -1,3 +1,88 @@
+###  Публикация: 485355   (89759) от 20.04.2012
+
+Botanicula [Ru] (RePack) 2012 l Naitro
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. Пять удивительных созданий отправляются в путешествие от его верхушки к самым корням, чтобы спасти от гибели свой любимый дом... В двух словах, Botanicula - это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка... И все это - на одном необыкновенном огромном растении!Тип издания: RePackЖанр: AdventureЯзык озвучки: Музыкальное сопровождениеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A51DF5BFAFF671C05D72F1FFBDAE171258DD3D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486097   (89761) от 21.04.2012
+
+Dark Tranquillity - Zero Distance [EP] (2012) [MP3|320 кб/с]<Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Zero Distance [00:04:30]
+ 02 - Out Of Gravity [00:04:32]
+ 03 - Star Of Nothingness [00:02:07]
+ 04 - To Where Fires Cannot Feed [00:03:51]
+ 05 - The Bow And The Arrow [00:03:53]2012Жанр: Melodic DeathПродолжительность: 00:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA42DA3422A47B4E9CCC2D194C9B29B871F5C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486202   (89762) от 21.04.2012
+
+Various Artists - Temple Of Kilowatts (2000) [mp3|320 kbps] <Industrial, Experimental, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ildfrost - Song For Patricia (01:42)
+02. Tripwire - Mr. Abomb (04:38)
+03. Simply Dead's - Wormwood (07:12)
+04. Rapeeltronic - Dreaming Digital (03:09)
+05. Ildfrost - While We Made (04:08)
+06. Tripwire - You Make Me Sick (04:09)
+07. Ab Ovo - Icefield (04:42)
+08. Nymph Faithest - Impious Sins (05:35)
+09. Ontario Blue - The Looking Glass (04:13)
+10. Northaunt - Øde (Nightmix) (04:29)(   Читать дальше...   )2000Жанр: Industrial, Experimental, AmbientФормат: CD, CompilationПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE57231DA1B5C757D27BA79E8F5B7D0900D50AF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485860   (89765) от 21.04.2012
 
 VA - 100% Автохит Клубный (2012) [MP3|256 кб/с]<Dance, Club>
@@ -6,7 +91,7 @@ VA - 100% Автохит Клубный (2012) [MP3|256 кб/с]<Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89765.jpg" />
 </div>
 
 
@@ -39,7 +124,7 @@ magnet:?xt=urn:btih:EDAACBDD1D36BED0B224915919398B236D9A5299
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89773.jpg" />
 </div>
 
 
@@ -63,7 +148,7 @@ VA - Lounge Music Collection - All for love (2010) [MP3]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89774.jpg" />
 </div>
 
 
@@ -96,7 +181,7 @@ VA - Звезды дискотек. Хитовый взрыв (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89779.jpg" />
 </div>
 
 
@@ -129,7 +214,7 @@ Dream Theater - Systematic Chaos (2007) [AC3 5.1|tracks (DVD-Video)]<progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89780.jpg" />
 </div>
 
 
@@ -160,7 +245,7 @@ magnet:?xt=urn:btih:9D9BAF0AA08F722528EC4E09E305DC74044BCFBA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89781.jpg" />
 </div>
 
 
@@ -184,7 +269,7 @@ VA - Жаркие Танцы. Europa Plus (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89784.jpg" />
 </div>
 
 
@@ -217,7 +302,7 @@ VA - Плэйлист Love Radio (2012) [PCM|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89789.jpg" />
 </div>
 
 
@@ -250,7 +335,7 @@ magnet:?xt=urn:btih:A3A11E539F1BA2D98954C57F7271D1F733118ABE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89790.jpg" />
 </div>
 
 
@@ -274,7 +359,7 @@ magnet:?xt=urn:btih:2FC2974E56859BEE45B0F010E131CC4655D0E092
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89792.jpg" />
 </div>
 
 
@@ -298,7 +383,7 @@ magnet:?xt=urn:btih:A62FCE8062D1713767094A03ECCC9977AF9A2853
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89794.jpg" />
 </div>
 
 
@@ -322,7 +407,7 @@ VA - 100% Rap Francais (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89799.jpg" />
 </div>
 
 
@@ -353,7 +438,7 @@ Crazy Lixx - Riot Avenue (2012) [MP3|320 кб/с]<Melodic Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89800.jpg" />
 </div>
 
 
@@ -386,7 +471,7 @@ VA - 50 Самых Скачиваемых Треков Весны (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89801.jpg" />
 </div>
 
 
@@ -419,7 +504,7 @@ magnet:?xt=urn:btih:0196AC7D0BFED3F85153C5322FD6377E72A96A8F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89802.jpg" />
 </div>
 
 
@@ -443,7 +528,7 @@ Dropbox 1.3.39 Experimental [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89803.jpg" />
 </div>
 
 
@@ -467,7 +552,7 @@ Dropbox — облачное хранилище данных, принадлеж
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89807.jpg" />
 </div>
 
 
@@ -491,7 +576,7 @@ Dropbox — облачное хранилище данных, принадлеж
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89808.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ magnet:?xt=urn:btih:58B3E99F47340CFBA552B0B0C729D6028097A220
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89809.jpg" />
 </div>
 
 
@@ -544,7 +629,7 @@ magnet:?xt=urn:btih:85CC1D09C46107AA8ED8EA39C1D6BA95586E369D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89813.jpg" />
 </div>
 
 
@@ -570,7 +655,7 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89814.jpg" />
 </div>
 
 
@@ -603,7 +688,7 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89816.jpg" />
 </div>
 
 
@@ -630,7 +715,7 @@ magnet:?xt=urn:btih:24ECE0996871401766A4C80DA217F9923035BC13
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89817.jpg" />
 </div>
 
 
@@ -641,96 +726,6 @@ magnet:?xt=urn:btih:24ECE0996871401766A4C80DA217F9923035BC13
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485573   (89818) от 21.04.2012
-
-VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военная песняПродолжительность: 01:12:24
- 01. Владимир Воркутинский - Салажата (2:46)
- 02. Деникин и 'Группа поддержки' - Я ухожу (2:54)
- 03. Ольга Сердцева - Дорога встречная (3:34)
- 04. Михаил Бондарев - Батя (3:43)
- 05. гр. Гуляй поле - Победа (3:31)
- 06. Анатолий Полотно - Последняя война (4:18)
- 07. Катя Назарова - Неделя до приказа (4:05)
- 08. Вадим Манцев и гр. 'ОЗ' - Еду я домой (3:23)
- 09. Вячеслав Константинов - Ямочки (4:23)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E4548D5C653271074C9A71FF2296950017FE37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486086   (89820) от 21.04.2012
-
-VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Розенбаум - Мы живы
-02. Жанна Бичевская - Двуглавый орел
-03. Леонидов Максим - Корреспондентская застольная
-04. Леонидов Максим - Темная ночь
-05. Леонидов Максим - Землянка
-06. Малинин Александр - Поручик Голицын
-07. ВИА Гуляй поле - Еду с армии
-08. Розенбаум Александр - Марш музыкантского спецназа
-09. Михаил Ножкин - Последний Бой
-10. ВИА Самоцветы - Мой адрес - Советский Союз(   Читать дальше...   )2010Жанр: Ретро, военная песняПродолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB17CD5B4FE75242F83823D742EFB9D19CA4D266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485849   (89823) от 21.04.2012
-
-Клятва Гиппократа (1965) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89823.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания медицинского института Имант получает назначение на судно. Однажды, поставив по неопытности неправильный диагноз, он оперирует пассажира, и тот умирает. По приговору суда Имант получает условное наказание и уезжает на далекую зимовку, где среди небольшого коллектива находит поддержку, понимание, веру в себя и свои силы.Жанр: КиноповестьРежиссер: Ада НеретниецеАктеры: Паул Буткевич, Ольга Круминя, Юрис Каминскис, Эвалдс Валтерс, Всеволод Гаврилов, Ада Неретниеце, Алексей Миронов, Сергей Гурзо мл., Александра Завьялова, Эльза Радзиня, Геннадий ЮдинПродолжительность: 01:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B4555078B5ABE61A9656EEBF9C295AFBC2E106
 ```
 
 

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71312.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71313.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71314.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ On Atlas' Shoulders - Aion (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71315.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Top 20 January 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71316.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B6D7A13DF57044171817BC14097A2A490DC1BBED
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71317.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71318.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Damaged Records Presents Frost (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71319.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:EF3989C44E56401ADEDE1FD57A81A9914068F8E1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71320.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71321.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ My Sweet Torment - The Order Of The Shadows (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71322.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Armin van Buuren - A State Of Trance 1210 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71323.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - The Sound of 2025, Chapter 1: Milan (Day Mix) (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71324.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71325.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F3F708C52AB2B956BC605E7CF3907E3EBC2E6957
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71326.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B8F2AC674769A81D9327EF25CD45AC5F1725BC3C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71327.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71328.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Nothing But... Trancetopia Vol. 22 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71329.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:284F585C4379A0BE2D35ADDC9E08DE10DDC75264
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71330.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71331.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71332.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71333.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71334.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71335.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:210C9DF86B01886E32D5DD78562A04ACDBDB9130
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71336.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71337.jpg" />
 </div>
 
 

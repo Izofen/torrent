@@ -1,3 +1,79 @@
+###  Публикация: 1506820   (94698) от 04.10.2025
+
+Зола / Zola (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официантка из Детройта по имени Зола поддается на уговоры новой знакомой и отправляется на короткую гастроль во Флориду подработать стриптизершей. Уик-энд обещал быть интересным, но девушка не ожидала, что настолько.Производство: США /  Killer Films, Gigi Films, Ramona FilmsЖанр: Драма, комедия, криминалРежиссер: Яница БравоАктеры: Тейлор Пейдж, Райли Кио, Колман Доминго, Николас Браун, Ari'el Stachel, Джейсон Митчелл, Ts Madison, Nelcie Souffrant, Насир Рахим, Amelia Rose MonteagudoПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665EB17D37EFCD890DB22153780548174C9771E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821989   (94699) от 04.10.2025
+
+Не пью! v1.19 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не знаете как бросить пить? Значит, это приложение то, что вам нужно!
+Приложение позволяет контролировать время, прошедшее с момента последнего употребления алкоголя.Тип издания: ModРелиз состоялся: 01.10.2025Разработчик: PE Valerii PechenkinПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC77CE7A1EB8C3E0CC90E2C5A38B17FC23BB9C99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821995   (94701) от 04.10.2025
+
+VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
+03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
+04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821997   (94702) от 04.10.2025
 
 BOOKlis: Слушай аудиокниги v2.3.0 Mod by SurvivalHorror [Ru]
@@ -6,7 +82,7 @@ BOOKlis: Слушай аудиокниги v2.3.0 Mod by SurvivalHorror [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94702.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94703.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:10F661545C287F9720EB698CF340109383F7F9ED
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94704.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ VA - Music News For Forum vol.137 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94705.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:5A951F68EAFFD320861B687D6F092E32404A276E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94706.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ magnet:?xt=urn:btih:B49EB7A6B9B04F019E9316B67023A687992B2F97
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94707.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94708.jpg" />
 </div>
 
 
@@ -189,7 +265,7 @@ magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94709.jpg" />
 </div>
 
 
@@ -213,7 +289,7 @@ EOBD Facile: OBD 2 авто сканер v3.79.1122 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94711.jpg" />
 </div>
 
 
@@ -237,7 +313,7 @@ Strava: бег, велоезда, хайкинг v431.9 Mod by PieMods [Ru/Multi
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94713.jpg" />
 </div>
 
 
@@ -261,7 +337,7 @@ magnet:?xt=urn:btih:9EB5BB09B1B8F2C48031F9D09383FB4F5724325B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94714.jpg" />
 </div>
 
 
@@ -287,7 +363,7 @@ magnet:?xt=urn:btih:85E5517ED5FF50904F969CCF2377EB6319887D31
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94715.jpg" />
 </div>
 
 
@@ -311,7 +387,7 @@ magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94717.jpg" />
 </div>
 
 
@@ -337,7 +413,7 @@ magnet:?xt=urn:btih:DE8F7FBA6DC4447ED04B5A2BFF786FCE441B9C58
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94718.jpg" />
 </div>
 
 
@@ -362,7 +438,7 @@ magnet:?xt=urn:btih:E836D9E0EF68E5C5015C9118478B0A3F7D04011B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94722.jpg" />
 </div>
 
 
@@ -386,7 +462,7 @@ magnet:?xt=urn:btih:F65DA3D2BF3564E3395AD73678322EBD6C05096E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94724.jpg" />
 </div>
 
 
@@ -410,7 +486,7 @@ Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94726.jpg" />
 </div>
 
 
@@ -437,7 +513,7 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94728.jpg" />
 </div>
 
 
@@ -461,7 +537,7 @@ magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94730.jpg" />
 </div>
 
 
@@ -485,7 +561,7 @@ Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94731.jpg" />
 </div>
 
 
@@ -512,7 +588,7 @@ magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94732.jpg" />
 </div>
 
 
@@ -538,7 +614,7 @@ magnet:?xt=urn:btih:7CB0EF9C33C02DC0D00419C94FF155E101593C1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94733.jpg" />
 </div>
 
 
@@ -562,7 +638,7 @@ magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94734.jpg" />
 </div>
 
 
@@ -574,81 +650,6 @@ magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61841   (94735) от 04.10.2025
-
-Максим Леонидов (ex-Секрет) - 10 Альбомов (1995-2007)[MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джерико (3:45)
-02. Мир Для Марии (3:28)
-03. Проспект Обуховской Обороны (4:53)
-04. Когда Я Был Сухой (3:57)(   Читать дальше...   )Жанр: Rock |Продолжительность: 09:48:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822008   (94736) от 04.10.2025
-
-Своя игра (04.10.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Альбина Лазаричева, Юрий Балясов, Александр КонстантиновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822004   (94737) от 04.10.2025
-
-Бухта смерти (1926) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-революционная драма снята по мотивам рассказа писателя-мариниста Алексея Новикова- Прибоя «В бухте Отрада». Фильм — дебют в полном метре режиссёра Абрама Роома. Фильм снимался в Одессе почти в тоже самое время, что и легендарный «Броненосец Потемкин». Но фильмы оказались абсолютно разными. В отличие от масштабного полотна Эйзенштейна, Роом создал фильм, (   Читать дальше...   )Производство: СССР / ГоскиноЖанр: история, драма, немое киноРежиссер: Абрам РоомАктеры: Василий Ярославцев, Николай Салтыков, Леонид Юренев, А. Равич, А. Мацевич, Василий Людвинский, Елизавета Карташева, Алексей Харламов, Арташес Ай-Артян, О. ГольневаСубтитры: русские (интертитры)Продолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569BA8A4F16F871A84128D127E229009263E7A6C
 ```
 
 

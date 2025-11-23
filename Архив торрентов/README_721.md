@@ -1,3 +1,77 @@
+###  Публикация: 1347402   (151074) от 23.12.2019
+
+Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [H.264/720p] [PR]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и вступить в схватку с другими выжившими, которые настроены совсем не дружелюбно. Кроме того, в собственных рядах охотников намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, боевик, комедияРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Розарио Доусон, Эван Джогиа, Билл Мюррей, Дэн Эйкройд, Люк УилсонПеревод: Дублированный (Online Cin.)Субтитры: Английские (Forced, full)Продолжительность: 01:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AF526FAD4C54F12EFA6154E2817A83117BCFE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589415   (151086) от 14.12.2012
+
+Internet Download Manager 6.14.1 Final RePack by KpoJIuK [Русский / Английский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного быстрее! Internet Download Manager имеет встроенный логический ускоритель загрузки, включающий интеллектуальную динамическую сегментацию файла и безопасную многослойную технологию загрузки, что способствует ускорению загрузки. Комплексная система анализа ошибок и возможность докачки, поможет продолжить загрузку, прерванную из-за потери соединения, проблем в сети, выключения компьютера или перепадов в подаче электроэнергии. Простой графический интерфейс делает IDM удобным и дружественным к пользователю.
+
+(   Читать дальше...   )Название программы: Internet Download ManagerЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677315   (151088) от 17.11.2023
+
+Lucky Patcher 11.0.1 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 08.11.2023Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B6CD60853710D36D2D2EB8D8C63230C596F617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519055   (151098) от 22.12.2021
 
 Movavi Video Suite for Mac 2022 v22.1.0 [Multi/Ru]
@@ -6,7 +80,7 @@ Movavi Video Suite for Mac 2022 v22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151098.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Movavi Video Editor Plus 14.2.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151108.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:E8EF56A522809EAF6D9BC5F3B0ADF74D297DE52D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151109.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:33BCB5EC280A50DF2E43C7D669B29F690CCCB4DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151110.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ ReviverSoft PC Reviver 3.12.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151112.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:65AC8C9677A87FC2D50F652B2E22123458FE25E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151122.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ AIMP 5.01 Build 2356 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151130.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:BFFA2A99D6818A3CE8AF622970C556A219FA3133
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151132.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ AusLogics BoostSpeed 9.1.1.0 RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151134.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:1DA99073A48744274CD140878B5EB2F9A8F6D94F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151142.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ Movavi Video Suite 20.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151143.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ OpenedFilesView 1.61 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151146.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ Icecream Video Editor Pro 3.11 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151150.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:11EBBAA06A9A30901D3313D7C86D60BFDC8A68D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151153.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:39FFD2A3D8C80052C4DEB1348025E150BC96CDC7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151160.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:17D25B0F9BB446B2CBDB50ED1765036F71084867
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151162.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ Emurasoft EmEditor Professional 23.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151164.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ Threema v4.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151189.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ Node Video - Pro Video Editor 6.9.0 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151192.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:4AFFBC02FB09E770B306D094A195880543AA5E68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151201.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ R-Studio 8.9 Build 173593 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151209.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ Beamer 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151214.jpg" />
 </div>
 
 
@@ -540,7 +614,7 @@ Opera GX 82.0.4227.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151224.jpg" />
 </div>
 
 
@@ -553,79 +627,6 @@ Opera GX - это специальная версия браузера Opera, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D3FC743E6A08E112A8BF6F84FD17C92E13058A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589176   (151243) от 14.12.2012
-
-Контрабандист / Sumagura: Omae no mirai o hakobe (2011) DVDRip[H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151243.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о Рюске Кинуте, неудавшемся актёре с серьёзными долговыми проблемами. Его ростовщик поручает ему работу в команде, работающей с одной из бандформирований города. Однако, когда команда начинает работать на обе банды, то оказывается втянутой в небольшую войну. С этих пор жизни Рюске и его коллег грозит опасность, и адвокат им не поможет.Жанр: Криминал, ДрамаРежиссер: Кацухито ИшииАктеры: Сатоси Цумабуки, Масатоси Нагасэ, Ясуко Мацуюки, Хикари Мицушима, Цуёши Аб, Масанобу Андо, Тацуя Гасюин, Хитоси Киёкава, Фумиё Кохината, Шота МацудаПеревод: Одноголосый закадровыйПродолжительность: 1:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80664B42835AC8C81AAEB64A3EA8272D6C168118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589093   (151250) от 14.12.2012
-
-Извлечение / Extracted (2012) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434534   (151255) от 24.12.2020
-
-darktable 3.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151255.jpg" />
-</div>
-
-
-###  Подробнее
-
-darktable — фоторедактор, предназначенный для организации всего рабочего процесса обработки фотоснимков (в том числе, в формате RAW) — от импорта фотографий с камеры и их всесторонней обработки до экспорта с поддержкой обычного сохранения на диск, экспорта в облачные хранилища и отправки снимков по почте.
-Полноэкранный, масштабируемый пользовательский интерфейс darktable (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C98FA75FFF2BBF1706ED0C61F7725CF504D670
 ```
 
 

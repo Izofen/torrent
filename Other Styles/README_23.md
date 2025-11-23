@@ -1,3 +1,109 @@
+###  Публикация: 1645059   (209317) от 09.07.2023
+
+VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подводный мир (1:06)
+02. Дождь в лесу (1:21)
+03. Возле маленького ручейка (6:51)
+04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644407   (209763) от 05.07.2023
+
+ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Складук
+02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604927   (209877) от 16.01.2023
+
+ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_209877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend (3:00)
+02. Waterfall (4:11)
+03. Arabica (6:00)
+04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661040   (210447) от 14.08.2022
+
+VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
+02. Scooter - Fire (03:14)
+03. KMFDM - Megalomaniac (04:19)
+04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641449   (210886) от 22.06.2023
 
 Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, New Age>
@@ -6,7 +112,7 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210886.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210886.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211303.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211303.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Buvana - Songs of Light: Bhajans & Mantras (2007) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211916.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211916.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Gregorian - 25 Live (The Best of 25 Years) (25th Anniversary Tour Version [Live]
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212459.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ VA - Latin Dance Aerobic Workout 2018 (2017) [MP3|320 Kbps] <Bachata, Merengue, 
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213996.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ Amethystium - Aurorae (2012) EP [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214135.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214135.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ VA - Guitar Heroes (1997) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214324.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214324.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214501.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214501.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214647.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214647.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214805.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214805.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214818.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214818.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ VA - Бременские Музыканты. По следам Бременск
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215217.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215217.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215325.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215325.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ VA - Гармонь России 1-2 (2005-2006) 2CD [MP3|320 Kbps] <Фольк�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215359.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215359.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215556.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215556.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ magnet:?xt=urn:btih:A98C79F0D01C0775FFD8A46CACEFD3F174AD6170
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215684.jpg" />
 </div>
 
 
@@ -438,7 +544,7 @@ Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_216732.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_216732.jpg" />
 </div>
 
 
@@ -468,7 +574,7 @@ Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217439.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217439.jpg" />
 </div>
 
 
@@ -495,7 +601,7 @@ Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, H
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217768.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217768.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218418.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218418.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ VA - Великие и неповторимые. Звезды советског
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218426.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218426.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218456.jpg" />
 </div>
 
 
@@ -588,114 +694,6 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC91A6CAD61A7D7168069B2F1C2AD8A5DF34A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084587   (218480) от 19.12.2016
-
-VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
-02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
-03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
-04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241967   (218549) от 15.12.2018
-
-VA - Александр Зацепин Золотая коллекция (2003) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Этот мир придуман не нами [02:38]
-02. Всё было [03:19]
-03. Помоги мне [04:38]
-04. Одиссей [02:38](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343179   (218716) от 06.12.2019
-
-Бесшабашное ограбление / Stark Raving Mad (2003) [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digweed & Muir - Slingshot
-02. Fitalic - Synchronic
-03. Digweed & Muir - Gregory
-04. MoonFace - Children Of The Sun(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 02:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1856F99DA2281C58B3129FA198B09D32B86D8349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652015   (218761) от 10.08.2023
-
-Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wut
-02. Traumgeburt
-03. Der Narr
-04. Ich fliege uber das Meer(   Читать дальше...   )Жанр: Folk PunkПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
 ```
 
 

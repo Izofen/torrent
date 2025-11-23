@@ -6,7 +6,7 @@ Udemy, Expert Azi, Md Azizul | Level Up Your UI/UX: Interactive Design & Prototy
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11857.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11935.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:A409E2729E14C2BE2D644A38E1037EC1247748E7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12485.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12596.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12833.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12834.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ owlsova | Авитолог 2025 (2025) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12878.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12917.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Chessable, Can Kabadayi | The Chess Elevator: Climb to 1200 and Beyond (2024) WE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13298.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13397.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E78C060F3E1587C71A5E5CBB961ED8B5418BB473
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13629.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13784.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Maxim School, Максим Куксов | Контргамбит Альбина 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13786.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13789.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13820.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13822.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13839.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14021.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:5EE98CF40CBECE8A0D7E12E38A2657EF3FA7C8EA
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14262.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14969.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:6EB2CD37228C9F23411100A18113388DE1E0874B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14986.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15011.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15156.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15175.jpg" />
 </div>
 
 

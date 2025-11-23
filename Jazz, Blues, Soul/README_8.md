@@ -6,7 +6,7 @@ Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29380.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29381.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brian Tarquin - High Life (2001) [WavPack|Lossless] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30251.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Milt Jackson & Ray Brown Quartet - It Don't Mean a Thing If You Can't Tap Your F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30323.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30780.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Deodato - 2 (1988) [FLAC|Lossless]<Jazz, Latin Jazz, Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30849.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Papik and The Soultrend Orchestra - Now Imagine (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30950.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30950.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31005.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Melody Gardot - Live In Europe (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31361.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Woong San - Close Your Eyes (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31373.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Anita O'Day - Cool Heat: Anita O'Day Sings Jimmy Giuffre Arrangements (1959) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31477.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ KAT Blue & The True Believers - START BELIEVIN' (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31702.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31704.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Dancefloor Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32093.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Derek Caruso & the Blues Fuse - To Memphis & Back (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32298.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ De-Phazz - presents De-Drums (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Futu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32315.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Imagine If - Great Expectations (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33123.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tony Paul - Smoke In My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33128.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Barbarella And The Boogie Blues - A Good Length (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33129.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sugar Brown - Toronto Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33130.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Joe Valeriano - Sketches from My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33133.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Gin Mill Trio - ROCK 'EM BLUES! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33135.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Swampblueskara Onemanband - Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33137.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sunny Bleau And The Moons - Bag of Tracks (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33139.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ La Blues Company - La Blues Company (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33140.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Dirt Whisperers - The Dirt Whisperers (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33141.jpg" />
 </div>
 
 

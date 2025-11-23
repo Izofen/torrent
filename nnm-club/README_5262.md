@@ -1,3 +1,178 @@
+###  Публикация: 1517598   (162252) от 16.12.2021
+
+Генри Чарльз Ли (Henry Charles Lea) | Сборник произведений [5 книг] (1994-2001) [FB2, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги американского ученого Генри Чарльза Ли признаны одними из лучших, полных и обстоятельных изданий, посвященных такому интересному и противоречивому периоду в истории Церкви, как инквизиция. Эти труды, некогда вызвавший настоящую сенсацию в Европе, - глубокое и беспристрастное изучение причин зарождения инквизиции, биографий ее служителей, архивных документов (   Читать дальше...   )Жанр: История, КультурологияПеревод: А. В. БашкировФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1DED25076EAACAAACD0A569272A55424E342A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674256   (162253) от 04.11.2023
+
+Рэй Гартон | Ночная жизнь (2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло восемнадцать лет с тех пор, как Дэйви Оуэн взорвал принадлежащий вампирам секс-клуб "Шоу Девочек" на Таймс-сквер в Нью-Йорке. В огне погибло множество вампиров, но не все. Уцелевшие вынашивают планы мести, пытаясь разыскать виновников пожара. И вот, наконец, им становится известно местоположение Дэйви...
+В увлекательнейшем продолжении романаЖанр: ХоррорПеревод: ЛюбительскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA89B42F160703253B8C903D1EF25372B67CCECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577828   (162254) от 19.12.2022
+
+Рик и Морти / Rick and Morty (2022) WEB-DL [H.264/1080p] (сезон 6, серии 10 из 10) HDrezka, Audiodrome
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационное шоу для взрослых, в лучших традициях интеллектуального абсурда. Морти – самый обычный 14-летний подросток, который ссорится с учителями, мечтает о девочках и страдает от школьных хулиганов. Единственное, что делает его особенным, это его дед Рик – гениальный изобретатель и постоянно рыгающий алкоголик. В их мире все по фен-шую: инопланетяне в гараже, (   Читать дальше...   )Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, приключенияРежиссер: Уэсли Арчер, Пит Мишелс, Johnny TesoroПеревод: Профессиональный многоголосый (HDrezka) Ненормативная лексика, Одноголосый (Audiodrome)Язык озвучки: русский, украинский, английскийСубтитры: русские (Forced, Full), Украинские (Forced), английские (Full, SDH)Продолжительность: ~ 00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB3C586A0D7CE437BBAC2E6997A99B6893B3A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433082   (162255) от 19.12.2020
+
+Wildness - Ultimate Demise (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Wild
+02. Die Young
+03. Nowhere Land
+04. Cold Words(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E80AA6E64A59A83424DE68AFC034A873E14298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826336   (162256) от 18.10.2025
+
+StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162256.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarCraft - легендарная стратегия в реальном времени в научно-фантастическом сеттинге от создателей серии Warcraft. В игре вам предстоит присоединиться к одной из трех враждующих сторон — высокотехнологичных терранов, протоссов с мощными псионными возможностями и насекомоподобными зергами...Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433152   (162257) от 19.12.2020
+
+Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th District Blues (8:52)
+02. Shadow of a Man (5:36)
+03. Why I play the Blues (6:54)
+04. Stranger (9:06)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DBE45695FC873E4CFF31BF7B996061D90F7971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674234   (162258) от 04.11.2023
+
+Журнал | Диабет. Образ жизни №2 (2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный медицинский журнал, предназначенный в первую очередь для людей с сахарным диабетом, их родственников, врачей-специалистов, а также для всех тех, кто привержен здоровому образу жизни. Цель журнала – повышение качества жизни при сахарном диабете, распространение знаний о заболевании, практические рекомендации по питанию, физической нагрузке, самоконтролю, (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: МОО "Международная программа "Диабет"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97DABB5622077952A56B8569C0340FD401DD0FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517610   (162259) от 16.12.2021
 
 Ирен Тримбл | Disney. Любимые мультфильмы, ВАЛЛ-И (2021) [MP3, Всеволод Кузнецов]
@@ -6,7 +181,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162259.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162260.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ magnet:?xt=urn:btih:9FB10A979B8D09C5BC8C4CB7315AA2119C3673BD
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162261.jpg" />
 </div>
 
 
@@ -81,7 +256,7 @@ magnet:?xt=urn:btih:83DD876F7B4CF098458BF2A7E0E91E3841278528
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162262.jpg" />
 </div>
 
 
@@ -105,7 +280,7 @@ magnet:?xt=urn:btih:A61A4EAB34C5D50EC18D20DBA2866AC670C66B35
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162263.jpg" />
 </div>
 
 
@@ -129,7 +304,7 @@ magnet:?xt=urn:btih:54B9C5CE3282C0E62AB2680EF4BECBC21D55E12B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162264.jpg" />
 </div>
 
 
@@ -154,7 +329,7 @@ magnet:?xt=urn:btih:530B4DB47C74E2246E889944C48AFD3F1EF67E1C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_162265.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_162265.jpg" />
 </div>
 
 
@@ -179,7 +354,7 @@ Olyphant - Destinies of the Soul (2020) [MP3|320 Kbps] <Progressive Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162266.jpg" />
 </div>
 
 
@@ -206,7 +381,7 @@ magnet:?xt=urn:btih:2AFC0D767AD06BC8AE85590855809D0E7EB00FA8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162267.jpg" />
 </div>
 
 
@@ -230,7 +405,7 @@ VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162268.jpg" />
 </div>
 
 
@@ -257,7 +432,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162269.jpg" />
 </div>
 
 
@@ -281,7 +456,7 @@ magnet:?xt=urn:btih:624FB3842FA37B1CBED1D5287C26A2BC6145BC48
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162270.jpg" />
 </div>
 
 
@@ -305,7 +480,7 @@ magnet:?xt=urn:btih:2AED114F5A4E3295D5E76AEB9F9ACB8E41BF6BAB
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162271.jpg" />
 </div>
 
 
@@ -332,7 +507,7 @@ magnet:?xt=urn:btih:919F38D55DB33650C483E6D4743327C06D34175C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162272.jpg" />
 </div>
 
 
@@ -356,7 +531,7 @@ magnet:?xt=urn:btih:D5AE5C6604F5426E778B23DD8EBF2FF445043A73
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162273.jpg" />
 </div>
 
 
@@ -383,7 +558,7 @@ VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162274.jpg" />
 </div>
 
 
@@ -410,7 +585,7 @@ The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162275.jpg" />
 </div>
 
 
@@ -437,7 +612,7 @@ magnet:?xt=urn:btih:3A0010188DB9E4B0396F98FA4089B8FC9FC0CAC8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162276.jpg" />
 </div>
 
 
@@ -463,7 +638,7 @@ magnet:?xt=urn:btih:431DDF3373ED6AE139BECAABCBBA6DC556860C84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162277.jpg" />
 </div>
 
 
@@ -474,186 +649,6 @@ magnet:?xt=urn:btih:431DDF3373ED6AE139BECAABCBBA6DC556860C84
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E0BC22B4D2943E533CA95568E2EE7C70E4A785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517729   (162278) от 16.12.2021
-
-VideoProc Vlogger for Mac 1.2 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162278.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoProc Vlogger - это интуитивно понятное и функциональное программное обеспечение для редактирования видео для всех. Создавайте кинематографические видеоролики для повседневного творчества, особых моментов или праздников.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E75F44016EE3EEB56B1BDCDBF31F73328F4EDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598039   (162279) от 19.12.2022
-
-Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Is Lost (You Give Me Strength) – The Weeknd
-02. Hometree – Simon Franglen
-03. Happiness Is Simple – Simon Franglen
-04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432862   (162280) от 19.12.2020
-
-Pharaux - Birdsongs of the Manic Vol. I (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tower of the Fourth Living Creature [00:07:50]
-02. Dreamcatcher [00:10:23]
-03. Wicker Mind [00:06:59]
-04. For A Time, I Lost Myself [00:05:40](   Читать дальше...   )Жанр: Doom Metal, Progressive RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217E7898ECFF557545969C6F10EC1B1B40816D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824607   (162281) от 18.10.2025
-
-Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Day
- 02 - Stay Forever
- 03 - Je Danse
- 04 - You’re My Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBCBCA090EBABEA5F708620157AB990872F78F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432870   (162282) от 19.12.2020
-
-Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March to Dementia [00:01:16]
-02. Sea of Madness [00:04:32]
-03. Devil's Breath [00:03:37]
-04. Purple Skin [00:05:05](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C11738C603ACB0F3705D2658A28CE5D0BCE1453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598522   (162283) от 19.12.2022
-
-Topaz Gigapixel AI 6.2.2 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B31BD0F4F99777C387CE34FE236D5D1C8009B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674121   (162284) от 04.11.2023
-
-Фау-2. Ракета нацистов / V2: Nazi Rocket (2015) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ракета, которая изначально была воплощением мечты о космосе, превратилась в ценнейшее оружие Гитлера. Фау-2 была невероятным новшеством, не похожим ни на одно оружие. Это была баллистическая ракета, которую очень трудно засечь. В основу фильма положена история охоты британской разведки MI6 за технологиями ракетостроения фашистской Германии.Производство: Германия, Великобритания, США, Story House Productions, Warehouse 51 Productions, Smithsonian ChannelЖанр: документальный, история, исследованияРежиссер: Андреас ГутцайтУчастники: Нико Бирнбаум, Кристиан Хартинг, Ральф ТемпельПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379B1A7F03274E362D49967FDBD9076575FB2006
 ```
 
 

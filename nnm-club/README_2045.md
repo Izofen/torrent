@@ -6,7 +6,7 @@ TranslucentTB 2024.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53535.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:18CA778814E9E4E369BBA72685C0C0E7EDBE5173
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53536.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIMP 5.30 Build 2554 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53537.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53538.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3D76ACEA2BB24A402D26D3B238F5285FD6BE0925
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53539.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F66FB1C500D06F22153978E2E8D0DBAAC5C05EBB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53540.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ IPTV Pro v8.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53541.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ HWiNFO 8.04 Build 5470 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53542.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9CAF33B6D67DDC94427232DC8AC123C02C4B765D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53543.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ AntiPlagiarism.NET 4.132.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53544.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53545.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Google Chrome 126.0.6478.57 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53546.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:866AE2C43AB569DAFB6D25737135F528CC7CE46F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53547.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53548.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53549.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Guru Maps Pro & GPS Tracker v5.5.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53550.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Topaz Video AI 5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53551.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:222526E9CF54D2F53F55743A800CB1E0C20216D0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53552.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53553.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:F3A801F54B7F65AE6063232A073EE2C9295F3481
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53555.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:24C70544E46FFDDC87F94B5B1A8FCA0113F8612A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53556.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5EE6BE260430A447B15E35CECBB61CD39A763E23
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53557.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Tor Browser Bundle 13.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53558.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53559.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4E87C43C2DFE822BF915CF40F7788FD5B1457D79
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53560.jpg" />
 </div>
 
 

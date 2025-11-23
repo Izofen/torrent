@@ -6,7 +6,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Union of Gnomes (2024) [Ru/Multi] (1.5.28) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12308.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12356.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12391.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12395.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12450.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12606.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12610.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12723.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12794.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12805.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12816.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12818.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12827.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13008.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13030.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13094.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13186.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13201.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13231.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13325.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13396.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13416.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.05/dlc) Repack seleZen [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13439.jpg" />
 </div>
 
 

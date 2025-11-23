@@ -6,7 +6,7 @@ Capture One 23 Enterprise 16.3.5.10 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118570.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ocenaudio 3.13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118585.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Icecream PDF Editor Pro 3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118586.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Lucky Patcher 11.1.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118587.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OpenNumismat 1.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118589.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Speedtest от Ookla 5.3.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118590.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Smart AudioBook Player 10.6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118596.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Easy Data Transform for Mac 1.46.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118598.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DxO FilmPack 7 for Mac v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118602.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DxO PhotoLab 7 ELITE Edition 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118603.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Icecream Screen Recorder Pro 7.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118605.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ JetBrains WebStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118612.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Luminar Neo 1.18.2 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118615.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Find Same Images OK 5.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118617.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1A68C0ED7E0346F7D4A251A26CC849D97D3E1F3E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118620.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4587 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118621.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lark Player - YouTube Music & Audio Player 5.69.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118622.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:AE76AA585F6EDC5DB4823DE7BBA5EDBE13FDEACC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118624.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Windows 11 Manager 1.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118627.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Steinberg - WaveLab 12 Pro 12.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118629.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Windows 10 Manager 3.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118630.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ PassMark RAMMon 3.1 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118633.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ FileZilla 3.66.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118636.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ DesktopDigitalClock 5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118637.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ CyberLink PowerDirector 2024 Ultimate 22.1.1.2601.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118638.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DesktopSnowOK 6.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118643.jpg" />
 </div>
 
 

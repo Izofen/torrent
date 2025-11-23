@@ -1,3 +1,177 @@
+###  Публикация: 1345548   (166250) от 15.12.2019
+
+Александр Иванов | Боль в шее. Советы профессионалов (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга от эксперта по лечению боли в спине и шее врача-остеопата Иванова Александра. Содержит полезные рекомендации, упражнения, приемы самопомощи при боли в шее. Для широкого круга читателей.Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B1BD56AAF4C3E53F070B18BAD0AD4D7905A572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516381   (166251) от 11.12.2021
+
+Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Dreams
+02. Fortune And Fame
+03. Phoenix Rising
+04. Head’s Down(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A713CC529E14CB765221C3B76B8DCCE611774F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673267   (166252) от 31.10.2023
+
+ApolloOne - Photo Video Viewer 3.1.4 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166252.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531EA100ED02C8DE71B55826B72B4F5D1EA931AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431911   (166253) от 15.12.2020
+
+TinkerTool System 7 v7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166253.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X.
+
+Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0285E890C383F3CB66F611E4FABA14017A108985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345563   (166254) от 15.12.2019
+
+С.П. Воробьев (ред.). | Инфокоммуникационные сети: энциклопедия [1,3 том] (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том энциклопедии знакомит читателя с классификацией инфокоммуникационных сетей по признаку уровня интеграции телекоммуникационных служб и дает достаточно полную характеристику этих сетей на различных этапах их развития. Впервые в описание системы включен жизненный цикл как объект исследования ее эффективности. Подробно рассмотрены инфокоммуникационные технологии, (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9378B46DCFF346A9388B48CD70D4B787259843B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431840   (166255) от 15.12.2020
+
+iSnow 2.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166255.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSnow - новогоднее приложение придаст вам ярких впечатлений под Новый год. Пусть идет снег на вашем рабочем столе, и пусть Санта и его олени летают вокруг вашего монитора. В то время как снег накапливается над вашими окнами, где-то бредёт белый медведь.
+Есть много возможностей контролировать снегопад, ветер, красный нос Рудольфа, размер снежинок, Санту, медведя, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2020Разработчик: Rick JansenПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B543543379285F1E430FD01419AD956760A52B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673190   (166256) от 31.10.2023
+
+GeoGebra 6.0.810.0 Classic + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166256.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4D8C68154CA52DDC3BFBAD4C8FDCC62D39BD34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516427   (166257) от 11.12.2021
 
 Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
@@ -6,7 +180,7 @@ Erroll Garner - 1944-1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166257.jpg" />
 </div>
 
 
@@ -33,7 +207,7 @@ magnet:?xt=urn:btih:CEC02169AAB7B5DAACD7A58113AA17F8DC59631C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166258.jpg" />
 </div>
 
 
@@ -58,7 +232,7 @@ magnet:?xt=urn:btih:4865E4DE190CC2B173D705499347782F4CE8389C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166259.jpg" />
 </div>
 
 
@@ -82,7 +256,7 @@ Acon Digital Acoustica Premium Edition 7.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166260.jpg" />
 </div>
 
 
@@ -106,7 +280,7 @@ Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166261.jpg" />
 </div>
 
 
@@ -133,7 +307,7 @@ magnet:?xt=urn:btih:03A94C7EB7D09A13DF2B89CE3F4F4C3545A4C474
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166262.jpg" />
 </div>
 
 
@@ -157,7 +331,7 @@ AnyTrans for iOS 8.8.0.20201214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166263.jpg" />
 </div>
 
 
@@ -183,7 +357,7 @@ magnet:?xt=urn:btih:F52801A2CD63C2F39EA91D7F1538EDB645C5615C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166264.jpg" />
 </div>
 
 
@@ -207,7 +381,7 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166265.jpg" />
 </div>
 
 
@@ -234,7 +408,7 @@ magnet:?xt=urn:btih:2C4902F9CF0644C8A45DB75C14632F2001C81E84
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166266.jpg" />
 </div>
 
 
@@ -261,7 +435,7 @@ VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166267.jpg" />
 </div>
 
 
@@ -288,7 +462,7 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166268.jpg" />
 </div>
 
 
@@ -314,7 +488,7 @@ magnet:?xt=urn:btih:55E5E6A2D9E4FF689324AFC97A93CDB9E7737E35
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166269.jpg" />
 </div>
 
 
@@ -338,7 +512,7 @@ magnet:?xt=urn:btih:3CB48F1765D18F303CC136FE2174A756DCFDC251
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166270.jpg" />
 </div>
 
 
@@ -362,7 +536,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2364]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166271.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ TurboMosaic Pro 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166272.jpg" />
 </div>
 
 
@@ -413,7 +587,7 @@ magnet:?xt=urn:btih:7332BFA4A0D0437F22BB955A15623854A3D536DC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166273.jpg" />
 </div>
 
 
@@ -437,7 +611,7 @@ magnet:?xt=urn:btih:6FF28986EBC63D1497D176321EAB16FDA3DB9FB5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166274.jpg" />
 </div>
 
 
@@ -461,7 +635,7 @@ VA - EDC Fundamental Wave (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166275.jpg" />
 </div>
 
 
@@ -475,178 +649,6 @@ VA - EDC Fundamental Wave (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3B69F304ED416926DDF0F737DB0F3BD0D108D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516388   (166276) от 11.12.2021
-
-VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twelve Sessions - Reborn (Original Mix) (6:42)
-02. Lunatica, Hypatia - Brain Sequences (Original Mix) (7:40)
-03. Zephirus Kane - Synchronicity (Original Mix) (7:17)
-04. Redrosid - Energetic State (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597247   (166277) от 14.12.2022
-
-Любовь по вызову / Good Luck to You, Leo Grande (2022) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через два года после смерти мужа 60-летняя Нэнси Стоукс решает попробовать то, о чём мечтала многие годы — испытать удовольствие от секса. Она снимает номер в отеле и приглашает парня по вызову.Производство: Великобритания, США / Align, Cornerstone Films, Genesius Pictures, Searchlight PicturesЖанр: Драма, комедияРежиссер: Софи ХайдАктеры: Эмма Томпсон, Дэрил МакКормак, Изабелла Лафлэнд, Лес Мабалека, Ленни Бир, Карина Лопеш, Шарлотта УэрПеревод: Любительский многоголосый (New-Team)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40546BDB6F053571472523EA82070A23D822F002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673077   (166278) от 31.10.2023
-
-Журнал | ТЕХСОВЕТ премиум №9-10 (221) (сентябрь-октябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166278.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ТЕХСОВЕТ премиум»— путеводитель по эффективным техническим решениям. Широкий спектр производственно-технических публикаций по актуальной тематике: нефтегазовый комплекс, энергохозяйство предприятия, энерго- и ресурсосбережение, технологии металлообработки, импортозамещение, логистика и складское оборудование, информационные технологии и связь.Жанр: Информационно-рекламное изданиеИздательство: ООО «ТЕХСОВЕТ»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E00996C2CA1C78A6DE1DE503945C8CAEEA05718
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345644   (166279) от 15.12.2019
-
-Apple Remote Desktop 3.9.3 (1A50) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apple Remote Desktop – лучший инструмент для управления компьютерами Mac в сети, распространения программного обеспечения, предоставления поддержки пользователям в режиме реального времени, создания подробных отчетов о программном и аппаратном обеспечении, а также автоматизации ИТ-процессов – прямо с Вашего рабочего места.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.14.6 MojaveЯзык интерфейса: Английский, испанский, голландский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4C86E3D0AA85269ADF371955322F02FECB3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597457   (166280) от 14.12.2022
-
-Бандит / Bandit (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харизматичный преступник Гилберт Галван-младший бежит из мичиганской тюрьмы и укрывается в Канаде. Там он покупает себе новую личность, но вновь берется за старое. Он грабит рекордные 59 банков и ювелирных магазинов, ловко обходя все усилия со стороны полиции и шаг за шагом становясь легендарной фигурой криминального мира.Производство: Канада / Yale Productions, BondIt Media Capital, Buffalo 8 ProductionsЖанр: триллер, драма, криминалРежиссер: Аллан АнгарАктеры: Джош Дюамель, Элиша Катберт, Мэл Гибсон, Нестор Карбонелл, Свен Теммел, Кит А. Болден, Дилан Флэшнер, Оливия д’Або, Майкл Х. Коул, Клер БронсонПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские (Forced), английские (Full, SDH)Продолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE86C05B2E74040FD45B31AE7F608064AEEDCBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516481   (166281) от 11.12.2021
-
-Валерий Роньшин | Тайна комнаты с чёрной дверью (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель Валерий Роньшин сочинил много рассказов для ребят, которые любят страшилки, – слушать и рассказывать. Читать эти истории и страшно, и смешно, и поучительно. На примерах героев страшных историй ребята сообразят, как вести себя в опасной ситуации или как её избежать; как реагировать, если тебе померещилось привидение или красная рука… Страшилки – (   Читать дальше...   )Жанр: Детская литература/ПриключенияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05F3A8960E18B538A5623EA27D1B7FBE7DDBA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431948   (166282) от 15.12.2020
-
-Workspaces 2.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Workspaces запускает все, что вам нужно для вашего проекта, одним щелчком мыши. Он также хранит ссылки на все ваши важные ресурсы, поэтому вам не нужно помнить, где они находятся: Workspaces делает это за вас.
-Приложение делает переключение между проектами практически без усилий. Это супер-инструмент повышения производительности для всех, кто работает над различными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4444C8D2E3204F23E573E9E93DE1FE228819F490
 ```
 
 

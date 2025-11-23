@@ -6,7 +6,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31719.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31728.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31729.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31731.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Living With Sister: Monochrome Fantasy (2024) [En] (20241219/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31746.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31747.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31762.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack R.G. Freedom
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31768.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31782.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Coromon (2022) [Ru/Multi] (1.3.6) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31787.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Janosik (2020) [Ru/Multi] (1.8.06a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31793.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31810.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31816.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31820.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31826.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Beach Invasion 1945 - Pacific (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31828.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31831.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31832.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Heads Will Roll Reforged (2023) [Ru/En] (2.02b/dlc) Repack Let'sРlay [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31846.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31853.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grand Theft Auto IV (2020) [Ru/Multi] (1.2.0.59/dlc) Repack dixen18 [The Complet
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31863.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31900.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31901.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31910.jpg" />
 </div>
 
 

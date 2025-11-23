@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07AD039A8BAC11D536DC1CB97C6B43023B4266A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54706.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8981DF28CB1665153E078B34E9F057B198E42B7B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54707.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1BF5F7F8A364F051C99AE9A908977347FD5A966B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54708.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D8F53C223495E3CF01434C97C9AD5209D0D22762
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54709.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:39A2BD4FB12C54988F3F92544E3AA653E08F20B5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54710.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Hosts File Editor+ 1.5.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54711.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5631052CE30F3604D068D1CBEDFB7BE6996EFE36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54712.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:5D1DAB68E79953E7864F6E48044B39DF55F00B49
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54713.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54714.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54715.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0C41D8AC5E42AD0847F567506A8330D20EDEB242
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54716.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:AEDE3C17F191BAF12A405176E216F9EAAA19858B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54717.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A12306A4B11AC7045CBC17F85A91A0939363EBA5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54718.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7DD4F14D8F48BE09799B1249E09FA71224C30D0E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54719.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54720.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:60309C705D0117A14E1422F5FB40B548DF3E8685
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54721.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B176608DD87D4A01072532DA8DB191F29BD831B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54722.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:FA08709021D01D7EB7D1B51B04461F8B86937525
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54723.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54724.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Planet VPN 2.8.26.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54725.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54726.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:15E98CF7575988F476DE94F213CA490672ED8F5A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54727.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:70112B1CCE4105670CC2588CFCB706C487607F3E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54728.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C0D935BF444F946105F466A8CA932230821471E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54729.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:2B402CCD26593B45EEEF640D5F36052E80499EBB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54730.jpg" />
 </div>
 
 

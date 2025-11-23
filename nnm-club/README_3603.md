@@ -1,3 +1,84 @@
+###  Публикация: 1707333   (113360) от 16.03.2024
+
+Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Поезд. (Н.Олев)
+02 - В саду играет музыка. (М.Танич)
+03 - Танцуем "диско". (А.Дементьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CC2ABCA3284B62DB9CE190F52CCAAA5EDCE547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707355   (113361) от 16.03.2024
+
+Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argy, Son Of Son - Faust (3:38)
+02. Argy, Weekend Heroes - No One’s Coming (3:39)
+03. Argy, Omnya - Aria (3:56)
+04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707328   (113362) от 16.03.2024
+
+VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Маскарад (И. Саруханов — О. Писаржевская, А. Монастырев) — 5.07
+И. Саруханов
+02. Предсказание (Д. Тухманов — Г. Кантор) — 2.53(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044D48609E12F54357734761AFF866778E03BBEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707113   (113363) от 16.03.2024
 
 Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +87,7 @@ Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113363.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113364.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:436A5A2AF1AB3BF7FBF5DB8E46955AEBB7B0507A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113365.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ AI Transcription 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113366.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113367.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Emurasoft EmEditor Professional 24.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113368.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113369.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113370.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113371.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ magnet:?xt=urn:btih:13B860CBF9C41197D438B78C8ABB990E9C90ED7F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113372.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ Eternal - Cryptic Lust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113373.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|image + .cue] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113374.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113375.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113376.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ Shirley Horn Trio - A Lazy Afternoon (1978) 1990, SteepleChase [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113377.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ Dave McKenna - A Celebration Of Hoagy Carmichael (1983) 1994, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113378.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Text Workflow 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113379.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ Monkey's Audio 10.55 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113380.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ magnet:?xt=urn:btih:86D447382A1B5FC0CC777ACACFD476B4F44B9868
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113381.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ The Progressive Souls Collective - Sonic Rebirth (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113382.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ VA - Armin van Buuren - A State Of Trance 1164 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113383.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ AirMail Pro 5 v.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113384.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ VA - The Morning Jazz : Swing & More (Breakfast Restaurant Music) (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113385.jpg" />
 </div>
 
 
@@ -593,81 +674,6 @@ VA - The Morning Jazz : Swing & More (Breakfast Restaurant Music) (2024) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6680DC235B50A400555093B4B4D245B4A82C668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707214   (113386) от 15.03.2024
-
-Индрик | Велий еси Господи… Жизнь и проповедь святого Гавриила Ургебадзе, исповедника и юродивого (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге воспроизводятся рассказы о святом подвижнике и юродивом XX в. Гаврииле (Ургебадзе), переданные специально для данного издания людьми, близко знавшими о. Гавриила при его жизни. Составитель уделил особое внимание тому, чтобы повествование об о. Гаврииле сохранило дух живого, искреннего рассказа очевидцев, оставаясь именно свидетельством подвигов святого, способным (   Читать дальше...   )Жанр: ПравославиеИздательство: ИндрикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BAA5F450421822AB97FC47123930D5F2AB8207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707053   (113387) от 15.03.2024
-
-Журнал | Психология и Я №03 (156) (март 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E908877F2A90F1D5242BA404C148B5B9FB9B901F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706968   (113388) от 15.03.2024
-
-James Carter - Axtone House Party (2024-03-11) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supermode - Tell Me Why (James Carter Remix)
-02. ID - You're Not Alone (James Carter Remix)
-03. Piero Pirupa - Change Your Mind (Korolova Remix)
-04. Emmit Fenn - The Chase (Rebūke Remix))(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1518E45FD42468D77A900933E20B43E6D57A34
 ```
 
 

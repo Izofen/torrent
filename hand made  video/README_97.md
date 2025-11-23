@@ -1,3 +1,78 @@
+###  Публикация: 1665757   (181132) от 01.10.2023
+
+Гравитация / Gravity (2013) BDRip [H.265/2160p] [10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет - последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа.
+Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; (   Читать дальше...   )Производство: США, Мексика, Великобритания / Esperanto Filmoj, Heyday Films, Warner Bros. PicturesЖанр: фантастика, триллер, драмаРежиссер: Альфонсо КуаронАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Фалдут Шарма, Эми Уоррен, Башер Сэвэдж, Адам КозенсПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95703983635A552575B719D81734A3C1FFFED615
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663242   (181167) от 01.10.2023
+
+Иду на грозу (1965) DVBRip [H.264/1080p] (серии 1-2 из 2) [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181167.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Даниила Гранина.
+Это фильм о жизни молодых физиков, о любви, дружбе и предательстве... Два подающих надежду молодых физика - Сергей Крылов и Олег Тулин - со студенческой скамьи серьезно изучают такое явление природы, как гроза. Друзья мечтают научиться управлять погодой. Но постепенно их пути в науке расходятся. Олег готов поступиться принципами (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Сергей МикаэлянАктеры: Александр Белявский, Василий Лановой, Ростислав Плятт, Михаил Астангов, Жанна Прохоренко, Виктория Лепко, Анатолий Папанов, Евгений Лебедев, Лев Прыгунов, Павел ЛуспекаевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB97E0B6BAA8F0517BE61D31904447789CE5E1C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665628   (181181) от 01.10.2023
+
+Кикбоксер / Kickboxer (1989) BDRip [H.264/1080p-LQ] [handmade]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Курт и Эрик Слоан отправляются в Таиланд, на родину кикбоксинга, чтобы доказать местным бойцам превосходство американской школы над тайской. Эрик, чемпион Америки по кикбоксингу, встречается в бою с Тонг По, чемпионом Таиланда.
+Тонг По оказывается сущим зверем. Он намеренно калечит уже обессилевшего Эрика Слоана, обрекая его на инвалидность. Курт поступает (   Читать дальше...   )Производство: США / Kings Road EntertainmenЖанр: боевик, триллер, спортРежиссер: Марк ДиСалле, Дэвид УортАктеры: Жан-Клод Ван Дамм, Деннис Алексио, Деннис Чан, Мишель Кисси, Хэскелл В. Андерсон III, Рошель Ашана, Ли Ка-Тин, Ричард Фу, Рикки Лю, Томас СиньПеревод: Многоголосый профессиональный (CTC)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DCF61E54B22F05A71287D0A44D6221880F0978
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592908   (181554) от 25.11.2022
 
 Пиджак / The Jacket (2005) Hybrid [H.264/1080p] [Open Matte]
@@ -6,7 +81,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181554.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181554.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:4B6B8581DE6F2C61606A798FFDB45658314CBE38
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181797.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:048E2D0F5DE1F4388F209896760BFADBFC784A31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181878.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181878.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:EB4E4991D0B45FF6B078942AAC38A6EA5F01DA51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181958.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181958.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:91294A2D35EE3D452A1C03C84A748237848A1C7C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182681.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182681.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:EA07016346BA287D20032D882F8362B5CA9768E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182761.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:C9F9431D8DD060D3D6335AFAD763FDD69E5BE378
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182828.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182828.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:6E73C7CC8AAED54D478973DF2978C9EF8A984C93
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182967.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182967.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:94FE8F44A9896C729FF259C5C982C9241E9B89A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184165.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184165.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:E39B2B4D0BBFD928A66C9476DCF44DA737664D76
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184247.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:BA6BE6BAFC83F60AC9E0D141D9FBF9FEA5C23AAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184256.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184256.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:9506FAE4CEE4F0E953C8BF0C26147F5E7C237BA6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184261.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184261.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:49C29B44225B524885F2396524C730CDE7BFD4B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184301.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184301.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:24473D17049265876E514AB25C382BC727C5CA82
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184342.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184342.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:B4CC3C46DF4C22391280ED9E4FA22755BDF6BADF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185049.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185049.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:C8E8E9FD85DAAF778E93C1B8C62DB3F13AFBF911
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185638.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185638.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:D7B5EB14BCF54AAFBB393EBCF1A010548F3B531E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185697.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:C5DC783D3C4715628652CE5F491B158BEC2EA91E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185701.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:FB92E2C6BCBE222213FD288127241ADE0A32A919
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185728.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185728.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:E6E5BDDD26794DF8C377098F3273B318F784F377
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185730.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185730.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:53C7C92DC282FA1C22FA05E8BFF99ADC4E80EE4B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185764.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185764.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ magnet:?xt=urn:btih:B552A8682194476C353EC63407FD28E58996BC09
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185778.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185778.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ magnet:?xt=urn:btih:3FFB182B74C937A2B42B86CA3D42D0083175CB73
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186096.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186096.jpg" />
 </div>
 
 
@@ -551,78 +626,6 @@ magnet:?xt=urn:btih:3FFB182B74C937A2B42B86CA3D42D0083175CB73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80588C4158CDE512A06FA5344F8376998000FA0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663999   (186151) от 24.09.2023
-
-Одиннадцать дней, одиннадцать ночей / Undici giorni, undici notti / Eleven Days, Eleven Nights (1987) HDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды на пароме случайно встречаются двое – Майкл и Сара, вспыхивает бурный роман. Но через двенадцать дней у Майкла свадьба. Сара предлагает ему оставшиеся 11 дней и ночей провести вместе.Производство: Италия, Filmirage S.r.l.Жанр: драма, мелодрама, эротикаРежиссер: Джо Д’АматоАктеры: Джессика Мур, Джошуа МакДональд, Мэри Селер, Том Моджек, Дэвид Брэндон, Ричард Баркели, Барбара Куписти, Дон Фиоре, Роберт Глигоров, Шила ГолдбергПеревод: Двуголосый профессиональный, одноголосый закадровыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892F586FB6A439302211E7D8BD5B8B620DB45B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663908   (186157) от 24.09.2023
-
-Схватка / Heat (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил МакКоли — один из лучших преступников Лос-Анджелеса. Ему противостоит лучший детектив Винсент Ханна. Две сильнейшие команды сходятся друг против друга в смертельной схватке.Производство: США / Warner Bros., Regency Enterprises, Forward PassЖанр: триллер, драма, криминалРежиссер: Майкл МаннАктеры: Аль Пачино, Роберт Де Ниро, Вэл Килмер, Джон Войт, Натали Портман, Том Сайзмор, Дайан Венора, Эми Бреннеман, Эшли Джадд, Майкелти Уильямсон, Уэс СтьюдиПеревод: Многоголосый профессиональный (ОРТ, НТВ+) профессиональный двухголосый (РЕН-ТВ)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B1FAEECF2463ECF595A1C61D1CD5DE302D783A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664136   (186164) от 24.09.2023
-
-Чужая (2010) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186164.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённой книге Владимира Нестеренко. 1990-е. Бандитский Киев. Бригада из четырех бойцов получает задание доставить из Праги девушку по кличке "Чужая". Она - родная сестра арестованного Бабая, чьи показания могут навредить важным людям. "Чужой" героиню прозвали не случайно - она поражает бесчеловечностью даже коллег за что и получает это (   Читать дальше...   )Производство: Россия, Профит, Красный квадрат, XX век ФоксЖанр: драма, криминалРежиссер: Антон БорматовАктеры: Наталья Романычева, Кирилл Полухин, Анатолий Отраднов, Евгений Мундум, Александр Голубков, Евгений Ткачук, Александр Большаков, Сергей Жарков, Дмитрий Ратомский, Ольга БынковаПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русские (вшитые на несколько фраз)Продолжительность: 01:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B5EBDA49AC802CDFE082D201E45AB4E247DCD9
 ```
 
 

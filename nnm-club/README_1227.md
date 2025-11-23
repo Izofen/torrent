@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 26 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2F40B91C4E3E6269808E456A9B9B6F59ADF35BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CDB2639C1F28893482E79F62267C153E4A269DF2
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32257.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2FD0910E211B1546B69E2D886E82CB3387C7A478
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32258.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:292863A8673EF3E3B8F570E2C77856DE73D4C78E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32259.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F079FDD5C889B63D86FC099DD1F7DBD5893FD7B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32260.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8EFE1B0927A1B8D70F3B2763759393B77ECD0777
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32261.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 11 Pro 24H2 26100.2605 x64 by SanLex [Lightweight] [Ru/En] (2024.12.27)
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32262.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1BE2401E96A61069AB3E43DD7A958202DB51B4CC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32263.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D7FBC20A24FE290758F9AD877D23471DDA8987B1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32264.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:9BE512889515C04D2512BE85B394EF0CEAF31CA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32265.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9DAC7D33B77DA939722A88ED860BE785801CC28C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32266.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ OTUS, Андрей Буранов | Administrator Linux. Basic (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32267.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E675A2F6A6CA9727648F056C0811A43AAFD651EA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32268.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:026459A57DDE17E91DB9CA1EFA21DF4A2B96DB7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32269.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A6114082D14E0BD5322DBB6B6FBC94576A30A6DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32270.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32271.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A4064848D01C3CE6638F2E32E6B6D02458C419F4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32272.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:041793FA9512B2028D68856146DA90C8BB57BBA2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32273.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FD414D361C3C36FE420FB22598279F7CF273E3F2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32274.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9143377C63BA9F2B71D2DCBC2D4DE496BFEA986A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32275.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D4E670C1A33D03A0155BC876F0715233F13D387C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32276.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32277.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32278.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:6D11D53A5A4828A2974F1C7D61650C1862BA1C5E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32279.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:B7280D0D339E2A5CC92C85464541F87EAF0D6270
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32280.jpg" />
 </div>
 
 

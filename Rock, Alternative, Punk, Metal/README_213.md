@@ -6,7 +6,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133520.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Flames Of Fire - Our Blessed Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133524.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Celtic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133531.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133539.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dissection - The Somberlain (1993) Reissue, Remastered, 2006, 2CD [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133543.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anger As Art - Virtual Sympathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133546.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133561.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133658.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133703.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133723.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Peter Gabriel - i/o (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133744.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Cobra Spell - 666 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133791.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Paradise Lost - Icon 30 (2023) [MP3|320 Kbps] <Gothic metal, Doom metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133818.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133831.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133854.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133861.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133862.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133869.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133877.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C2EECC0CEB0BC3CFBD1DA48534E300D0BA11EB88
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133905.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ TodoMal - A Greater Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133909.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133926.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133938.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Moto Armonico - Wondering Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133946.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133953.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Painful Defloration - Esthetic Research Laboratory (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133980.jpg" />
 </div>
 
 

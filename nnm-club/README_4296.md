@@ -1,3 +1,79 @@
+###  Публикация: 1681681   (132182) от 04.12.2023
+
+Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципиально новая экшен-стратегия от компании PopCap, подарившей нам Bejeweled и Peggle! Зомби напали на ваш дом, и ваш единственный способ выжить - посадить арсенал из растений! Будучи вооруженным иноземными растениями, истребляющими зомби, вроде горохострела и вишневой бомбы, вам потребуется очень быстро мыслить и сажать растения еще быстрее, чтобы любой ценой (   Читать дальше...   )Тип издания: RepackРазработчик: PopCap Games, Inc.Жанр: Strategy, Tower DefenseЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538A432924BDAD88F9672DFD7E2FCBE09F911388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681896   (132183) от 04.12.2023
+
+Конь в пальто! Или недалекие родственники... (2023) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канун Нового года подготовка к юбилею местного депутата. Через несколько дней, в самый разгар празднования к юбиляру заявляется представитель прокуратуры и вручает ему повестку. Вместе с соседями и родственниками, почувствовавшими что дела у местного короля теперь плохи, нечистый на руку региональный чиновник попадает в стремительный водоворот событий, а его красавица (   Читать дальше...   )Производство: Россия, Инвест-МедиаЖанр: комедияРежиссер: Дмитрий МакаровАктеры: Александр Песков, Николай Валуев, Юлия Юрченко, Сергей Бадюк, Марина Барсукова, Антон Батырев, Наталья Батова, Владимир Фигуровский, Виталий Хаев, Ольга Хохлова, Петр Королев, Евгений КосыревСубтитры: отсутствуютПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A17353E8A789BAE53D60B19962DDB6B7795D5B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596046   (132184) от 29.12.2012
+
+[Wallpapers] A large collection of beautiful wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132184.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A large collection of beautiful wallpapers (29.12.12)
+Название: A large collection of beautiful wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ECC7880518D2FD014EDB81C8B23BCFAA6C151E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595838   (132185) от 29.12.2012
 
 [Wallpapers] Creative Wallpapers (29.12.12)
@@ -6,7 +82,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132185.jpg" />
 </div>
 
 
@@ -34,7 +110,7 @@ magnet:?xt=urn:btih:E4D33BDB547A15959B410A40A4F1A6EA4E4816AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132186.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:296D7F8ABA953423EC7427B8E84412CAE25C6DA1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132187.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ magnet:?xt=urn:btih:9DA379FF6A2D2ADC5CD3EE50FC0E51A4A752B469
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132188.jpg" />
 </div>
 
 
@@ -106,7 +182,7 @@ magnet:?xt=urn:btih:8F0FF2BFD101BCB6908E9DAE3BC11647375FB9DA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132190.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ VA - Dutch House Anthems (2012) [MP3|320 kbps]<House, Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132191.jpg" />
 </div>
 
 
@@ -163,7 +239,7 @@ magnet:?xt=urn:btih:1623E94468FA8572F527C031FBE2D86E59524D63
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132192.jpg" />
 </div>
 
 
@@ -187,7 +263,7 @@ magnet:?xt=urn:btih:0BB6DB2A98FAD41CFE3D9A9A362E1B31D5D36D9E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132193.jpg" />
 </div>
 
 
@@ -211,7 +287,7 @@ magnet:?xt=urn:btih:F203F1B5F63C1DD13EA861DE09794B13E0937CB2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132194.jpg" />
 </div>
 
 
@@ -235,7 +311,7 @@ magnet:?xt=urn:btih:8698BB5C5F3AFDC29BF66E9128E6635CD5FB6E0B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132195.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ magnet:?xt=urn:btih:460B1C7E4CE11495FED6143886ADB7589B23278C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132196.jpg" />
 </div>
 
 
@@ -287,7 +363,7 @@ magnet:?xt=urn:btih:ED18F99099AE631D3AD076A998F3BE4D92A3D1AE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132197.jpg" />
 </div>
 
 
@@ -315,7 +391,7 @@ Sexy Girls Wallpapers (29.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132199.jpg" />
 </div>
 
 
@@ -339,7 +415,7 @@ magnet:?xt=urn:btih:B3F0C401EE7C40C0EFEB95EF02653AE280B43F21
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132201.jpg" />
 </div>
 
 
@@ -363,7 +439,7 @@ VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132202.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132203.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ magnet:?xt=urn:btih:AC1A2C9822A27DC033046EE426668E3E13809C3D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132204.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ magnet:?xt=urn:btih:E3BDB1CD24584AA3A946C369411F29ACC6AD5C0F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132205.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ Frank Wess Johnny Coles - Two At The Top (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132206.jpg" />
 </div>
 
 
@@ -504,7 +580,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132207.jpg" />
 </div>
 
 
@@ -529,7 +605,7 @@ magnet:?xt=urn:btih:5DDB2F491F0F31F40DE105EF07C76D3F534016C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132209.jpg" />
 </div>
 
 
@@ -553,7 +629,7 @@ Sexy Girls Wallpapers (28.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132211.jpg" />
 </div>
 
 
@@ -577,7 +653,7 @@ magnet:?xt=urn:btih:653ED342269208F3B541A457698CA26710DBEB96
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132212.jpg" />
 </div>
 
 
@@ -589,87 +665,6 @@ magnet:?xt=urn:btih:653ED342269208F3B541A457698CA26710DBEB96
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E388582845EEEC1BB5BEF4E0B5C5D0BFA2E479AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595948   (132213) от 29.12.2012
-
-62 HQ Wallpapers (29.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDA0E41F726C6BB8F8F44749D479B3DB41EFA15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681722   (132214) от 04.12.2023
-
-Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B9A9173F2E045E468F49E257F5843BB7D9509E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595789   (132215) от 29.12.2012
-
-VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sven & Olav - Blissful World (Bonus Berlin Exclusiv Mix) (06:54)
-02. Chris Rockz - Dromedario (Cubic Egg Tech Mix) (08:20)
-03. Mauerpark Community - The Divine Circus (Outdoor Club Mix) (06:07)
-04. Berlin Minimal - Freitag Frei, Feierei (Original Mix) (06:17)
-05. Jason Duff vs. Miss Thunderpussy - BelleVille (Original Mix) (05:41)
-06. Jimmy(Ge) - Space (Original Mix) (06:37)
-07. Jens Riemann - Dirty Rolando (Original Mix) (05:37)
-08. Technodar - Funny Day (Original Mix) (05:08)
-09. Crazy Krauts - Frau Wunderlich geht baden (Original Mix) (06:10)
-10. Walter Native - Love Strings (Sirkhan Remix) (06:44)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
 ```
 
 

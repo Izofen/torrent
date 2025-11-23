@@ -6,7 +6,7 @@ Comedy Woman (31.12.2018) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EssentialPIM Pro 11.2 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137478.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Native Instruments - Kontakt 6.0.3 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137496.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PTE AV Studio Pro 11.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137497.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Sitni Sati FumeFX 5.0 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137498.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Advanced Renamer 3.92.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137502.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Solar System Explorer HD v2.7.5 [Ru/Multi] - 3D путешествие по со
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137503.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Boom 3D 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137509.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Viber 9.9.5.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137533.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Luminar Neo 1.16.0 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137535.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:97295B1661A0AD5A1E5B1777182FF87B7E4241AA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137545.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:BF330E19061E537DAE7A8133F751A352BC8FDFDA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137549.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ One Commander Pro 3.29.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137552.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:6E8A4E81AB0AF29D85341BFE6A4A72EE74D6E931
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137556.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7655D364DBF541711BCCB6C5BEF94512B41EF8E7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137560.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:DD4D5321CC596AD29203FDFCB2C1F698CB205396
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137568.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Glary Disk Cleaner 5.0.1.284 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137580.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:2D5BACA3C4AFF3B41903E33EC5AA465332553477
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137638.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ MediaInfoXP 2.44 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137642.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137649.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Volume2 1.1.5.404 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137650.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wise Disk Cleaner 10.9.7.813 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137661.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:3F0E90305FD4D4492C1985FC0B7D7878AB1CA8CD
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137663.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wondershare Recoverit 7.2.4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137673.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:62499AB7E91874CFD0ECEA780018000E829CD7BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137678.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ iToolab UnlockGo 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137680.jpg" />
 </div>
 
 

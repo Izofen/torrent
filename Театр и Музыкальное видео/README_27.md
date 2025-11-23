@@ -6,7 +6,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83095.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83711.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83746.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ DVD1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84048.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84078.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84246.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84295.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАкте
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84332.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84515.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84631.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84939.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84954.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85018.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85555.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85725.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85752.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85761.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85765.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85784.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85945.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86120.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86121.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86175.jpg" />
 </div>
 
 

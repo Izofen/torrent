@@ -1,3 +1,84 @@
+###  Публикация: 1703794   (114816) от 01.03.2024
+
+AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Down
+02. Dog Eat Dog
+03. Let There Be Rock
+04. Bad Boy Boogie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703710   (114817) от 01.03.2024
+
+VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ROYALÈ (US) - City Nights (Zy Khan Remix) [5:26]
+02. Dmitry Kostyuchenko - Caldera (Original Mix) [4:16]
+03. Luke Bathwine - APE (Original Mix) [4:00]
+04. Ari Grey feat. Maya Woloszyn - We Own The Night (NOMADsignal Remix) [4:27](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5605A117CFD75CF95B82BFD95C4AE93DBACBE52B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703515   (114818) от 01.03.2024
+
+Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Mani Padme Hum [5:43]
+02. Bohemia After Dark [3:41]
+03. Companionship [4:17]
+04. Stoned Ghosts [5:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Hard BopПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E30036D030046FC74544338CB178C626A56DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703641   (114819) от 01.03.2024
 
 VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +87,7 @@ VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114819.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ David Reece - Baptized By Fire (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114820.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114821.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114822.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:93342E2176215C5B69487407F3C842055BC224EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114823.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114824.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:023E61C696EE4E03AC94FE2B94AF31B850114D90
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114825.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114826.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114827.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ TreeSize Free 4.7.2.526 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114828.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ magnet:?xt=urn:btih:278A09F44F071F4ACB2299CB07B6551D7352614D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114829.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ BurnAware Professional 17.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114830.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114831.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114832.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ magnet:?xt=urn:btih:AAA2C6C34BAABE237A6E39FE6D9F24B1D1D173E0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114833.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ magnet:?xt=urn:btih:4D87BA26492DB2D5859D74FB31252C7836E37B53
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114834.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114835.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114836.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ Mike Oldfield - Opus Revisited (Live 1973) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114837.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ Ashampoo UnInstaller 14.00.12 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114838.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ magnet:?xt=urn:btih:7434484E961083E5D8C40989AF0F11A67A3D9030
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114839.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ magnet:?xt=urn:btih:07B7F21A29E1C3378C340176EF567FCCF5B497B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114840.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ Brave Browser 1.63.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114841.jpg" />
 </div>
 
 
@@ -582,78 +663,6 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E690516A8644A345B9CC713320B3DC6E332D16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703573   (114842) от 01.03.2024
-
-Журнал | Военно-исторический журнал №3 (767) (март 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114842.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2630965382D16E385976C759559084DD4921EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703737   (114843) от 01.03.2024
-
-K-Lite Codec Pack Update 18.1.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114843.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC68E93DA6A30446E558FB0F2659C323F6D1849E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703614   (114844) от 01.03.2024
-
-XYplorer 25.60.0000 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114844.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAAEAD1401D81C90962CB4DD2F3C50AED7B56CD
 ```
 
 

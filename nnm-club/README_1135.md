@@ -6,7 +6,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Launcher for zapret 1.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29864.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Skillbox, Максим Клочков, Анастасия Полякова | П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29865.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:781A39BA6152EEA0A435B8EB0B29974C87323E5E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29866.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ CyberYozh, VektorT13, Qanon, Mik1st, Михаил Васильев | Взлом 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29867.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29868.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29869.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Google оспорил в суде российский штраф в два ун
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29870.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Google оспорил в суде российский штраф в два ун
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29871.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Noreya: The Gold Project (2023) [Ru/Multi] (1.3.39) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29872.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0B2A798B79857BDBB20C7B3AEA72525E6544F684
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29873.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:50C28396CFFA082578996B9D72EB45A7484EE422
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29874.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:12C2FD5EE5D6774F9EB194F64621250370F7DEEF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29875.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29876.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29877.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:06AE2686C77FAEFEC838254A36F1B71186FD3850
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29878.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:9BC8C11DC14F7248453E64A08DFCBF23C327FEEA
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29879.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:D1264150B28F8DF59F5898F61AE64836328EF1E7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29880.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29881.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29882.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:81DFA8C2804B275D4B96CF8D39B2C2E1D990186F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29883.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AACF3B7BC9D06F31663FC47F5659C078D22E9BEE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29884.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:C0ACF1EB9D85D538F4F953FF892476132AA31863
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29885.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:1FDC7C9A97EC73E9580BE8922F1EC6BE725FC142
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29886.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Winter Car Music Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29887.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29888.jpg" />
 </div>
 
 

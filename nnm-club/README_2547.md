@@ -6,7 +6,7 @@ Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66970.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66971.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MotoGP. Этап 06 из 22. Гран-при Франции. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66973.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:578DEB1B5AED7D68A0E1936AE309196A684FF734
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66974.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:3E72D2C6CB65622160A691ECB23E9E84BD6A09B3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66975.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:8E334B006766B3B451183323653087C5209128CA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66976.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Gedanken toten Lebens - Essenz der Urwunde (2025) [MP3|320 Kbps] <Atmospheric Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66977.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:C65226C747F5FF29F540FDA38E87761228136717
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66978.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wise Disk Cleaner 11.2.3.843 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66979.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:134B46AA4B03AB4040D73D094957170115E32214
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66980.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2680C6B9243583BF21EDEBE1BA725E603B94283B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66981.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:F5E5B1283692B289EDDE878517BFDCDE42FEF247
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66982.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметро�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66983.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F9ECAD1091F8353F1E3C424C90C5EFF40B9A8A1F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66984.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ TikTok Private Plus v39.9.5 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66985.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ MultiTimer: МультиТаймер v1.7.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66986.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:928DD18DC44CAF0E54F341ED85BE9786D4A8D71B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66987.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:A68619F42977BC2094A0AC66DAC3D7CBCC7E6409
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66988.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Ibiza Summerhouse Megamix 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66989.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6442DFDACAB342D81EC4D37F40F2FA5EA6EA4455
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66990.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Beach Mode ON (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66991.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ghost - Skeletá (2025) [MP3|320 Kbps] <Heavy Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66992.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VideoShow VIP v10.3.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66993.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Joe Marcinek Band - The Groove Session (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66994.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Joharpo - Last Tides of Magnolias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66995.jpg" />
 </div>
 
 

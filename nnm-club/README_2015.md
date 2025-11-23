@@ -6,7 +6,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 превращает суперсовременные процесс�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52756.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 превращает суперсовременные процесс�
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52757.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6EBA7FC5CAA4A13175A85975DE125BD7643421F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52758.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CD8E1FF656144062D94AA1E8401DC83E03075C06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52759.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52760.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kaspersky Rescue Disk 2024 Beta [20.06.2024] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52761.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:64DB10F7D50E17D40218529E9A8DB707A45CC64E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52762.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:92F835C5C035CFC8F365DA4F5922225915797250
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52763.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F7DD1DD856543D6E68B7009A695E5F123C3DF72A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52764.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52765.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:E053429E32BE5823EC6672A86C4DF454B935DA6D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52766.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PrivaZer Pro 4.0.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52767.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52768.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52769.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:DABE64DB4494C0120FD739F03FFA851FF7177D59
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52770.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:CBDDE0F5D5A96507D62008CAD51BACD18DBA173B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52771.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Heart – 4 Albums (1976-1993) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52772.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by Balatan [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52773.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B4AC155094AC8F7E37A3717B989E2F18C2BB6EA4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52774.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:BB4CC7C20FB91DDFE1F02062A28A207B7D252C71
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52775.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:C4FA00CB4C90BBAE26E3ED7447E6187424ECB9BA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52776.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Skype 8.122.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52777.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:002F02AE1EDBA326B599271AB243E203F475B44D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52778.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:EA91C07620893BC0D275FAD6E07B45E2BFCBECF2
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52779.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:7B628F9CB21AFBD6D99D5397970A5C18EC69DA43
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52780.jpg" />
 </div>
 
 

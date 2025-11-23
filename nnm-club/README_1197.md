@@ -6,7 +6,7 @@ My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iskald - Innhostinga (2018) [FLAC|Lossless|image + .cue] <Melodic Black Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31476.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anita O'Day - Cool Heat: Anita O'Day Sings Jimmy Giuffre Arrangements (1959) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31477.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31478.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31479.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:FF1E34B7A3943057763CF7AF4683641FF7D689EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31480.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:4D81A3202F198ABC27EF4BF02A28BEA1C3E341F7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31481.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:78459B7D2730C5D2E2F94B357629D66F0BAD30A9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31482.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:72449B2B455871C1E835C5F03B4181391463ED6F
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31483.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31483.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9EB9D3B911430E4084B897EEBAB8882824E50FD2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31484.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:29BB446FB92BD4408DE488CA76F47BF0638F851D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31485.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:0164B7FBAD7216F5094BB621C5FAB06ED741A39C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31486.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:0D912E9FDC79FEF9AF81F0AEA8FA1C49B4D5DCBF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31487.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Ringo Starr - Look Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31488.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:3CE99E96C42868CC9DDC66C2B598AD93FCC43507
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31489.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31489.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:CC7D2E1AD51BA117096608935A6BC0680AC99ABF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31490.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:1EDA1F34764D65C74E8B98E524E8B072D14B5075
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31491.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Music Collection 3.8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31492.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31492.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31493.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5D84FF15766ADF0931B890AA412CCD500AD11A2F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31494.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5643D2C98A98675DE19D7C8FB0E954BE6A08F12A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31495.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:4CF01814D04EE6309D06C8AD36BE164A67BEFFB1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31496.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Firefox Browser ESR 128.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31497.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:A6B3E3D536CB2CB0FBB641E60E24B68534B606A0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31498.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:CEAA95DE6916995B2B50C90CEEC54D46C72F6A09
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31499.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31499.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31500.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94947.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94948.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94961.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ magnet:?xt=urn:btih:203A09ECA219C6AE26923800FEB750AB4E345AA3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94969.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ M.I.K.E. - Club Elite Sessions 241 (23.02.2012) [MP3|256 кб/с]<Trance, Progre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94990.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Goa Vol. 41 (2 cd) (2012) [MP3|~256 кб/с (V0)]<Psychedelic / Psy-Prog, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95000.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ George Arvanitas & David Murray - Tea for Two (1991) [FLAC|Lossless]<Modern Jazz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95001.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95001.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ FREq - Remixed (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95021.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ FREq - Remixed (2008) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95050.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C1BACD444A043501F9BC27425A2E63D6A898A4DB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95059.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Nightwish - The Crow, The Owl And The Dove (Single) (2012) [MP3|192 кб/с]<Sym
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Trance Maniacs Party - Progressive Session #33 (2012) [MP3|320 кб/с]<Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95067.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95068.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Cre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95073.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95077.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95085.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95087.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95091.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95094.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95108.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dana Dragomir - PanDana (1996) [APE|Lossless]<New Age, Panflute>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95112.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95112.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95113.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95114.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95115.jpg" />
 </div>
 
 
@@ -750,7 +750,7 @@ magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95122.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95144.jpg" />
 </div>
 
 

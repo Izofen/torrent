@@ -6,7 +6,7 @@ Total Commander 11.03 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118654.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Avidemux 2.8.2 Nightly(r240204) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 2.3.1 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118660.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Gigapixel AI 7.0.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118662.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Davinci Resolve Studio 18.6.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118666.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MemTest86 10.7 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118671.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Nik Collection by DxO 6.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118680.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Alfa eBooks Manager 8.6.22.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118682.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118683.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CleanMyMac X 4.15.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118692.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.5 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118712.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118716.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sante DICOM Viewer Pro 14.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118742.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sante DICOM Editor 10.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118746.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Opera GX 106.0.4998.76 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118757.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ungoogled Chromium 121.0.6167.139-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118758.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ EarthView 7.8.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118760.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118768.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ GeoGebra 6.0.823.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118776.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Minimal Audio - Effect Bundle 2024.02 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118782.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Vivaldi 6.5.3206.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118784.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ AVS Image Converter 6.0.2.334 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118789.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Firefox Browser 122.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118791.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wise Duplicate Finder Pro 2.1.1.61 RePack & (Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118798.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Opera One 107.0.5045.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118799.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blender 3.6.8 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118801.jpg" />
 </div>
 
 

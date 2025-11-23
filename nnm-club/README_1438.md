@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37741.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37742.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaspersky Free 21.19.7.527 Repack by LcHNextGen (04.11.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37743.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:40B856F0314209FB281D7044E4BD158796321179
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37744.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Obtainium 1.1.29 [Ru/Multi] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37745.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37746.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A4E83868FC673C3FF162A39A6305DE104ADEDB92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37747.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ StartAllBack 3.8.13 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37748.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A1ABCDD827BA7A6504A72DD63F42393C39C85B53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37749.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:9C36888F22148D962C1BE2ED46F46826C9C129F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37750.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E8C8719151DAEFBEE75F67CAF06BD3B24364C4CF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37751.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:313A543165BD95B29C215FB23F1639F23C630ACC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37752.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Goat Simulator: Remastered (2024) [Ru/Multi] (build 16167669/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37753.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:571FDE4B10563578F688976E04A7EC4B26FB7A6D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37754.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Duolingo: изучай языки 6.6.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37755.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ IK Multimedia - T-RackS 6 MAX 6.1.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37756.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37757.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:DDE332D503D227C9315936977E2CE9B9331A7F3C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37758.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37759.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Audiopunks - Spectra 610 Complimiter 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37760.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Ircam Lab - The Snail 1.4.2 STANDALONE, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37761.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ QOwnNotes 24.11.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37762.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37763.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0F3CC1E9027A684F55F336837D5FA0F2C5E6C059
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37764.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:20B673483AEFF78C6DDD316FCE7F331104C19C7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37765.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F22C5AE4D188613B844CC5F4931CA2350C8AF6F8
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37766.jpg" />
 </div>
 
 

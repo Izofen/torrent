@@ -6,7 +6,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38669.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) Repack Wante
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38671.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38731.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.0973) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38879.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39200.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39205.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39208.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.60.0.67142/dlc) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39248.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39310.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39334.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39338.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.2.3161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39340.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39810.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39913.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.0.1) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40248.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40249.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40324.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Shogun Showdown (2023) [Ru/Multi] (1.0.2.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40447.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.13) Repack FitGirl [Supporte
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40514.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40535.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40552.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40719.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.2.1.12/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40756.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40902.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41121.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dwarven Realms (2022) [En] (1.0.100) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41204.jpg" />
 </div>
 
 

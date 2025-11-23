@@ -1,3 +1,75 @@
+###  Публикация: 1600891   (153375) от 29.12.2022
+
+Hetman Partition Recovery 4.6 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hetman Partition Recovery - программа восстанавливает данные жестких и внешних дисков, а также любых других устройств под управлением файловых систем FAT / exFAT, NTFS / ReFS, APFS / HFS+, Ext2 / 3 / 4 / ReiserFS / Btrfs / VMFS / Hikvision и XFS / UFS / ZFS. Утилита объединяет комплекс алгоритмов, восстанавливающих имя, атрибуты, содержимое файла и оригинальную структуру (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C457BA6C57F2290CB02D243D339536324D3C988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434234   (153376) от 23.12.2020
+
+R-Studio Network Edition 8.15 Build 180091 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153376.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Studio - лучшее на сегодняшний день программное обеспечение для восстановления данных. Поддерживает файловые системы FAT12/16/32, NTFS, NTFS5, Ext2FS (Linux). Позволяет восстанавливать файлы, как на локальных логических и физических жестких дисках, так и на дисках, расположенных на удаленных компьютерах через компьютерную сеть.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22B70CFF9F1C171703438E6CAACC5301D5AD2C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588919   (153380) от 14.12.2012
+
+Nature Wallpapers (13.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E835AB02F37DA83F70A8F28FB24D7220D8B9C597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086259   (153387) от 24.12.2016
 
 iMazing 2.1.5 [Multi/Ru]
@@ -6,7 +78,7 @@ iMazing 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153387.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Animal Wallpapers (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153390.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:079692C79D42E901A4BA90102AF883D11A4501A2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153395.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ IObit Driver Booster Pro 8.2.0.306 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153408.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Gold - Interbellum (2012) [MP3|320 кб/с]<Hard Rock 70's (Female Vocals)>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153411.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Office 2013-2021 C2R Install + Lite 7.3.8 b17.12.21 Portable by Ratiborus [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153412.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ Adobe Photoshop Lightroom Classic 11.1.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153422.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ JetBrains ReSharper Ultimate 2019.3.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153436.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ Frank Riggio - Psychexcess I - Presentism (2012) [Hymen Records] [FLAC|Lossless]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153446.jpg" />
 </div>
 
 
@@ -239,7 +311,7 @@ Forecast Bar 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153448.jpg" />
 </div>
 
 
@@ -267,7 +339,7 @@ Incantation - Vanquish In Vengeance (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153451.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ Auslogics BoostSpeed 10.0.1.0  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153469.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ WinUtilities Professional Edition 12.25 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153479.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Scrutiny 6.8.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153481.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Urashimasakatasen no Nichijou | Days of Urashimasakatasen | Деньки Ура�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153495.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Glary Utilities Pro 5.157.0.183 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153498.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:9C26CC06458F9E08B095BD868AF0974F19181A94
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153515.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:D07987C091DF178F56CEABC756EDE5BC6F887DDE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153531.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Apparent Symmetry - Enveloping White Noise (2015) [FLAC|Lossless|WEB-DL|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153533.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Firefox Browser 84.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153534.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ magnet:?xt=urn:btih:BA251483DB37009AD53AEFF0E5E439110A9146B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153543.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ RAR Extractor – The Unarchiver Pro 6.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153544.jpg" />
 </div>
 
 
@@ -574,7 +646,7 @@ magnet:?xt=urn:btih:8484F92CBB601D1B305EABD47C906F79F93E99E8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153551.jpg" />
 </div>
 
 
@@ -588,80 +660,6 @@ magnet:?xt=urn:btih:8484F92CBB601D1B305EABD47C906F79F93E99E8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DB8CDB796FB36CE706A77C1CF9859CCBA78A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434130   (153553) от 23.12.2020
-
-Glary Disk Cleaner 5.0.1.227 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Disk Cleaner - бесплатный инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D605D68B906A10F003A81C63E058DF2BD7374500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194860   (153554) от 26.12.2017
-
-ScrollNavigator 5.7.2 RePack by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая дает вам возможность колесом мыши прокручивать фоновое окно.
-
-Программа, позволяющая сделать более точной, но в то же время динамичной, прокрутку колесика вашей мыши и сможет обеспечить перемещение по листам документов, имеющих стандартные полосы прокрутки, одновременно в обоих направлениях без необходимости перемещения курсора мыши на полосу прокрутки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0C8DE14323193884AEE0CE953EFCC8CA283CDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194820   (153559) от 26.12.2017
-
-Ashampoo Burning Studio 19.0.1.4 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте классическую программу в новом исполнении! Ashampoo Burning Studio не только выглядит роскошно, она ещё и содержит тщательно улучшенный набор функций. Новая защита от царапин создаёт диски, которые пригодны для чтения даже когда их поверхность поцарапана! Новая функция истории восстанавливает последние 20 проектов по требованию, включая все Ваши изменения. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E94E715B3ECBD566D1B5C107B5CBBEA5331DBAA
 ```
 
 

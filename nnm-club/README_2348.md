@@ -6,7 +6,7 @@ Wondershare PDFelement 10.3.5.2707 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CAB2E1C97AD34A429A952823C6C1567EA8BF4750
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61414.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ KMPlayer 2024.3.28.17 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61415.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:12ED6A67F5EA691719688C8C21E16EE9FEE72B32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61416.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:12ED6A67F5EA691719688C8C21E16EE9FEE72B32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61417.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:12ED6A67F5EA691719688C8C21E16EE9FEE72B32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61418.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:CB6856DB3E983CA26F356944136A58EA774021C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61419.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:F4C69FCFE46E3551B5FBA900DEB0FC4DBA187727
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61420.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3564C1180289F7B0FF48870E8DACC7D96F6D39A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61421.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3564C1180289F7B0FF48870E8DACC7D96F6D39A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61422.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ The Gnomon Workshop, Paul Ozzimo | Designing Sci-Fi Weapons for Film (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61423.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E09383CE6F264A1DE9E6EC0CC3F3300AA4C6D143
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61424.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E09383CE6F264A1DE9E6EC0CC3F3300AA4C6D143
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61425.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:80488ED44D26C3277273BE31861E05573434F974
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61426.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:729CC11412F2F6A13DE5A04FE230800AD54B7DFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61427.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ JetBrains PhpStorm for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61428.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:A461A3EE0C92627E5EA59E9DBFCAFC02BF6D2A64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61429.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Wise Folder Hider Pro 5.0.5.235 [Multi/Ru] (акция "GiveAway")
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61430.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Adobe Acrobat Reader 2024.001.20629.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61431.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Charles Web Debugging Proxy 4.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61432.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C983A5133CC3E0B0424F18377BD6EBE28168F056
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61433.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe Acrobat Pro 2024.001.20629 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61434.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:FF2D54343858C7F0B16D4CDD5B0CE71EEF856FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61435.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FF2D54343858C7F0B16D4CDD5B0CE71EEF856FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61436.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:FF2D54343858C7F0B16D4CDD5B0CE71EEF856FA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61437.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:FF2D54343858C7F0B16D4CDD5B0CE71EEF856FA1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61438.jpg" />
 </div>
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 1433252   (161417) от 20.12.2020
+
+Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - For Those In Love:
+01. I Get A Kick Out Of You [6:20]
+02. Blue Gardenia [5:20]
+03. Easy Living [5:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D43849AAD13E248A155BAFDE1860002702898FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517783   (161418) от 17.12.2021
+
+Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вояджер-1 (Interview)
+2. Вояджер-1
+3. Выход в город (Interview)
+4. Выход в город(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9133F8BB83D813000E8DEA70D13A5C7EC1A36A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598847   (161419) от 21.12.2022
+
+Robert Connely Farr - Shake It (2022) [FLAC|Lossless|WEB-DL|tracks] <Marsh blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Screamin' and Hollerin' (2:46)
+02. Going Away to Leave You (2:39)
+03. Ain't No Other Way (3:21)
+04. Miss My Baby (4:17)(   Читать дальше...   )Жанр: Marsh bluesПродолжительность: 00:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB039B24FEAAADB876513AC031690503ED2A71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674432   (161420) от 05.11.2023
+
+Газета | Тайны и загадки №5 (59) (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета для тех, кто привык быть в курсе самой интересной информации. На страницах газеты все тайны и секретные материалы нашей цивилизации - из глубины веков до наших дней! Много удивительных и загадочных фактов, громкие расследования, нераскрытые тайны истории, парадоксы знаменитых личностей, тайны и загадки исторических архивов.Жанр: Популярный журналИздательство: ООО "ИД "Пресс - Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD85515308C0A57C3DD61F161A168AD391454E98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517964   (161421) от 17.12.2021
+
+VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lena Shery (Е. Михайлюкова) - Why [04:02]
+02. Blues Family - Came Back to You [04:28]
+03. Lamba Blues Band (Е. Ламба) - Give me Light [05:32]
+04. Blues Doctors (В. Демьянов) - Junkie For the Music [03:39](   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05FE274477F69F7231FE8F5ADC9582F991A6FC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433317   (161422) от 20.12.2020
+
+Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rio
+2. Hbls Mucho
+3. Al Fondo de Mi
+4. Puro Pasado(   Читать дальше...   )Жанр: Latin, Indie, Folk, PopПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598937   (161423) от 21.12.2022
+
+Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Крик ищущих [00:01:48]
+02 - Не сдюжили мы, Батя [00:02:27]
+03 - Слепота [00:03:16]
+04 - Когда мы станем говорить [00:02:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBFEFD83B20421DF9FDDDF6A15EA5EA97F3298B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674417   (161424) от 05.11.2023
 
 Военная тайна с Игорем Прокопенко (04.11.2023) WEB-DL [H.264]
@@ -6,7 +192,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161424.jpg" />
 </div>
 
 
@@ -30,7 +216,7 @@ Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161425.jpg" />
 </div>
 
 
@@ -57,7 +243,7 @@ SponsorBlock for YouTube 5.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161426.jpg" />
 </div>
 
 
@@ -81,7 +267,7 @@ Blues Whale - Leaving The Blues Behind (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161427.jpg" />
 </div>
 
 
@@ -108,7 +294,7 @@ Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161428.jpg" />
 </div>
 
 
@@ -136,7 +322,7 @@ Blind Vision - Happily Never After (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161429.jpg" />
 </div>
 
 
@@ -163,7 +349,7 @@ Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161430.jpg" />
 </div>
 
 
@@ -190,7 +376,7 @@ magnet:?xt=urn:btih:917AC4F6E04B86E2C3A3D0C27C97136FCBB3A21B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161431.jpg" />
 </div>
 
 
@@ -214,7 +400,7 @@ magnet:?xt=urn:btih:568E220F28CC8A154ACAA74233D5DB45A16A613D
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161432.jpg" />
 </div>
 
 
@@ -241,7 +427,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161433.jpg" />
 </div>
 
 
@@ -268,7 +454,7 @@ Big Mouthers - Wishes (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161434.jpg" />
 </div>
 
 
@@ -295,7 +481,7 @@ magnet:?xt=urn:btih:FF3DD78130C27AC9C82AFED6F0AC2D2A775CB632
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161435.jpg" />
 </div>
 
 
@@ -319,7 +505,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161436.jpg" />
 </div>
 
 
@@ -346,7 +532,7 @@ magnet:?xt=urn:btih:DC714C14F710888CC847446195BF1E37BF249212
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161437.jpg" />
 </div>
 
 
@@ -370,7 +556,7 @@ Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161438.jpg" />
 </div>
 
 
@@ -397,7 +583,7 @@ magnet:?xt=urn:btih:21700499B017DF76968B3D5382B13E25349BB2DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161439.jpg" />
 </div>
 
 
@@ -421,7 +607,7 @@ magnet:?xt=urn:btih:90B191158D32BC45D66B80D48D4C0EDEE0016AE0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161440.jpg" />
 </div>
 
 
@@ -445,7 +631,7 @@ magnet:?xt=urn:btih:78F48029484309349FD1B09138BA2C642F37A56A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161441.jpg" />
 </div>
 
 
@@ -469,7 +655,7 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161442.jpg" />
 </div>
 
 
@@ -483,187 +669,6 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07C3EA9FC991C91C81A9E6EECD4CDB912A5CF850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433319   (161443) от 20.12.2020
-
-Stealing Death - Speed Force (2020) [MP3|320 Kbps] <Heavy-Metal, Thrash-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aslo Sprach Zarathustra Op. 3 (Versión instrumental) [00:01:28]
-02 - Speed Force [00:03:14]
-03 - Monster Of Darknes [00:03:29]
-04 - Dear Friend [00:03:56](   Читать дальше...   )Жанр: Heavy-Metal, Thrash-MetalПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9F8BC61869F891225C6BB019836082E66337DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517834   (161444) от 17.12.2021
-
-Иван Ост (Chaki) | Победитель по жизни (Книга 1). Свалка (2021) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее, в котором виртуальные игры, прочно закрепились не только как сфера развлечений, но и как способ заработка. Большая часть населения, проводит основную часть жизни в виртуальном пространстве. Вот и наш главный герой и его друзья, недавно став совершеннолетними, получили доступ к игре, которая вскоре изменит их жизнь.Жанр: Фантастика, LitRPGПродолжительность: 07:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE001120E64989817582AA02181282F56AC62CCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598904   (161445) от 21.12.2022
-
-Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COC [00:04:47]
-02. Big Bend [00:06:13]
-03. Fast Hing [00:02:12]
-04. Queen Bjork [00:03:47](   Читать дальше...   )Жанр: Heavy Psych, StonerПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327790A8953BAAFC3774A893DBDFF5917BB1D7B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674375   (161446) от 05.11.2023
-
-Station - And Time Goes On (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over & Over (4:01)
-02. If You Want Me Too (4:24)
-03. A Little Bit Of Love (5:33)
-04. Close My Eyes (4:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AFC429F918F440A232871CD58BAC119E0A98C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433486   (161447) от 20.12.2020
-
-DiskCatalogMaker 8.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161447.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskCatalogMaker  - Простая утилита для управления и катологизации дисков.
-Программа умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи может (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 20.12.2020Разработчик: Fujiwara SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13DBF2F435760C2425A583E3189757D1733BBEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517928   (161448) от 17.12.2021
-
-Джон Бартон | История Библии. Где и как появились библейские тексты, зачем они были написаны и какую сыграли роль в мировой истории и культуре (2021) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библия – это центральная книга западной культуры. В двух религиях, придающих ей статус Священного Писания, Библия – основа основ, ключевой авторитет в том, во что верить и как жить. Для неверующих Библия – одно из величайших произведений мировой литературы, чьи образы навечно вплетены в наш язык и мышление. Книга Джона Бартона – увлекательный рассказ о долгой интригующей (   Читать дальше...   )Жанр: РелигиоведениеПеревод: Владимир ИзмайловФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F510198C1B1098DE5AEA4D53203D1338BC88D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674545   (161449) от 05.11.2023
-
-Voivod - Warriors Of Ice (2011) Japan, Reissue, 2014, Avalon [FLAC|Lossless|image + .cue] <Progressive Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Voivod
-02 The Unknown Knows
-03 The Prow
-04 Ripping Headaches(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB171455E1ACB20B4B5E8F2EC8438C36CB161536
 ```
 
 

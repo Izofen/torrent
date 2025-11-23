@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43827.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Electro Euphoria (2024) [MP3|320 Kbps] <House, Trance, Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43828.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Spacesynth Forever 2 (2024) [MP3|320 Kbps] <Electronic, Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43829.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E55DF8E4E5374069542F87524402C0D87EA2E340
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43830.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C7C31BCD856E20DBD636E5235028CC611D170EE6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43831.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ ProfiCAD 12.4.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43832.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43833.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F261A228CCF21700369B7D73500E285F77B7B29C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43834.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F880DA882C0A518BAE28592FEE93FC987F4132DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43835.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F51A5EB4A82C71E4F60075F28DD3DE31808DE852
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43836.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43837.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Threshold - Studio Albums (22 releases) (1993-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43838.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0A73AB675DF523219182943257FC0061880EE38A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43839.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2B72A0802BEF7BC0A9FE462E4D5D183DA52D4A11
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43840.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:2AC525701E1AC5EC230A9696A5FBF7A8F01161F2
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43841.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:3B7962F2E423DC002B676F5E36D190A39CC9BE70
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43842.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.4169]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43843.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4894]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43844.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43845.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43846.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.1.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43847.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:B28233B4D59E340088441A52D8007E72DFDEDDE1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43848.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ KeepUp Survival (2024) [Ru/Multi] (20240906/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43849.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Satisfactory (2019) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43850.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:D70638380B6642F1D17AB96972D3AFCAAFB18DC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43851.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:A633926B755516416A4AE5C5D378AB207D88B3E0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43852.jpg" />
 </div>
 
 

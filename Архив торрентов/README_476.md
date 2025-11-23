@@ -6,7 +6,7 @@ DVDFab StreamFab 6.1.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Radiant Photo 1.4.1.501 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106036.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 128.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106037.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106040.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WinMerge 2.16.42.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106044.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sumatra PDF 3.6.16506 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106050.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tablacus Explorer 24.7.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106052.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106057.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Firefox Browser 128.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106061.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 (x32) / Build 87960 (x64) RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106067.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ OneCommander Pro 3.87.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106070.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ExamDiff Pro 15.0.1.8 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106114.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ digiKam 8.4.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106117.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinMerge 2.16.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106123.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FanControl V198 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106125.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Text Editor Pro 29.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106127.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106138.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:1FD354400ED85D61AECB2C61200347548DE8AF28
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106142.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Minimal Audio - Ripple Phase 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106158.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106161.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:3723DB4F361A663AE686A9F0F9C406F635580D02
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106166.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sugar Bytes - DrumComputer 1.3.4 Standalone, VSTi, VSTi 3, AAX (x64) RePack by T
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106176.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Perfectly Clear Workbench 4.6.1.2680 + AddonsPack Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106177.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Draw.io 24.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106179.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PrivaZer Pro 4.0.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106181.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:762995FBCE6AD51E6D574A74C1C578263DB8332D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106190.jpg" />
 </div>
 
 

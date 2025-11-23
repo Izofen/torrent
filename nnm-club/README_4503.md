@@ -1,3 +1,154 @@
+###  Публикация: 970726   (139347) от 31.12.2015
+
+Китайский "охотник за темной материей" DAMPE начал сбор первых научных данных
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно мы рассказывали о том, что на поле "охоты на темную материю" появился новый игрок, китайский исследовательский аппарат Dark Matter Particle Explorer (DAMPE), который был запущен в космос 17 декабря 2015 года. И буквально на днях наземные станции начали получать первые научные данные, собираемые всеми четырьмя научными инструментами этого космического (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590524   (139348) от 18.12.2012
+
+Benvista PhotoZoom Pro 5.0.4 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_139348.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии не переживая о потере качества. PhotoZoom Professional - это крайне необходимая программа для увеличения цифровых изображений, используемых для DTP, Internet и цифрового фото. Программа имеет мультиязычный интерфейс, включая Русский.Название программы: Benvista PhotoZoom ProЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520913   (139349) от 30.12.2021
+
+VA - Sharam Jey pres. BEST OF BUNNY TIGER 2021 (2021) [AAC|~328 Kbps] <Dep House, House, Indie Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuran - Intent (Highlite Remix) (7:10)
+02. Micaele - Need No Stop (5:44)
+03. Xandl - Closer (5:48)
+04. Kinky Sound - Feel So Right (ArtSky Remix) (5:48)(   Читать дальше...   )Жанр: Dep House, House, Indie DanceПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3934ED264E14F54A903F8A8C91B79DCA423EE38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088594   (139350) от 31.12.2016
+
+John Jenkins, Cliff Jordan and - Bobby Timmons (1957) [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cliff's Edge [06:33]
+ 02.Tenderly [07:06]
+ 03.Princess [06:20]
+ 04.Soft Talk [10:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3E1B35731B97D7E273A337564B2DFCAC39D447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195610   (139352) от 30.12.2017
+
+AV Uninstall Tools Pack 2017.12  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139352.jpg" />
+</div>
+
+
+###  Подробнее
+
+AV Uninstall Tools Pack - это бесплатный пакет утилит, предназначенных для полного удаления более 40 антивирусных программ. Они необходимы в тех случаях, когда не удаётся полностью удалить антивирусную программу стандартным путём, или в процессе удаления возникают ошибки. Данные утилиты полностью удаляют все файлы, драйвера, службы и записи реестра, оставленные антивирусными (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F984B92CB2BC9123989FD3F6D1BDBC0D3238E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436090   (139353) от 30.12.2020
+
+Дмитрий Галабир | Хроники несчастных (2020) [MP3, Сергей Вышегородцев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они мчали по пустынному шоссе. Солнце клонилось к закату. Говорить было не о чем. Руслан дремал. Анна внимательно следила за дорогой – она была за рулем. Их отношения давно охладели. Они были уже почти чужими друг другу. Может, эта поездка на свадьбу к друзьям реанимирует их чувства?
+Руслан проснулся, словно от толчка. Вокруг была кромешная тьма. Машина стояла. Жена, (   Читать дальше...   )Жанр: ТриллерПродолжительность: 09:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F9FDADCFF7AF38939AE10C26083D7D721A8DE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088645   (139355) от 31.12.2016
 
 Центральное телевидение (31.12.2016) SATRip
@@ -6,7 +157,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139355.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ magnet:?xt=urn:btih:2F01620B4C5FDEC8015EA6DB25938BD6D2072025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139356.jpg" />
 </div>
 
 
@@ -56,7 +207,7 @@ magnet:?xt=urn:btih:5B72D0EB2DB54478804B35DB5071F36E5546270F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139358.jpg" />
 </div>
 
 
@@ -80,7 +231,7 @@ VA - Ibiza Chillout Series (1999-2007) Ayia Napa [FLAC|Lossless|tracks+.cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139359.jpg" />
 </div>
 
 
@@ -107,7 +258,7 @@ magnet:?xt=urn:btih:D5EF21F8B45BA8B0E23809BDD5A75FED2C05AF19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139360.jpg" />
 </div>
 
 
@@ -131,7 +282,7 @@ magnet:?xt=urn:btih:42A995192A2DCA2F903B0F451BCCD53A4D29541E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139361.jpg" />
 </div>
 
 
@@ -155,7 +306,7 @@ Permute 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139362.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ magnet:?xt=urn:btih:DB33BA464490D8E9BA179ED9E20C7FDD2C88A9E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139363.jpg" />
 </div>
 
 
@@ -204,7 +355,7 @@ magnet:?xt=urn:btih:77F28097AFF6018669C07786B4A09A74EBCC8789
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139364.jpg" />
 </div>
 
 
@@ -228,7 +379,7 @@ magnet:?xt=urn:btih:7D2E0FA70D529BB85855013599C0A9E63096B5C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139367.jpg" />
 </div>
 
 
@@ -253,7 +404,7 @@ magnet:?xt=urn:btih:8EDBE9B2CDA02E6F7EB6BFA30C955E7C96EBD100
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139368.jpg" />
 </div>
 
 
@@ -277,7 +428,7 @@ VA - Just music (2017) [MP3|320 Kbps] <Pop, Rock, Instrumental,  Eurodisco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139371.jpg" />
 </div>
 
 
@@ -304,7 +455,7 @@ magnet:?xt=urn:btih:D5F7A4D4FBDEC17B7581324A7570BC73AE6C1DBF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139372.jpg" />
 </div>
 
 
@@ -328,7 +479,7 @@ Tony Darren - Sun Song (1998) [APE|Lossless|image + .cue] <Contemporary Jazz, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139373.jpg" />
 </div>
 
 
@@ -355,7 +506,7 @@ MediaHuman YouTube Downloader 3.9.9.30 (2912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139374.jpg" />
 </div>
 
 
@@ -379,7 +530,7 @@ magnet:?xt=urn:btih:C5A3FE40B0E9B4D476BEB6F5052B926DDF7C86EE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139375.jpg" />
 </div>
 
 
@@ -403,7 +554,7 @@ magnet:?xt=urn:btih:2A382CDCAD1C25C0C2F7B0110F4A329B68324E65
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139376.jpg" />
 </div>
 
 
@@ -430,7 +581,7 @@ Stand Up (2023.11.24) SATRip (сезон 11, выпуск 10)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139377.jpg" />
 </div>
 
 
@@ -454,7 +605,7 @@ magnet:?xt=urn:btih:3DBEDE8E9B47020315EE61734A15B5148610207E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139378.jpg" />
 </div>
 
 
@@ -478,7 +629,7 @@ magnet:?xt=urn:btih:3DED226C0DF85DEF604F3F4BB4F1C47E2D138C9D
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139379.jpg" />
 </div>
 
 
@@ -489,157 +640,6 @@ magnet:?xt=urn:btih:3DED226C0DF85DEF604F3F4BB4F1C47E2D138C9D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE430FCED722B1CE252FD20A58EDB12C96ED793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348962   (139380) от 30.12.2019
-
-Последствия / Posledice / Consequences (2018) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудный подросток Андрей уже исчерпал терпение родителей. Парень предстает перед судом за мошенничество, и отправляется в центр для несовершеннолетних правонарушителей, где встречает соответствующую компанию. Стойко выдержав жестокий обряд посвящения, Андрей завоевывает уважение и дружбу агрессивного главаря местной банды.Производство: Словения, Австрия / 100, NuFrame, Temporama, Zwinger FilmЖанр: ДрамаРежиссер: Дарко СтантеАктеры: Matej Zemljic, Тимон Стурбей, Gasper Markun, Lovro Zafred, Lea Cok, Росана Хрибар, Деян Спасич, Blaz Setnikar, Iztok Drabik Jug, Матьяж ПикалоПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F202DB9932AC4BDEE7A5B829AFA49A08D5B9FCCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436171   (139383) от 30.12.2020
-
-Хоккей. Молодёжный Чемпионат мира 2021. Группа A. Канада — Швейцария (2020) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Хоккей. Чемпионаты мира
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139383.jpg" />
-</div>
-
-
-###  Подробнее
-
-45-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2021 года.
-30 декабря 2020, среда. 02:00 МСК
-Предварительный раунд. Группа A.
-Канада — Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA5DC8CFEFE1268655C69F0C562BE086D955E9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679257   (139384) от 24.11.2023
-
-Эрнест Беккер | Побег от Зла (2023) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Побег от Зла" Эрнеста Беккера, является продолжением и завершением темы страха перед смертью и попытках убежать от него, который терзает человека в частности, и человечество в целом, с момента его появления на планете. Первая книга дилогии - "Отрицание смерти" получила  Пулитцеровскую премию 1974 года. Вторая книга - "Побег от Зла" (   Читать дальше...   )Жанр: Зарубежная психология, Социальная психологияПеревод: Николай Габов + DeepLИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DF6F4137E0CA32232F7C363AD4EE3149193A80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088388   (139385) от 31.12.2016
-
-VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM - Tornado (Original Mix) 6:37
-02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
-03. Adam Lester - That Moment (Original Mix) 8:59
-04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803112   (139386) от 30.12.2017
-
-Не горюй! (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139386.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания Петербургского университета, полный надежд и грандиозных планов, возвращается в родной городок молодой врач Бенжамен Глонти. Но жизнь, как и до его отъезда, течет своим чередом: растет семейство сестры, усердно с утра до вечера переписывает бумаги ее муж Лука, время от времени спускаясь в погребок, чтобы «опрокинуть» рюмочку.
-И по-прежнему, слоняясь (   Читать дальше...   )Производство: СССР, Мосфильм, Экспериментальное творческое объединение, Грузия-фильмЖанр: драма, комедияРежиссер: Георгий ДанелияАктеры: Серго Закариадзе, Вахтанг Кикабидзе, Софико Чиаурели, Анастасия Вертинская, Лия Гудадзе, Верико Анджапаридзе, Сесилия Такаишвили, Ариадна Шенгелая, Георгий Кавтарадзе, Ипполит Хвичия, Карло Саканделидзе, Давид Абашидзе, Коте Даушвили, Евгений Леонов, Сергей Филиппов, Абессалом Лория, Леван Шамилов, Ия Нинидзе, Нана Канделаки, Баадур Цуладзе, Мераб Кокочашвили, Гия (   Читать дальше...   )Продолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659403BB633970DB8A4EA8E8A9003CD25EAD1F3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273040   (139387) от 30.12.2018
-
-Slimjet 21.0.8.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B11C28B99CB61179E0AFCB0929D038065EB6195
 ```
 
 

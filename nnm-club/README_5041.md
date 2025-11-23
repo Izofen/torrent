@@ -1,3 +1,195 @@
+###  Публикация: 738250   (155993) от 24.12.2013
+
+Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поговорим о любви 1
+1. Любимая (Cheri Cheri Lady) 3:46
+2. Немного любви (With A Little Love) 3:33
+3. Бурные воды (Wild Wild Water) 4:18
+4. Ты - мое сердце, ты - моя душа (You're My Heart, You're My Soul) 5:32
+5. Как ангел (Just Like An Angel) 3:14
+Поговорим о любви 2
+1. Небеса будут знать (Heaven Will Know) 4:02
+2. Любовь здесь больше не живет (Love Don't Live Here Anymore) 4:22
+3. Почему именно сегодня? (Why Did You Do It Just Tonight?) 4:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194041   (155994) от 25.12.2017
+
+Санный спорт. Кубок мира 2017-2018. 5-й Этап. Лейк-Плесид (США). Женщины - Спринт (16.12.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155994.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 2017 года
+Кубок мира 2017-2018. 5-й Этап. Лейк-Плесид (США)
+Спринт — Женщины
+Стадион: Олимпийская санно-бобслейная трасса (Лейк-Плесид, США)Телекомпания: FIL TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085779   (155995) от 22.12.2016
+
+Спортсмен PRO. Тренировка 2.18 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твой персональный фитнес тренер.
+Силовые тренировки:
+• 50 подтягиваний
+• 50 подъемов ног в висе(   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 16 ноября 2016 гРазработчик: AxiomMobileПоддерживаемая ОС: Android 4.1+Жанр: Здоровье и фитнесЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433162   (155996) от 21.12.2020
+
+Малышка с характером / The Doorman (2020) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155996.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом она – солдат спецподразделения, в настоящем - швейцар в роскошном отеле, где готовится дерзкое ограбление. Лишь она стоит между безжалостными преступниками и бесценными произведениями искусства, спрятанными в стенах отеля.Производство: США / Double Dutch International, Smash Media, CR8IV DNAЖанр: Боевик, триллерРежиссер: Рюхэй КитамураАктеры: Руби Роуз, Жан Рено, Аксель Хенни, Руперт Эванс, Джулиан Федер, Кайла Лорд Кэссиди, Луис Мэндилор, Дэн Сауфуорф, Хидэаки Ито, Дэвид СакурайПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2D627397D3F05E05BC25DCFC4F08A2D87F7363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968393   (155997) от 23.12.2015
+
+Александр Бузмаков, Ирина Васильчикова | Библия кофе (2011) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионы людей не представляют сегодня своей жизни без кофе. Эта книга для тех, кто любит и ценит кофе, кто хочет попробовать новые рецепты и узнать про любимый напиток больше.
+•Сорта кофе;
+•На что обратить внимание при покупке зерен;
+•Как хранить кофе;(   Читать дальше...   )Жанр: Кулинария. Напитки. КофеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F17A5F0662D9010A60A95956FC5D60A31DADD9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270658   (155998) от 20.12.2018
+
+VA - Christmas & Chill, Vol. 2 (Have Yourself A Little Deep House Hangout) (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luc Forlorn - Feel So High 5:51
+02. Marga Sol, Darles Flow - Need You Tonight 5:04
+03. Aybee, Players Play Music - Pieces Of My Mind (Radio Edit) 3:32
+04. Blondee - Move Your Body (Club Mix) 4:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54D5B1EB5748A2220A3B8DC3CB21F7D196A7BA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600501   (155999) от 28.12.2022
+
+South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - South of Reality
+2022 - Lone Star State Of Mind
+2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588830   (156001) от 13.12.2012
 
 После нашей эры / After Earth (2013) [1080p] HDTVRip [Трейлер] [EN]
@@ -6,7 +198,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156001.jpg" />
 </div>
 
 
@@ -30,7 +222,7 @@ Live Home 3D Standart 3.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156002.jpg" />
 </div>
 
 
@@ -56,7 +248,7 @@ VA - The Sound of Emotional Content Recordings 2021 (2021) [AAC|~339 Kbps] <Prog
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156004.jpg" />
 </div>
 
 
@@ -83,7 +275,7 @@ magnet:?xt=urn:btih:BA3D4841D3D2E51727D15A778FD67DA7550537AD
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156005.jpg" />
 </div>
 
 
@@ -107,7 +299,7 @@ Cacheman 10.0.3.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156006.jpg" />
 </div>
 
 
@@ -131,7 +323,7 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156007.jpg" />
 </div>
 
 
@@ -158,7 +350,7 @@ magnet:?xt=urn:btih:ECC3F89C3BBF53BCE7B585B56929629FF3AA7E90
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156008.jpg" />
 </div>
 
 
@@ -182,7 +374,7 @@ Reptant - Freq Accident (2018) Planet Euphorique [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156010.jpg" />
 </div>
 
 
@@ -209,7 +401,7 @@ magnet:?xt=urn:btih:00DDAAB5F5570B82FCD14407067527556AE993C6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156011.jpg" />
 </div>
 
 
@@ -236,7 +428,7 @@ magnet:?xt=urn:btih:7C015E81E0CA536CF863CBEF3C0D31C47A491EF2
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156012.jpg" />
 </div>
 
 
@@ -260,7 +452,7 @@ magnet:?xt=urn:btih:417ECE20A4EF9A29280B5EFCE8CDBF4CB872AC91
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156013.jpg" />
 </div>
 
 
@@ -284,7 +476,7 @@ Act of Denial - Negative (2021) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156015.jpg" />
 </div>
 
 
@@ -311,7 +503,7 @@ LibreOffice 5.2.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156016.jpg" />
 </div>
 
 
@@ -335,7 +527,7 @@ magnet:?xt=urn:btih:E2A14A3B83135A40BF3FCF40787842288E06D073
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156017.jpg" />
 </div>
 
 
@@ -359,7 +551,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [AAC|~324 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156018.jpg" />
 </div>
 
 
@@ -386,7 +578,7 @@ magnet:?xt=urn:btih:5840BB998B392C3945CDCE11383CE867437ECB0C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156019.jpg" />
 </div>
 
 
@@ -410,7 +602,7 @@ magnet:?xt=urn:btih:13A85E8F2A8F8C7582BA227770E346FFA14EB027
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156020.jpg" />
 </div>
 
 
@@ -434,7 +626,7 @@ magnet:?xt=urn:btih:D87304D90E9A5A9A1385FCC718E533A67AB6D7E4
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156021.jpg" />
 </div>
 
 
@@ -459,7 +651,7 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156022.jpg" />
 </div>
 
 
@@ -473,180 +665,6 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40B0F97D0D6C3B1AE848C274A339DE235AD7956B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270794   (156024) от 20.12.2018
-
-Vitreous Humor - The Vitreous Humor Self-Titled E.P. (1995) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Eats Her Esses (2:33)
- 02. Invention is a National Treasure (3:55)
- 03. Applaud Water (2:51)
- 04. 385 Ft Wide (1:34)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:120:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB0ED3CF69235701976C250B0C04EE015107A5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494740   (156026) от 21.12.2020
-
-Настольная игра | Мы шагаем, шагаем, эх, шагаем... (1979) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра ходилка, брось кубик -- двинь фишку.Жанр: Настольная играЯзык интерфейса: Только русскийФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25149D5731A74CC44A89437C683EF18586F21B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085918   (156027) от 22.12.2016
-
-Владимир Усов, Лидия Усова | Основы кулинарного мастерства. Искусство приготовления закусок и основных блюд (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156027.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Все мы умеем готовить. Кто лучше, кто хуже. Кто-то знает правила, переданные мамами и бабушками, и готовит, следуя им. Кто-то использует свою интуицию, опыт, интернет, журналы, всевозможные кулинарные книги, которых сейчас в избытке. Но каждому порой не хватает самой малости, какой-то маленькой информации, секрета, рекомендации, науки в конце концов, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6509E347D0AA4CCEC8A53DB20FF8B6DF44FFF9B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968284   (156029) от 23.12.2015
-
-Приговоренные / Condemned  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156029.jpg" />
-</div>
-
-
-###  Подробнее
-
-В токсичных отходах, мусоре и нечистотах, в богом забытом здании на Манхэттене в Нижнем Ист-Сайде, рождается страшный вирус. Он превращает местных обитателей в кровожадных убийц и, для оставшихся, единственным избавлением от кошмара станет только смерть...Производство: Caliber Media CompanyЖанр: ужасыРежиссер: Эли Морган ГеснерАктеры: Лидия Хёрст, Майкл Гилл, Джонни Месснер, Джон Абрахамс, Ронен Рубеинштейн, Дилан Пенн, Майкл Дрэйер, Ки Хо, Женевьев Хадсон-Прайс, Перри Юнг, Майкл ДеМелло, Энтони ЧисхолмПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4691382BB5762166BED496407437784D04F493E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085710   (156030) от 22.12.2016
-
-Томас Кенилли | Список Шиндлера (2016) [FB2, EPUB, TXT, RTF, PDF, HTML, FB3]
-
->>Художественная литература
->>Историческая проза, Мифы и Легенды
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156030.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тот, кто спас единственную жизнь, спас весь мир» – эти слова из Талмуда написали заключенные на кольце, которое подарили своему спасителю – Оскару Шиндлеру. Человеку, который избавил от мученической смерти больше тысячи людей.
-«Немецкий бонвиван, ловкий делец, обаятельная личность, полная противоречий» – так пишет о своем герое Кенилли.
-Да, Оскар Шиндлер не был (   Читать дальше...   )Жанр: Историческая литература, Современная зарубежная литератураПеревод: Илан ПолоцкФормат: FB2, EPUB, TXT, RTF, PDF, HTML, FB3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C513AAD97969F2D6E7789175A6C8784C6654DD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598633   (156032) от 13.11.2023
-
-Предел риска / Margin Call (2011) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сентябрь 2008 года. Мировой экономический кризис уже начался, но Америка еще не знает, какая катастрофа ждет впереди, и только группа топ-менеджеров на Уолл-Стрит ищет рецепт спасения. Это были самые страшные часы в их жизни… Сотрудник одного из крупнейших инвестиционных банков Lehman Brothers с помощью новейшей программы рыночного анализа получает ошеломляющий прогноз (   Читать дальше...   )Производство: США / Before The Door Pictures, Benaroya Pictures, Untitled EntertainmentЖанр: Триллер, ДрамаРежиссер: Джей Си ЧендорАктеры: Кевин Спейси, Пол Беттани, Джереми Айронс, Закари Куинто, Пенн Бэджли, Саймон Бэйкер, Мэри МакДоннелл, Деми Мур, Стэнли Туччи, Аасиф МандвиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF88874C519570FDBD459A08204E06485353949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270837   (156033) от 20.12.2018
-
-Soundgarden - Spoonman (1994) Single [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoonman (Edit) (3:53)
- 02. Cold Bitch (5:02)Жанр: Alternative Rock, GrungeПродолжительность: 00:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0201A8308EC247B1F9BC3A18ECFA7AF8654E9C
 ```
 
 

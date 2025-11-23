@@ -1,3 +1,75 @@
+###  Публикация: 479034   (86863) от 06.04.2012
+
+Top Gun: Hard Lock [En] (RePack) 2012 | z10yded
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевой симулятор полета Top Gun: Hard Lock создан на основе фильма «Лучший стрелок» 1986 года. В игре представлена новая сюжетная линия, действия которой разворачивается в наше время. Кроме одиночной кампании, состоящей из 15 миссий, в Top Gun: Hard Lock есть многопользовательский режим, поддерживающий одновременно до 16 игроков. В мультиплеере пользователи смогут вместе противостоять врагам или играть друг против друга.Тип издания: RePackЖанр: Arcade / Flight Combat / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81100AD731BCB4319B2B3B358E2B5C8DADEC2BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478485   (86864) от 06.04.2012
+
+WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая программа для работы с образами Windows 7 & 8. WinKit (Windows 7 Toolkit) поможет вам интегрировать обновления, драйверы, пакеты тем, твики, обои, дополнения, гаджеты и удалить ненужные компоненты с вашего образа Windows.Название программы: WinKit (Windows 7 Toolkit)Язык интерфейса: Русский (by Loginvovchyk)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479008   (86865) от 06.04.2012
+
+Разведка боем / Battle Force (2011) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86865.jpg" />
+</div>
+
+
+###  Подробнее
+
+События развиваются во время Второй мировой войны, когда группа спецслужбы США отправляется на секретное задание. Нужно противостоять врагу, не поддаться, и особенно не сдаться ни при каких обстоятельствах…Жанр: Боевик, ВоенныйРежиссер: Скотт МартинПродюсер: Браден Бауэн, Скотт МартинАктеры: Скотт Мартин, Клинт Гленн, Тони Паулетто, Брэндон Дэвис, Дэннис Лавалл, Альберто Фрезза, Сара Мари Клейн, Дэниэл Риордан, Кристиан КардонаПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 01:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2184071D791232830E02EC6F63AF1AA8F521A2AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478978   (86866) от 06.04.2012
 
 Менты: Улицы разбитых фонарей (сезоны: 1-9, 229 серий) (1997-2008) DVDRip, SATRip
@@ -6,7 +78,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86866.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Driver Genius Professional v.11.0.0.1112 27.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86867.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86869.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Call of Duty: Modern Warfare 3 (L) [Ru] 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86872.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Minecraft IndustrialClient 1.4.1 (P) [Multi56/+] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86873.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86874.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Top Gun: Hard Lock [Multi5\-] (RePack) 2012 | R.G. Origami
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86875.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Top Gun: Hard Lock [Multi5\-] (RePack) 2012 | R.G. Origami
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86876.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ DriverPack KDFX DRV v2.0 (2012 год) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86877.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Top Gun: Hard Lock [Multi5\-] (L) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86878.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Top Gun: Hard Lock [Multi5\-] (L) 2012
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86879.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторо
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86881.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Advanced Woman Calendar 4.2 (2011) [Многоязычный (русский п�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86882.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Advanced Woman Calendar – универсальный и простой в ис
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86884.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Advanced Woman Calendar – универсальный и простой в ис
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86885.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:6BAD55CE19C2175D335B841B953AE01F63663E6F
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86886.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ SinclairOS Linux Build v.20120224 [x86] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86889.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ Adobe Flash Player 11.3.300.214 Beta 1 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86890.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86891.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86893.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ Young Dolph - A Time 2 Kill (2012) [MP3|320 кб/с]<Dirty South>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86895.jpg" />
 </div>
 
 
@@ -563,7 +635,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86899.jpg" />
 </div>
 
 
@@ -574,81 +646,6 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479303   (86904) от 07.04.2012
-
-Три Панька (1989-1991) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал повествует о жизни и приключениях троих чудаковатых братьев Паньков из села Паньковка.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Ефрем ПружанскийПерсонажи: три ПанькаПродолжительность: 00:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52259F42EFC0F0A79D0884478A4EC187F342C3D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479292   (86906) от 07.04.2012
-
-Без вины виноватые (1945) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-спектакль по одноименному произведению А.Н. Островского.
-
-Россия середины ХIХ века.
-В провинциальный город приезжает знаменитая актриса Елена Кручинина. Когда-то она здесь жила и осталась одна с младенцем на руках. Она пережила тяжелое нервное потрясение, а, выздоровев, узнала о смерти ребенка. Став актрисой, Кручинина прославилась. В родном городе она дает несколько спектаклей и принимает горячее участие в судьбе молодого актера Григория Незнамова. Неожиданно Кручинина узнает, что ее сын жив...Жанр: мелодрама, спектакльРежиссер: Владимир ПетровПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68398080C2A6D2E350D28AAFD155B454930D7DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479630   (86911) от 07.04.2012
-
-Звезды YouTube / Зірки YouTube. Выпуск №1 (2012) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
 ```
 
 

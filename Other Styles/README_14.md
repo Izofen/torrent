@@ -6,7 +6,7 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145285.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145322.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <E
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145471.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Ja
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145498.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145722.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145762.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145976.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146090.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from t
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146256.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146830.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146870.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147074.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147092.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147113.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147210.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147471.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - A New You (2015) 3CD [MP3|320 кб/с] <Relax, Pop, Nu Jazz, Easy Listening
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147570.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148106.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148126.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ She & Him - Christmas Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148136.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Country Christmas Greatest Hits (2016) [MP3|320 Kbps] <Country, Pop, Soul, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148199.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148344.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|2
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148407.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148556.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148693.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158954.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Overlord SR - Medieval Metal Too (2012) [FLAC|Lossless|image + .cue] <Heavy/Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Overland - S.I.X (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158967.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Heavy Queens (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158972.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cheap Trick - Live At The Whisky (1977) 4 x CD, Limited Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158984.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Fallen Angels: Bad Girl Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158989.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ronnie Atkins - Trinity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159006.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rainmaker - Rainmaker (2000) Reissue, 2023, Pride & Joy Music [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159010.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159019.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Trevor Rabin - Rio (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159023.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159028.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Casus Belli - In the Name of Rose (2005) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159033.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159037.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Man Machine Industry - Doomsday Clock (2020) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159039.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159053.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159055.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159057.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159063.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159065.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159071.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159077.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159079.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159081.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159083.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159086.jpg" />
 </div>
 
 

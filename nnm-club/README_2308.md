@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60373.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ GoodbyeDPI 0.2.2 Launcher 7.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60374.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:76C310791D86CB5D6BD50B744D2D933B3BF6046F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60375.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:76C310791D86CB5D6BD50B744D2D933B3BF6046F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60376.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60377.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60378.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60379.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E7B76C6B9210008D0E703C72848A76344CEBB8C7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60380.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Super S10 Launcher 5.2 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60381.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Цой агент ЦРУ - Трибьют (2014) [MP3|320 Kbps] <Rock, Trib
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60382.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Spotify 1.2.34.783 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60383.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ BBC. Как устроены шикарные отели. Kulm Hotel, St Moritz 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60384.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:A14383C5CFD8B94086AFAC3752FB60415D74175A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60385.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:05094BA9ED66AF45C05597DD6387FBD1899EBEBF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60386.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60387.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B76310912F7E57A94BF4FD84CB31BF6E71D81DC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60388.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B76310912F7E57A94BF4FD84CB31BF6E71D81DC1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60389.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:1BCF9AA395F4F2B2022C9E7911D76B4D62B90CC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60390.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:E9C555AD80A1194F57DA1C92C9F3D8B2382D9EA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60391.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:AC0188DE5BB49C7F8CDB56A35745A835D4559E1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60392.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:52680464E6602D22478D5C88CD9BD4ADE9DE574B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60393.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:046876C2593B6DBAAD81C0F2C2A955785B0F15FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60394.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:F868D4FC4FFB6988FA5E5111F00A0C3946B64F10
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60395.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60396.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ BBC: Последние царственные воины Европы. 1066: Г
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60397.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:4CFF5A82BB2420064A2EC24B696B0FE69EB79B6E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60398.jpg" />
 </div>
 
 

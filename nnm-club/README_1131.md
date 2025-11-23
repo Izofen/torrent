@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29759.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:635F296720C0783D26AD3B047A6241FA941DF8A3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29760.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E291EDAE8B85AFEC661FE22E1287833135483C93
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29761.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7529F5517768964D56C34557784B32389CEEB955
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29762.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29763.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.113.49697469) Repack Deceptic
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29764.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.01.19 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29765.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7D4E07C3144CDBEEB71DD04FEA84A5DA24D6704A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29766.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5C7E86DB2AD8D3BFE145C405A5694F83AA765D94
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29767.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:37F50C83B5B86299CAC94475FD971FDC4C45595C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29768.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VPN by Tony — ваш проводник в мир свободного инт�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29769.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29769.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VPN by Tony — ваш проводник в мир свободного инт�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29770.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wondershare Filmora 14.3.2.11147 (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29771.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:3959D2A7521C102D5B376FEB4C06C38DA5719D76
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29772.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AreaWeb, Михаил Протасевич, Ярослав Мурашкин | PH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29773.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B03B9903E93EAB6EA48F66B90B0B00BDFD650A29
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29774.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:9702CDE189B744C83F2344D5589B8FA1CDC5A426
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29775.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ liveclasses, Михаил Кашкин | Какой язык программи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29776.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F684DF9FC2E1C3090070E38B99BF65D1673BB6E9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29777.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mirror Lab v2.6.9.3 Mod by Alex.Strannik [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29778.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:748331E6FF6AFA2C5721BD7A630DE9136182311E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29779.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29780.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:299355F2049AF6936A408F1AD516F1C1956D2DA3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29781.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Linkin Park - From Zero: A Cappellas (2025) [MP3|320 Kbps] <Alternative & Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29782.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:83B96CA09284FEC0993FD2C4773D0EFF27681C26
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29783.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29784.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1648300   (231305) от 23.07.2023
+
+Святитель Иларион Киевский | Слово о Законе и Благодати (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231305.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Слово о Законе и Благодати» Илариона Киевского, первого русского митрополита (1051 – 1054), открывает историю одной из величайших литератур мира – русской, и открывает ее достойно, мощно, с совершенным словесным искусством. В основе «Слова» – главная политическая проблема жизни того времени: борьба с хазарским игом, которое было для становления Руси не менее опасным, (   Читать дальше...   )Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C9B72BA0CBCD37DDF8DDFAAA0CBFD948E4CE9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648304   (231320) от 23.07.2023
+
+Преподобный Нил Сорский | Устав и послания (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Устав и послания» рассказывается о преподобном Ниле Сорском (1433-1508), представлены «Устав» и послания святого, а также его предание, молитвы и завещание.Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2D85A2D1548DEE0C69C536D2CC29C272746EFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648296   (231370) от 23.07.2023
+
+Архиепископ Никон (Рождественский) | Православие и грядущие судьбы России (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231370.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Православие и грядущие судьбы России» публикуется дневник архиепископа Никона (Рождественского) (1851-1919), выдающегося русского мыслителя и духовного писателя.
+
+Либеральные и революционные журналисты («прелюбодеи печатного слова») и интеллигенты, писал владыка, разрушают Россию. Именно интеллигенция своими делами способствовала «крушению духовных основ (   Читать дальше...   )Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E9CF3CD9CCC57181DAFE6F29A73C1C06F1DB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647634   (231488) от 20.07.2023
 
 Святой праведный Иоанн Кронштадтский | Я предвижу восстановление мощной России (2012) [PDF]
@@ -6,7 +80,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231488.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231488.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:E8A242CFDF7A60F169060E956B2338CC909C84C4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231515.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231515.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:5F36D6F1421F600EA633712606DCC7870675E61F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231520.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231520.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:1498B7A8747BC6F44F09830D81B60F701A94C2E2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231548.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ magnet:?xt=urn:btih:032A74D385377A901B6155EED5EEBE06C6383119
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231656.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:8FB96009F7C85AA84DB3A53A6A70AE4F3C3740C4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231695.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231695.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ magnet:?xt=urn:btih:CA4661C29DD7804EF9C09C312853D10500877394
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231700.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231700.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ magnet:?xt=urn:btih:37158D59DD05DFC3AA07D1BC3E47E8CBF7E8D68A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231718.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231718.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:F4967BA816E0B5722A511090C3AD82A8C7144D8B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231859.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231859.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:6FE4999573257E83F87E3A77124B0E2A0CDC084F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231873.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231873.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ magnet:?xt=urn:btih:3218BAF65E8C086F6D2D68379918C774358EDF9D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231890.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231890.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ magnet:?xt=urn:btih:DF4AB80D007D5CE1E8272EF3A5889B4651272E77
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231946.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231946.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ magnet:?xt=urn:btih:61DC8751C02D4C948849A94E268BF70CF0E8CB93
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232226.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ magnet:?xt=urn:btih:1D5E0438E8ACCF883282E738E27C8A0DA46BB71A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232424.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232424.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ magnet:?xt=urn:btih:35AFC3693D6C31F8D8BF81B594D10FFCC87F5838
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232431.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232431.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ magnet:?xt=urn:btih:2FFA08F22341DDAB74E9BEC0137BD2C9A867B965
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232526.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:6F5DD0BAE0DD72DBB525C43D3AE27AB4A9E2F5A8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232665.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232665.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ magnet:?xt=urn:btih:8F9A12F31A78FADFB3FB5D38575F2DD2DFA8B848
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232860.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_232860.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ magnet:?xt=urn:btih:81F0A32AD5955D3DB12FE26A1F4CED153B82A9CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232910.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232910.jpg" />
 </div>
 
 
@@ -472,7 +546,7 @@ magnet:?xt=urn:btih:0D56D40F9D88D648911D78B8FC26837DBF1C396D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232956.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232956.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ magnet:?xt=urn:btih:2627BE2BDF427EB916D9504F5F5EADA83319B6ED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232972.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ magnet:?xt=urn:btih:FBD7129E80AF82FF9C3FB9894575352B07304609
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233003.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233003.jpg" />
 </div>
 
 
@@ -546,7 +620,7 @@ magnet:?xt=urn:btih:28637A49485E7B4582325DD797F8591BC83089D2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233018.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233018.jpg" />
 </div>
 
 
@@ -557,78 +631,6 @@ magnet:?xt=urn:btih:28637A49485E7B4582325DD797F8591BC83089D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5883903FDDC77E66FC123002DB040E94CA39D3B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645713   (233039) от 10.07.2023
-
-Сибирская Благозвонница | Алфавитный патерик. Достопамятные сказания о подвижничестве святых и блаженных отцов (2021) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию благочестивого читателя предлагается издание одного из самых древних источников по истории монашества «Достопамятные сказания о подвижничестве святых и блаженных отцов» (Алфавитный патерик), известное также под названиями «Изречения отцов» и «Апофтегмы». Будучи составленными в V в. и расположенными в алфавитном порядке в VI в., «Сказания» представляют собой (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FB2F3041A7C8D908D7C7137B3527F82A68EACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644372   (233252) от 06.07.2023
-
-Никея | Молитвослов для детей (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233252.jpg" />
-</div>
-
-
-###  Подробнее
-
-В молитвослове собраны самые первые, но, при этом, самые важные для православного человека молитвы. К каждой молитве подобран свой рисунок, что облегчает ребенку восприятие текста.Жанр: ПравославиеИздательство: НикеяФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF1C8DF9CA1DD9DF25C13C195FCEB7D95C37ED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644377   (233267) от 06.07.2023
-
-Архимандрит Наум (Байбородин) | Как очистить свой ум и сердце. По творениям святых отцов (2019) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233267.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге архимандрит Наум (Байбородин; 1927–2017) собрал изречения святых отцов о том, что такое чистота ума и сердца, как ее достичь, какие препятствия ожидают подвижника на этом пути, а также о цели этого делания – стяжании «ума Христова» и обожении человека.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651DDB0D24A0F022D9BB7A22E826BAACE4FF25F3
 ```
 
 

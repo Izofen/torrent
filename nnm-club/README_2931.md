@@ -1,3 +1,77 @@
+###  Публикация: 478699   (86559) от 05.04.2012
+
+Марина Литвинович | Власть семей. 20 кланов, контролирующих экономику России. [2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия оказалась под властью семейных кланов. 20 семей высших чиновников и бизнесменов подмяли под себя и природные богатства страны, и ее финансовые потоки. Это следует из беспрецедентного журналистского расследования Марины Литвинович. Еще никто до автора не составлял столь полного досье бизнес-интересов и связей членов российского правительства и их ближайших родственников. Исследование основано на открытых источниках, тщательно проверенных и сопоставленных, найдены и новые, нигде не публиковавшиеся и весьма тревожные сведения.
+Сколько на самом деле зарабатывают министры и члены их семей? Как устроен их семейный бизнес? Как власть перетекает в деньги, а деньги - в еще большую власть? Будет ли когда-нибудь проведено официальное расследование бизнеса членов правительства и их семей? Читайте и делайте выводы сами.
+Для широкого круга читателей.2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EDCA4D868D917413072E4B18E974FD2B0397CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478374   (86560) от 05.04.2012
+
+Ливень / Hard Rain (1997) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышедшая из берегов река становится причиной крупного наводнения в провинциальном американском городке. Мимо города следует инкассаторский автомобиль, перевозящий несколько миллионов долларов. Попав в засаду, неопытный охранник Том оказывается один на один с бандой «беспощадного Джима» и бушующей природной стихией. Выжить невозможно…Жанр: Боевик, Триллер, ДрамаРежиссер: Микаэл СаломонАктеры: Морган Фримен, Кристиан Слэйтер, Рэнди Куэйд, Минни Драйвер, Эдвард Эснер, Майкл А. Гурджиан, Дэнн Флорек, Рики Харрис, Марк Ролстон, Питер МёрникПеревод: ДублированныйПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478326   (86561) от 05.04.2012
+
+Монстр ледяных дорог / Ice Road Terror (2011) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лед ─ далеко не главная неприятность дальнобойщиков ледяных дорог, когда подрыв алмазного рудника пробуждает мифологического доисторического хищника — самую большую рептилию, когда-либо найденную в Арктике. Кроме того она очень голодна и имеет аппетит к людям. Теперь только водители грузовиков могут остановить монстра прежде, чем он достигнет цивилизации и начнет пиршество.Жанр: Фантастика, ТриллерРежиссер: Терри ИнгрэмАктеры: Бри Грант, Ти Олссон, Дилан Нил, Малкольм Стюарт, Майкл Хоган, Меррилин Гэнн, Дэвид Лайл, Уильям Белл, Джим Шилд, Дон Томпсон, Шон О. Робертс, Донаван СтинсонПеревод: Многоголосый закадровыйПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478577   (86563) от 05.04.2012
 
 Незваные гости / Wedding Crashers (2005) DVD9
@@ -6,7 +80,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86563.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86565.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:4BDAF5B5A6FFAA0BC912B0BEAD29299BDDE6F75F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86566.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86568.jpg" />
 </div>
 
 
@@ -112,7 +186,7 @@ Chris de Burgh - Greatest Hits (2012) 2CD [FLAC|Lossless]<Pop>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86571.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ magnet:?xt=urn:btih:A0B1AFC4DEAEEED12477A99638A873BD2A249A14
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86573.jpg" />
 </div>
 
 
@@ -167,7 +241,7 @@ magnet:?xt=urn:btih:9F725EE8CB63EA9201B8E433E44A8057BC505CD2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86574.jpg" />
 </div>
 
 
@@ -195,7 +269,7 @@ magnet:?xt=urn:btih:9F75DD015D8516D532E5A6E5522324BEC77294B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86576.jpg" />
 </div>
 
 
@@ -220,7 +294,7 @@ magnet:?xt=urn:btih:3B71432F74350CA7D7735F526E34B7B287BEEF3A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86577.jpg" />
 </div>
 
 
@@ -244,7 +318,7 @@ PrintFolders 2.51 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86578.jpg" />
 </div>
 
 
@@ -268,7 +342,7 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86580.jpg" />
 </div>
 
 
@@ -292,7 +366,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86581.jpg" />
 </div>
 
 
@@ -324,7 +398,7 @@ magnet:?xt=urn:btih:7B3124660412732916B221CC5452493476A44203
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86582.jpg" />
 </div>
 
 
@@ -354,7 +428,7 @@ magnet:?xt=urn:btih:86C84C07C340BCC10C840D422AE5B2F7450E2375
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86585.jpg" />
 </div>
 
 
@@ -380,7 +454,7 @@ magnet:?xt=urn:btih:755356588124D6C0A57CA55DE626EF164AC958F6
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86586.jpg" />
 </div>
 
 
@@ -404,7 +478,7 @@ magnet:?xt=urn:btih:755356588124D6C0A57CA55DE626EF164AC958F6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86587.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ magnet:?xt=urn:btih:2E3656456C41FAF17B73B59F028080866E42FF94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86588.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ magnet:?xt=urn:btih:35C8E758ED8A2A1B4AEF9B71D2F94CBBFCE5787E
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86589.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ magnet:?xt=urn:btih:339E7C198CAA34A09D173445F14B6D0454D59642
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86592.jpg" />
 </div>
 
 
@@ -502,7 +576,7 @@ magnet:?xt=urn:btih:D001B5022C5780E6255BE061BD2E1D3FEE62597A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86594.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:7CB16F1CFFCFBFC5B2AB849DB0B0E3D98CB6273F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86595.jpg" />
 </div>
 
 
@@ -561,7 +635,7 @@ Legends of Atlantis: Exodus (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86596.jpg" />
 </div>
 
 
@@ -585,7 +659,7 @@ magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86598.jpg" />
 </div>
 
 
@@ -596,91 +670,6 @@ magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0DB2B54044A0527D494B8F05E1AFBAAFABB51E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478626   (86599) от 05.04.2012
-
-Распад (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86599.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 апреля 1986 года. Журналист Александр Журавлев возвращается в родной Киев, в море привычных семейных проблем и профессиональных неурядиц. Он не знает, что уже завтра его жизнь и жизнь всех, кто ему дорог, изменится навсегда. Масштабы взрыва на Чернобыльской АЭС тщательно скрывают, но постепенно людей, охваченных праздничным настроением, накрывает мрачное облако (   Читать дальше...   )Жанр: ДрамаРежиссер: Михаил БеликовАктеры: Сергей Шакуров,Татьяна Кочемасова,Станислав Станкевич,Георгий Дрозд,Алексей Серебряков,Марина Могилевская,Алексей Горбунов,Анатолий Грошевой,Наталья Плахотнюк, Валерий ШептекитаПродолжительность: 01:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8219DC4F0D64AA5F7D5A8E46534E753F9FA19530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478423   (86601) от 05.04.2012
-
-Ли Якокка, Кэтрин Уитни | Куда подевались все лидеры? [2008] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный автопромышленник, не выбирая выражений, дает откровенную оценку действиям американских политиков и делится своими соображениями о проблемах лидерства.
-
-Ли Якокка - живая легенда американского менеджмента. После того, как он достигнул вершины карьеры в компании "Форд" и вынужден был из нее уйти, Ли Якокка смог спасти от банкротства и вернуть утеряные позиции на автомобильном рынке компании "Крайслер".
-
-Его "Автобиографию" (в русском переводе - "Карьера менеджера") можно считать учебником по антикризисному управлению: Ли Якокка | Карьера менеджера [2007]Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71F89789B4D3DFDF8FC214E81AF5B435F743269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478316   (86602) от 05.04.2012
-
-VA - MAXI. Лучшие ремиксы популярных хитов (2012) [MP3|256-320 kbps]<Pop | Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuri - The Moon Disappeared (Original Mix)
-02. Yuhei Kubo Feat. These Electric Lives - Tell Me (Original Club Mix)
-03. TripL Pres. ELIAD - Moving (Ido B & Zooki Remix)
-04. Tomcraft - Zounds of Arca (Original Mix)
-05. Tom Noize feat. ST - My Face (Extended Version)
-06. The Wanted - Glad You Came (HLM Remix)
-07. Szeifert vs. Krash - 100 Miles From Home (Chill Out Remix)
-08. Sting - Desert Rose 2k12 (Dj Lan Haydarov & Dj Smoke Remix)
-09. Steve Angello, Magnolia - It's All Vain(Andy First & Stereo Traffic remix)
-10. Romadi - Tame My Wild (Haaski 'Private Room' Mix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E1745428CB43518D282A5DA935176357B97C3C
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 475302   (85434) от 30.03.2012
+
+[Xbox360] Summer Stars 2012 [ENG] (RegionFree) (XGD2) [+KINECT](2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summer Stars 2012 - спортивная игра, включающая в себя более 18 различных летних дисциплин. Вы сможете испробовать себя в тройном прыжке, гонках по горам на мотоциклах, спринте, прыжках в воду и других соревнованиях.
+
+Будь то одиночная игра в необъятном режиме карьеры или сражения с друзьями в захватывающей сетевой игре на четверых, в игре Summer Stars 2012 вас ждут увлекательные спортивные приключения в стиле аркадных игр. Участвуйте в различных летних видах спорта и особых состязаниях. Посмотрим, сможете ли вы выиграть золото этим летом!Разработчик: 49Games.Жанр: Sport / 3DЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96141128185CA8325FF90002E8B1B62B429DA96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474892   (85437) от 30.03.2012
+
+100 величайших научно-фантастических фильмов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди пользователей трекера найдется немало любителей фантастики и, практически, у каждого, хотя бы раз, возникал логичный вопрос о неком списке лучших фантастических фильмов, который бы облегчил поиск нужного фильма среди великого множества.Представляю Вашему вниманию долгожданный список из
+100 величайших научно-фантастических фильмов всех времен по версии ресурса Total Sci-Fi Online, находящихся на нашем трекере. Составлялось долго и упорно, недостающие позиции приходилось искать и релизить в срочном порядке. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475164   (85438) от 30.03.2012
+
+8 первых свиданий (2012) [H.264] DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера телезвезда, ее жених Константин — профессиональный теннисист. Они собираются пожениться. Никита врач-ветеринар и красавица-хирург Илона также спешат оформить отношения. Но одно прекрасное утро разрушает все планы. После веселого вечера Вера просыпается в одной постели с Никитой. Решив, что это последствия слишком бурной вечеринки, молодые люди разъезжаются в разные стороны. Но следующим днем все повторяется — Никита и Вера снова вместе, хотя каждый хорошо помнит, как они засыпали дома — каждый у себя… Так происходит всю последующую неделю. Какие-то таинственные силы устраивают эти неожиданные «свидания», кто-то хочет разрушить их браки, а может быть просто доказать, что они созданы друг для друга?Жанр: КомедияРежиссер: Дэвид Додсон, Александр МаляревскийПродюсер: Екатерина Гордецкая, Андрей Радько, Борис ШефирАктеры: Оксана Акиньшина, Владимир Зеленский, Денис Никифоров, Екатерина Варнава, Сабина Ахмедова, Ильдар Аллабирдин, Сергей Барковский, Наталья Иохвидова, Игорь Жижикин, Елена КондулайненПеревод: Оригинальный (русский)Продолжительность: 01:23:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475913   (85439) от 30.03.2012
 
 Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игроманы
@@ -6,7 +81,7 @@ Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игром
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85439.jpg" />
 </div>
 
 
@@ -36,7 +111,7 @@ Men of War: Condemned Heroes / Штрафбат  (L) [Ru] 2012 | R.G. Игром
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85440.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ ImgBurn 2.5.7.0 [Eng+Rus] + Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85441.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ ImgBurn - утилита для записи образов дисков. Эта
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85442.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85443.jpg" />
 </div>
 
 
@@ -134,7 +209,7 @@ Zолушка (2012) [H.264] DVDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85445.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85446.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85450.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85451.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012 l SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85452.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ magnet:?xt=urn:btih:BEA96021E9EF61AA2121FBA0B43012115FADD11C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85453.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ magnet:?xt=urn:btih:BEA96021E9EF61AA2121FBA0B43012115FADD11C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85454.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ magnet:?xt=urn:btih:AD73A62F8412709404B97FFD8F3AA143FCD40305
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85458.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ VA - TOP 100 Зайцев.нет (29.03.2012) (2012) [MP3|126-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85459.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:25F1D86D4B113E0F6EFDBEC7487F33F258E09D27
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85462.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85463.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85464.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85467.jpg" />
 </div>
 
 
@@ -479,7 +554,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85469.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ magnet:?xt=urn:btih:C5C0E66654B15B34213593374BE4604DC0BFC8E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85470.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85471.jpg" />
 </div>
 
 
@@ -568,7 +643,7 @@ Orbital - Wonky (2012) [MP3|256 кб/с]<Techno, Big-Beat>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85472.jpg" />
 </div>
 
 
@@ -600,7 +675,7 @@ VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85475.jpg" />
 </div>
 
 
@@ -620,87 +695,6 @@ VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD06AB81B125D0E5C33FC4C9B1514CCEA4B37BA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476359   (85478) от 31.03.2012
-
-Frugalware Linux 1.6 [x86_64] (4xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел релиз Linux дистрибутива общего назначения Frugalware 1.6, разработанного для опытных пользователей, не боящихся командной строки. Основное направление развития дистрибутива - максимальное упрощение. Концепция построения дистрибутива похожа на Slackware, в качестве пакетного менеджера задействован pacman из Arch Linux. При создании пакетов разработчики стараются публиковать программы как есть, избегая внесения дополнительных патчей.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A5D7880FFAA75E4881FF51111B1C4F04F3A3A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475928   (85482) от 31.03.2012
-
-Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive rock, Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 01. Against the odds (6:13)
-02. 02. Time of revelation (4:02)
-03. 03. Universal wheels (5:39)
-04. 04. Logical progression (6:10)
-05. 05. Words in the distance (4:46)
-06. 06. Between two worlds (6:27)
-07. 07. I hear voices (3:58)
-08. 08. In the moment (6:23)
-09. 09. Shelter from the rain (6:09)
-10. 10. Everything in life (3:17)(   Читать дальше...   )2012Жанр: Hard rock, Progressive rock, Heavy metalПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476131   (85485) от 31.03.2012
-
-Разделитель / The Divide (2011) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85485.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма разворачиваются в подвале одного из зданий в Нью-Йорке, который стал своего рода спасательным бункером для восьмерых людей, когда город был разрушен в результате мощного взрыва неизвестного происхождения. Где-то в глубине подвала они видят человека в ОЗК и с оружием, который, похоже, объявил на них охоту.Жанр: ужасы, фантастика, триллерРежиссер: Ксавьер ГенсАктеры: Лорен Джерман, Майкл Бьен, Майло Вентимилья, Кортни Б. Вэнс, Эштон Холмс, Розанна Аркетт, Иван Гонзалез, Майкл Эклунд, Дженнифер БланкПеревод: Одноголосый закадровыйПродолжительность: 02:02:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 

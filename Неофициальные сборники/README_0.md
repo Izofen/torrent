@@ -6,7 +6,7 @@ Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1184.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1190.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sammy Hagar - Voice Of Rock - Compilation (1973-2025) [MP3|320 Kbps] <Hard rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1270.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1301.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1443.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [c002] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1450.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [c001] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1460.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a008, Bonus] (2012-2025) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1589.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1590.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a004] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1592.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a005] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1594.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a006] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1595.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b001] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1597.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a007] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1599.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Matadora (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House, Ind
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1601.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b002] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1602.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - A Whirlpool Of Melodies (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1609.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [#] (2012-2025) [MP3|320 Kbps] <Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1637.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a003] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1645.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Xezzo - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1804.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1806.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1973.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1974.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2000.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Xezzo - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2008.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2160.jpg" />
 </div>
 
 

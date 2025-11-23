@@ -1,3 +1,78 @@
+###  Публикация: 1699000   (115908) от 24.02.2024
+
+Возвращение Кота в сапогах / Nagagutsu Sanjuushi / Puss in Boots: Three Musketeers in Boots (1972) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115908.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Кот в сапогах отправляется на Дикий Запад. Его ждут полные опасностей приключен ия, а по его следу уже идут королевские стрелки.Производство: Япония / Toei AnimationЖанр: аниме, мультфильм, фэнтези, вестерн, приключенияРежиссер: Томохару КацуматаПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: Русские (МС Entertainment)Продолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EFC595F42D4F89BA50ADD0A0B5FAEA0FD509EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702305   (115909) от 24.02.2024
+
+Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тактическая пошаговая стратегия с пошаговыми сражениями, но не такая, как остальные. Здесь вы будете сражаться, используя рисованных от руки воинов, да еще и на страницах средневековых книг… События игры происходят исключительно на страницах необычных живых средневековых книг. Тут нет места просторным полям и лесам, нет места и огромным картам. Здесь каждый ваш бой. (   Читать дальше...   )Тип издания: SceneРазработчик: Yaza GamesЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2C79DCA13AF9BEB4DC5BF305E169CFB3ECECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702293   (115910) от 24.02.2024
+
+Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Château (Live) [00:02:26]
+02. Epica Oxygene (Live) [00:03:14]
+03. The Opening (Live) [00:03:42]
+04. Oxygene 2 (Live) [00:06:40](   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7743E0B236C60C951529A2593F10212B60299B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702157   (115911) от 24.02.2024
 
 Золотой парень / Golden Boy OVA (1995 – 1996) DVDRip (1-6 серии из 6) MTV [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +81,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115911.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115912.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115913.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115914.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Tablacus Explorer 24.2.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115915.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:A11C8F5B9D0FDAF77D94F7BEA6D0D9722C58E13F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115916.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ DJ Artur - Compilation (2024) [MP3|320 Kbps] <Instrumental, Piano, Accordion, El
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115917.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115918.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:69DEE4ADED1B641B93BADB3E53C9F51A0033C2E0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115919.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:B8957FF4954629C20F11F5B87C32F74F773F3292
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115920.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:886BF215B1BE0A6E51BC47CAE459E2EFE0FA6713
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115921.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:B669A92E71A85DC65CC4080C28BFDB50A4F08435
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115922.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ magnet:?xt=urn:btih:B669A92E71A85DC65CC4080C28BFDB50A4F08435
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115923.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:FC8CF9AB5BE8A3B7EBF0FCD1C46AFCA22E4F3381
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115924.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ VA - Ukrainian Songs (2024) [MP3|320 Kbps] <Pop, Folk Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115925.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Google Earth Pro 7.3.6.9796 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115926.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:BEADEBA4A5CB948F0CE0280F42F0B15D4C5D01B2
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115927.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Firefrost (2024) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115928.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ Hiren’s BootCD PE x64 v1.0.6 (22 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115929.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ magnet:?xt=urn:btih:0D3CD5CAA425238EFC8B9C3C11EB35912CAACC95
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115930.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ magnet:?xt=urn:btih:A07267A50A4C1693B7ED468D048D9C4176B2652F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115931.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ magnet:?xt=urn:btih:015F3850E609CAF20D4D00FDA163C8056BF45D8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115932.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:C3FB85F38583B2138A249C0A3592FE2C71424AD8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115933.jpg" />
 </div>
 
 
@@ -556,78 +631,6 @@ magnet:?xt=urn:btih:C3FB85F38583B2138A249C0A3592FE2C71424AD8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91094F3B211692CB3176DD1D7FF4C9F7B7B25E0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702412   (115934) от 24.02.2024
-
-Д. Р. Макэлрой | Неведомый мир. Магические существа, легенды и суеверия со всего света (2021) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115934.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлена подборка самых удивительных и живучих верований народов мира: истории о могущественных богах и героях, страшных чудовищах и добрых духах; городские легенды и суеверия. Многие из них широко известны, а о других читатель, возможно, узнает впервые. Описания удобно сгруппированы по регионам и оформлены красивыми иллюстрациями.Жанр: мифология, мифы / легенды / эпос, фольклорПеревод: Дарья СмирноваЯзык: русскийИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C81B4B08F70D29D479CA60E575F15B5F418F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702322   (115935) от 24.02.2024
-
-Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solium Infernum - увлекательная пошаговая стратегия, действие которой разворачивается на огненных ландшафтах Ада. Черпая вдохновение в эпической поэме Джона Мильтона "Потерянный рай", игра втягивает в жестокую борьбу за вожделенный трон Темного Властелина. Дьявольская смесь дипломатии, обмана и военных действий разворачивается на фоне сложной и динамичной (   Читать дальше...   )Тип издания: SceneРазработчик: League of GeeksЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C56B19CA0E8D87971647CCC2B507E1461B6E4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701903   (115936) от 24.02.2024
-
-Летят журавли (1957) BDRemux [H.264/1080p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о людях, в чьи судьбы безжалостно вторглась война. Не все смогли с честью вынести это испытание. В центре киноповести - трагическая история двух влюбленных, которых разлучила война.Производство: СССР / МосфильмЖанр: Военный, мелодрама, история, драмаРежиссер: Михаил КалатозовАктеры: Татьяна Самойлова, Алексей Баталов, Василий Меркурьев, Александр Шворин, Светлана Харитонова, Константин Кадочников, Валентин Зубков, Антонина Богданова, Борис Коковкин, Екатерина КуприяноваПеревод: Не требуется (русский)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74975DF2DF9C0D61F16850CFD96D1B4F67669889
 ```
 
 

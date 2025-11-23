@@ -1,3 +1,93 @@
+###  Публикация: 475757   (98170) от 31.03.2012
+
+VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Каста - Такое Чувство
+002. San J & В. Дайнеко - Перезвони
+003. Непара - В Облаках
+004. Батишта - Перелестни Страницу (Только Так)
+005. Джиган feat. Ж. Фриске - Ты Рядом
+006. Ika - Дорогой Мой (DJ Vengerov Remix)
+007. DJ Smash - Можно Без Слов (DJ Smash vs Yoko Remix)
+008. А. Седокова - Love U (Graver&kerim Muravey Remix)
+009. Пачуля (Pachulya) - Ты Же Все Знаешь
+010. Ради Славы - Стану Снегом(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A75048C4A4ED6E4A366E75D02B2100CB507765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476467   (98171) от 31.03.2012
+
+VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ThomTree - When The Sun Comes Out (Justin Corza meets Greg Blast Edit) (3:32)
+2. Temple One Feat. Neev Kennedy - Love The Fear (Eximinds Remix) (7:53)
+3. Stefy De Cicco ft. Dhany - Deep Down Inside Of You (Elegance Ext. Mix) (6:26)
+4. Rob Mayth - Another N8(Exclusive Edit) (3:33)
+5. Rihanna - S&M (DJ Kez & Nexboy Remix) (5:31)
+6. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)(Topmodelz Edit) (3:22)
+7. Power Play - Wole Ole ( Oj Tam Oj Tam 2 ) (5:06)
+8. Pitbull feat. Flo Rida - Move Shake (4:38)
+9. Young London - Let Me Go (DJ Solovey Remix) (5:02)
+10. Tradelove - Pum Back (Original Mix) (5:46)2012Жанр: Pop,DanceПродолжительность: 08:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475393   (98172) от 31.03.2012
+
+Юджин Пеппероу | Открыватель талантов [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Пеппероу (1991Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475662   (98175) от 31.03.2012
 
 Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
@@ -6,7 +96,7 @@ Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98175.jpg" />
 </div>
 
 
@@ -39,7 +129,7 @@ Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98177.jpg" />
 </div>
 
 
@@ -63,7 +153,7 @@ VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98178.jpg" />
 </div>
 
 
@@ -96,7 +186,7 @@ Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98180.jpg" />
 </div>
 
 
@@ -129,7 +219,7 @@ magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98182.jpg" />
 </div>
 
 
@@ -157,7 +247,7 @@ magnet:?xt=urn:btih:8BA43E34BF5FA4D76805F2A00435041EBAA7758F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98183.jpg" />
 </div>
 
 
@@ -181,7 +271,7 @@ Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98184.jpg" />
 </div>
 
 
@@ -214,7 +304,7 @@ VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98185.jpg" />
 </div>
 
 
@@ -247,7 +337,7 @@ magnet:?xt=urn:btih:245B63BA446E4340975BAF356466DB68A0285ED0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98187.jpg" />
 </div>
 
 
@@ -271,7 +361,7 @@ magnet:?xt=urn:btih:0E471EEE9D4D51823A87EC466D93314A83B04C04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98190.jpg" />
 </div>
 
 
@@ -295,7 +385,7 @@ magnet:?xt=urn:btih:A8F9E8F46E38DD19F3AF312A523CE1AAB7073A8E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98194.jpg" />
 </div>
 
 
@@ -319,7 +409,7 @@ magnet:?xt=urn:btih:FEF6CB20466F72AA1AC9F2E6433BFBBB28F03837
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98196.jpg" />
 </div>
 
 
@@ -343,7 +433,7 @@ magnet:?xt=urn:btih:29D3C7FE161BE6D3FD4D0BE9ECF4087BF1FAC185
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98197.jpg" />
 </div>
 
 
@@ -367,7 +457,7 @@ VA - Chris Coco - Lazy Summer Vol. 2 (2011) [MP3|320 кб/с]<Electronic, Deep H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98198.jpg" />
 </div>
 
 
@@ -400,7 +490,7 @@ VA - Русский Avto Club (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98204.jpg" />
 </div>
 
 
@@ -433,7 +523,7 @@ magnet:?xt=urn:btih:983D5821EC0A81428488866F108B21D8C884A998
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98205.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98205.jpg" />
 </div>
 
 
@@ -459,7 +549,7 @@ Glassball - Psy-Fi Full On (03.01.2012) [MP3|320 кб/с]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98206.jpg" />
 </div>
 
 
@@ -483,7 +573,7 @@ magnet:?xt=urn:btih:58A3A96094E1222DC004A0F856EAEDCDDC180484
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98207.jpg" />
 </div>
 
 
@@ -507,7 +597,7 @@ Primal Rock Rebellion - Awoken Broken (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98208.jpg" />
 </div>
 
 
@@ -540,7 +630,7 @@ Primal Rock Rebellion - Awoken Broken (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98211.jpg" />
 </div>
 
 
@@ -566,7 +656,7 @@ VA - Водочку пьём! Баллады любимому напитку (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98212.jpg" />
 </div>
 
 
@@ -599,7 +689,7 @@ magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98214.jpg" />
 </div>
 
 
@@ -623,7 +713,7 @@ magnet:?xt=urn:btih:CC3F6704F32E7040313544152116ADC44169B37A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98215.jpg" />
 </div>
 
 
@@ -634,105 +724,6 @@ magnet:?xt=urn:btih:CC3F6704F32E7040313544152116ADC44169B37A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9ADB8938F01091850A2AD71227556EBF316957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474893   (98216) от 31.03.2012
-
-DJ Premier & Bumpy Knuckles - Kolexxxion (2012) [MP3|320 кб/с]<Underground Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Thoughts
-02. Shake The Room (Feat. Flavor Flav)
-03. B.A.P.
-04. evrEEbodEE
-05. wEaRe aT WaR
-06. P.A.I.N.E.
-07. The Life
-08. FYPAU
-09. D'Lah
-10. More Levels(   Читать дальше...   )2012Жанр: Underground Hip-HopПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498F547A58AF235BE496C76AE90C0923E372FAE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475778   (98217) от 31.03.2012
-
-VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хаки - И Все Таки Люблю
-02. Тамерлан и Алена Омаргалиева - Hey Yo
-03. Black Star Mafia (Тимати & Джиган & DJ M.E.G. & Music Hayk & B.K.) - Будь Собой
-04. Влад Дарвин & Alyosha - Смысл Жизни
-05. Макс Барских - Dance
-06. Макsим - Это Же Я
-07. Юля Волкова (Julia Volkova) - All Because Of You
-08. DJ Настя Крайнова - Беги За Мной
-09. Guf - Баллада
-10. Алексей Воробьев и Виктория Дайнеко - В Последний Раз(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2655F84ADCAAF92B8AD9B084C9717821F1B81A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474234   (98218) от 31.03.2012
-
-I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Куранты (интро)
-02. Los Angelies feat. Kristina Si
-03. Year Of Rat
-04. Broke Like A …
-05. Not Nameless feat. Mista YaMan
-06. When The Clock Stops Ticking
-07. I Left The Home feat. Jenee (OSG)
-08. Как Найти Себя feat. Fuze (KREC)
-09. Almighty Dollars feat. Gala Ga
-10. Street Poetry(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
 ```
 
 

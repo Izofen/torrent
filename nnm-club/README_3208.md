@@ -1,3 +1,78 @@
+###  Публикация: 1761148   (103089) от 18.11.2024
+
+Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите хаос на новый уровень с помощью Generate. Разработанный компанией Newfangled Audio, Generate представляет собой полисинтезатор marquee, сочетающий в себе пять революционных хаотических генераторов со всеми функциями, которые вы ожидаете от первоклассного синтезатора. Создавайте красивые сложные пэды, теплые скользящие клавишные, нервные секвенированные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761226   (103090) от 18.11.2024
+
+Конвертер Валют Плюс / Currency Converter Plus 2.13.1 Mod by CMAPTOC [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертер Валют Плюс - максимально простой, а значит и очень удобный, конвертер валют. Что предоставляет пользователям точные данные сразу по нескольким позициям. Достаточно просто задать базовую валюту, а так же желаемые варианты. Программа обновляется через Европейский центральный банк, что обеспечивает использование только актуальных данных. При этом есть поддержка (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F672EE1FA953937089462839793355AA87FADB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760851   (103091) от 18.11.2024
+
+Оленев Илья - 2 Albums, 1 Single (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:01:24]
+02. Молоко [00:03:54]
+03. Не печалься, отец [00:02:11]
+04. Отцу [00:03:26](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 3 CD, 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CFCD0798F4D662B14AFC4388859D379DAEA6B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761153   (103092) от 18.11.2024
 
 Major Lazer - Guns Don't Kill People... Lazers Do (2009) 15th Anniversary Edition, 2024, Mad Decent [FLAC|Lossless|WEB-DL|tracks] <Electronic, Hip Hop, Reggae, Dub>
@@ -6,7 +81,7 @@ Major Lazer - Guns Don't Kill People... Lazers Do (2009) 15th Anniversary Editio
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103092.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:DB5BF128270ACF1EFB88BA5646DD913098C841F0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103093.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:CBA27CD5329AE916D53663AB2DEC70BAC80A5D07
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103094.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:614BC59821402ADE41769A1A3FDE83446CAFBD18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103095.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103096.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103097.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ Satyrian - The Dark Gift (2007) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103098.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ magnet:?xt=urn:btih:78592767348756494839A3039206E8A9B7009A9D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103099.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103100.jpg" />
 </div>
 
 
@@ -242,7 +317,7 @@ magnet:?xt=urn:btih:E80A4EE61913E651172E37A06D59C287F3765659
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103101.jpg" />
 </div>
 
 
@@ -268,7 +343,7 @@ magnet:?xt=urn:btih:F2861BA25E3CD4FA00125128F7B3B27F14247540
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103102.jpg" />
 </div>
 
 
@@ -292,7 +367,7 @@ Voltstorm - Break The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103103.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ magnet:?xt=urn:btih:3753D25F5F1F0109013D0CC991ADE7F10264203F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103104.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103105.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Earthcorpse - The Taste Of Sin (1999) [FLAC|Lossless|image + .cue] <Doom Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103106.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ magnet:?xt=urn:btih:D397E312D8DD94C68EC727D1255EFDC558CBBFDB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103107.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ Eden On Fire - Unresolved (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103108.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ Embrace By Dark - Sculpture Of The Godforsaken Aeons (2003) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103109.jpg" />
 </div>
 
 
@@ -479,7 +554,7 @@ magnet:?xt=urn:btih:6239D4CD50AF924DF685F959E5D929BF767F9754
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103110.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ Extinkt - Postnucleartrip To Nowhere (2016) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103111.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ magnet:?xt=urn:btih:D35D574D5A350B6BA14C6F1D0DBC712FF6EFBE9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103112.jpg" />
 </div>
 
 
@@ -554,7 +629,7 @@ magnet:?xt=urn:btih:A857E0AD97B461EC48CA1516C396DB1DB1F78CCB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103113.jpg" />
 </div>
 
 
@@ -581,7 +656,7 @@ magnet:?xt=urn:btih:8C6B4616246E228583CBE2AD8DA6B5116BFE2FD9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103114.jpg" />
 </div>
 
 
@@ -593,83 +668,6 @@ magnet:?xt=urn:btih:8C6B4616246E228583CBE2AD8DA6B5116BFE2FD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7288B569F8E0CB69B3D904098AA8C642FFD236C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761073   (103115) от 17.11.2024
-
-Telegram Desktop 5.8.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1903EEB35746C4911DB76EB7E744BCC80559ACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761038   (103116) от 17.11.2024
-
-Пикник - Родом Ниоткуда (1988) Release 2004, Grand Records [WavPack|Lossless|image + .cue] <Soft Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я Невидим
-02. Интересно
-03. Нет Берегов
-04. Романс(   Читать дальше...   )Жанр: Soft Rock, Goth RockПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068BF7970C815B39908084A10790DBBCCF47BF20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760982   (103117) от 17.11.2024
-
-VivaVideo Video Editor v9.22.5 Mod by MustHave [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103117.jpg" />
-</div>
-
-
-###  Подробнее
-
-VivaVideo - это простой в использовании видеоредактор и профессиональный редактор видео , который помогает вам легко записывать и показывать свою жизнь.Скачайте Viva Видеоредактор для монтаж и обработка видео с фото, музыкой и эффектами, делитесь ими на ютуба, Инстаграм, Тик Ток Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.11.2024Разработчик: QuVideo Inc. Video Editor & Video Maker AppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65D734F6F91D8894384F7D940A6D10327E826D1
 ```
 
 

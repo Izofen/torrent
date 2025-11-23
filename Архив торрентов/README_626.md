@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133986.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134002.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134004.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0CDB6425151365434BC9B74AC752F245923A02FA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134009.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CD79731F6772EEB769201736BEF76FC2AD001532
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134040.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 8 Codecs 1.35 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134054.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Windows 8 Codecs - Набор кодеков от разработчиков Win
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134058.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:DBF70C5A065FD510B0C620DD59B383109A019C6E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134072.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ YouTube ReVanced Extended 18.45.41 (RVP v2.199.1) Mod by Number one' + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134073.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SlimPDF Reader 1.0.1.12 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134076.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ qBittorrent 4.6.2 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134077.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:BDD3CEFBC3A1D91C220734A8B7F252771671263D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134078.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Midori Browser 11.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134087.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Nik Collection by DxO 6.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134089.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Chromium-Gost 119.0.6045.199 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134091.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Simoni Racing. Sexy Vision Calendar 2013
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134094.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Super S10 Launcher 5.1 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134095.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Artweaver Free 3.1.3 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134100.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CyberLink PhotoDirector Ultra 15.0.11.1123 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134103.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Manjaro Linux 0.8.3 [i686] (Arch с несколькими рабочими ст
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134110.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Manjaro Linux 0.8.3 [i686] (Arch с несколькими рабочими ст
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134111.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Win7codecs 3.9.3 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134116.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ RAM Saver Professional 23.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134117.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ GIMP 2.10.36 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134119.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:5AC619ACA9834EF4AC23381F3F275FCBBFE0FEC9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134124.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Elmedia Player Pro 8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134125.jpg" />
 </div>
 
 

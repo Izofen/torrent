@@ -6,7 +6,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tansu Warashi / Drawer Hobs / Обитатели комода [2011, TV-special]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81859.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81996.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82632.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] Remastered
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82722.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83117.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Прими�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86396.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Goku Midnight Eye / Гоку Полуночный глаз [1989, OVA, 2 ep.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87614.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Mamono Hunter Youko / Devil Hunter Yohko / Ёко - охотница на дем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88347.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Wasurenagumo / Паучонок [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88433.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Tezuka Osamu no Buddha: Akai Sabaku yo! Utsukushiku / Будда: Пустыня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88438.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jojo no Kimyou na Bouken: Adventure / JoJo's Bizarre Adventure / Невероя�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88505.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Busou Shinki: Moon Angel / Шинки - боевой Лунный Ангел [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88664.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Fin
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91153.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91162.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91289.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91290.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91313.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94704.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Ningen Kousaten / Human Crossing Point / Точки соприкосновени
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99677.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100735.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100834.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100835.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100836.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100838.jpg" />
 </div>
 
 

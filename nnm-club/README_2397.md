@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62687.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E9AEFE558DC9D3DB8F6225A311CC50A6C1A43B4E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62688.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Deep Astral (2024) [MP3|320 Kbps] <Chill, Electronic, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62689.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:16DAC8F1CCACE3EC63A9519525553069470975C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62690.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Good Morning (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62691.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62692.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - In Your Dreams: Deep House Session (2024) [MP3|320 Kbps] <Deep-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62693.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Lonnie Brooks - 12 Albums (1975 - 1999) 14 CD [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62694.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:29B5BC7081FFAB0FC49AFC6937ED6429BB013BF3
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62695.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:FCDB7B111B3901564492556B5E213838E2237F50
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62696.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Bruno Simong | Перевод курса Three.js Journey - The ultimate Three.j
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62697.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:F36AB57608AC51619DF822E9EEB5FFD7891291B2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62698.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ CorelDRAW Technical Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62699.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:129EF3062B6F12025C50480FC705DACDF5A197AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62700.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:D82992330F28D818972E1550EA5277704253AEA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62701.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:F615A6A6FE1D673B1F3255642F4ADD891EEA642B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62702.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F615A6A6FE1D673B1F3255642F4ADD891EEA642B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62703.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (17.03.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62704.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:8F7118ADDD126BE8C04D8EE6D03FFDA45A2E9808
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62705.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:2FDC18C979B61D7F0C91DF98C4181DECC974784C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62706.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:9B3168D7000597708F46AAD54DDE3B82249E70C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62707.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E16C06451DF88536884A8C7199DD1107537431FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62708.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:DEBCD58F012D77CF9E4BD110F8CD3412DC97E550
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62709.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:050E0CD243EED160E30409BDDC6EB71AF19C49DB
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62710.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F93A6BD99C347EC161989C6DDA8902C0665DB02E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62711.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Дискотека 2024 Dance Club Vol.222 [NNNB] (2024) [MP3|320 Kbps] <Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62712.jpg" />
 </div>
 
 

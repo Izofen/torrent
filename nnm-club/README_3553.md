@@ -1,3 +1,76 @@
+###  Публикация: 1712630   (112060) от 04.04.2024
+
+Пять женщин для убийцы / 5 женщин для убийцы / 5 donne per l assassino (1974) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись домой из заграничной командировки, репортёр по имени Джорджио узнаёт, что его жена была убита, а ребёнок помещён в больницу. Немного погодя, он узнаёт от своей давней подруги, доктора Лидии Фрэнзи, что никак не может быть отцом ребёнка, поскольку он совершенно стерилен. Джорджио и Лидия сближаются, но вскоре она тоже подвергается нападению, каким-то чудом (   Читать дальше...   )Производство: Италия, Франция / Les Film La Bouette, Thousand CinematograficaЖанр: детектив, триллерРежиссер: Стельвио МассиАктеры: Френсис Мэтьюз, Паскаль Риво, Джорджио Альбертацци, Ховард Росс, Катя Кристин, Катрин Дайамант, Мария Кумани Квазимодо, Том ФеллегиПеревод: любительский одноголосый (Сергей Квардаков, с добавлением oar)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794945EB48438955BE3924B6E0676566316AA0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712867   (112061) от 04.04.2024
+
+Эшли Вэнс | Небеса с молотка. В погоне за ближним космосом (2023) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свою новую книгу американский журналист Эшли Вэнс, автор знаменитой биографии Илона Маска, посвящает увлекательной теме – началу освоения ближнего космоса частными американскими компаниями.
+SpaceX доказала всему миру: космические программы больше не прерогатива могучих правительств, тратящих на запуск одной ракеты миллиарды долларов. У руля теперь стоят неординарные (   Читать дальше...   )Жанр: Зарубежная публицистика, научно-популярная литератураПеревод: Г.И. АгафоновИздательство: Олимп-БизнесФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01A4277D4C524299270B8AD97006ECF5F4F1C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713044   (112062) от 04.04.2024
+
+Преследуемый. В сетях Каморры / Der Gejagte - im Netz der Camorra (2022) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маттео ДеКанин должен дать показания в качестве ключевого свидетеля против Каморры. Но вскоре после до того, как его самого и его семью удается доставить в безопасное место, его жену Стефанию хладнокровно убивают. Маттео и его дочь Лаура в ожидании суда вынуждены жить под охраной полиции на небольшом острове у побережья Италии. Тем временем мафия усиливает поиски (   Читать дальше...   )Производство: Германия, Австрия / good friends Filmproduktion, Satel Film, Albolina FilmЖанр: триллерРежиссер: Рик ОстерманнАктеры: Тобиас Моретти, Харольд Виндиш, Антония Моретти, Герти Драссль, Марко Борьеро, Emre Cakir, Маттео КарломаньоПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:17Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE96A51E955DAA7E0BAAC2BDA07069ED66E41495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712863   (112063) от 04.04.2024
 
 Юлия Евдокимова | Уютная Россия (2024) [MP3, Альбина Быстрова]
@@ -6,7 +79,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112063.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ K-Lite Codec Pack Update 18.2.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112064.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ VA - Rock Now Mixtape (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112065.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ Toby Vetter - Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112066.jpg" />
 </div>
 
 
@@ -108,7 +181,7 @@ Ten Throne - Desolate Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112067.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ magnet:?xt=urn:btih:0B8AF1811E35DFABA02465D1524F2760F9A68709
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112068.jpg" />
 </div>
 
 
@@ -162,7 +235,7 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112069.jpg" />
 </div>
 
 
@@ -189,7 +262,7 @@ Kill The Kings - The Demo Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112070.jpg" />
 </div>
 
 
@@ -216,7 +289,7 @@ Leviathan Project - MCMLXXXII (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112071.jpg" />
 </div>
 
 
@@ -243,7 +316,7 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112072.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ Trifixion - The First and the Last Commandment (1995) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112073.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Transgressor - Ether for Scapegoat (1992) Reissue, 2015, Memento Mori [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112074.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:CCBDAAEAFDE45C85D0A65A04C17984AF78B3D886
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112075.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ VA - Rock Fun & Happy Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112076.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Skype 8.116.0.213 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112077.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ VA - A Taste of Chillout, Lounge & Lofi Music (2024) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112078.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ magnet:?xt=urn:btih:C34756CF03ED0AB2D9AFC9F81D9E2CD499036496
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112079.jpg" />
 </div>
 
 
@@ -451,7 +524,7 @@ magnet:?xt=urn:btih:D2F7EDF6982830DF09D8D912A68B015129A07E02
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112080.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ magnet:?xt=urn:btih:FC270CA9CDBB99BC5C4A869E52E0F9AAA0E7BBA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112081.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ magnet:?xt=urn:btih:6836C12BBC1DBEF135A9CA98437A0AE4CCBC1923
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112082.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ PhotoRoom v4.9.1 b1347 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112083.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ magnet:?xt=urn:btih:53420297804A15C203F09BB15EBA838F5F0DC004
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112084.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ magnet:?xt=urn:btih:CEE5E918415219E5B5528C725B830D2238911B64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112085.jpg" />
 </div>
 
 
@@ -582,78 +655,6 @@ magnet:?xt=urn:btih:CEE5E918415219E5B5528C725B830D2238911B64
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712627   (112086) от 03.04.2024
-
-Дорога с односторонним движением / One Way Street (1950) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Укравший деньги мафии доктор вместе со своей подружкой направляется в небольшую деревушку в Мексике.Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, триллер, драма, криминалРежиссер: Уго ФрегонезеАктеры: Джеймс Мейсон, Марта Торен, Дэн Дьюриа, Бэзил Руисдейл, Уильям Конрад, Родольфо Акоста, Кинг Донован, Роберт Эспиноза, Тито Ренальдо, Маргарито ЛунаПеревод: Авторский (Вадим Белов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6189630CE1E39157F776EEC8EE102D74214B5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712797   (112087) от 03.04.2024
-
-Газета | Аргументы и Факты. Москва №14 (3-9 апреля 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A95F5BF9A9C96D24946C2EA1559202501E3F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712730   (112088) от 03.04.2024
-
-Антон Леонтьев | Восьмой смертный грех (2022) [MP3, Евгений Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кирилл Терц, спившаяся кинозвезда, решил покинуть этот бренный мир. Он уже пришел в заброшенный порт с твердым намерением утопиться, но его планам помешали какие-то таинственные личности, увозившие на яхте… маленькую девочку. Кирилл стал свидетелем похищения ребенка! Это его до крайности заинтриговало… А когда он узнал, что украдена дочка его коллеги Денизы Ровиго, (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 14:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8032C1C036978D5A1909222EDC147848CFB00DB
 ```
 
 

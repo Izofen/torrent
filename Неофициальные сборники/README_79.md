@@ -6,7 +6,7 @@ VA - New Age Ambient Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Meditation
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143637.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143669.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jeanette - Compilation (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143679.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Beatport Synth Electronic: Sound Pack #387 (2021) [MP3|320 Kbps] <Synthwave
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143683.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Музыка для машины Vol.41 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143703.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Beatport Techno Electronic: Sound Pack #384 (2021) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143710.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Vibrant Euphoria (2023) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143719.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Graceful House (2015) [MP3|320 кб/с] <House, Electro, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143721.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Beatport Chill Electronic: Sound Pack #389 (2021) [MP3|320 Kbps] <Soft Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143725.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143793.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Beatport Deep House: Sound Pack #385 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143798.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Beatport Electro House: Sound Pack #383 (2021) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143818.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Shazam Хит-парад World Top 200 Итоговый 2018 [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143829.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Chillout Power (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143838.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - DJ Romantic - Vibrant Voices (1997) [MP3|320 Kbps] <Chillout, Lounge, Sexy>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143846.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Новогодние хиты. Песни года Выпуск № 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143946.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Deep House Collection Vol.102 (2016) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143973.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144027.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144073.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144186.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144214.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144221.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144232.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Project Logical: Progressive House (2018) [MP3|320 Kbps] <Progressive, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144278.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144293.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144305.jpg" />
 </div>
 
 

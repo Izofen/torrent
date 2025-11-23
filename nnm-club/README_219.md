@@ -6,7 +6,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.5/dlc) Repack Let'sРlay [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5767.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5768.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:110988F9ADA1295D5D43C66F3F285172FACD4BC4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5769.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:12B51E75588CDEFC46EB048526301A31BAD927AC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5770.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Sammy Hagar (frontman Montrose, Van Halen, Chickenfoot) - 34 Albums (1976 - 2022
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5771.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5772.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5773.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5774.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5775.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:8A00C5271D294B91A3F5F123DBF3DF3091843D81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5776.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5777.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5778.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5779.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5780.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DF2352308A562A4D1DB3EEE88712B151C62ED611
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5781.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadow Labyrinth (2025) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5782.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:C7191CDFD50DA54A2C9C1EF99C8F670189E4E015
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5783.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0719E8C9739D3D9C22275949F04917E97C7F05A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5784.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:8F6F592FE8D8B2933348B973AAB9E08DDC3B41DA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5785.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5786.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Photo Editor v11.8 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5787.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F118D5C2ED31908798CD78A07ECDED03865E86C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5788.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2B4156B782AE6958F279686DF44FD67EAF841EAC
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5789.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:6387CE42FC653DFAB19BEFE645A64F8601BF8C64
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5790.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Milk & Sugar Beach Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5791.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:F92B416DE06933E80465D904380E36D0E96412D3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5792.jpg" />
 </div>
 
 

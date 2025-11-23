@@ -1,3 +1,186 @@
+###  Публикация: 1677621   (150498) от 18.11.2023
+
+С.А. Бахвалова, В.А. Романюк | Основы моделирования и проектирования радиотехнических устройств в Microwave Office (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены начальные сведения о работе с программой Microwave Office. Описана методика моделирования и проектирования электрических схем СВЧ. Приведены примеры составления схем, их оптимизации, расчета характеристик и определения параметров. Рассмотрен порядок моделирования различных линейных устройств: фильтров, резонансных цепей, усилителей. Представлены методики (   Читать дальше...   )Жанр: Компьютерная литература, радиотехникаИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF578B983B2998EAE02286DB7D1441054A367C15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677694   (150499) от 18.11.2023
+
+Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Sweet Mama
+02. Tooth And Nail
+03. In My Soul
+04. Fool Never Learns(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C65418BE6E2C18369B61656B62AB09AED81CC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677527   (150500) от 18.11.2023
+
+VA - Mandarin Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Tide - Roll (2:22)
+02. Steen Thottrup - Diversities (4:11)
+03. Two In Florence - Morning Time (Chill Out Mix) (3:17)
+04. Michael E & Tim Gelo - Ship To America (9:20)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C77C6C8F03D6D9E73840AA09D5C55B827A5275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677528   (150501) от 18.11.2023
+
+VA - Mandarin Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Diventa Project - Where You Goin (Lazy Hammock Mix) (4:09)
+02. Eskadet - Jardin Secret (6:46)
+03. Steen Thottrup - Compassion (Remastered) (3:51)
+04. Van - Love (2:57)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BEB45B98575B26F74E428BF2BDAAB6CD21257D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677518   (150502) от 18.11.2023
+
+VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Get That Phunk Phenomana (Original Mix) (4:23)
+02. Supercircus - I Can't Get Enough (Nu Disco Mix) (4:29)
+03. The Disco Boys - Funk Decision (2:51)
+04. Dominica - I Gotta Let U Go (Youngr Bootleg) (4:39)(   Читать дальше...   )Жанр: Club House, DiscoПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75BE21EF97FFFE71A669160F0CC258B745B91A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677532   (150503) от 18.11.2023
+
+VA - The Gate Of Oblivion (2023) [MP3|320 Kbps] <Metal, Hard-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whirlwind - Cannons Of Infuriation
+002. Attest - Reign Of Nil
+003. Ticinum - Il Muto Dall'accia Al Collo
+004. Aphyxion, Immerse - Heavy Shadows(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 09:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691276103A63D83D47D221034C29D49C627CAFA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677568   (150504) от 18.11.2023
+
+Plus Messenger (Telegram+) v10.2.9.0 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: Extra Mod + CloneРелиз состоялся: 17.11.2023Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A235A7B45DBEF5C39B187ABCD82F7150F78EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677599   (150505) от 18.11.2023
 
 Журнал | WOOD Magazine №292 (ноябрь 2023) [PDF][En]
@@ -6,7 +189,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150505.jpg" />
 </div>
 
 
@@ -31,7 +214,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150506.jpg" />
 </div>
 
 
@@ -55,7 +238,7 @@ Stellio - Music Player v6.7.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150507.jpg" />
 </div>
 
 
@@ -80,7 +263,7 @@ Icecream Photo Editor 1.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150508.jpg" />
 </div>
 
 
@@ -106,7 +289,7 @@ magnet:?xt=urn:btih:CE399296C93D00503F72A6310A525C5D41420C99
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150509.jpg" />
 </div>
 
 
@@ -130,7 +313,7 @@ magnet:?xt=urn:btih:8C6A008BAD65FC3BAE9C2742153EA4E8470577A6
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150510.jpg" />
 </div>
 
 
@@ -154,7 +337,7 @@ magnet:?xt=urn:btih:9E644A4A867CFB2284682FEF43072AB46A09EA61
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150511.jpg" />
 </div>
 
 
@@ -181,7 +364,7 @@ Topaz Video AI 4.0.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150512.jpg" />
 </div>
 
 
@@ -205,7 +388,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150513.jpg" />
 </div>
 
 
@@ -229,7 +412,7 @@ magnet:?xt=urn:btih:20224DA84131188E8A4C6E071A4BC6FE4A3F7C23
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150514.jpg" />
 </div>
 
 
@@ -254,7 +437,7 @@ n-Track Studio Suite 10.0.0.8231 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150515.jpg" />
 </div>
 
 
@@ -278,7 +461,7 @@ VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150516.jpg" />
 </div>
 
 
@@ -305,7 +488,7 @@ Evanescence - Fallen (2003) Deluxe Edition, Remastered, 2023, Craft Recordings [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150517.jpg" />
 </div>
 
 
@@ -332,7 +515,7 @@ magnet:?xt=urn:btih:A2887DAE9B6788F629FD346100CDE8E862941385
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150518.jpg" />
 </div>
 
 
@@ -356,7 +539,7 @@ magnet:?xt=urn:btih:C2C5F1812148EC25808514F7336F11CE86046866
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150519.jpg" />
 </div>
 
 
@@ -383,7 +566,7 @@ Destructor - Sonic Bulle (2003) EP [FLAC|Lossless|image + .cue] <Thrash, Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150520.jpg" />
 </div>
 
 
@@ -410,7 +593,7 @@ magnet:?xt=urn:btih:FB6B0B1F4B56479F3E51B935D85A8BCEF97DD73F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150521.jpg" />
 </div>
 
 
@@ -434,7 +617,7 @@ VA - Ibiza Winter Island 2024 (The Deep-House Edition) (2023) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150522.jpg" />
 </div>
 
 
@@ -461,7 +644,7 @@ magnet:?xt=urn:btih:B7A5A35BC6449132E1EEE44A97F01B366BEC2D92
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150523.jpg" />
 </div>
 
 
@@ -472,182 +655,6 @@ magnet:?xt=urn:btih:B7A5A35BC6449132E1EEE44A97F01B366BEC2D92
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205F82509DF5D8C69D00A7D5B69914A9704E9DB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677503   (150524) от 18.11.2023
-
-VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed - Continuous Mix CD1
-02. John Digweed - Continuous Mix CD2
-03. John Digweed & Nick Muir - FuturaScent (Intro mix)
-04. Carerra & Tavares - Mind(   Читать дальше...   )Жанр: Tech House, Progressive, Breaks, TechnoПродолжительность: 05:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7129E87426C3E200E523D7EF79E7C3E1370468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677572   (150525) от 18.11.2023
-
-Аркадий Арканов | Арканов такой, Арканов сякой (2014) [MP3, Герасимов Вячеслав]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150525.jpg" />
-</div>
-
-
-###  Подробнее
-
-А я ничего не хочу видеть. Я ничего не хочу слышать. Но я все вижу и все слышу. Я различаю каждого, но ни на ком стараюсь не задерживать своего взгляда. Приоткрытые в расслабленном ожидании рты тех, которые ничего не понимают. Тучные непробиваемые лица тех, которые ничего не хотят понимать. Подернутые злой полуусмешкой губы тех, которые все понимают и как бы спрашивают: (   Читать дальше...   )Жанр: Современная проза, юморИздательство: Нигде не купишьПродолжительность: 09:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB738AA326952CD4FA64D3BF7743F23E076F989E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677534   (150526) от 18.11.2023
-
-Поедем, поедим! Йошкар-Ола: набережная Брюгге, марийские традиции, трехэтажные блины и подкоголи (18.11.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди отправился в Йошкар-Олу и…перепутает ее с Европой! Набережная как в Брюгге, венецианские и флорентийские дворцы, и даже сыры здесь такие же, как готовят в Италии. Но ведущий нашел здесь и то, чего нет нигде в мире: марийские традиции, обряды и песни. И, конечно же, попробовал самые знаменитые блюда местной кухни: трехэтажные блины, печной суп, палыш, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB141E35EBD6C81A33934D00EBAEFAAD444D73C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677495   (150527) от 18.11.2023
-
-George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oleo [10:20]
-02. Lil's Darling [11:00]
-03. All The Things You Are [8:33]
-04. Invitation [12:20]Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769D1A766F0E7D1EB0FF8452656D5C23029776FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677547   (150528) от 18.11.2023
-
-Корова и президент / La vache et le president / The Cow and the President (2000) DVD5 [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмилетний Лукас живет вместе со своим отцом в маленькой деревне. У Лукаса есть верный друг. Как это не странно - это корова по имени Маева. Все идет прекрасно, но вдруг на ферме заболевает одна корова страшной для всех животных болезнью. Анализы покажут, что болезнь заразная и опасная и что всем коровам грозит забой. Отец Лукаса получает сообщение, что через 12 (   Читать дальше...   )Производство: Франция / Canal+ (fr), Gaumont, TF1 Films ProductionЖанр: комедия, семейныйРежиссер: Филипп МуилАктеры: Бернард Йерле, Флоранс Пернель, Мехди Ортелсберг, Кристиан Бюжо, Бернард Блох, Шарль Шнайдер, Жан-Мари Корниль, Gérard Sergue, Мишель Трилло, Патрик РомбиПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, французскийСубтитры: русские, китайские, английскиеПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B21165AF18C9912AD6A83412D6D422CC164923C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677620   (150529) от 18.11.2023
-
-Perfectly Clear WorkBench 4.6.0.2616 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B3C5B024020A22AA6159210B6432AFDC39300B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677691   (150530) от 18.11.2023
-
-Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150530.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7B919847CAEDA208613D6FB63CB019A288B041
 ```
 
 

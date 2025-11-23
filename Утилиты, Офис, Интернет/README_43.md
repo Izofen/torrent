@@ -6,7 +6,7 @@
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133258.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133325.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Disk Space Fan 4.5.4.152 Final [MULTi + Русский]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133838.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Duplicate File Remover 3.4.1257 Build 34 [Multi / Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133893.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nitro PDF Pro 14.18.1.41 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134049.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Easy Photo Recovery 6.9 Build 947 [MULTi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134353.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134353.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ DocumentsRescue Pro 6.9 build 947 [MULTi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134665.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PhotoRescue Pro 6.9 Build 947 [MULTi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135195.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135195.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136629.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Maxlim New Year 2020 2.2.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136664.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ CoolUtils PDF Combine 8.1.0.65 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136690.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Auslogics Duplicate File Finder 11.1.1.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136692.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reg Organizer 9.88 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136693.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Auslogics File Recovery 12.1.1.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136694.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136696.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Chromium 141.0.7390.108 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136709.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MathType 7.9.1.454 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136722.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ DBF Viewer 2000 8.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136736.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MassTube Ultra 21.0.3.169 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136741.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Internet Download Manager 6.42 Build 51 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136772.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ FurMark 2.10.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136775.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ OCCT 15.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136776.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ O&O Defrag Professional 30.0 Build 1069 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136777.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ FreeTube 0.23.12 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136778.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136779.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Reg Organizer 9.88 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136780.jpg" />
 </div>
 
 

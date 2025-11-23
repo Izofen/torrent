@@ -1,3 +1,75 @@
+###  Публикация: 1825410   (136753) от 17.10.2025
+
+Что за девушка у тебя / Kaj ti je deklica / Little Trouble Girls (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136753.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя Люсия присоединяется к хору католической школы, подружившись со старшей Аной-Марией. Во время выезда хора в монастырь Люсия испытывает влечение к реставратору, что создает напряженность в отношениях с Анной-Марией и ставит под сомнение ее веру.Производство: Словения, Италия, Хорватия, Сербия / Croatian Audiovisual Centre, Izazov365, Friuli Venezia Giulia Film Commission, Slovenian Film CenterЖанр: драмаРежиссер: Уршка ДюкичАктеры: Jara Sofija Ostan, Mina Svajger, Sasa Tabakovic, Наташа Бургер, Tomazin Irena, Марко Мандич, Strle Mateja, Casson Matia, Саша Павчек, Лотос Винценц ШпаровецПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, СловацкийСубтитры: Английские (Full, SDH)Продолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4982DC98872F781B332F0E457B0B2DAE97BDB478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825413   (136754) от 17.10.2025
+
+Фоны - Creative Market - Autumn Portrait Backgrounds - 5814806 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добавьте тепла и красоты осени в свои портреты с нашими осенними портретными фонами. Эти изображения высокого разрешения представляют собой разнообразные тёплые и красочные осенние пейзажи, которые идеально подойдут для придания вашим фотографиям атмосферы времени года.Формат: JPGРазрешение файлов: 4857x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A114BD89253814DCA3914B5FB05D478E4765A5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825412   (136755) от 17.10.2025
+
+Шрифты - MyFonts - Distinct Style [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте стильными с Distinct Style, модной и современной парой шрифтов для подписи и без засечек, которые идеально дополняют друг друга. Благодаря быстрому рукописному шрифту и двухнасыщенному современному шрифту без засечек дуэт Distinct Style предлагает типографическую гармонию для ваших профессиональных дизайнерских проектов, включая: логотипы, брендинг, журналы, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3362CF1125D37E377505335AEC48E5FEA4CCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825411   (136756) от 17.10.2025
 
 Malwarebytes Windows Firewall Control 6.20.0.0 [Multi/Ru]
@@ -6,7 +78,7 @@ Malwarebytes Windows Firewall Control 6.20.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136756.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Dece
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136757.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136758.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136759.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:4A01BF4D52BCFDA243C39F416F7DC4EA2F09879A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136760.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ magnet:?xt=urn:btih:FD0810B5B708AF2FE0134B3D391DB5A915E9CE9F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136761.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ magnet:?xt=urn:btih:37C447EA0B007562D65BC773A1B174AB9CD0E821
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136762.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:E68AA2476C93252F1AB102CA2E20CA2B8B75C6F2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136763.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:E05BF6288AFB5852339EAB2F0254D85E687E1D0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136764.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ Sabaton - Legends (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136765.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ magnet:?xt=urn:btih:C6EFC2C5FBB7391D3C22DDC7544FE7C952476E68
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136766.jpg" />
 </div>
 
 
@@ -287,7 +359,7 @@ magnet:?xt=urn:btih:BEC618C0B8C475FCB3CD98292F56684751F3D31F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136767.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ magnet:?xt=urn:btih:9FE944663AFECD3E04B0403BBFFCA55DE6779B96
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136768.jpg" />
 </div>
 
 
@@ -335,7 +407,7 @@ magnet:?xt=urn:btih:056048929144FA60F794562FD19BE7C7EC5044F3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136769.jpg" />
 </div>
 
 
@@ -359,7 +431,7 @@ magnet:?xt=urn:btih:EBCA9E5A68A306E2707A0326471DB72EC6C671DD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136770.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ magnet:?xt=urn:btih:A776AE0ACBB98B3A606C4E1DC4870827A9FE5BBF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136771.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ Internet Download Manager 6.42 Build 51 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136772.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136773.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ magnet:?xt=urn:btih:440E4501374424FFC4B41159E665377F1FCBC26C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136774.jpg" />
 </div>
 
 
@@ -479,7 +551,7 @@ FurMark 2.10.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136775.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ OCCT 15.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136776.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ O&O Defrag Professional 30.0 Build 1069 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136777.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ FreeTube 0.23.12 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136778.jpg" />
 </div>
 
 
@@ -565,78 +637,6 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE10B8D45A8CC0E095B2624CC1E03DF86E436315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825371   (136779) от 17.10.2025
-
-MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136779.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F13A7E474AE2DE13BEB2A669BF2B379F94F7868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825370   (136780) от 17.10.2025
-
-Reg Organizer 9.88 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7774091FBA32672AFE60BD61F045E6C698A14AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678455   (136781) от 17.10.2025
-
-STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в будущее космических войн! В игре Star Fleet II: Krellan Commander вам предстоит управлять современным космическим крейсером и исследовать сектора, сражаться с вражескими кораблями, брать их на абордаж и захватывать планеты. Эффективно управляйте своим кораблем, экипажем и эскортом и найдите путь к победе. 35 галактических регионов с более чем 1700 (   Читать дальше...   )Тип издания: LicenseРазработчик: Trevor Sorensen, Mark BaldwinЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
 ```
 
 

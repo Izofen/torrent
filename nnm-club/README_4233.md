@@ -1,3 +1,84 @@
+###  Публикация: 1525054   (130015) от 19.01.2022
+
+VA - The Best of Transensations 2021 (2022) [AAC|~332 Kbps] <Progressive House, Melodic House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K Loveski, Gorkiz - Echos of Eons (Greenage Remix) (6:57)
+02. Emphi - Pair of Dice (Kabi AR Remix) (8:17)
+03. Toñaco - Angle Renovation (NOIYSE PROJECT Remix) (8:15)
+04. Ortus (BR) - Lua (Binaryh Remix) (6:43)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86102024E3C9BFD4FE1F91A57B504DE07E1CC64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525055   (130016) от 19.01.2022
+
+VA - 5 Years of Nazca compilation (2022) [AAC|~335 Kbps] <Organic House, Melodic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Suruba - En Las Dalias (7:09)
+02. Thimble - War Pipes (7:31)
+03. Thodoris Triantafillou, Angeliki - Contact (Innellea's First Acid Accident Remix) (7:25)
+04. Sandhog - La Bala Perdida (Jenia Tarsol remix) (6:58)(   Читать дальше...   )Жанр: Organic House, Melodic HouseПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA5C684E55CA874AF151BDB4C1FA1DE9F54BF02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525084   (130017) от 19.01.2022
+
+Lionel Hampton - The Complete Lionel Hampton Quartets And Quintets With Oscar Peterson On Verve (1953 - 1954) 5CD, 1999, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130017.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Always [8:02]
+02. 'S Wonderful [7:23]
+03. Air Mail Special [7:38](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 06:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F024FD7FC63D7B37FBBA95FE5C8E09C73A134F9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490532   (130018) от 01.05.2012
 
 VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -6,7 +87,7 @@ VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130018.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ iStatistica Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130024.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:00A0A24FC48F49429A1DBA9C23CA0E11947655FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130025.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130026.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:372ECDF1302B15433C65A31D4D06EE7369A75625
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130027.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130028.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ VA - Клубные Новинки Vol.68 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130029.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:6FF6F849A580AF10F5C8AECC9472412B350EAF3C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130030.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130031.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:31B617608B8784C0E498D94859C9DC8073A95AE0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130032.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ magnet:?xt=urn:btih:B74124AA57D15EDAFFBB9836FAC0F2DE05DF1A40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130033.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ magnet:?xt=urn:btih:6D8FD2221C423AE21773B434FF1D7BCEA5210F35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130034.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:D476448B4D6CBFB6BD1507F907BC0DF59A238521
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130035.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130036.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130037.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ Nova 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130038.jpg" />
 </div>
 
 
@@ -415,7 +496,7 @@ VA - Зарубежные Новинки Vol.45 from AGR (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130039.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130040.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130041.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ DoYourData Start Menu Pro 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130042.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ Sandboxie 5.55.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130043.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Windows® XP SP3 XTreme™ WinStyle Water 15.04.2012 + DriverPacks (SATA/RAID) [
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130044.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ Windows® XP SP3 XTreme™ WinStyle Water 15.04.2012 + DriverPacks (SATA/RAID) [
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130045.jpg" />
 </div>
 
 
@@ -592,78 +673,6 @@ Windows® XP SP3 XTreme™ WinStyle Water 15.04.2012 + DriverPacks (SATA/RAID) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92402AF96A9F8169CB27D828C07EE4D29928705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525102   (130047) от 19.01.2022
-
-Питер Мейл | Хороший год (2020) [MP3, Павел Конышев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год у Макса не задался. Он лишился работы и надежды расплатиться с долгами. И вдруг он получает в наследство усадьбу дяди Генри в Провансе с обширным виноградником. Макс едет туда, намереваясь побыстрее продать землю и дом. Однако жизнь в Провансе пришлась ему по вкусу, к тому же все его мысли теперь занимает красавица Фанни, независимая и своенравная. Внезапно из (   Читать дальше...   )Жанр: Легкая проза, Современная зарубежная литератураПеревод: Инна СтамПродолжительность: 09:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456974194FB22B24333FC7755629F158D4374BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491009   (130048) от 02.05.2012
-
-Adobe Photoshop CS6 13.0 RePack by MarioLast (32-bit) [Русский, Украинский, Английский] (Сборка от 02.05.2012)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации графики, цветоделения и т.д. Adobe Photoshop располагает всеми методами работы с точечными изображениями, при этом имеет возможность работы со слоями и использует контуры. Программа является безусловным лидером среди профессиональных графических редакторов за счет своих широчайших возможностей, высокой эффективности и скорости работы. Adobe Photoshop предоставляет все необходимые средства для коррекции, монтажа, подготовки изображений к печати и высококачественного вывода.Название программы: Photoshop CS6Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525276   (130049) от 19.01.2022
-
-Янн Мартел | Жизнь Пи (2020) [MP3, Денис Белых]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130049.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Жизнь Пи" почти мгновенно стала легендой. Книга получила престижные премии и собрала вокруг себя целый культ поклонников. Фантастическое путешествие юноши и бенгальского тигра, описанное в романе, перекликается с повестью "Старик и море", с магическим реализмом Маркеса и с абсурдизмом Беккета. Книга стала не только бестселлером, но и символом (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Анна И. Блейз, Игорь АлчеевПродолжительность: 10:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71871673742E62B56FDD7265D61FBC5310CCDE51
 ```
 
 

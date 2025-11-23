@@ -1,3 +1,76 @@
+###  Публикация: 1677129   (152060) от 16.11.2023
+
+uTorrent Pro 3.6.0 Build 46922 Stable Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152060.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA416DFE7B668F88B4A36902CB5C1A055C5D2E94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434483   (152061) от 24.12.2020
+
+Net Worth Pro 2 v3.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Net Worth Pro - отслеживайте свою чистую стоимость, используя собственные категории активов и пассивов. Применяйте собственные теги к категориям. Поддерживает активы и обязательства в иностранной валюте.
+Чистая стоимость - это самый важный показатель ваших личных финансов. Отслеживание вашего собственного капитала дает вам наиболее точную картину вашего полного финансового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176310E5F28E4D8520DC4C404BA74615F5EC826C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347546   (152064) от 23.12.2019
+
+А.В. Исаев и др. | Битва за Крым 1941-1944 гг. (2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый суперпроект ведущего военного историка. Самое полное, фундаментальное и авторитетное исследование обороны и освобождения Крыма в 1941-1944 гг., основанное на документах не только советских, но и немецких архивов, большинство которых публикуются впервые. От прорыва Манштейна через Перекопские позиции до провала первых штурмов Севастополя, от Керченско-Феодосийской (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A112D97941CF667E04DA81B789CE167487F9282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434342   (152071) от 24.12.2020
 
 iLock 3.1.1 [En]
@@ -6,7 +79,7 @@ iLock 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152071.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ Reg Organizer 9.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152073.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Brave Browser 1.1.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152077.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Movavi PDF Editor 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152084.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ ReviverSoft Driver Reviver 5.32.0.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152088.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ BluePlum Home Inventory 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152091.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ The Shooters - Planet Of The Black Sun (2012) [MP3|320 кб/с]<Stoner Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152094.jpg" />
 </div>
 
 
@@ -184,7 +257,7 @@ magnet:?xt=urn:btih:E43CC8B5CFDE4C2023C5BF007CB262681DA32E1E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152097.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ Lacey Free Music & Video Downloader 2.34 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152100.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ magnet:?xt=urn:btih:8E61F188569127791D0AEC9108CF1928A1D22DC8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152107.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ AM Privacy Protector for Windows 10 1.0.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152108.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ WinToUSB Technician 7.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152111.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ magnet:?xt=urn:btih:6E570F7C01097F499C278950CCC558802AC5B7EC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152120.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:31F3351C5463EFDFA6CC288D9E3D67C3DDE5F9DB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152121.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ Everything 1.4.1.924 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152126.jpg" />
 </div>
 
 
@@ -378,7 +451,7 @@ VueScan Pro 9.7.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152146.jpg" />
 </div>
 
 
@@ -402,7 +475,7 @@ magnet:?xt=urn:btih:D2B5E48AC4B4B8E4D5F876C77F114E60792A8A5B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152149.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ Ventoy 1.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152152.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ Combo Cleaner Antivirus Premium 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152154.jpg" />
 </div>
 
 
@@ -476,7 +549,7 @@ IObit Driver Booster Pro 3.1.1.457 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152156.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1115) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152157.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ magnet:?xt=urn:btih:A1302CE1F979620C25BC9483D0B0019CD59CC7E5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152158.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ MAGIX Vegas Pro 19.0 Build 458 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152161.jpg" />
 </div>
 
 
@@ -562,78 +635,6 @@ MAGIX VEGAS Pro 19 предоставляет вам все необходимы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B7387273DDADB652C2EB75BA5AE20D553AE495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195126   (152163) от 27.12.2017
-
-Журнал | Война и Отечество №1 (2018) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152163.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом номере журнала "Война и Отечество" оригинальные версии событий военной истории России. Постоянные темы нашего журнала - Война, Родина, Героизм, Патриотизм, Архивная информация и комментарии именитых специалистов. Самое главное в журнале "Война и Отечество" нет никаких выдумок! Все, о чём пишут наши журналисты – это достоверные проверенные (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A7B7D31B5F0FF307BABD054D7B4F377B95F169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347587   (152167) от 23.12.2019
-
-Slimjet 25.0.1.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FAFFCFDE2CADD0EF7061512D459BF783B5A7B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601265   (152170) от 30.12.2022
-
-FanControl V142 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152170.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598FE77815402077703A4AFC23916B9E8EA09107
 ```
 
 

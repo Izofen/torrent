@@ -6,7 +6,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123016.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123018.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123142.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123163.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ IAmTimCorey, Tim Corey | Blazor From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123165.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:267A25DFD81D37D5346906D8A1A00B79A05EE66A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123177.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4DE6DC6B16B0961D4A26F2962FB5241FA2C2729C
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123189.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123192.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123205.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123214.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123357.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:23BDAE0E316B53618B27E27162284D0C123D65AE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123463.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123522.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:B8EE66E8862CAE7C31E53DF7E0FC141100B701A7
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123603.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:F006BFA52F081E9ED260C3A79936E08C66FDA375
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123689.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123707.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123732.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123799.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:4D58126A9FC59B53D28012AEB3B9097AC0140615
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123840.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123847.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Linkedin Learning, Liam Cleary | Metasploit Essential Training (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123850.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123866.jpg" />
 </div>
 
 

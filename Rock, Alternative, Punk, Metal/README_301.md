@@ -1,3 +1,30 @@
+###  Публикация: 1595063   (176251) от 04.12.2022
+
+Плавица - Плавица (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нить [00:04:03]
+02 - Вдыхай (2022 Remastered) [00:04:04]
+03 - Палитра [00:02:49]
+04 - Пьедестал (2022 Remastered) [00:03:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595107   (176256) от 04.12.2022
 
 Австерия - 5 Albums (2020-2022) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +33,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176256.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176256.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176264.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ That Joe Payne - Ding Dong (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176267.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176267.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176270.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Meteora - …of Shades and Colours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176273.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176273.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176276.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176276.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176280.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176280.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176283.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176283.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Who Dies in Siberian Slush - 4 Albums (2013-2020) [MP3|320 Kbps] <Funeral Doom, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176286.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176286.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Panzerkreuzer - 2 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Old School D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176287.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Newman - Into The Monsters' Playground (2021) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176289.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176289.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176309.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ LiveWire - Under Attack! (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176311.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176311.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ Metaltouch - Zero Radicalism (2022) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176315.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176319.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176325.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ Heron - Empires of Ash (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176327.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ Gavran - Indistinct Beacon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176332.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Evanescence - Synthesis (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176407.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176407.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ Annisokay - Aurora (2021) [MP3|320 Kbps] <Alternative Metal, Hardcore, Post-Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176609.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176609.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) EP [MP3|320 Kbps] <Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176626.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176626.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ Paul McCartney - The 7” Singles (2022) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176646.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176646.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ magnet:?xt=urn:btih:D0391539718231BB44CD0B693F4D6729145DFFB1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177147.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177147.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ magnet:?xt=urn:btih:67C0B45B61EEA5E6DC27068F28EB34717EAEFB90
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177155.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177155.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ magnet:?xt=urn:btih:36B11E0AA8EBDCDB296FEBA28E65206DECB4F3FB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177199.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177199.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:36B11E0AA8EBDCDB296FEBA28E65206DECB4F3FB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4E570F61F77A90DEC608A2D5B6F107E32635BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594739   (177226) от 02.12.2022
-
-Disturbed - Divisive (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey You 4:28
-02. Bad Man 3:22
-03. Divisive 3:58
-04. Unstoppable	3:58(   Читать дальше...   )Жанр: Groove Metal, Nu MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AB0DB915C647E71C19D3B45C0C4B1CBE2B985B
 ```
 
 

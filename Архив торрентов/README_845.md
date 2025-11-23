@@ -1,3 +1,99 @@
+###  Публикация: 1510792   (168933) от 07.12.2021
+
+Waves - Complete V13 13.0.10 (2021.12.05) VST, VST3, AAX, STANDALONE (x64) Online Installer [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью законченный парк виртуальных эффектов и инструментов от A до Z наивысшего качества и с поддержкой 64-разрядных систем! С более быстрыми сканированием, загрузкой и обработкой, Waves V13 открывает новые измерения мощности высокопроизводительных плагинов. Пожалуй, самое известное имя в мире среди производителей профессиональных аудио эффектов обработки. Мастеринг, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80820E7549AA5C18126DF8EA7C83326879064F85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672436   (168962) от 28.10.2023
+
+RAR for Linux 6.24 [x32, x64] (tar.gz)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168962.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAR - это консольное приложение, позволяющее управлять архивными файлами в режиме командной строки. RAR обеспечивает сжатие, шифрование, восстановление данных и многие другие функции, описанные в руководстве пользователя (rar.txt). RAR поддерживает только архивы формата RAR, которые по умолчанию имеют расширение имени файла .rar. ZIP и другие форматы не поддерживаются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1D515A131741D67418CA215AE4EFFA81E6DDAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672427   (168969) от 28.10.2023
+
+Аналоги лекарств, справочник v3.0.5 Mod by vadj [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник лекарств с возможностью поиска дешевых аналогов к дорогим лекарствам. Подбор дженериков с аналогичным действующим веществом, и с указанием актуальной цены. Теперь у пользователя есть выбор, какое лекарство ему приобрести и сколько при этом потратить. Сэкономьте на дорогих препаратах используя дешевые аналоги. Для работы требуется интернет.Тип издания: AdfreeРелиз состоялся: 23.10.2023Разработчик: Involta.RuПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D197B087FA6714FB9C630D42036791512F44D8DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596744   (168972) от 11.12.2022
+
+SophiApp 1.0.90 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168972.jpg" />
+</div>
+
+
+###  Подробнее
+
+SophiApp — это графический наследник Sophia Script for Windows. Бесплатная и полностью опенсорная программа для тонкой настройки Windows 10 и Windows 11. SophiApp предлагает современные UI/UX, более 130 твиков, и показывает как можно настроить Windows официальными методами, ничего не сломав в ОС. Правильная работоспособность программы гарантируется лишь в при использовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75FD0E6036C32C2032BB0280DFCFE0BE28846CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596764   (168988) от 11.12.2022
 
 Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
@@ -6,7 +102,7 @@ Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168988.jpg" />
 </div>
 
 
@@ -31,7 +127,7 @@ KeepStreams 1.1.9.7 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169008.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ WinCatalog 2024.3.4.1023 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169012.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ Melon VPN - Secure Proxy VPN 7.9.535 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169014.jpg" />
 </div>
 
 
@@ -106,7 +202,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 26) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169020.jpg" />
 </div>
 
 
@@ -132,7 +228,7 @@ BetterTouchTool 3 v3.213 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169024.jpg" />
 </div>
 
 
@@ -156,7 +252,7 @@ HiBit Uninstaller 3.0.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169026.jpg" />
 </div>
 
 
@@ -181,7 +277,7 @@ CherryPlayer 3.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169029.jpg" />
 </div>
 
 
@@ -206,7 +302,7 @@ Mozilla Thunderbird 68.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169030.jpg" />
 </div>
 
 
@@ -230,7 +326,7 @@ magnet:?xt=urn:btih:D11452078F54E4B2961C31557CCAD51AE9749651
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169031.jpg" />
 </div>
 
 
@@ -254,7 +350,7 @@ Calibre 5.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169042.jpg" />
 </div>
 
 
@@ -278,7 +374,7 @@ Ashampoo Burning Studio 23.0.0.38 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169047.jpg" />
 </div>
 
 
@@ -302,7 +398,7 @@ WidsMob Panorama 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169049.jpg" />
 </div>
 
 
@@ -327,7 +423,7 @@ calibre 5 v5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169052.jpg" />
 </div>
 
 
@@ -351,7 +447,7 @@ ByClick Downloader Premium 2.3.18 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169057.jpg" />
 </div>
 
 
@@ -375,7 +471,7 @@ Artlantis 2019 v8.0.2.21219 RedSDK [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169060.jpg" />
 </div>
 
 
@@ -399,7 +495,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169062.jpg" />
 </div>
 
 
@@ -424,7 +520,7 @@ magnet:?xt=urn:btih:95467C26B365A4DCDA284E8D5ECA7CE840F29427
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169066.jpg" />
 </div>
 
 
@@ -448,7 +544,7 @@ Charles Web Debugging Proxy 4.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169068.jpg" />
 </div>
 
 
@@ -473,7 +569,7 @@ Display Maestro 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169074.jpg" />
 </div>
 
 
@@ -498,7 +594,7 @@ iShowU Studio 2 v2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169077.jpg" />
 </div>
 
 
@@ -524,7 +620,7 @@ MacCleanse 9.0.4 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169082.jpg" />
 </div>
 
 
@@ -535,105 +631,6 @@ MacCleanse 9.0.4 Pre-Release [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:881E862DCF8148172DC37053AAB98A89F07BBDC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431046   (169084) от 12.12.2020
-
-Alarm Clock Pro 13 v13.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
-
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEBFDBD35B08F7128D1EBA0A7F9FB7018595F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515545   (169085) от 07.12.2021
-
-VeraCrypt 1.25.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169085.jpg" />
-</div>
-
-
-###  Подробнее
-
-VeraCrypt - бесплатный инструмент для шифрования «на лету», форк закрытого проекта TrueCrypt с открытым исходным кодом. VeraCrypt примечателен заменой используемого в TrueCrypt алгоритма RIPEMD-160 на SHA-512 и SHA-256, увеличением числа итераций хэширования, упрощением процесса сборки для Linux и OS X, устранением проблем, выявленных в процессе аудита исходных текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2D9A57BEA6388137847F970E2DF245D70B6090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344922   (169086) от 12.12.2019
-
-Сэнди Холл | Немножко по-другому (2019) [EPUB]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лия и Гейб ходят на один курс писательского мастерства. Они узнают одинаковые отсылки к поп-культуре, заказывают одну и ту же китайскую еду и зависают в одних и тех же местах. Но, как это часто бывает, Лия слишком неприступна, а Гейб слишком застенчив, чтобы у них что-то могло получиться.
-Для всех вокруг очевидно, что эти ребята созданы друг для друга. Друзья, однокурсники (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB6A377D339F5F9D32F6ED286832CE7F7216E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431230   (169088) от 12.12.2020
-
-SyncBird Pro 3.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169088.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: MiniCreoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBDD0E7896FA5FB47274F73FE668C2B8DD1C59C
 ```
 
 

@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14740.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CAA2417FE63A1D36BA8454CD10893A55AD84D8F5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14741.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14742.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14743.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14744.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14745.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:7789D2F804206F04BB4B204EC12AB392CC5C68A1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14746.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C143142F18D3A152274A9C90835883850C0B1966
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14747.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:423D318CF443D0F1D04F5F627742AED61F9E98A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14748.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:10379FE12409126CED2CC1A377196EC0E9243C68
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14749.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Saxon - Eagles Over Hellfest (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14750.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wildheart - Wild 'N Three (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14751.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Queen - Epic (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14752.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Minimal Audio - Effect Bundle 2025.6.12 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14753.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E46146CAC5C67C2C899230B23371B7668D680158
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14754.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:1EAE2ECBACD59F89AF34DC4A31B7C0733C45ACC4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14755.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:93E403D921A1DC91DD711AB362FE68474463753D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14756.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Solid Explorer File Manager v2.8.63 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14757.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:88CE175946253C5633AF1E6B7686FA184BC28C15
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14758.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:819FD5B6B751A666A454EBB67CBC1B6B38D87C22
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14759.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:83B98E26229016A57BAA952AB922F6B7636750DF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14760.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14761.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8C61D6CFFD70B539B0E1B00E8D59C927CD802D8C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14762.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A45E64F689075961675EE4D5EEB0A8C426470F87
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14763.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:C25E0964767E8EC829EE28A81D74EAC81FBA661A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14764.jpg" />
 </div>
 
 

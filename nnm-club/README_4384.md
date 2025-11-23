@@ -1,3 +1,75 @@
+###  Публикация: 1679697   (135151) от 26.11.2023
+
+Зовите Ермолова! (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Ермолов, успешный хирург и грамотный диагност. Его жизнь превращается в кошмар, когда его обвиняют в смерти пациентки. Пока он пытается доказать свою невиновность, медсестра Настя, полагаясь на репутацию Ермолова, отправляется с тяжелобольной сестрой Лизой в Москву, уповая на его помощь...  Жизнь Андрея рушится: обвинения ставят под сомнение его профессионализм, (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: Драма, мелодрамаРежиссер: Алексей ПраздниковАктеры: Владимир Колганов, Любовь Виролайнен, Анастасия Филиппова, Яков Шамшин, Станислав Беляев, Наталья Высочанская, Виталий Такс, Софья Юрко, Михаил Сидаш, Вера СоловьёваПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0A75AE91E49521D3114B0A3F2AE9A23833C903
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592844   (135152) от 23.12.2012
+
+Protoxide: Death Race rus [Игра] (Symbian^3)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Protoxide: Death Race - это интересный симулятор гонок на выживание от компании Herocraft с изумительной HD-графикой и динамичным геймплеем.Тип издания: лицензияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679589   (135153) от 26.11.2023
+
+Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyCharm, 2nd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135153.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете все необходимое для того, чтобы полностью раскрыть потенциал PyCharm и максимально эффективно использовать его возможности. В книге подробно рассматриваются различные темы, начиная с установки и настройки, заканчивая веб-разработкой, управлением базами данных и созданием конвейеров анализа данных, что поможет вам приобрести навыки разработки (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679810   (135155) от 26.11.2023
 
 Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting and Editing Tutorial (2020) PCRec [EN]
@@ -6,7 +78,7 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135155.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Henry S. Warren, Jr. | Алгоритмические трюки для прог
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135156.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135157.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:1C4C204339096824987DD811B31A0F3A3695E874
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135158.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135159.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ magnet:?xt=urn:btih:832856FFBBE75DB971BE7097EC6DFDA3C5DD7A59
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135161.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135162.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ magnet:?xt=urn:btih:7E408DE9AC82504096704940BB84E21215EBF8B5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135163.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ magnet:?xt=urn:btih:A4ACADD622BC67E6EEB3118354D270FCE4461F16
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135164.jpg" />
 </div>
 
 
@@ -238,7 +310,7 @@ Template for MS PowerPoint for Mac 6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135165.jpg" />
 </div>
 
 
@@ -262,7 +334,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135167.jpg" />
 </div>
 
 
@@ -286,7 +358,7 @@ magnet:?xt=urn:btih:6AA5EC785665EA040FD4B628181B1C9161F85C33
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135168.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ CDRConverter for CorelDRAW on Mac 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135169.jpg" />
 </div>
 
 
@@ -335,7 +407,7 @@ LuninuX OS 12.10 [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135170.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135170.jpg" />
 </div>
 
 
@@ -361,7 +433,7 @@ LuninuX OS 12.10 [i386 + amd64] (2xDVD)
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135171.jpg" />
 </div>
 
 
@@ -385,7 +457,7 @@ magnet:?xt=urn:btih:F1970B0417EA41E60D28CAF0C614E99A29CE0F83
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135172.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:F13D4A3952420011965495CDBB1438D00C3669A9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135173.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ magnet:?xt=urn:btih:6BAC0C200E198584E120D503C105E15FD19C899A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135175.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ magnet:?xt=urn:btih:C6A9C4314747109488DE3BE659CE4FE641A6BDB6
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135176.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ VA - Легенды Русского Рока I (1996) 6CDs Box-Set [MP3|320 kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135177.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:C9F6484AAFCBAC4462862F2E6BBF8FDAB3058227
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135178.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135179.jpg" />
 </div>
 
 
@@ -570,7 +642,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135181.jpg" />
 </div>
 
 
@@ -584,82 +656,6 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5971B37EF42D41966873694B5CA30507945475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679628   (135182) от 26.11.2023
-
-Формула 1. Сезон 2023. Этап 23. Гран-при Абу-Даби. Квалификация (25.11.2023) WEBRip [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135182.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 ноября 2023, суббота 17:00 МСК. Этап 23, Абу-Даби, ОАЭ. Гран-при Абу-Даби. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6C8292807BA0601351A89EA2FB2941EBEB81D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679659   (135183) от 26.11.2023
-
-Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New Age Music for Making Love (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Game (4:07)
-02. Wild Energy (4:08)
-03. Tantric Background Masters (3:48)
-04. First Experience (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5B014620C3D02477D356E96F72988179C758DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679761   (135184) от 26.11.2023
-
-AllDup 4.5.56 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135184.jpg" />
-</div>
-
-
-###  Подробнее
-
-AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
-Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AA3F602A7189839665826CDECAF01B285A5F07
 ```
 
 

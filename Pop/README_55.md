@@ -6,7 +6,7 @@ Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F32685597A66DD3285BE6D9CA79E1C495A0B068C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131489.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131833.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD BoxSet[MP
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131940.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132044.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132352.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Michiel Van Der Kuy Dance With Me  Ultimate Collection Part 3 (2022) [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132368.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132376.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132493.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - 1993% ХИТОВ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132965.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - 1993% ХИТОВ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132967.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Fancy - Viva La Vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133350.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133513.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:3FCE8DF1BB36F62D15493A5F080BD80CDD4A3599
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133710.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133875.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:BCCB4734CB086F91B88581347A94F5A5E978876E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134468.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135200.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136383.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Yellow Claw - Blood For Mercy (2015) 10th Anniversary,  Remaster, 2025, Mad Dece
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136757.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136758.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:411DE8F297D0E955C78DF819851F9168813DEEBA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136759.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Deborah Washington - Love Awaits (1979) LP [MP3|320 Kbps] <Electronic, Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137443.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Deborah Washington - Any Way You Want It (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137452.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137495.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137627.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137654.jpg" />
 </div>
 
 

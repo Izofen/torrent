@@ -1,3 +1,178 @@
+###  Публикация: 1597941   (165087) от 16.12.2022
+
+Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165087.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B04C35B0D5CCD931C6492974B15A6A2772D50D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345991   (165088) от 17.12.2019
+
+JRiver Media Center 26.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165088.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B420C73AB0CE405EC42A82F35389EBB4EDD678CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597787   (165089) от 16.12.2022
+
+Вдовец / Il vedovo (1959) WEBRip [H.264/1080p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберто Нарди - молодой человек, полный энтузиазма, стремится к большому бизнесу, но не имеет возможностей, необходимых для его успешного осуществления. В результате своего опасного желания, Альберто часто попадает в серьезные неприятности и вынужден прибегать к помощи своей жены Эльвиры, богатой и мудрой женщины. Но однажды Эльвира, устав от безумства мужа, отказывает (   Читать дальше...   )Производство: Италия / Cino del Duca, PaneuropaЖанр: КомедияРежиссер: Дино РизиАктеры: Альберто Сорди, Франка Валери, Ливио Лоренцон, Нандо Бруно, Руджеро Марчини, Марио Пассанте, Энцо Петито, Нанда Примавера, Розита ПисаноПеревод: Многоголосый профессиональный (СВ-Дубль)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FEB5AAD0F463AEDAA50989EF291A0B64EB0332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516821   (165090) от 12.12.2021
+
+CloudBeats: Cloud Music Player 1.8.3 PRO [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет нужды качать и хранить аудио-контент на телефон и забивать объём памяти.
+CloudBeats - облачный музыкальный проигрыватель. Скачали в облако и прямо оттуда слушайте он-лайн и офф-лайн.
+Если вам нужен автономный облачный проигрыватель и одновременно инструмент для синхронизации всех ваших музыкальных альбомов и загрузки песен на несколько устройств, этот облачный (   Читать дальше...   )Тип издания: Пиратка (Pro)Разработчик: CloudBeatsПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF92B35C6587E8192A19D8855494F6EDDC76907F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673506   (165091) от 01.11.2023
+
+MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SEX
+2. Шишки (Колбасный Цех 3)
+3. Колбасный Цех 2
+4. Дискотэка(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345194   (165092) от 17.12.2019
+
+Ирвин Уэлш | Эйсид-хаус [сборник] (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безумный. Волнующий. Возмутительный. Все это – о сборнике короткой прозы Ирвина Уэлша, одного из самых скандальных британских писателей конца XX – начала XXI века, автора культового контркультурного романа «На игле». Издание содержит двадцать два рассказа. По трем из них в 1998 году был снят фильм «Кислотный дом».
+
+Используя диаметрально противоположные подходы – (   Читать дальше...   )Жанр: Современная зарубежная проза, контркультураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14DB282EC1412A247CB44A82BEB48FAA52FE72D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432195   (165093) от 16.12.2020
+
+Ирина Френк | Английский язык. Прописи (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пособии вы найдете задания на отработку написания различных элементов письма, букв и простых слов английского языка. В книге даются правила написания как печатных букв, так и прописных. К каждому звуку даны правила чтения. В процессе обучения помогут занимательные головоломки и дидактические упражнения, направленные на запоминание букв английского алфавита (   Читать дальше...   )Жанр: Прописи для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60A4FA82EB9CF65C8787A9B57D4A6B7D7DB050D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516795   (165094) от 12.12.2021
 
 VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +181,7 @@ VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165094.jpg" />
 </div>
 
 
@@ -33,7 +208,7 @@ Rhinoceros 7 v.7.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165095.jpg" />
 </div>
 
 
@@ -58,7 +233,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165096.jpg" />
 </div>
 
 
@@ -82,7 +257,7 @@ magnet:?xt=urn:btih:E3C7FDA06E3AD25FB29E2228FE5CB119D3787E4B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165097.jpg" />
 </div>
 
 
@@ -106,7 +281,7 @@ magnet:?xt=urn:btih:9996E1C6224F0D5EE25FA480EA82D0D0E036C925
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165098.jpg" />
 </div>
 
 
@@ -130,7 +305,7 @@ GProject Blues Band - We're Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165099.jpg" />
 </div>
 
 
@@ -157,7 +332,7 @@ magnet:?xt=urn:btih:1BA43D42897D0A231F650A048A3D645CD7CD28D0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165100.jpg" />
 </div>
 
 
@@ -181,7 +356,7 @@ Firefox Browser ESR 102.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165101.jpg" />
 </div>
 
 
@@ -205,7 +380,7 @@ magnet:?xt=urn:btih:CF014C3E93EC3238B88331C50E6D7358FB32F400
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165102.jpg" />
 </div>
 
 
@@ -229,7 +404,7 @@ magnet:?xt=urn:btih:FD7CF2A7B3EE0E2F1CDFF0235106075701F9C402
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165103.jpg" />
 </div>
 
 
@@ -253,7 +428,7 @@ magnet:?xt=urn:btih:858EA4BE6808B0F0DD8B9B8E991A7E4FD625F9CF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165104.jpg" />
 </div>
 
 
@@ -277,7 +452,7 @@ Richard Madden - Second Nature (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165105.jpg" />
 </div>
 
 
@@ -304,7 +479,7 @@ Microsoft PowerToys 0.75.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165106.jpg" />
 </div>
 
 
@@ -328,7 +503,7 @@ VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165107.jpg" />
 </div>
 
 
@@ -355,7 +530,7 @@ Cristiano Filippini's FLAMES OF HEAVEN - The Force Within (2020) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165108.jpg" />
 </div>
 
 
@@ -382,7 +557,7 @@ Bello Band - Who Cares...? (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165109.jpg" />
 </div>
 
 
@@ -409,7 +584,7 @@ Easy Data Transform 1.38.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165110.jpg" />
 </div>
 
 
@@ -433,7 +608,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165111.jpg" />
 </div>
 
 
@@ -457,7 +632,7 @@ magnet:?xt=urn:btih:97882B3E7BEDD63B71250EECEDDAA579A6C0D033
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165112.jpg" />
 </div>
 
 
@@ -468,187 +643,6 @@ magnet:?xt=urn:btih:97882B3E7BEDD63B71250EECEDDAA579A6C0D033
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44EEEB26CEC1CAE95EB1452E9F671B3D50A60378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597913   (165113) от 16.12.2022
-
-VA - Enhanced Music Best Of (Mixed by Tritonal) (2022) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klur - Entangled (Extended Mix)
-02. Klur & Hildur Ottilia - Heart To Heart (Extended Mix)
-03. Modera & Phoebe Tsen - Lotus Flower (Extended Mix)
-04. Sound Quelle & Lauren L'aimant - Colours (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9F7D4E325852EA93E64E289BBC84EC5535CA4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346032   (165114) от 17.12.2019
-
-VideoDuke 1.5 (build 257) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши! Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497DE0A610A6233D1F16F773543809E8C2B11F98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516802   (165116) от 12.12.2021
-
-Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdom | Герой-рационал перестраивает королевство [2021, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165116.jpg" />
-</div>
-
-
-###  Подробнее
-
-«О, наш герой!» - стандартная фраза, которой встречают Кадзую Сому жители иного мира. А ведь им действительно нужен новый герой!
-Но парень о героизме и не мечтает, он более чем практичен — никакой романтики, ведь теперь он у престола и обручён с принцессой Лисией Эльфриден. Экономика страны, в которой он оказался, терпит крах — нужна подмога. Кадзуя должен собрать (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиПеревод: SRsubs (эпизоды 1-4), AniLibria (эпизоды 5-13)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0BAD6CB759137D24048EA3406C8EF3EA8764C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346052   (165117) от 17.12.2019
-
-Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Abstract Hop, Jazz Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ararat Valley (3:21)
-02. Spice Lahore (2:48)
-03. Montego Bay (3:01)
-04. Africa's Calling (2:52)(   Читать дальше...   )Производство: Melting RecordsЖанр: Hip-Hop, Instrumental Hop, Abstract Hop, Jazz Hop, Trip HopПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E0D97876D128A6B7B8692592DD3E4112A75BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432241   (165118) от 16.12.2020
-
-Room Arranger 9.6.0.621 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07144151CACD034F5EDC883CC328CC99D6850607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516743   (165119) от 12.12.2021
-
-Олеся Жукова | 365 дней до школы. Тренируем мышление и логику (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаметно пролетело время, ваш малыш вырос, и уже через год наступит новый этап в его жизни — он станет первоклассником. Главная задача заботливых и внимательных родителей сделать так, чтобы ребёнок чувствовал себя в школе уверенно и комфортно.
-Серия книг "365 дней до школы" вам в этом поможет, так как создана специально для будущих первоклашек. С помощью (   Читать дальше...   )Жанр: Рабочая тетрадь/Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687005CB3D61E1E4789E1149286B0045C009903A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597897   (165120) от 16.12.2022
-
-VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - Is It True (Extended Mix) [6:54]
-02. Markus Schulz & Copini - Atlas (Extended Mix) [4:17]
-03. BT - Flaming June (Dan Thompson Extended Remix) [7:16]
-04. Ciaran McAuley & Susie Ledge - You're Never Alone (Extended Mix) [7:16](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3882880078EBBF670F2F10625D1610BF5B35BD02
 ```
 
 

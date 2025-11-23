@@ -6,7 +6,7 @@ Metasequoia 4 v.4.8.4b [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155749.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Teorex iResizer 3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155770.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DjVu Reader Pro 2.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155786.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Notebooks – Write and Organize 3.0.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155869.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Fission 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155941.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Integrity Plus 10.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156195.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Rogue Amoeba Farrago 1.6.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156300.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Capture One 20 Pro 13.1.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156320.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Lingon X 6.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156373.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Hazel 3.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156783.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Desk 3 v1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156785.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ itsMine Video Watermark Maker Pro 2.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157238.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ LRTimelapse Pro 5.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157286.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Serviio Pro 2.2.1 CR2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157329.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WiFiSpoof 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157409.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adguard 2.9.2 beta [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157502.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ System Monitor 2.7 (build 191216) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157819.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Social! for WhatsApp 0.9.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158149.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Extensis Suitcase Fusion 6 v17.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158337.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Readiris Pro 15.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158393.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ OCRKit 15.12.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158474.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ KeyKey 1.0.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158593.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Briefs 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158656.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Swift Typist 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158675.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sweet Home 3D for Mac 7.2.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158860.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Lightkey for Mac 4 v.4.5.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158882.jpg" />
 </div>
 
 

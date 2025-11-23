@@ -6,7 +6,7 @@ Iskald - Innhostinga (2018) [FLAC|Lossless|image + .cue] <Melodic Black Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31476.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2708DA6EB886A99255C47D6CA75AD41126B68F7B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31481.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:78459B7D2730C5D2E2F94B357629D66F0BAD30A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31516.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kaizen - Любим делать красиво (2011) [FLAC|Lossless|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31981.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7D3BF12FBF843376996847EFC23373F9CAB329B5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31982.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vismut - 13 (2012) [FLAC|Lossless|image + .cue] <Metal, Progressive hardcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31987.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dorgmooth - Бездна (2009) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31989.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32308.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Queen - Made In Heaven (1995) Japanese Edition, SHM-CD, Reissue, Remastered, 202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32344.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fast Eddie Clarke - The Rock 'n' Roll Story of Fast Eddie Clarke (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32403.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Godsmack - Godsmack Power Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32567.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Vedran Bozic - Planet Led Zeppelin (Live At Vintage Industrial Bar, Zagreb) (202
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33029.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:AA37F852FE4733E3629727CD22AB088E41190D31
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33032.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Beardfish - Songs for Beating Hearts (2024) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33134.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:078B4E3B3F564508E3BE8E467F03D4CBDF844D26
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33228.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Diatera - В разных мирах (2016) [MP3|320 Kbps] <Melodic Metal, Gothi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33234.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:A9AB167D648D038F5A31DFE8272469D37EF728DD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33438.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:16E6C642A3C8C98FEE48DB3A41D2694F427E0B61
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33582.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blue October - Happy Birthday (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33666.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:733FA65AC83D38FE35E9862B2776617DDB35F83F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33761.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:4CAFB336B591D5B6CF0B6D55DBACF48672772FA8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33762.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B98A422265CF072FCC381B66CD78CDF3D25C4C8F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33767.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Get Ready to Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33782.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Rock Gym Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33873.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Splav - Сверхновая (2011) [FLAC|Lossless|tracks] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33963.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D2101FD5B8B201B92B10475AC2C697C8CF3827A3
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33971.jpg" />
 </div>
 
 

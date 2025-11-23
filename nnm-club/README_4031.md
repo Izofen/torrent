@@ -1,3 +1,78 @@
+###  Публикация: 1823326   (124488) от 11.10.2025
+
+Пятеро на одного (11.10.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689780   (124489) от 04.01.2024
+
+Последнее дело Мистера Монка / Mr. Monk's Last Case: A Monk Movie (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124489.jpg" />
+</div>
+
+
+###  Подробнее
+
+детектив Эдриан Монк, страдающий обсессивно-компульсивным расстройством и широким спектром фобий, возвращается, чтобы раскрыть свое последние дело, связанное с его падчерицей Молли. Последнее дело Мистера Монка – полнометражное продолжение детективного сериала «Детектив Монк» с Тони Шэлубом в роли очаровательного полицейского, который был вынужден оставить работу (   Читать дальше...   )Производство: США / Universal Content Productions (UCP), PeacockЖанр: комедия, криминалРежиссер: Рэндолл ЗискАктеры: Тони Шэлуб, Трейлор Ховард, Джейсон Грей-Стенфорд, Гектор Элизондо, Тед Левайн, Джеймс Пьюрфой, Кэйтлин МакГи, Остин Скотт, Эмма Ишта, Паулину НунешПеревод: Многоголосый профессиональный (TVShows, NewStudio), двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196539BD883DB9357AC6713A27CB0D2360B06BEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823325   (124490) от 11.10.2025
+
+Wucan - Axioms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spectres Of Fear (4:01)
+02.  Irons In The Fire (4:05)
+03.  Wicked, Sick And Twisted (5:39)
+04.  KTNSAX (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71DE9D81686002424C532B91779A814E81036EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689081   (124491) от 04.01.2024
 
 S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
@@ -6,7 +81,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:258BEAE460C1F73C526B119403921793F57D880E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124492.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:593B0E1B2980E5B42608DE99ACB83C07D12F8094
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124493.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Strangers - Boundless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124494.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:6F390E2E93D8BE10628A733C5218D50B274FC0A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124495.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:4756E3E6A3F42BF13E0FC176448A4E65744DB7C4
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124496.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ Hikikomari Kyuuketsuki no Monmon | Зaбoты пpинцeccы вaмпиpoв–xи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124497.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124498.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:5B2E43DFA6A871DAFB962ABA2C201A685E5E7666
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124499.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:E8AA1A0746DFF5C76DF606125073A7A7CCD318CE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124500.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:9EDCBD3ECF3A6ADD5EB17B55F8D4FB4AA98A5FE2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124501.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:5FC8C635E1FD80A88E1C84BDDF69AE3FDE3EE3B0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124502.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ Schwarzer Engel - 5 Releases (2015-2024) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124503.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:B2C98244DBC332C7955419DF0E575A7688E61E2F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124504.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124505.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ Olaf Hoeks & Ruud de Vries - Swang Thang (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124506.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ magnet:?xt=urn:btih:36A40CE830B8A55CF025986453D2943BCECF6B14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124507.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ magnet:?xt=urn:btih:A8DD9D07B32E558F35F33339C416BE3CE9B05FAD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124508.jpg" />
 </div>
 
 
@@ -455,7 +530,7 @@ Revisal - Curtain Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124509.jpg" />
 </div>
 
 
@@ -482,7 +557,7 @@ magnet:?xt=urn:btih:A756FF745887522011375CB35C4007EC16704C59
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124510.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Martha High - Jazz and Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124511.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124512.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ Chrome Black Future - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124513.jpg" />
 </div>
 
 
@@ -576,84 +651,6 @@ Chrome Black Future - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCCA0B3773586EA46BBECD0D203A3ECBC92B9128
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689655   (124514) от 03.01.2024
-
-Святитель Игнатий Брянчанинов | Отверзите двери Богу… (2009) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Епископ Игнатий Брянчанинов явил в себе редкий образец сочетания большой образованности с высокой духовностью. Все свои знания и таланты он щедро отдал своей родной Православной Церкви. Главное содержание его трудов – ревностное желание помочь христианам возгореться духом к искоренению порока и насаждению внутреннего благочестия в сердцах своих.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B783234CD37095BA83413A00B3EF68EF882495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689656   (124515) от 03.01.2024
-
-Lair - The Hidden Shiv (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Taken Apart (00:04:38)
-02 - A Human Trench, Pt. 1 (00:05:30)
-03 - Saltlicker (00:06:23)
-04 - Something's at the Door (00:04:51)(   Читать дальше...   )Жанр: Doom Metal, SludgeПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426FEBF3730CDEB60616961B2C868BDE105ABA38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689621   (124516) от 03.01.2024
-
-Sacriversum - The Shadow of the Golden Fire - Early Days (2001) Compilation, 2024, Thrashing Madness - Oldschool Metal Maniac [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across the Dust [00:05:25]
-02. Whispers [00:05:07]
-03. Pure Evil [00:05:11]
-04. In Emotional Garden [00:07:06](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759F03BD6A64BF40701AF1E96E7C433BC8367CC8
 ```
 
 

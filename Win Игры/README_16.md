@@ -6,7 +6,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4688.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4689.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4708.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hell is Us (2025) [Ru/Multi] (build 19773152) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4724.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Empty Shell (2023) [Ru/Multi] (1.6i) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4727.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mortal Glory 2 (2024) [Multi] (1.4.1b/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4729.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mortal Glory (2020) [Ru/Multi] (1.8.1/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4742.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4743.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4746.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4848.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ INCISION (2022) [En] (1.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4852.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4873.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mechabellum (2023) [Ru/Multi] (1.7.1.0.1780/dlc) Repack Let'sРlay [Premium Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4874.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4879.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4891.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4900.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:6D9F300EEF2F16B1BC8A9EE958E7C93FC6FE2520
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4903.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4974.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4983.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4984.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4998.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5012.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5028.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5029.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5030.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5033.jpg" />
 </div>
 
 

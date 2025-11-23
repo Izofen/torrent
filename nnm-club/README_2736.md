@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71884.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nazty Gunz - Hot Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71885.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7A1A0B34087A936D4717359B20522BABB6778175
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71886.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:55F191218D2BCA4A396FB3FEFD63BA8145838B34
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71887.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8DE1700C0FC51295A0324826DFD1A9FBFEDA8E8A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71888.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:988F8FFD362A4B09252988750860AA79C8BF0259
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71889.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:670CF6F7EE3721FD0269E853758FACC5FFA32402
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71890.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C5BAC139B8B4D1701E963712C957788AC883C08A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71891.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:75EE8E553AAC6816F70127204798DB3D97F3D6BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71892.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71893.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71894.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:11A7B9A765DE174E7B2C775C3EE481DB891B5EC4
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71895.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:BE699DBFF9B3CD36FC68ADA75E4D83BEB2C1F57C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71896.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:96AE19241EE094423A4D44491A2FFAE55904816F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71897.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:241477F1AC35D82375E8D3B1E903419F98E5440E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71898.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:F6428D6A35D63BCE0D81946738FE3DE4802418E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71899.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A2FA6537840987B3FCE6BC12A92E7A2179987AFE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71900.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:50F4D3DD3DD3B6181F0F3E8BC10899074122AEFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71901.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71902.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ QOwnNotes 25.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71903.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:EBB22F37E07A45E7443D5F4BFF625E17560C1B36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71904.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:10C4959FFEC65ACA3093AC76E019114DE86917BB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71905.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71906.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1D76D2F9EF0DAB81C563BF87933180AC116ED391
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71907.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71908.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71909.jpg" />
 </div>
 
 

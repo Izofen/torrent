@@ -6,7 +6,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Guru Maps Pro & GPS Tracker v5.7.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19409.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:457972DCBC655055AD102ED7651AF2FF5D15ED7B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19410.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3550ED7C9D495A06BC62C35D3C748B79C6EACF0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19411.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3550ED7C9D495A06BC62C35D3C748B79C6EACF0E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19412.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:5A264D101A010B4C14DC91B666C7216A021F1CE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19413.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3427866103C1687B412730E9C56EB0A15F172524
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19414.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:09D8CD22E933686672607F1D1A9BE6099F79CDB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19415.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:225F94C823F0AC36D363B805382D39108449F4FA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19416.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:AACE763BF4F6A9C5B1CE22CFC942C14BD5CC86EB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19417.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:CFD447361AA3ACE706BE7B5DD5EA93CAA48F21CA
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19418.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7F86ECC03093AB2933C692D655BFF3E5469D97D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19419.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B3FBB599AB318A20A70E8EA89A59B0CE999A843B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19420.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:89554F03A2D745FF67B565E4032D3FD726FE85DC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19421.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft наконец-то ускорила «Проводник» в Windows
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19422.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft выпустила обновление KB5055627 для Windows 11 24
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19423.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:FC1D728DCE94E56D6DDA5576926B660BB6D4DA32
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19424.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C40954EF6E5B4D3036B97380A7D05ED389B82431
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19425.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EB8FCB189F2D245AA4F889F512A1BF44EB4DA914
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19426.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (30.04.2025/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19427.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E451880E249EC34C8627E146E2589E7E6B28C909
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19428.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:92417EA5DC504169B8E7085D7A258F48DA338484
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19429.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:340A37040C7662F2C004C09DC8B0EC2C1D20BF09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19430.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:47D749828FA5802D63F712467EE5B5C076B6DF0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19431.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Luminar Neo 1.24.0.14794 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19432.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:B6194CB2CD16124CA247007BDC885433D93BFF53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19433.jpg" />
 </div>
 
 

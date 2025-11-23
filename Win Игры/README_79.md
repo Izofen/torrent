@@ -6,7 +6,7 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (55) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22976.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.0.2-a156) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22996.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.75033/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23002.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.31637s/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23016.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23024.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23026.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23039.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1033 Data:640/dlc) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23041.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (1.1.2/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23054.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23055.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23062.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23077.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9203.21231/dlc) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23079.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23094.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23094.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23111.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.5.5/dlc) Repack Wanterlude [Supporter Pac
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23118.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23118.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Matchless Kungfu (2023) [Ru/Multi] (1.1.5.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23139.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23142.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Poop Killer: Flush or Die (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23146.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Crash Time - Undercover (2012) [Multi] (5.0.33) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23151.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23151.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23153.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23154.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack FitGirl [Digital
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23160.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23160.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ai Limit (2025) [Ru/Multi] (Build 17884331/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23167.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23167.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+556/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23168.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23168.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58882.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59340.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60400.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61264.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Victoria II (2) (2010) [Ru/Multi] (4904558/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61540.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62490.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63032.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65662.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65664.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65795.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Questron II (1988) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65796.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80890.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3B5E136759B22772B164727689CB5837D52B7F50
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81482.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A9CEF10325986D2617CF29C5F9A8498320DEA6A8
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81511.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Shield: The Game / The Shield: На страже порядка [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81893.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Gabriel Knight 3: Blood of the Sacred, Blood of the Damned / Гэбриэл На
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81919.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:CC357CBD5B6C1671B6BB32AA2E50F9E5E71DA410
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82170.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Torin's Passage / Странствия Торина [Ru] (RePack) 1995 | DosPet
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83515.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84192.jpg" />
 </div>
 
 

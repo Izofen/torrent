@@ -6,7 +6,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24116.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24185.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24185.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wantless Solace at World’s End (2024) [Ru/En] (1.0.1000) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24189.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Beyond Galaxyland (2024) [Ru/Multi] (1.0.0.6/1.0.2.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24192.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24192.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24199.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack seleZen [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24200.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24210.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24220.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24225.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24228.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24228.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24229.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24229.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dungeon Tycoon (2024) [Ru/Multi] (1.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24232.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24240.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24248.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24267.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/dlc) Repack seleZen [Definitive 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24302.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (3.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24304.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24304.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hauntsville (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24309.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.32.1.24) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24310.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dance of Cards (2023) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24320.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24353.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24364.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24364.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24374.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Potion Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24379.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24390.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24390.jpg" />
 </div>
 
 

@@ -1,3 +1,123 @@
+###  Публикация: 1577080   (234577) от 17.09.2022
+
+Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент – опытный вор, решивший украсть драгоценное ожерелье из особняка одинокой старушки по имени Беатрис. И все шло по плану, пока она она не поймала его с поличным, оказавшись древней, могущественной ведьмой. В наказание Беатрис отправила Винсента в созданный ею параллельный мир, где ведьма держит тех, кто посмел перейти ей дорогу. Первые обитатели этого причудливого (   Читать дальше...   )Тип издания: LicenseРазработчик: Caligari GamesЖанр: Приключeние, Квeст, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EDFC7C8DD5E537532BB19329DE9C18456BF6C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547397   (235338) от 14.05.2022
+
+Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235338.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сингапуре полночь. Контакт не пришёл на встречу, клиент ждёт новостей, а пустой банковский счёт висит над головой, будто неоновый Дамоклов меч. Добро пожаловать в 2037 год. Добро пожаловать в игру Chinatown Detective Agency. Мир нестабилен, глобальная экономика близится к низшей точке десятилетнего коллапса, Сингапур остался последним оплотом порядка, но даже местное (   Читать дальше...   )Тип издания: LicenseРазработчик: General Interactive Co.Жанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544249   (236275) от 10.05.2022
+
+Ecstatica: A State of Mind (1997) [En] (1.0) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в северной Европе в 928 году. Путешественник, главный герой игры, заезжает в вымышленный городок Тирих (Tirich), чтобы пополнить запасы питья. Он обнаруживает, что город захвачен демонами. Пообщавшись с местными жителями, герой узнаёт, что демонов вызвала молодая девушка по имени Экстатика (в игре её имя не упоминается - оно есть только в (   Читать дальше...   )Тип издания: LicenseРазработчик: Andrew Spencer StudiosЖанр: Adventure, Survival Horror, 3D, 3rd PersonЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550042   (236481) от 09.05.2022
+
+Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dracula: Origin раскрывает темные начала проклятия Дракулы. Однажды ярый сторонник Христианства, Дракула, теряет свою веру в Бога, когда после свадьбы его покидает единственная настоящая любовь. Дракула заключает договор с Принцем Тьмы и становится вампиром. Со временем, Дракула узнает о существовании манускрипта, который, как утверждают, описывает ритуал, который (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574233   (237353) от 04.09.2022
+
+South of the Circle (2022) [Ru/Multi] (23) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_237353.jpg" />
+</div>
+
+
+###  Подробнее
+
+South of the Circle - эмоциональная игра с глубоким многослойным кинематографическим сюжетом. Она ставит вопросы о последствиях жизненного выбора, о столкновении карьеры и любви, о попытках лавировать между настоящим и прошлым. Вы будете играть за Питера, ученого из Кембриджа, который терпит крушение в Антарктиде во времена Холодной войны. Пока он ищет помощи, его (   Читать дальше...   )Тип издания: LicenseРазработчик: State of Play GamesЖанр: Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573728   (237664) от 02.09.2022
 
 Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
@@ -6,7 +126,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237664.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237664.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243332.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243332.jpg" />
 </div>
 
 
@@ -54,7 +174,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244343.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244343.jpg" />
 </div>
 
 
@@ -78,7 +198,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244443.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244443.jpg" />
 </div>
 
 
@@ -102,7 +222,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244581.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244581.jpg" />
 </div>
 
 
@@ -126,7 +246,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244676.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244676.jpg" />
 </div>
 
 
@@ -150,7 +270,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244694.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244694.jpg" />
 </div>
 
 
@@ -174,7 +294,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244766.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244766.jpg" />
 </div>
 
 
@@ -198,7 +318,7 @@ Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245153.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245153.jpg" />
 </div>
 
 
@@ -222,7 +342,7 @@ A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245498.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245498.jpg" />
 </div>
 
 
@@ -246,7 +366,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246192.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246192.jpg" />
 </div>
 
 
@@ -270,7 +390,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246247.jpg" />
 </div>
 
 
@@ -294,7 +414,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246321.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246321.jpg" />
 </div>
 
 
@@ -318,7 +438,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -342,7 +462,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -366,7 +486,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246990.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246990.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247061.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247061.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247273.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247273.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247371.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247371.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BFD1350B98AC89AF05FDF5355CCDFD83F775A96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640531   (247373) от 25.06.2023
-
-Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательный приключенческий экшен с мистической вселенной созданной на основе воспоминаний главного героя и трогательной историей. Однажды мальчик по имени Гриффин очутился в сказочном месте, словно он в разы уменьшился в размерах. Побродив по необычным местам малыш сразу понимает, что этот мир не такой радостный и беззаботный как показалось на первый взгляд. За (   Читать дальше...   )Тип издания: LicenseРазработчик: Frozen LineЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF13A97A8450EBF5CB9E5C9F63327A79EC31DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540069   (247405) от 23.06.2023
-
-Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы лишь попытаемся ввести вас в огромный фантастический мир, равных которому нет и не было. От горизонта до горизонта простирается древняя империя Д’ни, которая населена тайнами и загадками. Вам, одинокому путешественнику, никто и ничто не будет указывать, что делать. Просто живите, ежесекундно совершая новые открытия, обращаясь к древним манускриптам и изучая новую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Cyan WorldsЖанр: Adventure, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588750   (247447) от 21.06.2023
-
-The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Entropy Centre - умопомрачительное приключение в мире загадок, где вам предстоит перемещать предметы во времени, чтобы обойти невероятные препятствия и решить сложные загадки. Управляйте ходом времени, проходя через набитые головоломками комнаты к сердцу космической станции на орбите Земли.Тип издания: LicenseРазработчик: Stubby GamesЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515056   (247662) от 10.06.2023
-
-The Captain (2021) [Multi] (1.1.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы Капитан Томас Уэлму, ученый в Spacefleet, затерянный на другом конце галактики. Темные силы на пути к Земле чтобы её уничтожить и только у вас есть способ их остановить. Мчитесь назад домой по всей галактике. Заведите новых друзей в своём путешествии, а также новых врагов. Всех спасти не получится, кого вы оставите позади? Какие цивилизации вы спасете, а какие (   Читать дальше...   )Тип издания: LicenseРазработчик: Sysiac GamesЖанр: Приключение, Симулятор, ФантаcтикаЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638810   (247671) от 10.06.2023
-
-A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу истории и отправиться в приключение, где нет места невинности? Отправляйтесь в путешествие вместе с Амицией и ее младшим братом (   Читать дальше...   )Тип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
 ```
 
 

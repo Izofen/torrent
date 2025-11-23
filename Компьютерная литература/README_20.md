@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168817.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168942.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169033.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169076.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169331.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:8756E4BFF1959ED1F371C8BC03B727A31948EE8C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169428.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169431.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169539.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D11FB9F3C1065249ADDA3490A4CD761C70AD8756
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169631.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169896.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169901.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170178.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170352.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170793.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170815.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170881.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170887.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170941.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Gary Bradley | Mastering Adobe Photoshop 2026 (2025) [PDF] [EN]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170959.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170976.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171109.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3865181AA90C19E6F5985E313062706FB66F85D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171141.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171158.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171172.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:318C1689B72D6D34F501EEE647A11B5C67842080
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171285.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:96B89067A2CB26C4D80AF5E699C7F4CD5966D345
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171295.jpg" />
 </div>
 
 

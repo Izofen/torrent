@@ -6,7 +6,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) UHD BDRemux [H.265/21
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115147.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116768.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131790.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132268.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134709.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138635.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141020.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141028.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144647.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144999.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145116.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145365.jpg" />
 </div>
 
 

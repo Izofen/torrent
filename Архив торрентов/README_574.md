@@ -6,7 +6,7 @@ RJ TextEd 16.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123386.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sandboxie plus 1.12.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123406.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDFCreator 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123407.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.33 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123408.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ QOwnNotes 24.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123411.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sandboxie 5.67.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123414.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ FireAlpaca 2.11.14 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123415.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GeoGebra 6.0.819.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123422.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ File & Image Uploader 8.4.0 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123423.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Total Commander 11.02 (11.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123424.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123426.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Clipboard Master 5.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123431.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Google Chrome 120.0.6099.217 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123434.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pipette 24.1.9.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123440.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Darktable 4.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123441.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Google Chrome 120.0.6099.217 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123442.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ GFI Kerio Control 9.4.3 build 8353 [x64] 4xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123449.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Windows 10 Manager 3.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123453.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Soft Organizer Pro 9.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123454.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Microsoft .NET 8.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123456.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Chromium-Gost 120.0.6099.216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123457.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Adobe Acrobat Pro 2023.008.20458 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123464.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ IObit Smart Defrag Pro 9.3.0.341 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123467.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Total Commander 11.02 Final - Titan v33 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123470.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Total Commander Ultima Prime 8.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123471.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D1E4C56E0EDBDEA3D0FEA469EB71B02A50FAD5D8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123474.jpg" />
 </div>
 
 

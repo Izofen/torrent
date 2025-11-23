@@ -1,3 +1,75 @@
+###  Публикация: 1644002   (196123) от 04.07.2023
+
+Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dirty Swamp - это мод, рассказывающий небольшую историю, сюжетно независимую от оригинала Gothic 2. В нём вы выступаете в роли помощника, который хочет вместе со своим хозяином Санчесом, ограбить храм. Но внезапно всё меняется... вы оказываетесь на другой части мира совершенно в одиночку.Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205D615069956B7A7BC200D4A48A8CE2116C09F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643986   (196131) от 04.07.2023
+
+Velaya - Geschichte einer Kriegerin / Велая - сказание о воительнице (2008) [Ru/De] (1.1) Mod
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196131.jpg" />
+</div>
+
+
+###  Подробнее
+
+После падения Барьера Велая пошла на ферму Онара. Жизнь оставляла ей желать лучшего и одного дня, когда ее терпению подошел конец, девушка решает стать искательницей приключений. Ей предстоит свершить поистину великие подвиги, о которых еще долго будут петь менестрели. А в пути ей будет помогать друзья, острый клинок и не менее острый язык.Тип издания: ModРазработчик: Piranha BytesЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: НемецкийЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4949AE30C865F584978BB6D55B78F0BAE9A4C54A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642178   (196461) от 26.06.2023
+
+Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Dawn of War – Soulstorm – третий по счету аддон для стратегии из вселенной мрачного будущего. В механике игры практически ничего не поменялось, по сравнению со вторым дополнением. Глобальная карта осталась на месте, всем противоборствующим сторонам добавили по одному летающему юниту. Главное нововведение – две новые расы с уникальными отрядами и (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640334   (196908) от 17.06.2023
 
 Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) License GOG
@@ -6,7 +78,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196908.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197402.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198400.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199748.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199748.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199777.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199944.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200513.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200513.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200541.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Outcast 1.1 (1999) [Multi] (18970) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200730.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200730.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200741.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200756.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201097.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201097.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201246.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201246.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201860.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201899.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201899.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201941.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201941.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Cities in Motion (2011) [Multi] (1.0.22/dlc) License GOG [Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_202021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_202021.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -545,78 +617,6 @@ Victoria 2 – масштабная компьютерная игра в жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614099   (202524) от 21.02.2023
-
-Талисман (2003) [Ru] (1.0) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Талисман - это сочетание жанров экшен и RPG. По сюжету игры Талисман различные напасти постепенно ослабляют мир Талисмана - как междоусобные конфликты местных правителей, так и проявления нечистой силы. Но это кажется мелочами на фоне того, что пропала куда-то столица мира - древний город Кияж. Ваш персонаж, как житель Кияжа, чудом избежавший печальной участи, (   Читать дальше...   )Тип издания: LicenseРазработчик: Buka EntertainmentЖанр: Action, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FA17AEDA5F8F3938BA0DB8109C41894E737D71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611634   (202746) от 12.02.2023
-
-Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просто невозможно отказаться, когда великий Один требует найти и поймать своего домашнего любимца, волка Фенрира. Вернуть домой зверька, способного уничтожить весь мир, по плечу только Гномам. Добрые и бескорыстные, готовые перегрызть глотку любому, кто косо взглянет на их безбородые физиономии или осмелится разинуть рот на последнюю бочку эля. Но удастся ли им получить (   Читать дальше...   )Тип издания: LicenseРазработчик: Spieleentwicklungskombinat GmbH, General ArcadeЖанр: Стратегия, Приключение, МенеджментЯзык озвучки: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6C77E9ECD6FF90187BD7F1D6B692ECB4F83BBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609295   (203228) от 02.02.2023
-
-The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земли Кирандии исчезают пядь за пядью, и вам, неординарной юной чародейке, предстоит проникнуть в центр мира, чтобы разрушить проклятье. Это сюрреалистическое приключение заставит пораскинуть мозгами самых проницательных. Путешествуя по огромному странному и прекрасному миру, вы будете варить зелья, творить заклинания и привлекать на помощь очень странных жителей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключeние, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
 ```
 
 

@@ -6,7 +6,7 @@ Weko The Mask Gatherer (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EEB2F735C36D560B2B8C406822D0DCDEAA4A7B6F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48664.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DC10FE36B12619B03CDAA57917A22542340548A2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48665.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enigma Virtual Box 10.90 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48666.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Rising Lords (2020) [Multi] (1.1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48667.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ElevenClock 4.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48668.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A7029122B287465A726A11F879EDB63490A5BEBC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48669.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:72CD60FAB6C9A28E4290954206DA64BEFF4F6009
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48670.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:35EF1A90A0A79245FD0D9BA7D777C877D78C2939
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48671.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E5CC7A380DEB55D1BB92071E7E23FF187818E19B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48672.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Linkito (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48673.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Artisan TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48674.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B9EF10D5D5C6CABA10F971DCD94C2E84126CE40F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48675.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FBF8F38E6D7BA9FC9CE6A7FB53FB3EFFA38ACFA4
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48676.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0E21148855556DF7756B9774F0DD8BFD4159F179
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48677.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48678.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Our Adventurer Guild (2024) [En] (1.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48679.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48680.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48681.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:A8A047B606680A0273B6B9CC7F70E7E57928ACBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48682.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (20231109/dlc) Scene Tenoke [Digital
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48683.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:5E7103EA0EC39C598896C417453121F1C35D8984
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48684.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48685.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Sacred Acorn (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48686.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:53062077EF18A7E41631259DD185C6378B985141
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48687.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48688.jpg" />
 </div>
 
 

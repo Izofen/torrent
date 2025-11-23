@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7441.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FDE072797C4FE51A730BD6BD78C5707A3BABCA9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7442.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:557C67FEF6C7BFF916AD2F1811B44ABA9048DF0F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7443.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:832E72C00A3FC7AD939FD9F5D739B695DA5BF734
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7444.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:387AB7D87BF314D2BF3F23333301E7D7104EEE41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7445.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:480610F94D119B9A1ABB11945E0D4E6570678B86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7446.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Francesco Farfa meets The Pleasure Team - The Search (Remixes) (2002) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7447.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Incite - Savage New Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7448.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2073366B408F8F47415F325E7BCC24284D0621BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7449.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:A2DACCEB3B82FE10A94AF7560B1F00368B279D19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7450.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7451.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:47C00FC1355551DE17BCFE37066E2AEC4DA0FFC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7452.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7453.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:851E22A593097DD0B077146B49FCC53CE2391AFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7454.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0DAD636C1601B246D271E792461313960BAED28A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7455.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:87030C6B96B11379F7DCFAD9575791F8284317B0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7456.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mono Inc. - Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7457.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:38123B411D53645B35E887B38D63276922E80D88
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7458.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:6BAFF1487FCD328219C60D02399C774517864CBB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7459.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:B92FF8E62C304D8B704A57699B11DBFC9B1A1C11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7460.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:E77060B2A5578FCEAEF728893B42AB5756754934
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7461.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Ellefson-Soto - Unbreakable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7462.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2A13892E9177629B038C22FFAA1420B3C85F9827
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7463.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:6B25945388DA1791632FA501F4375E4855F6CAC8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7464.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:B36010E5AD117D74D53749DA7A5932D8268C663E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7465.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:EEF5C2A15826F22EB94C3F198F7A490C2E1E46D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7466.jpg" />
 </div>
 
 

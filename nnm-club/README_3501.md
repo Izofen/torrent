@@ -1,3 +1,81 @@
+###  Публикация: 1718890   (110708) от 27.04.2024
+
+Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buzzard Song [4:11]
+02. Bess, You Is My Woman Now [5:15]
+03. Gone [3:41]
+04. Gone, Gone, Gone [2:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF54FD0F05E82CFD16A54F8C9D247BAD8FC71F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718812   (110709) от 27.04.2024
+
+VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banda Brasileira - Napule è (4:10)
+02. Papik - Ancora Tu (5:12)
+03. Melania - Malafemmena (4:22)
+04. Walter Ricci - Tu Si Na Cosa Grande (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167FE2683BBF3E048C1C6B8BF6F8B8107D8F60F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718956   (110710) от 27.04.2024
+
+Семь женщин МакГрегоров / 7 donne per i Mac Gregor (1967) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бодренькие старички МакГрегоры со своими седенькими старушками, видимо в приступе маразма, решают закопать всё своё золото возле дома, так сказать, “на всякий случай”. Но на их беду это действо подмечает приспешник бандита Мальдонадо, который с подручными, конечно же, похищает семейные сокровища. После этого для МакГрегоров дело чести найти пропавшее золото и вернуть...Производство: Испания, Италия / Jolly Film, Produzione D.S. (Dario Sabatello), Talía FilmsЖанр: комедия, вестернРежиссер: Франко ДжиральдиАктеры: Дэвид Бэйли, Агата Флори, Лео Анчорис, Жорж Риго, Франческо ТенсиПеревод: авторскийЯзык озвучки: русский, английский, итальянскийСубтитры: английскиеПродолжительность: 01:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F1467ECAB5AC86CF9B8B9A3587EC5DE2D6CCAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718910   (110711) от 27.04.2024
 
 Евгений Гашевец | Пробуждение (2024) [MP3, Реджи]
@@ -6,7 +84,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110711.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:75C7C807B937FA8ACB9CA442F40F40D5791F6BB6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110712.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ Pixies - Surfer Rosa & Come On Pilgrim (1988) [FLAC|Lossless|tracks + .cue] <Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110713.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:2A8569B71A43D95634A27EFBDEC3F84549BF5368
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110714.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:08157D562FE5152EEC449AD1DD8C66C098E3798B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110715.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ VA - Luxury Lifestyle Classy Relaxing Jazz Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110716.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:D63E6B0E00EC2013334E7D2BB1628D685D802010
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110717.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:F8AB605655D974B638BCD47F9074E432004B0250
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110718.jpg" />
 </div>
 
 
@@ -209,7 +287,7 @@ VA - Jump Up & Boogie: The New Swing Collection (1998) Elektra Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110719.jpg" />
 </div>
 
 
@@ -236,7 +314,7 @@ VA - Gartenparty - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110720.jpg" />
 </div>
 
 
@@ -263,7 +341,7 @@ magnet:?xt=urn:btih:53DD3D06CC59C93F5B8CDD6D42D246889CCBBDEA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110721.jpg" />
 </div>
 
 
@@ -287,7 +365,7 @@ VA - Summer Jazzy Sounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110722.jpg" />
 </div>
 
 
@@ -314,7 +392,7 @@ VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110723.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ Angel Da Rock - Теряя целый мир (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110724.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110725.jpg" />
 </div>
 
 
@@ -393,7 +471,7 @@ magnet:?xt=urn:btih:471A1B8F57FB8010999A17EC443A06DE79CF6584
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110726.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ reaConverter Pro 7.807 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110727.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ VA - Rock the world (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110728.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:B803E3939C6C9A9579C0A9C0102DB541DCFB6CAB
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110729.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ magnet:?xt=urn:btih:10AF09B198161E5C2A44A1B2DE5B809762ACCFCD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110730.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110731.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ magnet:?xt=urn:btih:4295931F5AD0D67C414B90948B84C632F3A8B431
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110732.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ magnet:?xt=urn:btih:C38A60523B91E71CA9C96578AF81ED5918558FD5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110733.jpg" />
 </div>
 
 
@@ -577,84 +655,6 @@ magnet:?xt=urn:btih:C38A60523B91E71CA9C96578AF81ED5918558FD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05157C6CCE1D4B6005E4926F53811C40EA27A39C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718957   (110734) от 27.04.2024
-
-Wavesequencer - Hyperion 1.52 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неограниченная игровая площадка для звукового дизайна, вдохновленная легендами 80-х, такими как Вангелис, Жан-Мишель Жарр и Брайан Ино, Hyperion — это современный цифровой модульный шедевр. С момента запуска было выпущено более 40 обновлений, Hyperion эволюционировал и продолжает совершенствовать свои звуковые возможности, функционал и графический интерфейс, многие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D4E7F139BD4C937A28FAC4ED5D22EDE3A304EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719049   (110735) от 27.04.2024
-
-VA - Anjunabeats presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond – Melting Warning (Mixed) (01:20)
-02. Aname – Beautiful World (Mixed) (07:37)
-03. ARTY – Around The World (Mixed) (05:34)
-04. Alpha 9 – Before The Dawn (Grum Remix Mixed) (06:36)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2680BC7F219190E17809EF8051DB03F74BBBBB9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719065   (110736) от 27.04.2024
-
-Plotnik82 - Мои барды (2024) [MP3|320 Kbps] <Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Листопад
-2. Бусина
-3. Меняй свою осень
-4. Родня(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7110625741BF3F9B6E1C4A0AEB1652710F82F656
 ```
 
 

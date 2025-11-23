@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38098.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera 99.0.4788.9 RePack by Egorчик [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38103.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 5.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38106.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Windows Manager 2.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38112.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ DogLinux Debian 12 Bookworm 2024.11.05 [x86, amd64] 1xDVD 2xCD (ISO)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38119.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Enigma Virtual Box 11.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38120.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Any Video Downloader Pro 9.0.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38124.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Google Chrome 130.0.6723.117 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38128.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Microsoft  Visual C++ Runtimes AIO v0.85.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38136.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ IPTV Pro v8.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38144.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Steinberg - Cubase Pro 14 14.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38146.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DogLinux Debian 12 Bookworm 2024.11.05 [x86, amd64] LiveUSB
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38148.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Light Image Resizer 7.1.0.58[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38179.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RegCool 2.015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38182.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ GeoGebra 6.0.866.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38185.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Firefox Browser 132.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38186.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Opera One 114.0.5282.154 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38206.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ NIUBI Partition Editor 10.0.8 Pro / Unlimited / Technician Edition RePack (& Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38207.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1A1E36F207BC1D6896632D21C9DBBDC38816BCCD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38209.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ FreeFileSync 13.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38212.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Aiseesoft Screen Recorder 3.0.86 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38213.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Firefox Browser 132.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38217.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VideoProc Converter AI 7.5 (x64) RePack (& Portable) by elchupacabra (DC 31.10.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38231.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Movavi Video Editor 25.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38248.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Text Editor Pro 30.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38286.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ File & Image Uploader 8.4.7 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38287.jpg" />
 </div>
 
 

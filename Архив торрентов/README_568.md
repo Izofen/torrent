@@ -6,7 +6,7 @@ Keep It 2.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122498.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122499.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122502.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wondershare UniConverter for Mac 15.0.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122506.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Fort Firewall 3.10.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122508.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ DxO ViewPoint 4 for Mac v.4.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122511.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122515.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ ScrollNavigator 5.15.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122520.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ K-Lite Codec Pack Update 18.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122521.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Adobe InCopy 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122531.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DxO PhotoLab 7 ELITE Edition 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122532.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Fort Firewall 3.10.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122536.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VueScan Pro for Mac 9.8.25 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122539.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ FBackup 9.9.849 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122540.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ OneCommander Pro 3.65.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122542.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ StaxRip 2.33.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122543.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Process Lasso Pro 12.4.7.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122551.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Rhinoceros 8 v.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122552.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ XYplorer 25.40.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122554.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ EarthView 7.8.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122558.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Glarysoft Malware Hunter PRO 1.178.0.798 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122566.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122567.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Vov Sticky Notes 8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122572.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Plexim Plecs 4.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122573.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ SMPlayer 23.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122585.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FabFilter - Total Bundle 2023.12.20 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122596.jpg" />
 </div>
 
 

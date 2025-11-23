@@ -1,3 +1,178 @@
+###  Публикация: 1431688   (166887) от 14.12.2020
+
+Журнал | Приусадебное хозяйство №10 [+ Приложения] (октябрь 2020) [PDF, DJVU]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27EC43F9397ADC883A2D3D2D73007F06A7B6CB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672965   (166888) от 30.10.2023
+
+Floorp Browser 11.5.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Floorp Browser – это модифицированная версия Firefox, созданная с акцентом на гибкость и настраиваемость. Браузер предлагает уникальные функции, такие как изменение интерфейса для имитации других браузеров, несколько рядов вкладок и оптимизацию памяти. Floorp Browser также исключает все функции телеметрии Firefox, обеспечивая уважение к приватности пользователей. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034DC1D11183050BA5279FF559C776183C4AE06D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597318   (166889) от 14.12.2022
+
+Rising Faith - The Arrival (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival 0:57
+02. Rage 4:01
+03. The Inner Truth 3:12
+04. Head Of The Anvil 4:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5E394C0A784C35BE09A458E76C79E953B5B1B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672907   (166890) от 30.10.2023
+
+А.А. Преображенский, Е.Г. Бишард | Магнитные материалы и элементы (1986) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные положения физики магнитных явлений, описаны магнитные материалы, требования к ним, методы их получения и области применения; приведены сведения об испытаниях этих материалов, рассмотрены принципы работы магнитных элементов и др. В 3-м издании (2-е —1976 г.) большое внимание уделено магнитной микроэлектронике, рассмотрены физические свойства (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CC67CBD5ADE60EDD316685BE9166C91AB5F99E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516247   (166891) от 10.12.2021
+
+Галлиполи / Gallipoli (1981) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166891.jpg" />
+</div>
+
+
+###  Подробнее
+
+1915 год. Два романтически настроенных молодых человека вступают в ряды австралийских вооруженных сил. После ускоренной подготовки в «учебке», затерянной в песках близ древнеегипетских пирамид, приятелей отправляют в полк, который ведет боевые действия против турецкой армии.
+Друзья еще не знают, что им предстоит принять участие в битве при Галлиполи - одном из самых (   Читать дальше...   )Производство: Австралия / R & R Films, The Australian Film CommissionЖанр: драма, приключения, военный, историяРежиссер: Питер УирАктеры: Мэл Гибсон, Марк Ли, Билл Керр, Харольд Хопкинс, Чарльз Латалу Юнипингу, Хит Харрис, Рон Грэхэм, Герда Николсон, Роберт Грубб, Тим МакКензиПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 01:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FBE3185CACDF2152F7CCB97261E4D7417E24A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431677   (166892) от 14.12.2020
+
+Тангейзер / Tannhauser (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме представлено кинематографическое изложение истории, лежащей в основе знаменитой оперы Рихарда Вагнера. Сюжет однако несколько видоизменён, но, надо признать, не в худшую сторону. Миннезингер (поэт- музыкант) Тангейзер прибывает в Тюрингию и участвует в состязании певцов. Племянница ландграфа Тюрингии проявляет к нему благосклонность, хотя помолвлена с другим (   Читать дальше...   )Производство: США, Thanhouser Film CorporationЖанр: Драма, короткометражный, немое киноРежиссер: Люсиус ХендерсонАктеры: Джеймс Круз, Маргарит Сноу, Флоренс Ла Бади, Уильям Расселл, Бертон ЛоЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E45402367C6650211468949DBE75EBB597B3415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516190   (166893) от 10.12.2021
+
+Lordi - Lordiversity: Abracadaver (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scg Minus 2: Horricone (1:18)
+02. Devilium (3:47)
+03. Abracadaver (3:42)
+04. Rejected (3:44)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F8F6B8CA8DEF15D67B5002F3E4A11CFED22819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672992   (166894) от 30.10.2023
 
 Room Arranger 9.8.1.641 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +181,7 @@ Room Arranger 9.8.1.641 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166894.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Serge Chaloff - The Complete Serge Chaloff Sessions (1946 - 1956) 4CD, 1993, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166895.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ magnet:?xt=urn:btih:7941569269FF25D5A7B169DC5CE334B79C88DA13
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166896.jpg" />
 </div>
 
 
@@ -81,7 +256,7 @@ magnet:?xt=urn:btih:D0F712911F8A83C6E81EECC612C89E650628DAB0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166897.jpg" />
 </div>
 
 
@@ -105,7 +280,7 @@ magnet:?xt=urn:btih:D9B5AE82FBAA501135DA3A4251428BCAFA4F2356
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166898.jpg" />
 </div>
 
 
@@ -129,7 +304,7 @@ Claudia Robbens - Make a Difference (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166899.jpg" />
 </div>
 
 
@@ -156,7 +331,7 @@ TechSmith Camtasia 23.3.2 build 49471 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166900.jpg" />
 </div>
 
 
@@ -180,7 +355,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -204,7 +379,7 @@ Rod Levitt - The Dynamic Sound Patterns of The Rod Levitt Orchestra (1963) 2003,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166902.jpg" />
 </div>
 
 
@@ -231,7 +406,7 @@ magnet:?xt=urn:btih:BC175677BDAC82E71DFC3E109E829E650F78DD34
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166903.jpg" />
 </div>
 
 
@@ -255,7 +430,7 @@ BOULEVARD DEPO, SP4K - QWERTY LANG (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166904.jpg" />
 </div>
 
 
@@ -282,7 +457,7 @@ Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166905.jpg" />
 </div>
 
 
@@ -309,7 +484,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166906.jpg" />
 </div>
 
 
@@ -333,7 +508,7 @@ Die Blues Buam - Broken World (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166907.jpg" />
 </div>
 
 
@@ -360,7 +535,7 @@ Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166908.jpg" />
 </div>
 
 
@@ -387,7 +562,7 @@ FX Player Pro 3.7.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166909.jpg" />
 </div>
 
 
@@ -411,7 +586,7 @@ magnet:?xt=urn:btih:0AFFBCDDA7BC593D4DD91BEFA78103AD7EF5AADD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166910.jpg" />
 </div>
 
 
@@ -438,7 +613,7 @@ PDFpen Pro 13 v13.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166911.jpg" />
 </div>
 
 
@@ -462,7 +637,7 @@ magnet:?xt=urn:btih:EAAB0A449B221C21F90417A14DBFD50D92FADAC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166912.jpg" />
 </div>
 
 
@@ -473,183 +648,6 @@ magnet:?xt=urn:btih:EAAB0A449B221C21F90417A14DBFD50D92FADAC9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E96C60BE223B87983C9E6FD2CBB04633B60323F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672938   (166913) от 30.10.2023
-
-MAMP PRO 6 v.6.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2023Разработчик: 2004 - 2023 MAMP GmbHПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E432B064A63C151D0FF61406103EA0E78CBCDD97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597183   (166914) от 14.12.2022
-
-Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Bleeding Hollows [00:02:43]
-02. Blood That Binds the Iliad [00:06:35]
-03. Crooked Husk [00:05:54]
-04. Neptune's Gates [00:06:05](   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D45D433FF05726DC9DD5F3CF56A19774A66B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345218   (166915) от 14.12.2019
-
-MAGIX Vegas Pro 17.0 Build 387 RePack by KpoJIuK [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166915.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683CAA5CFD8FC05EB12EFFE64639FE78C785F28C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597310   (166916) от 14.12.2022
-
-Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Times [00:04:30]
-02. Face to Face [00:04:46]
-03. Amid My Heart [00:04:37]
-04. Not Provided [00:03:47](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60EF5B02EF6484C33B93863DADE66487552BCED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672966   (166917) от 30.10.2023
-
-Optimizer 16.2 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Optimizer - утилита расширенной настройки, которая поможет вам восстановить конфиденциальность и повысить безопасность.
-Optimizer рекомендуется использовать после свежей, чистой установки Windows для достижения максимальной конфиденциальности и безопасности.
-В зависимости от версии Windows, Optimizer также позволяет выполнять некоторые специфические настройки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC4384ABD947867C859723DBF6E3C8CB287E17C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345293   (166918) от 14.12.2019
-
-Папик (2019) WEBRip (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой бывший актёр, находящийся на обочине жизни, волей случая втянут в интриги "заклятых" подружек, охотящихся на богатых женихов.. .Производство: Украина / "Квартал 95"Жанр: комедияРежиссер: Андрей ЯковлевАктеры: Станислав Боклан, Дарья Петрожицкая, Сергей Сипливый, Олеся Жураковская, Екатерина Кистень, Вера Кобзарь, Вячеслав Гиндин, Михаил Кукуюк и др.Язык озвучки: русскийПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839AAE3721D4AD7E6824F6670CC8C1D84552B76D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672852   (166919) от 30.10.2023
-
-Р.Б. Райхмист | Графики функций (1991) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166919.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются различные классы функций и методы построения их графиков. Особое внимание уделено графикам функций, заданных неэлементарно (например, с помощью пределов); заданных параметрически и т. п. В основном приводятся графики функций, широко используемых в различных областях инженерных знаний.
-Для студентов ВУЗов и специалистов, интересующихся вопросами (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE7819335563CA1B0F1456EDFE5DEB11873ED5C
 ```
 
 

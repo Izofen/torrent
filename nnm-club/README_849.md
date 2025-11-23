@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Malwarebytes Windows Firewall Control 6.14.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22412.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ LazyMedia Deluxe v3.374 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22413.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:05D5EAD06C96CD6AA801C4616AAD500C581AA832
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22414.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A60A9F08B0F7DB80A9EFAF52BEC917585547D646
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22415.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22415.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AdGuard Ad Blocker TV Premium Final [No-Root] v4.9.50 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22416.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22416.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22417.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22418.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5B7C9F9A1EBD79248CA2D7C300F52AAED27421EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22419.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22419.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (1.01 patch 2) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22420.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4B63A980534E0026C802BCBAE0C7F6E952838BA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22421.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ ProfIT | XDebug: полезное расширение для каждого р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22422.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22423.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22424.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22425.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:E9F39B4E1148D9E63E78E84D6FBFBE252A6CF414
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22426.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (2903) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22427.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22427.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22428.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22429.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hosts File Editor+ 1.5.16 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22430.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22431.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:DD57E085802148EFEB2F574F749BD8358E349B3D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22432.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22433.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:21F3912CF0F54250EE4873B056B074CA8FEC778B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22434.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Internet Download Manager 6.42 Build 32 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22435.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22436.jpg" />
 </div>
 
 

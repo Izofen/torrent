@@ -1,3 +1,158 @@
+###  Публикация: 1678716   (143719) от 22.11.2023
+
+VA - Vibrant Euphoria (2023) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaun Williams - Amore Vita
+02. Above & Beyond - Vlekno
+03. Popoff - This Is My Soul
+04. Id-S - Life Into Midnight(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 03:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74587D89EC75BA511CE623E4C5797CF032519E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270055   (143720) от 27.12.2018
+
+Стандарты красоты (2015) WEB-DLRip (сезон 1-2 из 2, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катерина 12 лет прожила счастливо и безмятежно, как ей казалось, в браке со своим любимым мужем. И тут, как гром среди ясного неба, для нее стала новость о том, что супруг ей изменяет. Благоверный объяснил Кате, что за годы совместной жизни она превратилась из чемпионки страны по биатлону и просто красавицы в унылую и скучную домохозяйку. Катерина в шоке, она раздавлена (   Читать дальше...   )Производство: Россия / Epic MediaЖанр: мелодрама, комедияРежиссер: Влад ЯкинАктеры: Светлана Колпакова, Алексей Гришин, Ирина Розанова, Даниил Белых, Ксения Ильясова, Анастасия Немец, Анатолий Узденский, Андрей Курносов, Антон Васильев, Анна Галлямова, Дарья Фекленко и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F508FDA7892994D86021283AB0A9C01156FBD09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970131   (143721) от 29.12.2015
+
+VA - Graceful House (2015) [MP3|320 кб/с] <House, Electro, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chic - Le Freak
+002. Prok & Fitch - Tears (Original Mix)
+003. Livin' Joy - Dreamer (Radio Edit)
+004. Superlover - Restless(Original Mix)(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 14:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBD3796CF8EC122BDDCB66A1EE57946EB727998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254296   (143724) от 27.12.2018
+
+Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпожа Вельзевул пожелает [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вельзевул — великий демон, который правит миллионами демонов. Муллин, решивший служить ей, узнаёт, что она не соответствует грозному образу и что это беззаботная девочка, которая любит всё пушистое. Это повседневная комедия о мире демонов.Производство: Студия Liden Films / ライデンフィルムЖанр: комедияРежиссер: Кадзуто МинатоПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774507E2CC37CCC29A844736D3F4A93D35F00B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520299   (143725) от 27.12.2021
+
+VA - Beatport Chill Electronic: Sound Pack #389 (2021) [MP3|320 Kbps] <Soft Electronic, Chill House, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это легкая, наполненная светом, мягкая и нежная музыка, она похожа на то, как поёт наша душа, когда мы просыпаемся летним утром в объятиях солнечных лучей, когда по весне мы радуемся капели, звенящей за окном, когда исполняется наша мечта, когда смеётся родной человек — это удивительное чувство радости и любви ко всему. Это красивая музыка, которая помогает жить, (   Читать дальше...   )001. The Emanations - Spread A Little Love
+002. A.R.T. Wilson - Sun Sign Aries
+003. Peter Broderick - Family, Giving
+004. Serra 9 - True Sun(   Читать дальше...   )Жанр: Soft Electronic, Chill House, Chillout, RelaxПродолжительность: 14:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E9F456F142815A719FE9662E4AAE9E5DFCBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084723   (143726) от 28.12.2016
+
+Особое мнение / Minority Report (2002) BDRip [H.265/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143726.jpg" />
+</div>
+
+
+###  Подробнее
+
+2054 год. Уже шесть лет существует особый предпреступный отдел. На основе психических технологий разработана экспериментальная программа, с помощью которой работники отдела могут узнать о еще не совершенном убийстве и арестовать подозреваемого еще до совершения им преступления.
+
+Такая система осуждения преступников и предотвращения преступлений получает все большее (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Стивен СпилбергАктеры: Том Круз, Макс фон Сюдов, Саманта Мортон, Колин Фаррелл, Кэтрин Моррис, Тим Блэйк Нельсон, Петер Стормаре, Стив Харрис, Нил МакДонаф, Патрик Килпатрик, Джессика Кэпшоу, Ричард Кока, Кит Кэмпбелл, Кирк Б.Р. Уоллер, Клеа СкоттПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 02:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C88D71E91C7C7C159A07905CB838D0B8D88FB24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348503   (143728) от 28.12.2019
 
 Folder-Factory 5.7.5 [En]
@@ -6,7 +161,7 @@ Folder-Factory 5.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143728.jpg" />
 </div>
 
 
@@ -33,7 +188,7 @@ VA - Smooth Moods Chill Out, Vol. 1 (2022) [MP3|320 Kbps] <Lounge, Chill-Out, Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143729.jpg" />
 </div>
 
 
@@ -60,7 +215,7 @@ Coolmuster Android Assistant 4.1.24 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143730.jpg" />
 </div>
 
 
@@ -84,7 +239,7 @@ Jef Gilson - Malagasy (1972) Reissue, 2014, Jazzman [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143731.jpg" />
 </div>
 
 
@@ -111,7 +266,7 @@ magnet:?xt=urn:btih:FF8C83FA6F649A014937519D0B8F678A292CBD9F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143732.jpg" />
 </div>
 
 
@@ -135,7 +290,7 @@ magnet:?xt=urn:btih:9BE48F968B0A8CFCD18F685B34081158907CB96D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143735.jpg" />
 </div>
 
 
@@ -160,7 +315,7 @@ VA - Infrasonic The Best Of 2015 (Mixed by Ultimate & Moonsouls) (2015) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143738.jpg" />
 </div>
 
 
@@ -187,7 +342,7 @@ magnet:?xt=urn:btih:D326D105019E81CE24CFD0D8B4792C556E5DDDD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143739.jpg" />
 </div>
 
 
@@ -211,7 +366,7 @@ magnet:?xt=urn:btih:04250860FDBA9698DBCEEADBCBFF9ECBF2536730
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143740.jpg" />
 </div>
 
 
@@ -235,7 +390,7 @@ VA - Greatest Ever! Rock Ballads (2017) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143741.jpg" />
 </div>
 
 
@@ -262,7 +417,7 @@ magnet:?xt=urn:btih:917A0B1E4D1AA4BF4397140AB71A51F979772CBD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143742.jpg" />
 </div>
 
 
@@ -286,7 +441,7 @@ magnet:?xt=urn:btih:8604335E8D02BA28789D9CA3BE404ED3B348F4F7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143743.jpg" />
 </div>
 
 
@@ -311,7 +466,7 @@ magnet:?xt=urn:btih:E8599B6A1B13E2D3F28616E53E70EB32BBAC768C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143744.jpg" />
 </div>
 
 
@@ -335,7 +490,7 @@ VA - The Best Of Pulsar (2015) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143746.jpg" />
 </div>
 
 
@@ -362,7 +517,7 @@ Diagrams 2.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143747.jpg" />
 </div>
 
 
@@ -386,7 +541,7 @@ magnet:?xt=urn:btih:156426C2BE5480AF8D9F6FFCA846AE4D5F77EECC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143748.jpg" />
 </div>
 
 
@@ -411,7 +566,7 @@ magnet:?xt=urn:btih:B3C82DB76C0D2B543D996C905EA54306DCF65FB7
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143749.jpg" />
 </div>
 
 
@@ -435,7 +590,7 @@ magnet:?xt=urn:btih:B90B609608AAB265B34A4A52405FAC86C4F53969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143750.jpg" />
 </div>
 
 
@@ -459,7 +614,7 @@ VA - Space Odyssey. New Year's Voyage 2018 2CD (2017) [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143751.jpg" />
 </div>
 
 
@@ -486,7 +641,7 @@ magnet:?xt=urn:btih:BCB3EAD12330F804ED85A56C47EADDD4D02D4773
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143752.jpg" />
 </div>
 
 
@@ -497,156 +652,6 @@ magnet:?xt=urn:btih:BCB3EAD12330F804ED85A56C47EADDD4D02D4773
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE967C1B85B203A12C7023A0BCBC697C792B50F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348656   (143754) от 28.12.2019
-
-Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisoner
-02. Harmless Hero
-03. Everyone Of Us
-04. Hazardous(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2FC8BFE259BB6CA246864E02819CD0524BB810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087612   (143755) от 28.12.2016
-
-Расплата / The Accountant (2016) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США / Warner Bros. Pictures, RatPac-Dune Entertainment, Zero Gravity ManagementЖанр: боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Язык субтитров: Русский (форсированные)Продолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DB3A50F50375D3E86C131B4B88B0AC3B7AEAB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195234   (143756) от 28.12.2017
-
-Андрей Шляхов | Криминальные будни психиатра (2017) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитому врачу-психиатру придется снова разнообразить свои будни. В Москве происходит ряд жестоких и таинственных убийств. Возле каждого трупа находят страницу, вырванную из кулинарной книги. Убийца, получивший кличку Кулинар, неуловим и не оставляет следов. Жертвы никак не связаны между собой, полиция оказывается бессильна. Чтобы поймать – надо понять, но, кажется, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF54718C7B59889F66CFAF2739CDD19767E3C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678646   (143757) от 22.11.2023
-
-Wise Disk Cleaner 11.0.6.820 RePack (& portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDE4C1F45342A367B42FEDAE41CCEF0A82BA678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435262   (143759) от 28.12.2020
-
-Новогодний «Голубой огонёк» (1987) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1987 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3FE4BD51BEF1BA53997F648DCA1F81BC386CA8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970230   (143760) от 29.12.2015
-
-Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Lonesome Prince
-2. Arctic Scream
-3. Back To The Light
-4. The Glades And The Cradle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEF940C4451477809F8E203B47A998C486E6B00
 ```
 
 

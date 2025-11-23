@@ -6,7 +6,7 @@ Terra Nil (2023) [Ru/Multi] (1.0.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200565.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200565.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cities in Motion (2011) [Multi] (1.0.22/dlc) License GOG [Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_202021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_202021.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_202045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_202045.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Punch Club (2016) [Ru/Multi] (1.31) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202071.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202071.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sunrider Legends Tactics (2025) [Multi] (1210/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202240.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202240.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202746.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202746.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204709.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204709.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204918.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204918.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207750.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207750.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207895.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208034.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208034.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208133.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208133.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208248.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208658.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209502.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209502.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cat Cafe Manager (2022) [Multi] (1.2.468) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211137.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211137.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Automachef (2019) [Multi] (33) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211267.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211267.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213748.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213748.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213949.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213949.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214377.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214377.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214572.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214572.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Highrise Mogul (2021) [En] (1.01) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214804.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Anno 2205 (2015) [Ru/Multi] (1.2.2311.44109/upd2) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221399.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221399.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221869.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227231.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227231.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:72A0C6E43AD997F639E3E759CE797AABC46803DE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28876.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinTools.net 25.2.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28877.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Extreme Picture Finder 3.66.17.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28878.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FC070D8FEBF68CE242858269D79F92F50462D387
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28879.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:850A19DAF9A1B52A071A2943ABAE39520B3679B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28880.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Weeknd - Hurry Up Tomorrow (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28881.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VueScan Pro 9.8.44 RePack (& Portable) by elchupacabra (DC 01.02.2025) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28882.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ OneCommander Pro 3.95.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28883.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D3690722D2A6F10361047CFF361AD886577CD13B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28884.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28885.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:90B0CCE257F0CA130BA3C056813D9134CA9497F7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28886.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 30.01.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28887.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4EBA5DA299F190F4D41E91AD6717CE8E4E6152A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28888.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wondershare PDFelement 11.4.5.3307 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28889.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MassTube Ultra 20.1.0.116 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28890.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Turbo Studio 25.1.5 Portable by 7997 (PAF + NSIS) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28891.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28892.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28893.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F0D125FAFCFCCE4C56F6BD16953FA61A20FFF487
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28894.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:3C48A0E8FC236151146181F26D48138B9239AA9E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28895.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Windows Manager 2.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28896.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28897.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F00D3A654662909C965DE6F4A1BDDCE8F7884FA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28898.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:C553C7A3F92AD45EC29040C6E109E3E977A1F8F0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28899.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28900.jpg" />
 </div>
 
 

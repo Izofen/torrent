@@ -6,7 +6,7 @@ Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120405.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120409.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120410.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120412.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120416.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120419.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120432.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120433.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120442.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120446.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120451.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Alice Babs - How Do You Do, Mr. Swing (100th Birthday - Recordings of 1939 - 1
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120467.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Other Broken Ones - Something Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120472.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bobby Forrester - Collection (2004-2013) 4CD [MP3|320 Kbps] <Hard Bop, Jazz Rock
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120489.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Leslie West - 18 Albums, 1 Box Set (1969 - 2021) 24 CD [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120587.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120594.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120598.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120602.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120613.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120624.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120631.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rob Tognoni - Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120767.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120779.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120780.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120781.jpg" />
 </div>
 
 

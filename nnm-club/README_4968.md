@@ -1,3 +1,177 @@
+###  Публикация: 1518573   (153952) от 20.12.2021
+
+VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153952.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraynova - Крепкими Шотами (Oneon Remix) (03:50)
+ 002. 24kGoldn - More Than Friends (02:55)
+ 003. Aaliyah feat. The Weeknd - Poison (02:43)
+ 004. Adam Maniac & Baskaeva - Глупая (03:06)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 10:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5E5BCB8FFF80A288DAD1F85527C8BA55E58645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434017   (153953) от 22.12.2020
+
+Сверхразвитые / Enhanced (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж принадлежит к мощному секретному подразделению, занимающемуся поиском мутантов-нелегалов, появившихся в результате неудачного научного эксперимента. Дэвид, неудержимый сверхразвитый, желающий отомстить коррумпированному правительству, которое его использовало, выслеживает других мутантов, чтобы те присоединились к его миссии. Но потом он начинает убивать их, (   Читать дальше...   )Производство: Канада / IndiePro Studios, JP Action FilmЖанр: Фантастика, боевикРежиссер: Джеймс МаркАктеры: Джордж Чертов, Аланна Бэйл, Адриан Холмс, Крис Марк, Эрик Хикс, Michael j Delaney, Патрик Сабонги, Элвис Стойко, Стефано Коласитти, Джеффри Р. СмитПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:38:46Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518480   (153954) от 20.12.2021
+
+UVI - Key Suite Electric 1.0.6 (UVI Falcon) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153954.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате более чем 20 лет в создании инструментов на основе сэмплов, Key Suite Electric был разработан, чтобы стать вашей библиотекой электрических клавиатур. Наслаждайтесь богатством глубоко сэмплированных и безукоризненно записанных инструментов с уровнем качества звука и контроля, который вы ожидаете найти только в профессиональной студии звукозаписи. С 63 (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9F704D3C45B1B2BE30A5D72103A3DD1FA96B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347259   (153955) от 22.12.2019
+
+League of Light 7: Growing Threat (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр League of Light. В городке Даксмор началось внезапное и необъяснимое распространение гигантских цветов, захватывающих город! Джонс Торн, один из лучших агентов Лиги Света, утверждал, что эти цветы представляют смертельную угрозу. Жители стали покидать город, а сам Торн - исчез... Вам поручено найти агента, но самое главное, вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: MariaGlorumЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1325210B16C520F9EC1B0B95D44EE4E14A6441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086039   (153956) от 23.12.2016
+
+Проекты - VideoHive - Inspired Broadcast Package - 19003220 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inspired Broadcast Package - профессиональный пакет для стилизации телепередач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80641FB084BF2A99F5A346F3B725A151E7EB8B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676780   (153957) от 15.11.2023
+
+Книжная серия | Страны и народы [20 томов] (1978-1985) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярное географо-этнографическое издание в 20 томах
+Председатель главной ред. коллегии - академик Ю.В. Бромлей
+
+В двадцати томах издания «Страны и народы» перед читателем развернется пестрая панорама мира последней четверти XX столетия. Описание стран, жестко ограниченное небольшим объемом, может местами оказаться недостаточно выразительным. В этом случае (   Читать дальше...   )Жанр: энциклопедия, география, этнографияИздательство: МысльФормат: DJVU 600dpiКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8F637F89779A423804B62F97DF4F69FEB148E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600901   (153958) от 29.12.2022
+
+Боец: Король ринга / Prizefighter: The Life of Jem Belcher (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153958.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и становления легендарного профессионального боксера Джема Белчера. В эпоху зарождения бокса он стремительно ворвался на спортивный олимп. Несмотря на взлеты и падения он стал одним из самых харизматичных и любимых чемпионов мира.Производство: Великобритания, США, Мальта / Camelot Films, Hardman PicturesЖанр: биографияРежиссер: Дэниэл ГрэмАктеры: Мэтт Хукингс, Рэй Уинстон, Рассел Кроу, Мартон Чокаш, Джоди Мэй, Джулиан Гловер, Стивен Беркофф, Глен Фокс, Рики Чаплин, Люси МартинПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (SDH)Продолжительность: 01:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546D034A77E88E8DEC3E47F2830879D7C5073D38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600821   (153959) от 29.12.2022
 
 Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound Lab [OGG Vorbis|480 Kbps] <Rock, Blues Rock, Acoustic>
@@ -6,7 +180,7 @@ Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153959.jpg" />
 </div>
 
 
@@ -33,7 +207,7 @@ Grids for Instagram 5.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153960.jpg" />
 </div>
 
 
@@ -57,7 +231,7 @@ magnet:?xt=urn:btih:7AF90FD468320B4B10172DCA8B490B087F679CBC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153961.jpg" />
 </div>
 
 
@@ -84,7 +258,7 @@ magnet:?xt=urn:btih:DD36568B0E4C3A84BC4F686A635F13DADCFCE91E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153962.jpg" />
 </div>
 
 
@@ -108,7 +282,7 @@ magnet:?xt=urn:btih:6E2BF41E169E4D1ECF43DAABFB5D55586CA819D5
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153963.jpg" />
 </div>
 
 
@@ -132,7 +306,7 @@ magnet:?xt=urn:btih:0E6A76B292C7369BB94226A1180406091A2B388F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153964.jpg" />
 </div>
 
 
@@ -156,7 +330,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153965.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ Windows 10 Manager 3.8.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153966.jpg" />
 </div>
 
 
@@ -204,7 +378,7 @@ magnet:?xt=urn:btih:27457CB92D3286DF1995784DC5CADFA41B6CAF21
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153967.jpg" />
 </div>
 
 
@@ -228,7 +402,7 @@ magnet:?xt=urn:btih:2670632D3E632A7FFE07A6D1F6CA08EE92B1C9D6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153968.jpg" />
 </div>
 
 
@@ -252,7 +426,7 @@ Adam Szabo - Viper 1.0.91 VSTi (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153969.jpg" />
 </div>
 
 
@@ -276,7 +450,7 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153970.jpg" />
 </div>
 
 
@@ -301,7 +475,7 @@ Firefox Browser 95.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153971.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ magnet:?xt=urn:btih:BCE8E90FFC79C9556E3AD009F363C11C6387A5C5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153972.jpg" />
 </div>
 
 
@@ -349,7 +523,7 @@ magnet:?xt=urn:btih:15B277A5DB1B986225D1F7EC4807D9975DE789D0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153973.jpg" />
 </div>
 
 
@@ -373,7 +547,7 @@ magnet:?xt=urn:btih:12274B44A7EF21A73C1F14D42C882D1B357899A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153974.jpg" />
 </div>
 
 
@@ -397,7 +571,7 @@ Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153975.jpg" />
 </div>
 
 
@@ -424,7 +598,7 @@ magnet:?xt=urn:btih:4C3A8ED360FD18A91A59713BE22E18F5370E0D51
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153976.jpg" />
 </div>
 
 
@@ -448,7 +622,7 @@ magnet:?xt=urn:btih:931AECC0311028FEAB7772CCDB8A0925B9C26945
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153977.jpg" />
 </div>
 
 
@@ -459,181 +633,6 @@ magnet:?xt=urn:btih:931AECC0311028FEAB7772CCDB8A0925B9C26945
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B578E1BC411C2DDFB7B96646D03588E5D4A8D10F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194811   (153978) от 26.12.2017
-
-Варя Медная | Принц и Виски (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153978.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Даже из-под земли себе парня достану!» – решила я, получив отставку от первого жениха Мистиктауна, бросившего меня прямо накануне Осеннего бала. Подумаешь, имя у меня странное, бабушка – ведьма, ноги не от ушей, а обычные и в полосатых чулках. Зато кавалер на празднике будет самый лучший! Не просто лучший – настоящий принц. Храбрец. Фантастический красавец. Ну и (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C7D38B6E26239C68054055AECE4DB268308306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270922   (153979) от 21.12.2018
-
-Audio Hijack 3.5.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCBF375DE5FD530D55935174A2D3AC891CDBFF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600975   (153980) от 29.12.2022
-
-Балабанов. Колокольня. Реквием (2022) WEBRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, начавшийся за два года до гибели режиссера Алексея Балабанова — как хроника производства его картины «Я тоже хочу» — и закончившийся уже через годы после его смерти — даже когда рухнула Колокольня, не взявшая в Счастье героя его последнего фильма.Производство: Россия / Мастерская «Сеанс»Жанр: документальный, биографияРежиссер: Любовь АркусПродолжительность: 01:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF805214173955E3F3B697C9740AB48BCC9004C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518570   (153981) от 20.12.2021
-
-Pluma RSS Reader (ранний доступ) v1.0.1 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pluma - это бесплатная программа для чтения RSS и новостей на Android устройствах, некоторые функции которой доступны в виде платного обновления. Pluma поддерживает как локальные каналы, так и "Inoreader". Цель этого приложения - обеспечить максимальное удобство чтения на Android.Тип издания: Pro (Patched)Релиз состоялся: 12.12.2021Разработчик: qmsapplicationsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623962F5DCCFF640A67DFF474B61D5F26C288A55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194749   (153982) от 26.12.2017
-
-Ева Польна - Феникс (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153982.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феникс. Intro
-2. Официальные лица
-3. Фантастика (New Version)
-4. Вернись ко мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B272AA95A242E4E98E20FA582128E891779FECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518501   (153983) от 20.12.2021
-
-VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran, Elton John - Merry Christmas
-002. Adele - Easy On Me
-003. Wham! - Last Christmas
-004. Mariah Carey - All I Want for Christmas Is You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5853511D48D16CD15D7A0F73C6F90555D0A99DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600860   (153984) от 29.12.2022
-
-Журнал | Тайны ХХ века. Спецвыпуск №5/С «Необычные существа» (2022) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153984.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26C840D2B2453DF1D4093EB5A7E85884BBB383F
 ```
 
 

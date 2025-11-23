@@ -1,3 +1,81 @@
+###  Публикация: 1715795   (111462) от 13.04.2024
+
+Паганини (2023) WEBRip
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный скрипач, дирижёр и педагог совершает непоправимую ошибку, которая делит его жизнь на "до" и "после". Не найдя себе оправдания он оставляет жизнь в достатке и добровольно становится уличным бездомным, называемым обитателями городского дна "Паганини". Исправить уже ничего нельзя, остаётся проживать свою вину снова и снова.Производство: Латвия, GOR FilmsЖанр: Короткометражный, драмаРежиссер: Владимир ГоревАктеры: Мирослав Блакунов, Вадим Богданов, Юрий ГоревЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA340F210FC693C5F45B565B15D33348D6CC396
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715663   (111463) от 13.04.2024
+
+Дмитрий Силлов | S.T.A.L.K.E.R. Снайпер (Книга 38). Закон Кремля (2022) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снайпер искал путь к исполнению своего желания — и он нашел его!
+Чтобы оживить погибших друзей, ему нужно вновь пробиться через границу миров и вернуться туда, куда он однажды поклялся никогда не возвращаться.
+В мир, где биороботы питаются трупами убитых солдат.
+Где боевые мутанты и киборги охотятся друг на друга.(   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 05:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F6546EDDFF517EDB3373813C56F04823D2F8BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715747   (111464) от 13.04.2024
+
+Игорь Слуцкий - Я заряжаю на любовь (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111464.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я заряжаю на любовь   3:53
+2. Ах, как красиво   4:02
+3. Ливни   4:04
+4. Пламя   4:01(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483757DA94969360E89E27151E6037CAD90B8D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715548   (111465) от 13.04.2024
 
 Группа Сентябрь - Ты лучшая! (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
@@ -6,7 +84,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111465.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111466.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ VA - Blues Celebration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111467.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ magnet:?xt=urn:btih:9C4056D10E6A3826C92148EA569462E94704265E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111468.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:A08BCDFC9687370621191860289F5977BC518BDF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111469.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:A7D58162A6ED78E491F0266EC91052AB9F2A2EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111470.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ Photo Lab PRO v3.13.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111471.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111472.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ PdfX 1.0.8 Mod by vadj [En/Es]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111473.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111474.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111475.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ RSAC - LIVE (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111476.jpg" />
 </div>
 
 
@@ -312,7 +390,7 @@ magnet:?xt=urn:btih:2FE87D67C6274373A802B4B2AED4A5A9130993BD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111477.jpg" />
 </div>
 
 
@@ -336,7 +414,7 @@ Macrorit Partition Expert 8.1.6 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111478.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ Stickman: рисовать мультики v5.2s Mod by HexonMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111479.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111480.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ Sumatra PDF 3.6.16019 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111481.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ magnet:?xt=urn:btih:E73B9AA407FEDE6AA3AC91BB66FD48249753B9A7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111482.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ magnet:?xt=urn:btih:D0B963D9CE8426F0C0ABCDA44294156343AB1AD4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111483.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111484.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111485.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ ASC - Reflections (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111486.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ OfficeSuite Pro + PDF 14.4.51666 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111487.jpg" />
 </div>
 
 
@@ -573,82 +651,6 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566C0FE39E287DC4DE015E098837AEC080F3EBD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715815   (111488) от 13.04.2024
-
-Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Hidden Object Secrets. Тебе предстоит расследовать загадочное убийство в тихом районе обычного городка. Убийце удалось скрыться с места преступления, но нераскрытых дел не бывает, как и не бывает непойманных злодеев! Чтобы добраться до истины, тебе нужно собрать улики и опросить свидетелей. Связано ли общество "Око" с (   Читать дальше...   )Тип издания: UnofficialРазработчик: Relax GamesЖанр: Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8081A142BB9E72BC1D71436442DD84A954F32B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715977   (111489) от 13.04.2024
-
-А.Н. Афанасьев, К.Д. Ушинский и др. | Сказки о богатырской силе и доблести (2012) [MP3, Ефим Каменецкий]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Лучшее – детям.
-Былинные сказки занимают особое место в народном фольклоре. В них содержатся ростки той жизненной мудрости, которая обязательно должна быть впитана с детства. И они непременно прорастут независимо от того, что потом будет читать и смотреть малыш. Это как вакцина от пошлости, камертон духовной и нравственной жизни. Детская душа в определенный (   Читать дальше...   )Жанр: Русская литература для детей, народные русские былины, сказыИздательство: Аудиокнига, АстрельПродолжительность: 03:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E599CCD664EF2024063FD46E63FA815BC965A2B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715856   (111490) от 13.04.2024
-
-Aural Imbalance - Infinity Spectrum (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurealis
-02. Glistening Stars
-03. Alpha
-04. Stargazers(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FC9AE33E31773669BE63C4D622C24811D138F9
 ```
 
 

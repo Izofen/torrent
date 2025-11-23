@@ -1,3 +1,75 @@
+###  Публикация: 1685340   (127249) от 18.12.2023
+
+Убийство с морковным тортом: Расследование Ханны Свенсен / Carrot Cake Murder: A Hannah Swensen Mystery (2023) WEB-DLRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока активисты пытаются спасти памятник архитектуры в канадском городе Лэйк-Иден, кто-то устраивает в здании взрыв. Среди обломков обнаруживают труп, который пролежал в шахте лифта не один десяток лет. За раскрытие преступление, совершенное 25 лет назад, берётся хозяйка кондитерской лавки «Корзинка печенья» Ханна Свенсен. И «детективное хобби» талантливого пекаря (   Читать дальше...   )Производство: Канада, США / Lighthouse Pictures, Looking Glass ProductionsЖанр: драма, мелодрама, криминал, детективРежиссер: Пэт УильямсАктеры: Элисон Суини, Кэмерон Мэтисон, Барбара Нивен, Гэбриел Хоган, Тесс Аткинс, Майк Допуд, Дэнни Уоттли, Гэбриэлль Миллер, Daylin Willis, Джулия Бенсон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:06Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685392   (127250) от 18.12.2023
+
+Music Collection 3.6.1.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Collection - неплохая программа для создания на компьютере собственной музыкальной коллекции и ее удобного управления. Вся информация об имеющихся композициях может быть отредактирована и изменена. При этом она вводится либо в ручном режиме, либо загружается из интернета, что значительно экономит время и предотвращает от возможных ошибок. Удачно реализован (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD95A7D3279DBDD3DE1B2A72019AB415F2041E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685377   (127251) от 18.12.2023
+
+f.lux v4.130 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127251.jpg" />
+</div>
+
+
+###  Подробнее
+
+f.lux — полезное приложение для тех, кто проводит много времени перед экраном компьютера или ноутбука. Встроенные функции помогут беречь зрение в любое время суток, автоматически настраивая оптимальные параметры цветопередачи.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC95F88B20A4373CE38D433E857893BD70BB943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685285   (127252) от 18.12.2023
 
 Квартирник у Маргулиса. Александр Шоуа (17.12.2023) WEBRip [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127252.jpg" />
 </div>
 
 
@@ -34,7 +106,7 @@ magnet:?xt=urn:btih:260DD9F8032C25C10B85131F1DC8369A75CE7449
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127253.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ RisohEditor 5.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127254.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Draw.io 22.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127255.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Free Hex Editor Neo 7.40.00.8622 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127256.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:D5A15081F76C55FECE8B4C735DE562F6C3547E23
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127257.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:C50B8904A4FCB88C1FA853462C400A84F34766B9
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127258.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ magnet:?xt=urn:btih:D846E057CECD2E7CFD6B4A1F4BF4E76C00833D9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127259.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ magnet:?xt=urn:btih:0D9A0E3EA614EFC214DF6213866E3BD4AA237B4B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127260.jpg" />
 </div>
 
 
@@ -235,7 +307,7 @@ StaxRip 2.30.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127261.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ magnet:?xt=urn:btih:587B306362E1DE74EFB459731545E911CB45505E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127262.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ magnet:?xt=urn:btih:8E501FA29F0D4FF1464031B28338347D802CC152
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127263.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:1278F95795B2ECA122D1AB6AF02031443807606A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127264.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127265.jpg" />
 </div>
 
 
@@ -359,7 +431,7 @@ CherryTree 1.0.4.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127266.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Sexual Piano Jazz Collection, Jazz Erotic Lounge Collective - Jazz Erotic Backgr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127267.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ magnet:?xt=urn:btih:A15D5374C79A53566608ADDEDB394B2E0BE60EF3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127268.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ magnet:?xt=urn:btih:FF2F0BAA5225FF019BEAE72D0B07DD96C9FC556B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127269.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ magnet:?xt=urn:btih:FF2F0BAA5225FF019BEAE72D0B07DD96C9FC556B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127270.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ Smart Launcher 6.3 build 040 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127271.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ magnet:?xt=urn:btih:6190A48A683CD7EC2262D1671DEE3C476CA1ADA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127272.jpg" />
 </div>
 
 
@@ -530,7 +602,7 @@ magnet:?xt=urn:btih:C25CFAE16ECF48AA675E48532AC484BC6C32E43C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127273.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ magnet:?xt=urn:btih:B7B5B788F77B13222A0CA908DEF63D1826414EE0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127274.jpg" />
 </div>
 
 
@@ -566,78 +638,6 @@ magnet:?xt=urn:btih:B7B5B788F77B13222A0CA908DEF63D1826414EE0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49A2C949113CD29BCB6BD6A8B4EA1EDF087CC05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685391   (127275) от 18.12.2023
-
-RS Explorer / RS Проводник 2.0.8 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127275.jpg" />
-</div>
-
-
-###  Подробнее
-
-RS Проводник - запросто поможет вам в управлении вашими файлами и пространством на вашем смартфоне. При помощи этого приложения, вы сможете запросто управлять всеми файлами, что находятся на вашем смартфоне. Кроме функции управления файлами, приложение поможет вам освободить дополнительное пространство на смартфоне. С этим приложениям вы, также, сможете разархивировать (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.12.2023Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685433   (127276) от 18.12.2023
-
-Баранова И.В. и др. | Объектно-ориентированное программирование на C++ (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные концепции объектно-ориентированного, обобщенного и событийного программирования. В качестве языка программирования выбран язык С++. Подробно изложены принципы и механизмы работы с классами и объектами, в том числе наследование, перегрузка функций и операций, виртуальные функции, шаблоны функций и классов. Большое внимание уделено работе со стандартной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СибФУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEE8EA74F3AFD61E982C066843DB79A48AF86ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681462   (127277) от 18.12.2023
-
-Photo Lab PRO v3.12.83 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 17.12.2023Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B1BE3E43B12FEC676B4B7A3BA9AF71C4BFF097
 ```
 
 

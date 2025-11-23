@@ -1,3 +1,77 @@
+###  Публикация: 1822690   (101667) от 07.10.2025
+
+Джек Хиггинс | Орел улетел (2015) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В час ночи в субботу 6 ноября 1943 года шеф гестапо фашистской Германии рейхсфюрер СС Генрих Гиммлер получил короткое сообщение: «Орел приземлился». Это означало, что небольшая группа немецких воздушных десантников во главе с подполковником Куртом Штайнером при содействии боевика Ирландской республиканской армии (ИРА) Лайама Девлина тайно проникла в Англию и готова (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 09:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8506BA5361A9C1E7E278AFC31709FE77ECE90F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488238   (101668) от 27.04.2012
+
+Ordo Rosarius Equilibrio - 12 albums (1995-2010) [FLAC|Lossless] <Apocalyptic Folk, Dark Ambient, Neofolk, Martial Industrial>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_101668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songs 4 Hate  & Devotion: (01:01:26)
+01. Where I Stand On The Holy Mountain And Pray 4 The War (06:35)
+02. A World Not So BeautifulЖанр: Apocalyptic Folk, Dark Ambient, Neofolk, Martial IndustrialПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822688   (101669) от 07.10.2025
+
+Джек Хиггинс | Гнев Божий (2024) [MP3, Nextw]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как обычно, около полудня начальник полиции для острастки кого-нибудь казнил. Экзекуции проводились почти каждый день. Такие порядки царили в этом мексиканском городишке. Я был на склоне холма на полпути от железнодорожной станции, когда раздался первый резкий залп. И я невольно вздрогнул. Большую часть пути мне удалось пройти в тени, но когда я оказался на Плаза (   Читать дальше...   )Жанр: Детектив, вестерн, триллерИздательство: Аудиокнига своими рукамиПродолжительность: 07:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2E2E5139DC071B2889A41D8D9C7486BE9B39DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822687   (101671) от 07.10.2025
 
 Эва Гарсиа Саэнс де Уртури | Корни ненависти (2024) [MP3, Вадим Прохоров]
@@ -6,7 +80,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101671.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ magnet:?xt=urn:btih:F9EFD2D5CF7E5C708D1D875F257819427DC29276
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101673.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ WinX DVD Ripper Platinum 6.8.5 Build 20120419 Portable [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101674.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101674.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101678.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:C78CB2956A4217304F5D1F72F61E944B72D4FD80
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101679.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:F0BE245C86B0A264D9F3ACD21F53A6F1BBC83CC4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101680.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Tricky & Marta - Out the Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Ele
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101681.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:15EF5120EFF18EA1087818546D2FF6767CBCBF19
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101682.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101684.jpg" />
 </div>
 
 
@@ -282,7 +356,7 @@ magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101685.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ magnet:?xt=urn:btih:390E7872270A6B88040DA1F31382BE26081D06F1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101686.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ magnet:?xt=urn:btih:90486DCF6684E3CD488060D74AEC879CB65398EC
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101687.jpg" />
 </div>
 
 
@@ -354,7 +428,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -380,7 +454,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -404,7 +478,7 @@ magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101691.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ magnet:?xt=urn:btih:8123EDA86860F74838C959D0373147F512F7777D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101692.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ magnet:?xt=urn:btih:6B5137AED63C3E3ECAAFCB51E6CBCED06F4CFD61
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101693.jpg" />
 </div>
 
 
@@ -480,7 +554,7 @@ Shark Tale / Подводная братва [3+] (L) [Ru] (2005)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101698.jpg" />
 </div>
 
 
@@ -504,7 +578,7 @@ magnet:?xt=urn:btih:BD1E81E85BB7FCEEF786C62821932E764748EA31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101702.jpg" />
 </div>
 
 
@@ -528,7 +602,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101703.jpg" />
 </div>
 
 
@@ -554,7 +628,7 @@ magnet:?xt=urn:btih:7D11E8364F4552B5D0547C92F53358308AD1FCEC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101706.jpg" />
 </div>
 
 
@@ -565,82 +639,6 @@ Zariantz Book — универсальный гротескный шрифт с 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781F22980A7E698BA7F3C1168D1D679F21F9809D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488835   (101708) от 27.04.2012
-
-Techsmith Snagit Portable 11.0.0 Build 323 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Techsmith Snagit Portable - Oсновное назначение программы - снятие скриншотов с экрана монитора, причем SnagIt умеет делать не только статичные графические "снимки" выбранной области, но и, например, записать в видео то, что происходит на экране, а также захватить картинку из приложений, использующих Direct X, DirectDraw и Direct 3D. Встроенный редактор аннотаций позволяет добавить к скриншоту, описание, что-то подчеркнуть, вставить при необхоимости в нужное место, например, стрелку и т.п. Кроме этого, программа позволяет "выдергивать" текст оттуда, откуда он не перемещается с помощью команд Копировать/Вставить. Из дополнительных функций: поддержка работы со сканерами и цифровыми камерами, а также возможность автоматической отправки сделанных программой скриншотов на веб-сайт. И еще множество других мелочей: управление горячими клавишами, возможность использования преднастроек, выдергивание иконок и другой графики из EXE и DLL, снятие скриншота с веб-страницы, требующей для просмотра прокрутки, (   Читать дальше...   )Название программы: Techsmith Snagit PortableЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822669   (101709) от 07.10.2025
-
-Дж.Ф. Мастерсон | Поиск реального Я. Личностные расстройства нашего времени (2023) [PDF, DOCX]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личностные расстройства — пограничные, нарциссические и шизоидные — стали классическими психологическими проблемами нашего времени. Люди с такими нарушениями внешне успешны и обаятельны, и это сбивает с толку их коллег, родственников и партнеров, а нередко и психологов.
-Второе издание этой книги поможет читателю понять таких пациентов. В ней описывается развитие (   Читать дальше...   )Жанр: Общая психологияПеревод: А. БагрянцеваИздательство: Институт общегуманитарных исследованийФормат: PDF, DOCXКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85AE132328EE650821801A228784B768B230E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822673   (101711) от 07.10.2025
-
-Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black as sin [00:03:32]
-02. Six feet under [00:03:00]
-03. Unbreakable [00:03:37]
-04. Feeding time [00:03:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15FF7D0256CB91E8D6787A3F975232884F724F6
 ```
 
 

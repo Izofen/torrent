@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25203.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:46FA6CD87ED44DA008F86CE0B86E707AF88D2C54
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25204.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25204.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E6AC2296728BDF6128EE0821ADE0E7EFFE677D47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25205.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25205.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3A97CBB3B627F2ACCDBD4139EA99D795E1F32F71
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25206.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25206.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CudaText 1.222.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25207.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Extreme Picture Finder 3.67.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25208.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25208.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3893E376A8BE61F327999B0CB46530CDF81E2044
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25209.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25210.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mario Nieto - Chord Generator 1.1.0 Standalone, VSTi 3 (x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25211.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25211.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25212.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25213.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25214.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25214.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Carnaval Simulator (2024) [Multi] (1.2.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25215.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ FBReader Premium v3.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25216.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25216.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CB33A36BBCBACC818EBF63874DBAB87C5049FC96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25217.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25217.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:41EB7F5F6EFE76E198E7A1ABA6BE882D89AFC7E5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25218.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25218.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:4CE24B0B44BB5AE796AEA6CF629507C4040F2E78
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25219.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25219.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E3922E9FF645C79E3D364E74A2C05094000200B0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25220.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:EC67BA88A80406022F47D80A7BA19CE3188FB40A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25221.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25221.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B5CB9430C0C5C672B41C4CED454B009D2550B82E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25222.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:7D609760A20EEAA3CCC58A234308D857579CD9BF
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25223.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25223.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Beyblade Burst Super King | Beyblade Burst Sparking | Бейблэйд Взры�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25224.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Slimjet 45.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25225.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25225.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7B612C92315E0ECF661D1E0A18CC6FFC3D63FF3C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25226.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25226.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FreeCommander XE 2025 donor v926 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25227.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25227.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AF4E1421CF25667686A07B1BFC36440DE477FCF0
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25228.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25228.jpg" />
 </div>
 
 

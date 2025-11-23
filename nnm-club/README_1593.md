@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41773.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5C9AA4733ED6A52566634CB89B00F07A71111F62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41774.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5D28557CA266AEE61FEC47D1CC5E3290286DBA2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41775.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A814AD6AB5F9A3FDC43E7F8427320B5448EB3004
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41776.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BF472145AE058753EDB9E2FA34436298D8AC7815
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41777.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41778.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E3BFAB51E2A3BAC55991B3C98249266928917DE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41779.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41780.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4A82777F0998ADDFD9CC22F8F12210C12EAEE20C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41781.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:A1707D483D5C7A526BB2F5729A733A25111A4091
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41782.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Phos Toni - Electro Swing Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41783.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:658D3B34926E551D5D791910BEF4EE98DB876F84
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41784.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Dennis Spencer Group - Bluesman from Jupiter (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41785.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:1A225936A0A5CBDEDAAAF25738189AF6BDC33DB9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41786.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Helloween - Better Than Raw (1998) Remastered, 2024, Sanctuary Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41787.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41788.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ ZD Soft Screen Recorder 12.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41789.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:1F3BAD704817D51917EB53F14C240509D8CAF4E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41790.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:0E316393C2098E18032EC3BFD5E4330DCD7763D7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41791.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41792.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41793.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Musical Kaleidoscope Part 5 (2024) [MP3|320 Kbps] <Electronic, Instrumental
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41794.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:04D2E75392AB1CB6D740C569610877B191796C70
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41795.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:DCDD62D5F59C7CFCD1001F7ECC6A5E2AD88B2C52
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41796.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:683409690DB87A4E314323609C59563B84F690A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41797.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Denoise it - ИИ фоторедактор v1.2.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41798.jpg" />
 </div>
 
 

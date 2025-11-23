@@ -6,7 +6,7 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138664.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139776.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Men in Black: Alien Crisis (2012) [Xbox360] [RegionFree] FreeBoot [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140383.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140582.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Far Cry 6 Game of the Year Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.12
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140984.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Knock-Knock / Тук-Тук-Тук (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143156.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Octodad: Dadliest Catch (2014) [PSVita] [USA] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143206.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Shantae: Half-Genie Hero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143769.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143974.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144128.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144227.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145518.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145974.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146477.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148073.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148476.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ I am Setsuna (2016) [PSVita] [JAP] 3.60  [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149016.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Back To The Future: The Game (2012) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150983.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ R.U.S.E. (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151041.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151378.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Motorstorm: Pacific Rift [PS3] [PAL] [RUSSOUND] [2.42] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151423.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ FIFA 19 Legacy Edition / FIFA 19 Издание Legacy (2018) [PS3] [EUR] 4.82 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151969.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152718.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152961.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MX vs. ATV: Reflex (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152993.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153086.jpg" />
 </div>
 
 

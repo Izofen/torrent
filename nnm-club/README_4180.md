@@ -1,3 +1,78 @@
+###  Публикация: 1683495   (128367) от 11.12.2023
+
+Skype 8.110.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3599B927C6AF97B4E7106171F0351E0AADBCFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683409   (128368) от 11.12.2023
+
+Inthuul - Songs From A Dead Winter (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alust 0:53
+02 Tha Inthuul 4:05
+03 Chath Dro 4:18
+04 Narkuth Ul-ilindith 4:51(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFD8AE12EEB84A8B4925160FFD2CAE3B4DE06D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671019   (128369) от 11.12.2023
+
+Франсуа Шале: искатель приключений нынешней эпохи / Francois Chalais, l'aventurier des temps modernes (2019) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Шале (1919-1996) - французский журналист, репортер, писатель и историк кино. Шале был постоянным сотрудником на французском телевидении во время Каннского кинофестиваля, брал интервью у знаменитостей и звезд кино, часто со своей первой женой и коллегой Франс Рош. Он написал 20 книг, в том числе 17 романов и 3 книги воспоминаний. Он также автор нескольких (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, история, биографияРежиссер: Николя ЭнриПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Hiventy), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C690F667334C60E32525C8D74B9727B1BE4DA24A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683588   (128370) от 11.12.2023
 
 Н.В. Лысенко | Информационные гетерогенные системы (2007) [PDF]
@@ -6,7 +81,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128370.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:33C0B814F23AB61CF6E94D974B3D8AD97A0C0B75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128371.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Insomnium - Songs Of The Dusk (2023) MCD [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128372.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:D094A0A47BC7F0EEE394C537162ED44BA418349B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128373.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ The Thomas Hardin Trio - Clasicos a ritmo de Jazz (1998) GyC Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128374.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ PhotoRoom v4.7.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128375.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:BC1415DEF2492BE6E8DAC39B9AFFF07B89D066DB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128376.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Tim (Thomas) Hardin Trio - Light Intelligence Series 1 (1992) Golden Penguin [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128377.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:DBD20DD4FD5B55724F26EA3996C0E1CDB765AB28
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128378.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ magnet:?xt=urn:btih:F0C89A9AD3DEC5FA97FBECA44B264107B80C5B9B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128379.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ magnet:?xt=urn:btih:45D10DB0A31E7755493ABDED247E0CFC2D280E5A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128380.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ Immortal Synn - The Singles Collection (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128381.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ magnet:?xt=urn:btih:FB396A8A2444346EE4C0AB6565F0C9A18A641A71
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128382.jpg" />
 </div>
 
 
@@ -338,7 +413,7 @@ magnet:?xt=urn:btih:C36B9DC6470E98ADF61611207D1E8021D5C58AD8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128383.jpg" />
 </div>
 
 
@@ -365,7 +440,7 @@ Under The Scythe - Realms Of The Void (2023) [FLAC|Lossless|image + .cue] <Techn
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128384.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ magnet:?xt=urn:btih:3E7CCDF3F23DCF7E37AF50C1F5E0BE707196974E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128385.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ magnet:?xt=urn:btih:B0D70EB6BC43EC4AC174D4E71A9C75CE8044E31C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128386.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ magnet:?xt=urn:btih:3847617E601BF4CDBEDDE040CFADB684A6797F46
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128387.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:59ED875259D7F697F359FCC2FFF6166FBD47C816
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128388.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ magnet:?xt=urn:btih:8D373EBC745A1D9707A4CB5BDD808B25C3AE7DFB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128389.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ magnet:?xt=urn:btih:26929BEE126714E4D942972D6C6E894352D911A5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128390.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Jabarov - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128391.jpg" />
 </div>
 
 
@@ -563,7 +638,7 @@ CherryTree 1.0.3.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128392.jpg" />
 </div>
 
 
@@ -574,84 +649,6 @@ CherryTree - функциональная программа, которая п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E996A3844FAE67DE2ED0807DC6CE35F5F521B28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683511   (128393) от 11.12.2023
-
-группа Эшелон - Струна гитарная (2002) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что же ты, зараза, бровь себе подбрила...
-02. Передо мной любой факир - ну просто карлик...
-03. Попутчик
-04. Позабыв про дела и тревоги...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953425B48631E9A7635CE44408851C5FF6B90002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683493   (128394) от 11.12.2023
-
-Topaz Video AI 4.0.6 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68807F117A44334B9E87F4B0945C935622DE396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683607   (128395) от 11.12.2023
-
-EMIN - 44 (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. До тебя
-2. Сказка на ночь
-3. Незаконно
-4. Камин(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB0E4C9F7217E4D39C6384CA51F53C8A6B3DC28
 ```
 
 

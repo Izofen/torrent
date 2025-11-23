@@ -6,7 +6,7 @@ TuneIn Radio Pro v38.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18929.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerDirector – Video Editor v15.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18930.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AEDB2B07A70C96FCC75B86967B37AB67DE5B2A78
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18942.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.10.5 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18943.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ BikeComputer Pro v9.1.3 GP Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18948.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18951.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ InnoExtractor Ultra 10.3.0.137 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18954.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MediaHuman YouTube Downloader 3.9.11 (0605) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18957.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ HDRezka TV v1.3.0 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18963.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PIDKey Lite 1.64.4 b48 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18965.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaHuman YouTube Downloader 3.9.11 (0605) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18969.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ jetAudio HD Music Player Plus v12.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18972.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Internet Download Manager 6.42 Build 36 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18984.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Proton VPN 5.11.14 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18993.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ LazyMedia Deluxe v3.386 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18994.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8960B224C43EAFE8262624820A7310BCA831DB05
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19012.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Adobe Illustrator 2025 29.5.1.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19013.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ MassTube Ultra 20.1.5.129 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19049.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Xiaomi Home (Ранее. MiHome) v10.5.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19051.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ YT Downloader 9.12.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19057.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Auslogics Windows Slimmer 5.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19061.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Wondershare UniConverter 16.4.7.227 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19062.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19063.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19064.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Internet Download Manager 6.42 Build 36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19072.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Auslogics Disk Defrag Pro 12.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19075.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1727485   (108472) от 02.06.2024
+
+Мария Кашинская и др. | Илья Муромец и Соловей-разбойник (2007) [MP3, Олег Табаков, Сергей Маковецкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиоверсия героического блокбастера, «Илья Муромец и Соловей-Разбойник» продолжает свое шествие по стране.  Увлекательные и смешные истории по одноименным мультфильмам для юных и не очень юных слушателей.  Детское издательство «Два Жирафа» выпустило в свет аудиоверсию этого хита с участием замечательных актеров – Олега Табакова и Сергея Маковецкого. Мы вновь станем (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Два жирафаПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59068585D219D3CA75C453A9A84CA6C31E219655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727396   (108473) от 02.06.2024
+
+Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning Of Flame
+02. Abaddons Revenge
+03. My Greatest Fear
+04. The Blessings Of Vengeance(   Читать дальше...   )Жанр: Symphonic Black, Melodic Death MetalПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409464128111B4D8D2A4A5AA5C41AB6E0C8D002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727519   (108474) от 02.06.2024
+
+Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Formula [00:02:56]
+02. Keepin' It Kool [00:05:25]
+03. Last Nite [00:03:41]
+04. Angelwings [00:03:42](   Читать дальше...   )Жанр: Hip-Hop, Jazz, FunkПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8413F11BBBB67A1A28C1B2ACA4A2A8FD3B43B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727382   (108475) от 02.06.2024
 
 Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +84,7 @@ Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108475.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Priest - Dark Pulse (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108476.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Asena Akan - Asık (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108477.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:34488097EE9D0522E31F65803100A33C5B3BEE58
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108478.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108479.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108480.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Slu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108481.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Гонка (02.06.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108482.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108483.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ magnet:?xt=urn:btih:C62EDA05DD754151E58B6A1E933F134108E585BA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108484.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108485.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ magnet:?xt=urn:btih:784D0E7B7C7E1B14DDDC089301F4132632AFF400
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108486.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ magnet:?xt=urn:btih:CC9B64319A65417119B908AF616CAB5F3D0ECB9E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108487.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Спринт (01.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108488.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ magnet:?xt=urn:btih:AB4B29397014E2D9ED6C0EC9B3274FA5D0880626
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108489.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108490.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108491.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ magnet:?xt=urn:btih:B39C8959387FB1AFB53499889A2D057E9C9CF95D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108492.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108493.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ magnet:?xt=urn:btih:77B25E4C9106D97B0E73C58A4CE82BD2786C044F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108494.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108495.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:6464DFD562DAA69C421A931220140B78B93D4FF1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108496.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ magnet:?xt=urn:btih:413C42F386B4C07A157EB0E5D5AB04057FA5EF8F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108497.jpg" />
 </div>
 
 
@@ -594,82 +672,6 @@ magnet:?xt=urn:btih:413C42F386B4C07A157EB0E5D5AB04057FA5EF8F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DCD1363255C5B24BBA84FA4AB0D761427A181DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727266   (108498) от 02.06.2024
-
-Своя игра (01.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108498.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A292B4B60832E9D836FE0392136D6741DC4AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727448   (108499) от 02.06.2024
-
-Судьба человека с Борисом Корчевниковым. Судьба Михаила Любимова (31.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108499.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-В программе (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Михаил ЛюбимовЯзык озвучки: РусскийПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EF72BC4F3AE4D466D1D71EC9486E0CD8D6CAAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727482   (108500) от 02.06.2024
-
-НашПотребНадзор (02.06.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая доступная всем россиянам рыба, которой многие пренебрегают, — деликатес, любимый гурманами и шеф-поварами разных стран? Как ее вкусно и быстро готовить? И какой рыбой подменяют культовую корюшку? Маринованный шашлык: в мясе от каких брендов кишат бактерии, а в каких ведерках — просроченный опасный полуфабрикат? Как выбрать керамическую плитку, чтобы она не (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF650E6FA198444B9A59BBBE9C04A861AA6BBAB
 ```
 
 

@@ -6,7 +6,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54160.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rolling Hills: Make Sushi, Make Friends (2024) [Multi] (1.0.9) Scene Razor1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54161.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0CF4497314F95335D40DBC256CAA366C5324F699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54162.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3095D5E61BD722D62E1D7E78C8804403A2CED8C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54163.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54164.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:87F476915D3D1592AA31CE0092B9D834798E1657
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54165.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:57C0D8BD8C1F52830C9A81A3B299C916AEA98DA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54166.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54167.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Kid Rock - Rock N Roll Jesus (2007) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54168.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E9EF198CD87B474B769176752D017306AA17A109
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54169.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:312D65D4303EA0BA570472965CAED2074ACE2AD7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54170.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:7EE2D52F95360964D15F91B592C6FFC3A1574264
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54171.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3D924926C8F1EB6CECF3710E9B07A5693B7F4121
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54172.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54173.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Zet Zillions (2024) [Ru/Multi] (0.9.6-A107) Repack FitGirl [Full-Trash Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54174.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54175.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:A187254F79E7B4656AA19E66283A14F7F3420E41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54176.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C44D2633132BA7B260912CDE1C089803120A58D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54177.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:041459711B8ACE3F0AE3113FAAFD6EA8A0609E9C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54178.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6D0B44BDEE4BEBCD31F263E44B0FE724C4A0A1D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54179.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54180.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2FF439BB816596B5C62AE4715A70B5A9998CD5DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54181.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Topaz Gigapixel AI 7.2.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54182.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:66E9F907C4063F6791C469D558BCD145E73927C4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54183.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ IObit Driver Booster Pro 11.5.0.83 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54184.jpg" />
 </div>
 
 

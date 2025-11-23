@@ -1,3 +1,81 @@
+###  Публикация: 1706509   (113542) от 13.03.2024
+
+Елена Счастная | Воин забвения (Книга 2). След бури (2024) [MP3, Ольга Андреянова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть трилогии. Через снегопады и суровые зимние бури княжеское войско отправляется в поход. С надеждой на победу, с желанием избавить народ от напасти под названием вельды. Млада, связанная с князем и вельдским мальчиком колдовством неизвестной силы, следует за дружиной, чтобы потребовать с жреца Зорена ответы о прошлом и настоящем. По её следам идёт посланный (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 13:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642E7838C62A1207583D507CAB1D0B86DBFDC495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706541   (113543) от 13.03.2024
+
+Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misirlou
+02. Exclusive Blend
+03. These Boots Are Made for Walking
+04. Soul Bossanova(   Читать дальше...   )Жанр: Big Beat, FunkПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4105213A68D53F9BBEBAFE22FDCFAF1073DDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706603   (113544) от 13.03.2024
+
+Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Story Of Nathan John (3:40)
+02. What's Going On (3:48)
+03. You Made Your Bed (So You Better Lie In It) (2:12)
+04. Ice Cream Man (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1AE68AF3A4F861F41D2D749BCE935A4A1BD31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706610   (113545) от 13.03.2024
 
 Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +84,7 @@ Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113545.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113546.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ NCH ClickCharts Diagram Pro 9.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113547.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113548.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113549.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ Ink2Go 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113550.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ Samuel Bowen - Closer to the Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113551.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ iBarcoder 3.14.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113552.jpg" />
 </div>
 
 
@@ -208,7 +286,7 @@ magnet:?xt=urn:btih:F319A922D5A04F6D8AC4E0ADD252716FA69FACED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113553.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ Al Rodriguez - Nowhere station (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113554.jpg" />
 </div>
 
 
@@ -260,7 +338,7 @@ Deckset 2.0.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113555.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Labe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113556.jpg" />
 </div>
 
 
@@ -312,7 +390,7 @@ magnet:?xt=urn:btih:8F7D58401E3828EDDF3554FB4B1AF129234DAE2E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113557.jpg" />
 </div>
 
 
@@ -336,7 +414,7 @@ magnet:?xt=urn:btih:0B18515AA1D828C6B5365C48652A00F66C035BD4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113558.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ VA - Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113559.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ VA - Tranquil Horizons: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113560.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ magnet:?xt=urn:btih:9EC8F69E86E063EECAAD169836094F556DF18493
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113561.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ magnet:?xt=urn:btih:A6193406FF42FA33E8B77C12E593B28B7F1F7A8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113562.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ Navicat for PostgreSQL on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113563.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ magnet:?xt=urn:btih:849D1BEA9B8387B39AF9CF457098AF683AE8AC33
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113564.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113565.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ magnet:?xt=urn:btih:B51625200BF6FD45BA69AC665C29B6CDDD832E16
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113566.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113567.jpg" />
 </div>
 
 
@@ -579,83 +657,6 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64E8A347E130BF14A72F250733C93DDF7619177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706655   (113568) от 13.03.2024
-
-CudaText 1.210.5.0 Portable + addons [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113568.jpg" />
-</div>
-
-
-###  Подробнее
-
-CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
-Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D444B3BD84275F10D4113C2253C14A1AAF4493C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706672   (113569) от 13.03.2024
-
-Два в Парадный - Добрый вечер (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Умри молодым [00:04:21]
-02. Бессмертный полк [00:03:15]
-03. Исповедь вампира [00:02:53]
-04. Дураки и дороги [00:03:32](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFF061DEB8A51293C587481C9B9C6806B30F0D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706465   (113570) от 13.03.2024
-
-Alfred PowerPack 5.5 Release Candidate [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2024 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B43DB538A4E848D208582FA73EFBE483864837F
 ```
 
 

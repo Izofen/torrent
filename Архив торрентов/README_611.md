@@ -6,7 +6,7 @@ Opera One 105.0.4970.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131768.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:358D6910C504D56618B22005208258AE3D123727
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NVIDIA GeForce Desktop Game Ready 546.29 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131778.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ IceCream Ebook Reader Pro 6.43 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131781.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Macrorit Partition Expert 8.1.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131784.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ reaConverter Pro 7.798 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131788.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows 11 Manager 1.3.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131792.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Dead Island - Game of the Year Edition [Ru/En] (L/1.3.0/3 DLC) 2011 | 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131796.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A3DF4268450885AB8D936A893BFA8D367FAC8DB0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131801.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Skype 8.110.0.211 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131802.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Perfectly Clear WorkBench 4.6.0.2620 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131804.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Google Chrome 120.0.6099.63 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131810.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Google Chrome 120.0.6099.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131814.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D06E4CF0C89A02017C2BAD9FAC294E42C9C6A9F1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131836.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ StartIsBack 1.3 RePack by CRD [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131837.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Marc Dorcel Calendar 2013
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131841.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Skype 8.110.0.211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131842.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ HWiNFO 7.67 Build 5280 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131848.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B5431E2B9B9B9ABF2029B066C63F97DFF42B220C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131881.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:B5431E2B9B9B9ABF2029B066C63F97DFF42B220C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131889.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ SiSoftware Sandra Business 2013.01.19.23 (SP1) [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131906.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ SiSoftware Sandra - системный анализатор для 32-х и 64-�
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131918.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:068971F2A73C8D870E6FC2210D3236C1930C1F1C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131920.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SMART Utility 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131926.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ SMART Utility - приложение, которое считывает данн
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131931.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ SMART Utility - приложение, которое считывает данн
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131935.jpg" />
 </div>
 
 

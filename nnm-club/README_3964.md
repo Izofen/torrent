@@ -1,3 +1,78 @@
+###  Публикация: 1692137   (122746) от 15.01.2024
+
+Всю ночь напролёт / All Night Long (1962) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет обновленную версию "Отелло" Уильяма Шекспира. Действие происходит на лондонской джазовой сцене за один вечер, во время юбилейной вечеринки... В фильм вставлены выступления нескольких выдающихся британских и американских джазовых музыкантов 60-х годов прошлого века... Музыкант Аурелиус Рекс и его жена Делия, певица на пенсии, приглашены (   Читать дальше...   )Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: драма, музыкаРежиссер: Бэзил ДирденАктеры: Патрик МакГуэн, Кит Митчел, Бетси Блэр, Пол Харрис, Марти Стивенс, Ричард Аттенборо, Бернард Браден, Гарри Тауб, Мария Веласко, Дэйв БрубекПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, Игорь Клушин), английскиеПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB80FD4C43102F19C7DC8C5C40CB63AEBE8BE8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692261   (122747) от 15.01.2024
+
+Magic Disk Cleaner 2.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2022-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F9DEFFDB3CBAEB45CE0909146DD06BBEBB720A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692093   (122748) от 15.01.2024
+
+Chris O'Leary - The Hard Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Rest (4:33)
+02. Lost My Mind (3:46)
+03. Ain't That A Crime (4:25)
+04. My Fault (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A203E3FEB15D5F40247197568BDB29DE213F76D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692209   (122749) от 15.01.2024
 
 Disk Xray 4.1.4 [Multi]
@@ -6,7 +81,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ HitPaw Watermark Remover for Mac 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122750.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122751.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ KCNcrew Pack 01-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122752.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Chris Rea - La Passione (1996) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122753.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:DB51B54E7E4B7F971D8ECFC8FEFD11346C0855F5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122754.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:B208D5E81839436F64ADC9C3D71FE2346CCFCEB3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122755.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:EFF9BB73CA467DC2A141932E025538546BBAA3FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122756.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:9EE917937D063C9B75876FF0FCCFF4E580CBC729
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122757.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:378CAE78A89D37420DEAC203AB07B62B48B6C0F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122758.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Chris Rea - Espresso Logic (1993) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122759.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122760.jpg" />
 </div>
 
 
@@ -315,7 +390,7 @@ Q-Dir 11.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122761.jpg" />
 </div>
 
 
@@ -340,7 +415,7 @@ Pro Audio Converter 1.9.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122762.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:921DA12C1A4F3CEDA8A0BF004EBA9D61F97BDB07
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122763.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -417,7 +492,7 @@ Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023)
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122765.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ magnet:?xt=urn:btih:52AD029B48D273354BF8DA9D9D408EE465A6857F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122766.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ Fort Firewall 3.10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122767.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:D5E2BB0FB5CBF7107D3174594A08F772C0E3B3A0
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122768.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:4F06E81A6858D7FF30E4F96B1DE437F84334407B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122769.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122770.jpg" />
 </div>
 
 
@@ -568,7 +643,7 @@ Patti Parks - Come Sing With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122771.jpg" />
 </div>
 
 
@@ -582,84 +657,6 @@ Patti Parks - Come Sing With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C566C1E2C5307F6CF4BA726AA2B4726F5E101B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692191   (122772) от 15.01.2024
-
-VA - Chronicles, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andro V - To Dream Of India (Original Mix) [5:54]
-02. Bestami Turna - The Darksıde (Original Mix) [6:20]
-03. Boral Kibil - Never Say Never (Original Mix) [8:54]
-04. Dmitry Rubus - Summer Days (Extended Mix) [4:38](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279064A3BB0AE88B7930B97A36E5FFEE39D9E5E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692056   (122773) от 15.01.2024
-
-VA - Electronic compilation part 42 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamidshax - Somebody
-02. Davit Bargaia - My Destiny
-03. Dndm - Lost Emotions
-04. Dndm - Love is Pain(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DE65D452C70D58A7002E42A643E59B05056E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692158   (122774) от 15.01.2024
-
-Просто кровь / Blood Simple (1984) BDRip [H.264] [Режиссёрская версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина Эбби не удовлетворена своим браком с Марти, грубым владельцем бара из Техаса, а между Эбби и барменом Рэем вспыхивает страсть. Обманутый муж догадывается об измене и нанимает частного сыщика, чтобы выследить и затем убить любовников. Но циничный и коварный детектив поступает несколько иначе, что влечёт за собой волну диких и кровавых последствий...Производство: США / Foxton Entertainment, River Road ProductionsЖанр: драма, криминал, триллерРежиссер: Джоэл Коэн, Итэн КоэнАктеры: Джон Гец, Фрэнсис МакДорманд, Дэн Хедайя, М. Эммет Уолш, Сэмм-Арт Уильямс, Дебора Ноймэнн, Рэкуэл Гавиа, Вэн Брукс, Сеньор Марко, Уильям Кремер, Лорен Бивенс, Боб МакАдамс, Шэннон Сэдвик, Нэнси Фингер, Уильям Престон РобертсонПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские (R5, d0ber.maNN), английскиеПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC999F195330A701578746B0E66A76B97FD7D113
 ```
 
 

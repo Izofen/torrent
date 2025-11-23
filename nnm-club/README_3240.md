@@ -1,3 +1,81 @@
+###  Публикация: 1752406   (103921) от 30.09.2024
+
+Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Куньлунь Ред Стар (Пекин) (29.09.2024) WEBRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Куньлунь Ред Стар (Пекин) (29.09.2024)
+СУДЬИ Акузовский Николай (Тольятти, Россия) Лазарев Глеб (Россия)
+СТАДИОН «МСРК «Ледовый Дворец»» (Санкт-Петербург) Зрителей: 11896Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC92B41495B4D64D1B7AFCC27375BD8A373FD5F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752407   (103922) от 30.09.2024
+
+Хоккей. КХЛ 2024-2025. Динамо (Минск) - Северсталь (Череповец) (29.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Динамо (Минск) - Северсталь (Череповец) (29.09.2024)
+СУДЬИ Раминг Станислав (Россия) Сергеев Александр (Жуковский, Россия)
+СТАДИОН «Минск-Арена» (Минск) Зрителей: 15086Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38720D11066020530D2CEB5F352922CE62FD1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752405   (103923) от 30.09.2024
+
+Хоккей. КХЛ 2024-2025. Динамо (Москва) - Нефтехимик (Нижнекамск) (29.09.2024) WEBRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Динамо (Москва) - Нефтехимик (Нижнекамск) (29.09.2024)
+СУДЬИ Гофман Антон (Россия) Дударов Александр (Москва, Россия)
+СТАДИОН «ВТБ Арена» (Москва) Зрителей: 6905Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82755F613C449800F3F2DB53D367CD9FF5AEF265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752403   (103924) от 30.09.2024
 
 Хоккей. КХЛ 2024-2025. Автомобилист (Екатеринбург) - Ак Барс (Казань) (29.09.2024) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103924.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Joe Spencer - Mistakespeare (2024) [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103925.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ The Name Droppers - Starshine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103926.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Harry James & His Orchestra - Embraceable You (1946) 1987, The Compact Selection
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103927.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ The Eric Mathews Band - Doc's Blues : An Appreciation of Mike Westbrook (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103928.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ Betty Carter - 'Round Midnight (1963) 2012, Atlantic [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103929.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ magnet:?xt=urn:btih:2BB4E134F6F154F47FE02AD70CB5D49DDBCE2424
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103930.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ magnet:?xt=urn:btih:71D62CFB19698F3324C9925CA3BA2E5EABF1A928
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103931.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ magnet:?xt=urn:btih:B24A5919F2BB3D5E3A2D6887F3D7D2D174549171
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103932.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ magnet:?xt=urn:btih:2D81651E6A823C1FDD9CFC98F28CDEC070468693
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103933.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ magnet:?xt=urn:btih:4D3AE9BC6AA9890454F17B5A29D048D5C25B422F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103934.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ magnet:?xt=urn:btih:46160A333802C88DBBF4B955E48A8EE49AB809C8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103935.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ magnet:?xt=urn:btih:B7EB5F14EBE4A1E52CC33AC20A33081F482B8013
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103936.jpg" />
 </div>
 
 
@@ -343,7 +421,7 @@ Champlin Williams Friestedt - CWF3 (2024) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103937.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ magnet:?xt=urn:btih:B60FFF20578C9C3A1AC19AFB5468D5EA168C3091
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103938.jpg" />
 </div>
 
 
@@ -394,7 +472,7 @@ magnet:?xt=urn:btih:FDF1793A1545412F60AD8B26FC286FDE1072C2DC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103939.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ magnet:?xt=urn:btih:231E57B667F822B8DB4420AF5CC78CBEDE8C46B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103940.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ Midnight Force - Severan (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103941.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ magnet:?xt=urn:btih:D167C6698B9DBEB6CEF8C7ED1DBD3F79394A1A7B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103942.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ magnet:?xt=urn:btih:4F31F0480A90B885BF79A39E298A132E51F757F9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103943.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ Jimi Jamison - Jimmy Wayne Jamison (2024) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103944.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ magnet:?xt=urn:btih:ECF13A8C35EB2AA8F5577D12D648F80DB1307BB1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103945.jpg" />
 </div>
 
 
@@ -575,7 +653,7 @@ magnet:?xt=urn:btih:27410205BC67AFA8F14D5A5D0068CA9F6AA056A6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103946.jpg" />
 </div>
 
 
@@ -586,83 +664,6 @@ magnet:?xt=urn:btih:27410205BC67AFA8F14D5A5D0068CA9F6AA056A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A2AC21660DD75B7EBAFCA01D2928C86C024212
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752303   (103947) от 29.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Гонка (29.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103947.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 сентября 2024, воскресенье. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF874F2C6189D7C3F40A515EEFC123C22E36B3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752150   (103948) от 29.09.2024
-
-Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hordes Of Chaos (A Necrologue For The Elite) (Remastered 2024) (5:04)
-02. Warcurse (Remastered 2024) (4:10)
-03. Escalation (Remastered 2024) (3:24)
-04. Amok Run (Remastered 2024) (4:13)(   Читать дальше...   )Жанр: Thrash-MetalПродолжительность: 01:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE89A919C6BEBFCA300CB89E9566A96DFE41C768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752281   (103949) от 29.09.2024
-
-Футбол. Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.09.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.08.2024)
-СУДЬЯ Куадра Фернандес
-СТАДИОН «Эль Садар» (Памплона)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: русскийПродолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76429CB7CD54D38114CE59C6789F78F38E5B1FAA
 ```
 
 

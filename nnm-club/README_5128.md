@@ -1,3 +1,186 @@
+###  Публикация: 51171   (158729) от 12.11.2023
+
+Деньги как долг / Money as Debt (2006) DVDRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм разрушает стереотипы, касающиеся денег, и в наглядной форме объясняет, как сложились и действуют два принципа современного банкинга, и почему они фактически являются узаконенной формой мошенничества.Телекомпания: Канада / Lifeboat News, Moonfire StudioЖанр: Документальный, мультфильмУчастники: Paul Grignon / Пауль Григнон, Bob Bossin / Боб БоссинПеревод: АвторскийПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBE65DF911342575768CFDCDB27F7BE485A362E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600453   (158730) от 27.12.2022
+
+Feelingless - Metal Against Animal Cruelty (2022) [FLAC|Lossless|WEB-DL|tracks] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelingless (feat. Bjorn Strid, Lawrence Dinamarca & Soilwork)
+02. Anguish (feat. Lawrence Dinamarca, Jon Howard, Gavin Iedema, Threat Signal & Neroargento)
+03. Peace (feat. Lawrence Dinamarca, Mikael Sehlin, Engel & Degradead)
+04. Love (feat. Ettore Rigott, Claudio R & Disarmonia Mundi)(   Читать дальше...   )Жанр: MDMПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F3E6E8E746CC02337853C09FF81DAB755203F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600468   (158731) от 27.12.2022
+
+Apex - Hollow (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hollow
+02 - Christ Complex
+03 - Wildlife
+04 - FAA(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A77CA1D0398D7F86479A96A0277BE99FA71C96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648363   (158732) от 12.11.2023
+
+Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, где выжить - означает победить. Проект, который приносит реалии того, что было бы, если человечество создало роботов, способных использовать оружие так, как им вздумается. Generation Zero показывает нам Швецию 1980 года. На всей планете случился апокалипсис, а по улицам теперь ходят неизвестные машины, которые уничтожают всё на своём пути. Альтернативная Швеция (   Читать дальше...   )Тип издания: RepackРазработчик: Systemic ReactionЖанр: Экшены, Выживание, ШутерыЯзык озвучки: Английский, ШведскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDC0C6B9A5F0E3219E3F9EF67497B2BF848592A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159460   (158733) от 12.11.2023
+
+Pretty Maids - 22 albums, 48 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Maids — легендарная датская рок-группа, была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году в Хорсенсе, Дания. Позднее к ним присоединились гитарист Пит Коллинз, басист Джон Дарроу, клавишник Алан Оуэн и барабанщик Фил Мурхэд. Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, мелодик хэви-метал, (   Читать дальше...   )--------------------------
+
+01. Trinity (4:30)
+02. Ode To A Madman (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 38:16:36 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B207526106A6A49ED5589D72423DAA4DCF8413D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600473   (158734) от 27.12.2022
+
+Узница Совести - 2 Albums (2021-2022) [MP3|320 Kbps] <Punk, Rap>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (Live) [00:00:49]
+02. Лиса (Live) [00:03:05]
+03. Шик (Live) [00:03:18]
+04. Слышь мне (Live) [00:02:54](   Читать дальше...   )Жанр: Punk, RapПродолжительность: 2 CD, 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD71D8810F231E767CFB2B1B3BF100C3E4858293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600560   (158735) от 27.12.2022
+
+Heathen - The Evolution Of Chaos (2010) Reissue, 2020, Mascot Records [FLAC|Lossless|image + .cue] <Technical Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Dying Season
+03. Control By Chaos
+04. No Stone Unturned(   Читать дальше...   )Жанр: Technical Thrash MetalПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3FC3FA084F4560C5B08376FD94C1CB988DA630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674620   (158736) от 12.11.2023
 
 Феликс Зумштейн | Python для Excel (2023) [PDF]
@@ -6,7 +189,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158736.jpg" />
 </div>
 
 
@@ -32,7 +215,7 @@ Lawnmower Deth - Blunt Cutters (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158737.jpg" />
 </div>
 
 
@@ -59,7 +242,7 @@ magnet:?xt=urn:btih:F9C8AF435CEED43222845AA97B388C7F691F8DF6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158738.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Uhrutau - Memory (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158739.jpg" />
 </div>
 
 
@@ -111,7 +294,7 @@ magnet:?xt=urn:btih:47E9E8A736F0B8E75D28A04BFF19CEEDFB83E435
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158740.jpg" />
 </div>
 
 
@@ -135,7 +318,7 @@ magnet:?xt=urn:btih:5A753CEDB49BEB356DF3594F43405ADA106CFD87
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_158741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_158741.jpg" />
 </div>
 
 
@@ -159,7 +342,7 @@ Arcane Dust - Etched Upon Thee (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158742.jpg" />
 </div>
 
 
@@ -186,7 +369,7 @@ Liquid Gnar - Scrap (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158743.jpg" />
 </div>
 
 
@@ -213,7 +396,7 @@ magnet:?xt=urn:btih:0EA311F5A0EF668420F14F06E1675D7B819EE4CC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158744.jpg" />
 </div>
 
 
@@ -237,7 +420,7 @@ Tetrarch - Unstable (2021) Digipack [APE|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158745.jpg" />
 </div>
 
 
@@ -264,7 +447,7 @@ magnet:?xt=urn:btih:CEADFA4F13CE14123C11294722F76ECF56D811C8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158746.jpg" />
 </div>
 
 
@@ -288,7 +471,7 @@ Assumption - Hadean Tides (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158747.jpg" />
 </div>
 
 
@@ -315,7 +498,7 @@ magnet:?xt=urn:btih:974508B4AB7BA620ED2CEE726AC40045C61AA1D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158748.jpg" />
 </div>
 
 
@@ -339,7 +522,7 @@ Kamala - Limbo666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158749.jpg" />
 </div>
 
 
@@ -366,7 +549,7 @@ magnet:?xt=urn:btih:3A62B7C3C9496E9AD552F94C010ED0CF6761F7EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158750.jpg" />
 </div>
 
 
@@ -390,7 +573,7 @@ System Toolkit 5.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158751.jpg" />
 </div>
 
 
@@ -414,7 +597,7 @@ magnet:?xt=urn:btih:E2B85595356108089A6E3D6366B4C2A7128CBBBF
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158752.jpg" />
 </div>
 
 
@@ -438,7 +621,7 @@ Shallow Black - Maladroit Matter (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158753.jpg" />
 </div>
 
 
@@ -465,7 +648,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158754.jpg" />
 </div>
 
 
@@ -476,182 +659,6 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B58B135CF7025DED918D9D466934103C12C084
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600398   (158755) от 27.12.2022
-
-Assumption - The Three Appearances (2014) EP [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moribund State Shifts (04:06)
-02. Veneration of Fire (07:18)
-03. The Three Appearances - Snang Gsum (05:16)
-04. The Non-Existing (12:44)Жанр: Doom, Death MetalПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EF2A078D3FC2E28C73C4B79D4A8FB1BB150973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676336   (158756) от 12.11.2023
-
-Призраки в Венеции / A Haunting in Venice (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венеция. Вышедший на пенсию Эркюль Пуаро неохотно посещает спиритический сеанс, во время которого один из гостей оказывается убит. Бывший детектив берется за расследование.Производство: США, Великобритания, Италия, 20th Century Studios, Kinberg Genre, Scott Free ProductionsЖанр: детектив, криминалРежиссер: Кеннет БранаАктеры: Кеннет Брана, Кайл Аллен, Камилль Коттен, Джейми Дорнан, Тина Фей, Джуд Хилл, Эмма Лейрд, Келли Райлли, Риккардо Скамарчо, Мишель ЙеоПеревод: Дублированный (неофициальный) - Red Head SoundЯзык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6278942C223FD42D73B79CFE2E8158AF2E3B84E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600508   (158757) от 27.12.2022
-
-DirEqual 4.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158757.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941DAE55E4239FCA271A5B8D7B11B9EE8EBD2609
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676090   (158758) от 12.11.2023
-
-Дмитрий Никотин | Курс по развитию Telegram-канала (2023) WEB-DLRip [Ru]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создай Telegram-канал и зарабатывай ежемесячно 100-500к на том, в чем ты хорошо разбираешься уже через 3 месяца, используя рабочую систему Дмитрия Никотина.
-
-Окей, а почему именно Telegram? У этого есть 6 значимых причин.
-(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B2DB730E6B1349714D6CF0E6B2D3FA1A2E8A8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606110   (158759) от 12.11.2023
-
-Красный флаг / Al Sancak (2023) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-19 из 19) AlisaDirilis
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о 10 талантливых солдатах и ​​их борьбе за защиту своей родины против её врагов.Производство: Турция / Bozdag FilmЖанр: боевикРежиссер: Джан ЭмреАктеры: Угур Гюнеш, Гульсим Али Ильхан, Айбарс Дюзей, Эмре Динлер, Идрис Неби Ташкан, Гёзде Туркер Гюлер, Осман Сойкут, Эслем Акар и др.Перевод: Двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийПродолжительность: ~02:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C60F0D3158D7CFD8D854D8A485A17D3770F4D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058017   (158760) от 12.11.2023
-
-Усатый нянь (1977) DVDRip [H.264]
-
->>След.
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вчерашний школьник и сегодняшний допризывник Кеша никак не может выбрать себе профессию по душе и не задерживается надолго ни на одной работе. Его проблему намеревается решить общественность, определяющая Иннокентия на работу в детский сад. Воспитательская работа с маленькими озорниками помогает ему самому повзрослеть.
-Как известно, дети непосредственны, искренни (   Читать дальше...   )Производство: СССР, Киностудия им. ГорькогоЖанр: Комедия, Музыкальный, СемейныйРежиссер: Владимир ГрамматиковАктеры: Сергей Проханов, Людмила Шагалова, Елизавета Уварова, Сергей Бачурский, Валерий Кисленко, Феликс Кроль, Валентин Брылеев, Геннадий ЯловичПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E33A25893282586872DD21C9995BE99068489F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676347   (158761) от 12.11.2023
-
-Убийца / The Killer (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококлассный наемный убийца, склонный к мизантропическому философствованию, поджидает жертву в Париже. Когда всё идёт не по плану, он сам рискует превратиться в мишень и отправляется разбираться с собственными заказчиками.Производство: США, Archaia Entertainment, Boom! Studios, Panic Pictures (II)Жанр: криминалРежиссер: Дэвид ФинчерАктеры: Майкл Фассбендер, Тильда Суинтон, Чарльз Парнелл, Арлисс Ховард, Керри О’Мэлли, Софи Шарлотт, Emiliano Pernía, Gabriel Polanco, Сала Бэйкер, Эндре ХулсПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH, Forced)Продолжительность: 01:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B272C194DCB1F5E2C451414F70106CA0F1C5F3
 ```
 
 

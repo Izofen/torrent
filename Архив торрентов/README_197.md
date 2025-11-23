@@ -6,7 +6,7 @@ AVS Image Converter 6.0.4.337 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47002.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.8.3 build 5133 (DC-12-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47006.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FastCopy Pro 5.7.15 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47010.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StartAllBack 3.8.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47031.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AVS Media Player 5.7.2.160 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47035.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wondershare UniConverter 15.6.1.25 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47052.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rainlendar Pro 2.21.3 Build 180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47054.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ FastCopy Pro 5.7.15 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47059.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:59BFA0127A4BB495ACC4C5BB32E6E55A33294506
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47066.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C8F952725AA9E932A9A271A19952C3C53FA6CF26
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47076.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FF6697B345FCB773C0E4B879C61825FA795EBF31
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47103.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sumatra PDF 3.6.16736 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47114.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Balabolka 2.15.0.877 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47115.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F93B51241364F13FECC2E6DBA84454D85AB0545D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47117.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E1AA0CC16B20CFD9C0692268EECB75EABCB578DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47143.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CareUEyes 2.4.1.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47145.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Topaz Photo AI 3.2.0 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47152.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A2B3A9DEF46DD1C296EFE7687E6AF2B4D3344814
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47154.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:42F937AA3FC4C58338FAEA4F7826614C353D61A5
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47168.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:07AC28B624C2F01259C476E069F5458297A2430A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47174.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FxSound Pro 1.1.26.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47178.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Luminar Neo 1.20.1.13681 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47181.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Smart Tools 2 v1.1.10 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47199.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ System software for Windows v.3.6.3 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47202.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ MX Player Pro v1.86.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47203.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Adobe Acrobat Pro 2024.002.20991 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47207.jpg" />
 </div>
 
 

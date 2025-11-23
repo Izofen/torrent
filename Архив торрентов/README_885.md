@@ -1,3 +1,101 @@
+###  Публикация: 1668556   (173976) от 12.10.2023
+
+Topaz Photo AI for Mac 2.0.5 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DCECC212E6637970040FF1AB27B9C503EA4D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430472   (173977) от 10.12.2020
+
+Mic Drop 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_173977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BC2B589C6532DDAAAD7F544E5C19A4A16A13FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430470   (173981) от 10.12.2020
+
+Multitouch 1.20.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_173981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch!
+
+Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47DAADD66C7573CD0A94E52CF0717D0C314CF4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668449   (173993) от 12.10.2023
+
+Wondershare PDFelement 10.1.1.2495 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A6D1BD6A458B6739D7966B0D8A8D2F2B100D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668472   (174000) от 12.10.2023
 
 QOwnNotes 23.10.1 Portable [Multi/Ru]
@@ -6,7 +104,7 @@ QOwnNotes 23.10.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174000.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ Windows 10 (60in2) Sergei Strelec x86/x64 20H2 (build 19042.685) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174002.jpg" />
 </div>
 
 
@@ -55,7 +153,7 @@ Photo Supreme 2023.2.0.5052 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174016.jpg" />
 </div>
 
 
@@ -79,7 +177,7 @@ DxO FilmPack 7 for Mac v.7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174022.jpg" />
 </div>
 
 
@@ -103,7 +201,7 @@ Icecream Screen Recorder Pro 7.30 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174027.jpg" />
 </div>
 
 
@@ -127,7 +225,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174037.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174037.jpg" />
 </div>
 
 
@@ -151,7 +249,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174041.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174041.jpg" />
 </div>
 
 
@@ -175,7 +273,7 @@ magnet:?xt=urn:btih:5E5172CF6D13CF96555408D2FC48BB9B63106481
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174043.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174043.jpg" />
 </div>
 
 
@@ -199,7 +297,7 @@ magnet:?xt=urn:btih:F3B591508746450755907670C5A54CBA87B142A4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174045.jpg" />
 </div>
 
 
@@ -226,7 +324,7 @@ K-Lite Codec Pack Update 17.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174057.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174057.jpg" />
 </div>
 
 
@@ -250,7 +348,7 @@ Agisoft Metashape Professional 1.7.0 build 11539 pre-release [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174077.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174077.jpg" />
 </div>
 
 
@@ -275,7 +373,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174081.jpg" />
 </div>
 
 
@@ -299,7 +397,7 @@ AnyDesk 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174086.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174086.jpg" />
 </div>
 
 
@@ -323,7 +421,7 @@ Symantec Endpoint Protection 14.3 RU1 3384 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174104.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174104.jpg" />
 </div>
 
 
@@ -347,7 +445,7 @@ Victoria 5.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174116.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174116.jpg" />
 </div>
 
 
@@ -371,7 +469,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174136.jpg" />
 </div>
 
 
@@ -398,7 +496,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174139.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174139.jpg" />
 </div>
 
 
@@ -422,7 +520,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174147.jpg" />
 </div>
 
 
@@ -447,7 +545,7 @@ Youtube Downloader HD 3.3.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174154.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174154.jpg" />
 </div>
 
 
@@ -471,7 +569,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174172.jpg" />
 </div>
 
 
@@ -496,7 +594,7 @@ Microsoft Visual C++ 14.28.29617 Runtimes AIO (x86-x64) Repack by @burfade [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174173.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174173.jpg" />
 </div>
 
 
@@ -520,7 +618,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174174.jpg" />
 </div>
 
 
@@ -532,104 +630,6 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F762E54E735B938FCDB0118A6AA76E9FF41B685
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430115   (174180) от 09.12.2020
-
-Maplesoft Maple 2020.2 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система компьютерной алгебры Maple, обладающая удобным графическим интерфейсом, позволяет производить символьные и численные решения дифференциальных уравнений и интегральных уравнений и вычислять интегралы.
-Сегодня пакет Maple используется в самых разных сферах – от управления марсоходом до преподавания основ математики.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF604C822E9F5F36AB16087A327315A72E96BCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430198   (174190) от 09.12.2020
-
-WinToHDD 4.8 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174190.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727981710AD3958360D9929A3AB71139BDE0BBB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595854   (174196) от 07.12.2022
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5977E224C448CF8E5A46C9334A32926DC4461A35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593057   (174210) от 07.12.2022
-
-VMware Workstation Pro 17.0 for Linux 17.0.0 Build 20800274 [x86, amd64] (bundle)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174210.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation Pro™ enables technical professionals to develop, test, demonstrate, and deploy software by running multiple x86-based Windows, Linux, and other operating systems simultaneously on the same PC.
-You can replicate server, desktop, and tablet environments in a virtual machine and allocate multiple processor cores, gigabytes of main memory, and graphics (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92162A093D00E38315AE18FFB18F58D3B6E050D7
 ```
 
 

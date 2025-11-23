@@ -6,7 +6,7 @@ Monosphere - Sentience (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171957.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Amenta - Plague of Locus (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171959.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skull - Epistle 1 Pickin' Up The Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171960.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Rolling Stones - Hackney Diamonds (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171999.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Then Comes The Night - Start the Change (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172072.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DEA849BEE1B6787C3D864363D56EA32EABAD4133
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172076.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F9D447D8E1E6683019C7148913164F3FA0D1FED0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172085.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Haxans - The Dead And Restless (2023) [MP3|320 Kbps] <Alternative Rock, Goth
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172103.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ LASCALA - LINEA (2023) Deluxe Edition [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172109.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5A72244128243E7982FB254C7F9A5689A43FCEC8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172112.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5D0318AE96A54312291CCF5DEF3BE444A4B2C376
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172117.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2F85CAE60C29F2AD09ED513B3DDDCA27A47736C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172125.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Apostolica - Animae Haeretica (2023) [FLAC|Lossless|image + .cue] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172131.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blink-182 - One More Time... (2023) [MP3|320 Kbps] <Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172228.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172263.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Chemical Sweet Kid - Kiss The Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172292.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Arena - Lifian Tour MMXXII (2023) [MP3|320 Kbps] <Progressive Metal, Neo Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172319.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Angelus Apatrida - Aftermath (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172324.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Who - Live At Leeds (1970) Deluxe Edition, 2014, Geffen [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172338.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Raven Tide - Eleven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic/Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172348.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Durnev - В Мир Иной (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172355.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Crow'near - Full Moon Fever. Anniversary Edition (1992) Compilation, Reissue, Re
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172356.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172359.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172362.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saclas - Achamoth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172367.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ravendusk - Shadowcast (2001) [FLAC|Lossless|image + .cue] <Symphonic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172368.jpg" />
 </div>
 
 

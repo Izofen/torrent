@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69778.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StaxRip 2.44.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69779.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Vocal Trance Collection Vol. 3 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69780.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:4376DE1621DD7CA71FA3796DB088A88C9213BA60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69781.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Winter Collection 2025 (2025) [MP3|320 Kbps] <Progressive House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69782.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Stuka - 4 Albums (2022-2025) [MP3|320 Kbps] <EBM, Electro Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69783.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Stuka - Electronic Body Metal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69784.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:44A21FEF1B71850E59CA6464217C8752A9E9E82E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69785.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Andrew Bird - Collection (2016-2024) [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69786.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Years Of Messages - The Bitterness of Love & Obsession (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69787.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:36ED9B8D314A0C9C91FADB6554D5123D82BEB3E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69788.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:64002071358EEACA080613AE1BD7A573FDB52835
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69789.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69790.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69791.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:20442B7EEB4EF56BF1A13F9C96E16C506C7E8A71
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69792.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:075B3DA8B3946E4B455A6A682A42FEB78DA0A0A5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69793.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69794.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69795.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sonny Rollins - On The Outside (1962, 1963) 1991, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69796.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Les McCann - Never A Dull Moment! (1966, 1967) 3CD, 2023, Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69797.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Art Pepper & George Cables - Tete-A-Tete (1982) 1995, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69798.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69799.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69800.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:8371A855635685FB20D63B2EC0594782C5DBE054
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69801.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:A1BE42CA5D5D573BE31A3F1D03C77D66A988887A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69802.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:72DB6756D017D1DFDD68783F59AEA0BC9D238868
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69803.jpg" />
 </div>
 
 

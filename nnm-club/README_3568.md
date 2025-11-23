@@ -1,3 +1,82 @@
+###  Публикация: 1711552   (112450) от 30.03.2024
+
+Сто к одному (30.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112450.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Пловчихи" против команды "Гимнастки"Язык озвучки: РусскийПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81E4D8DA905DD00968FD28DE697E85880E2A288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711376   (112451) от 30.03.2024
+
+Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out Of Town [2:58]
+02. S'Wonderful/They Can't Take That Away From Me [4:07]
+03. Just The Way You Look Tonight [5:41]
+04. Honeysuckle Rose [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711457   (112452) от 30.03.2024
+
+Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.03.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112452.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 марта 2024, пятница. 02:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 18 577 зрителей (92% при вместимости 20 270)
+Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6DBB77A2C203C0F1070F46BADD40F55DF8A6F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711428   (112453) от 30.03.2024
 
 :LOR3L3I: - The Demo Collection (2020) Limited Edition, Remastered 2021 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electronic, Rock, Ethereal, Coldwave>
@@ -6,7 +85,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112453.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:6855799F7830DF4885470F10B0482B28F37962A5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112454.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ Coffin Storm - Arcana Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112455.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ VA - Bar Groove Analog 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112456.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:0CCE2FE6AD0475FC42794745154AB98FA83539A2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112457.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ magnet:?xt=urn:btih:E088F61E8D93D59729FB30A189BF3F9C01B05846
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112458.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ Madness - The Liberty of Norton Folgate (2009) Remaster, 2023, Expanded Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112459.jpg" />
 </div>
 
 
@@ -186,7 +265,7 @@ magnet:?xt=urn:btih:5DC89ADE5B6BD47D85849B0B4F28489904CBBA9E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112460.jpg" />
 </div>
 
 
@@ -210,7 +289,7 @@ magnet:?xt=urn:btih:6DEB0F53E3153A72C5F471CCC2D29E155B931B03
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112461.jpg" />
 </div>
 
 
@@ -235,7 +314,7 @@ magnet:?xt=urn:btih:043F355359E2E539764ACC82892E69AD74F21834
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112462.jpg" />
 </div>
 
 
@@ -261,7 +340,7 @@ magnet:?xt=urn:btih:E70FBE4F55EBA2FAD5F6146FD2FD5A7F6200CEF8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112463.jpg" />
 </div>
 
 
@@ -287,7 +366,7 @@ magnet:?xt=urn:btih:CE9D23A936F1803C0B9E4A6C6C8C8D5A875B66C8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112464.jpg" />
 </div>
 
 
@@ -312,7 +391,7 @@ magnet:?xt=urn:btih:3C903C17EC7E11F14F6782A9E183B400B387D58A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112465.jpg" />
 </div>
 
 
@@ -336,7 +415,7 @@ magnet:?xt=urn:btih:B6338DC3E89FB885D248D3E7B4172BB21D2B447D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112466.jpg" />
 </div>
 
 
@@ -361,7 +440,7 @@ Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112467.jpg" />
 </div>
 
 
@@ -388,7 +467,7 @@ Ivory Tower - Heavy Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112468.jpg" />
 </div>
 
 
@@ -415,7 +494,7 @@ The Prog Collective - Dark Encounters (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112469.jpg" />
 </div>
 
 
@@ -442,7 +521,7 @@ Fall Of Serenity - Open Wide, O Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112470.jpg" />
 </div>
 
 
@@ -469,7 +548,7 @@ magnet:?xt=urn:btih:B46D4BDA5A7F4DC4725A8FCD34393811135BFC7F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112471.jpg" />
 </div>
 
 
@@ -493,7 +572,7 @@ MarsEdit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112472.jpg" />
 </div>
 
 
@@ -517,7 +596,7 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112473.jpg" />
 </div>
 
 
@@ -544,7 +623,7 @@ magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112474.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112475.jpg" />
 </div>
 
 
@@ -582,84 +661,6 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5CC89F6DA4C61CE5DA9006E5F58394A2E4989B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711588   (112476) от 30.03.2024
-
-Rotting Christ - The Apocryphal Spells (2023) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112476.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Astral Embodiment (5:29)
-02. Fire And Flame (3:05)
-03. I Am The Moonchild (2:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AB78EAAD4F247D82C4F521BA06990ADAA13D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711382   (112477) от 30.03.2024
-
-Piezo 1.9.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADF67587360B0CB17495B78358BF31F8D6C1268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711416   (112478) от 30.03.2024
-
-SiteSucker 5.3.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112478.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EEE7B13D2E6A45F13C7DA27B4DC2264193FFD4
 ```
 
 

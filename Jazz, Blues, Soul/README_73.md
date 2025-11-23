@@ -6,7 +6,7 @@ Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107223.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107227.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107231.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rory Block - Positively 4th Street (A Tribute To Bob Dylan) (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107233.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107234.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107236.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107240.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107242.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107243.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107244.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Pleasant Relaxing Escape to Paradise Lounge Vacation Playlist (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107246.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Relaxing Soothing Lounge Chill Sounds Enjoying a Quiet Moment While Vacatio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107247.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107285.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Anita O'Day - Live In Tokyo (1975) 1994, Venus Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107288.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107289.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107292.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107293.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107305.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107307.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107308.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107310.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107311.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107312.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107313.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Szigeti Juli - Wild & Groovy (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107369.jpg" />
 </div>
 
 

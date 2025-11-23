@@ -6,7 +6,7 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152789.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skillbox, Михаил Колодочка | Программирование д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153030.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153218.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153267.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153286.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153357.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Udemy, Максим Новак | Универсальные коллекции �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153442.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:14E0E5C91D3AEAD7D03F124D20EAAECB4370954D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153637.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:38CFDB43C54EBBEBDAB767C7554CB52276CB2CDF
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153665.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:60EE46C6A52F72E3A68338B4F9CBE96BB03507ED
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153693.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Learn Squared, John Sweeney | Cinematic Concept Design (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153698.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FE0B2962883324D4D16F3FF731C33C498BFB7E48
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153709.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:5FBA4028477B741EAAE513DC1592278ADB1A1A1A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153734.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153736.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:4B52E103D887F1AC8B92BFB2E14EE4B06B8BB3AE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153788.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:D608F997E8E9AB6B210885CE5E08E9D964752EF7
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153809.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Stepik, Александр Бондарев | Revit 2024: Основы созд�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153810.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153855.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D9C95A8E97F8E6D64DD7A2AEB5CC0B0337F1B6A8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153900.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153915.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Compositing Academy, Alex Hanneman | Fundamentals of CG VFX Compositing in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153936.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153970.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154032.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154052.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154093.jpg" />
 </div>
 
 

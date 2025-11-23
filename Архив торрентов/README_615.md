@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132279.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:704B7A768AE774CAC4E8C800EC98C8D2DFA8853E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132281.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:5C65D54BDEDD32563D1D75632B01E6D921B3D01F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132283.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E2691C26237287D60B46B52C63B8C15223ACB377
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132285.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:7FB15CE85999AC6A918DD891711E4CC8CA804124
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132287.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Interior Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132289.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132291.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132302.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Nature Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132308.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A3DDA9E74C11B83FF4E4D55F828DE4FF9528FE15
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132310.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Topaz Video AI 4.0.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132311.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Fitify: Фитнес тренировки дома 1.61.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132313.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Animal Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132315.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Planet Love Records: Best Of 2012 (2012) [MP3|320 kbps]<Trance, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132316.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:70AA7ED9E3BCE4097E958615DC3CE326ABA2FAD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132317.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Andrew Lu - Club Universe Radioshow 053 (27.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132320.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ OCCT 12.1.12 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132322.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7ED2796801C10C939D7176276E265CFB901C454E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132332.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ K-Lite Codec Pack Update 17.9.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132336.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Topaz Photo AI 2.1.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132337.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ NIUBI Partition Editor 9.9.0 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132340.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ SoundHound∞ 10.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132362.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Macrorit Partition Expert 8.1.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132364.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Another / Иная [2012, TV, 12 из 12] BDrip 1080p raw + rus x2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132365.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Revo Uninstaller Pro 5.2.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132366.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ PortableApps.com Platform 27.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132374.jpg" />
 </div>
 
 

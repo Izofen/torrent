@@ -6,7 +6,7 @@ VA - Клубные новинки Vol.65 from GvertO (2012) [MP3|320 кб/с]<C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99353.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Хиты на радио клубнячек и попса vol.5 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99369.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Музыкальный Эксклюзив от Europa Plus (2012) [MP3|256 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99394.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99420.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Русские Новинки Vol.44 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99508.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Хиты Европы Плюс №20 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99546.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - XXXL Super дискотечный 50/50 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99549.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Слушать Всем DFm! 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99554.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Deeper Chill Out Line (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99555.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Chill Out Vibes (2012) [MP3|320 kbps]<Downtempo | Lounge | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99561.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Дискотека Non-Stop. Будет жарко (2012) [MP3|160-256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99582.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99603.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Авто Дискотека DFM Зарубежная (2012) [MP3|256 kbps]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99638.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Радио Energy - NRJ HOT30 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99647.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Зарубежные Новинки Vol.41 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99691.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Points of Interest (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99693.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Return To Eternya (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99707.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99723.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99796.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Клубные новинки Vol. 66 from GvertO (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99877.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - Хиты на радио клубнячек и попса vol.8 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99903.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Клубная танцевальная 100-ка (2012) [MP3|160-256 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99909.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - MAXI. Русские новинки MTV (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99941.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ VA - Psytrance Proclear (2012) [MP3|320 кб/с]<Trance, Psy Trance, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100018.jpg" />
 </div>
 
 
@@ -791,7 +791,7 @@ VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100031.jpg" />
 </div>
 
 
@@ -824,7 +824,7 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100144.jpg" />
 </div>
 
 

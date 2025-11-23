@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55615.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vit Registry Fix Pro 14.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55616.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lenny Kravitz - Blue Electric Light (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55617.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Enigma Virtual Box 10.70 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55618.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B2B100B8D52EAF505E20227E163F8D9592A4EE3A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55619.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:00C862449993A99AB6B99D18448A75EDA94838CE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55620.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A1F6DE0C6DDDD38015487877456E4E08BDDB7338
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55621.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Enigma Virtual Box 10.70 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55622.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E0B70E4DD4381B193739B08B386A5C1C4651A8A8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55623.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:33EA4E48EDDB4977F42444301DA97068237DADAA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55624.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:80994BFD7C3CBD44407BA49A1130BA0B090E1A74
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55625.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55626.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55627.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ CCleaner 6.24.11060 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55628.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:1708AE39CC7761E45B12D4A9EF1071A6BC38CB10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55629.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:91BE9FC62772FAEF874CD0BECAB7380D8A4C3FB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55630.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55631.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:36641483E171062677CEA2CD19847C5D6FC30317
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55632.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:7F6A3D5C3778B6D8F0F179168E86696170313B8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55633.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55634.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55635.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55636.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Topaz Gigapixel AI 7.2.0 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55637.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F6583979A71A732C7E60638F82EA4E6DA6532135
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55638.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55639.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C4956F092766A7874EDC619F7119904100CF7A8E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55640.jpg" />
 </div>
 
 

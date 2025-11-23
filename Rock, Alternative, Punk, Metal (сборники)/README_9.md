@@ -1,3 +1,165 @@
+###  Публикация: 1634266   (198204) от 21.05.2023
+
+VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandra Hall - Jump Into My Fire
+02. Tas Cru - Can't Get Over Blues (Again)
+03. Floyd Lee - When You Break A Young Girls' Heart
+04. Tas Cru - Brand New Shoes(   Читать дальше...   )Жанр: Rock BalladsПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AFE0AE5F8466EC8530E398B8D930BC22C7125B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633508   (198427) от 16.05.2023
+
+VA - Rock & Blues part 20 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Wilson's Blues Band - Now That The Magic Has Gone
+02. Twelve Bar Blues Band - Key To You Heart
+03. Epi K. Paradox - I Can't Help You No More
+04. Twelve Bar Blues Band - Life Is Hard(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4682D995F67BAF9262ED4EB177B07FA7890D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633310   (198431) от 16.05.2023
+
+VA - Rock & Blues part 19 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nimmo Brothers - All I Want
+02. Too Mutz Blues Band - Charlie's blues
+03. Justin Johnson - Ghost Riders In The Sky
+04. Brandon Lane - Trouble(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 04:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF70D6F32C8811F6F3E3BE2226ED6873B6553DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632971   (198570) от 13.05.2023
+
+VA - Rock & Blues part 18 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aynsley Lister - Tin Pan Alley
+02. Scott Holt - Your Memory Won't let Me Be
+03. Henrik Freischlader - My Woman
+04. Bernard Allison - Just Do Me Any Way You Want(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91EB310981E342E54B11F827A90AF8410FA399A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628128   (199526) от 21.04.2023
+
+VA - Rock Ballads (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seether - Broken (4:18)
+02. Metallica - Nothing Else Matters (Remastered 2021) (6:28)
+03. Five Finger Death Punch - Times Like These (3:29)
+04. Three Days Grace - Lifetime (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 05:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08109D66CF80AC0C9691E8BF4E4337494C72194C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626027   (199869) от 13.04.2023
+
+VA - Rock Covers (2023) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florence + The Machine - Just A Girl (From The Original Series “Yellowjackets”)
+02. Daughtry - Separate Ways (Worlds Apart)
+03. Måneskin - If I Can Dream (From The Original Motion Picture Soundtrack ELVIS)
+04. Guns N' Roses - Knockin' On Heaven's Door(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBE1DB82B8112898D17AAC1D8DA43990B89CC69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830246   (202382) от 26.10.2025
 
 Ronnie James Dio - Voice Of Rock - Compilation (1960-2011) [MP3|320 Kbps] <Heavy metal, Hard rock>
@@ -6,7 +168,7 @@ Ronnie James Dio - Voice Of Rock - Compilation (1960-2011) [MP3|320 Kbps] <Heavy
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202382.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202382.jpg" />
 </div>
 
 
@@ -33,7 +195,7 @@ VA - Rock Hits 150 v2 (2023) [MP3|320 Kbps] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202500.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202500.jpg" />
 </div>
 
 
@@ -60,7 +222,7 @@ VA - Compilation  Blues Rock Part 31 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203472.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203472.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204243.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204243.jpg" />
 </div>
 
 
@@ -111,7 +273,7 @@ VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204393.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204393.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204487.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204487.jpg" />
 </div>
 
 
@@ -165,7 +327,7 @@ VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204551.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204551.jpg" />
 </div>
 
 
@@ -192,7 +354,7 @@ VA - Compilation Part 28 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204552.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204552.jpg" />
 </div>
 
 
@@ -219,7 +381,7 @@ VA - Compilation Part 29 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204555.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204555.jpg" />
 </div>
 
 
@@ -246,7 +408,7 @@ VA - Сектор газа. Народный трибьют 1 часть (2022) 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204846.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204846.jpg" />
 </div>
 
 
@@ -273,7 +435,7 @@ Nickelback - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206251.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206251.jpg" />
 </div>
 
 
@@ -300,7 +462,7 @@ VA - Русский Рок 3 (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207117.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207117.jpg" />
 </div>
 
 
@@ -327,7 +489,7 @@ VA - Yacht Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207225.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207225.jpg" />
 </div>
 
 
@@ -354,7 +516,7 @@ Dire Straits & Mark Knopfler - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208282.jpg" />
 </div>
 
 
@@ -381,7 +543,7 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209168.jpg" />
 </div>
 
 
@@ -408,7 +570,7 @@ VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209794.jpg" />
 </div>
 
 
@@ -435,7 +597,7 @@ VA - 90s Ballads (2023) [MP3|320 Kbps] <Alternative, Ballad, Soft Rock, Vocal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210056.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210056.jpg" />
 </div>
 
 
@@ -462,7 +624,7 @@ VA - female rock, blues rock part  24 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210443.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210443.jpg" />
 </div>
 
 
@@ -489,7 +651,7 @@ MyTones - Ultimate Queen Tones (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210564.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210564.jpg" />
 </div>
 
 
@@ -516,7 +678,7 @@ VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbp
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210578.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210578.jpg" />
 </div>
 
 
@@ -530,168 +692,6 @@ VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640763   (211009) от 19.06.2023
-
-MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Black (Originally Performed by AC/DC) [00:29]
-02. For Those About To Rock (Originally Performed by AC/DC) [00:29]
-03. Heatseeker (Tribute in the Style of AC/DC) [00:29]
-04. Hell's Bells (Originally Performed by AC/DC) [00:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640150   (211027) от 19.06.2023
-
-VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rock Heroes - Iron Man [00:30]
-02. Jizzy Pearl, Tracii Guns, Gilby Clarke - Sweet Child O' Mine [00:30]
-03. Robert Trujillo, Eric A.K. - Battery [00:30]
-04. L.A. Guns - Pour Some Sugar On Me [00:30](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414A6F9E552D9E9060A7FE8BBA2717E95571BFA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559861   (213018) от 28.06.2022
-
-Кипелов - Коллекция (2022) MP3 [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый крутой отечественный хэви метал и мощный вокал. Я бы сказал словами классика. Здесь Русский дух, здесь русью пахнет. Сборник лучших композиций Валерия Кипелова и его команды. Все треки взяты с фирменных CD изданий. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. На распутье
-02. Дыханье Тьмы
-03. Пророк
-04. Не сейчас(   Читать дальше...   )Жанр: MetalПродолжительность: 03:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F17A4A5E8CF5CFAE125FD8890D22C87BE78F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559085   (213129) от 23.06.2022
-
-VA - Русский Рок 2 (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ермак! - Аггел (1:31)
-02. Александр Ф. Скляр Ва-Банкъ - Ты забыл, брат (Cover) (3:17)
-03. Николай Сергеев - О вечном (2:37)
-04. Пилот - Собачья жизнь (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EC92BA1A44A8F68FE85EFDE727DE3AC24414C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343846   (214799) от 08.12.2019
-
-VA - Festival Indie Pop Rock Music (2019) [MP3|320 Kbps] <Indie, Pop, Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214799.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benee - Soaked
-002. Ella Blixt - Good
-003. Syrup, Go On - Mantaray
-004. Jesper Lindell - Whatever Happens(   Читать дальше...   )Жанр: Indie, Pop, Rock, AlternativeПродолжительность: 09:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FEEC37BBDB74E1E976CDE8E4372EA785D71529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586753   (215395) от 27.10.2022
-
-Dr. Project Point Blank Blues Band - Compilation (2022) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me a Reason
-02. I'm All Right (You Can't See)
-03. Magnum 44
-04. Move Your Body(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C4268655A8932939E2FF8ABA0B10A7403B3BDC
 ```
 
 

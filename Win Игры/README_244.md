@@ -6,7 +6,7 @@ Enigmatis 3: The Shadow Of Karkhala / Энигматис 3: Тень Карха�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151948.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151962.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152019.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152041.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152045.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shaun White Skateboarding / Shaun White Скейтборд (2010) [Ru/En] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152056.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Witches' Legacy 7: Awakening / Наследие ведьм 7: Пробужден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152115.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152348.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Halloween Stories 7: Written in Blood / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152687.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152923.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153001.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153010.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Infliction (2018) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153029.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ StarCrawlers (2017) [En] (1.1.2) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153196.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153259.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Braid (2009) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153383.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Legions of Ashworld (2014) [En] (1.0.2) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153439.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153572.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Awakener: Forgotten Oath (2023) [Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153658.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153670.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153673.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.5.766.8713/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153711.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (2.08/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153720.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales / Дух Рождества 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153898.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ League of Light 7: Growing Threat (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153955.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154044.jpg" />
 </div>
 
 

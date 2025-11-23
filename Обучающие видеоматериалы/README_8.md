@@ -6,7 +6,7 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20215.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20313.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20337.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20350.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20526.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6F009470F202D3F7EE1B3C0049692B04AD9ADD71
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20952.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Udemy, Антон Ларичев | Docker + Ansible - с нуля, деплой 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21076.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21394.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:99914B8C993E17FBB6A748A2C6EF6277430DED99
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21786.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21893.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22234.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22235.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Zerocoder | Станьте профессиональным зерокодеро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22236.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Zerocoder, Вадим Михалев | Зерокодер мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22237.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22338.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ ProfIT | XDebug: полезное расширение для каждого р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22422.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22442.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PluralSight | Cisco CCNA Security Introduction to Network Security (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22551.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7135A3CF13C40C8C4FF612F6DD9FBC47683167BE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22697.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:AEC341790A3DA9B808CDA9E1B84B4F660D68FC67
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23127.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:0FFAD89F1F93ABBD8C87C3AA46FED8EBE7E206A2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23141.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23141.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:4DC68DFE640BFB75FA9B5814D19C94579FE2E377
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23231.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0BEE23CC41D4D66A44ABF0395F9D01B964A63C09
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23302.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:CA2EB65C3F6B5634662A6137321FD60092CA9FC9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23309.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:859427E0111C464A862D62C68048A6FE4E906D84
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23326.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:C2ADF183408CDA9941F3BC5C73D7B76A3B7138A9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23337.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23337.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161940.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162279.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162541.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163021.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:9025BA742BB5201FE4DC27F30FC474746D4A3449
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163888.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:F7C50AD9AFEE71E26E93FF6BD60E1FDFA4F52E57
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163946.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164080.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164085.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164103.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164194.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Oliver Shanti and Friends - Discography (1987-2006) [FLAC|Lossless]<New Age / Et
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164710.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164875.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164928.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164964.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165012.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165133.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sexy Saxophone Christmas Band - A Sexy Sax Christmas - Sensual Instrumental Favo
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165955.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166481.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Estas Tonne - 16 Альбомов (2002-2020) [FLAC|Lossless|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166545.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D1B34147A41F2BC0DB0F3661FFF6E4FF15D39718
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166597.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Estas Tonne - 27 Синглов (2006-2020) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166672.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritua
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167117.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167218.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167252.jpg" />
 </div>
 
 

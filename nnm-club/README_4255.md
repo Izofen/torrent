@@ -1,3 +1,78 @@
+###  Публикация: 1683035   (130775) от 09.12.2023
+
+Капитан Марвел 2 / The Marvels (2023) WEBRip [H.264/1080p] [UKR] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (Line)Язык озвучки: украинскийСубтитры: ОтсутствуютПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED438C7E2DA5924CF77F6324F5FF02759DE5F321
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682902   (130778) от 09.12.2023
+
+Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blanc - это атмосферная и трогательная адвенчура для всей семьи. Спрятанный где-то в заснеженных просторах лежит таинственный мир - удивительная вселенная, в которой два малыша - волчонок и олененок, отправятся в путешествие, чтобы найти свои семьи. Это не просто игра, это эмоциональная история о дружбе, доверии и выживании в неизведанных дебрях. В этом невероятном (   Читать дальше...   )Тип издания: RepackРазработчик: Casus LudiЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682142   (130780) от 09.12.2023
+
+VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130780.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddy Guy feat. Jason Isbell - Gunsmoke Blues [03:09]
+002. Larry Miller - Blues Forever [05:26]
+003. Danielle Nicole - Take It All [02:58]
+004. Kenny Wayne Shepherd - Blue On Black [05:30](   Читать дальше...   )Жанр: Blues-Rock, Country, BalladПродолжительность: 11:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596572   (130781) от 31.12.2012
 
 Голос. Выпуск №13. Финал (2012.12.29) HDTVRip [720p]
@@ -6,7 +81,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130781.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:4CF9655865C1BFBFD642B744A8B08587AE564FD0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130782.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:9138BAF3D30A3FF6856181DC763BD8BBC9F04B01
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130784.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:479F9ECC322808F43084FC5CF1128961703E5EBE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130785.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:EA4CAE3A9F65865F890B1790C503F753EADFE9E4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130788.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:B73380727C598B4F952993808562D5309C7254FF
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130792.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:5C823BF585EDE68734E5EA73245512412C04FBA9
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130795.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:90D9FD49F9964E4226E822C87A6DF9D412354CB9
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130797.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ magnet:?xt=urn:btih:CDB1A520C8E02407DD8ABFEC860152D5E945F012
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130799.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:5E0581282AFCC78350988DA1CFA1B456A0633559
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130800.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ magnet:?xt=urn:btih:844759F0E656A87C37452411BB93F3EC7E89944A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130801.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130802.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ IrfanView 4.65 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130803.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:9776A5DF7B26BB768A71F404F0981D1CDBCB7DED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130804.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:6E47767DD68A2E246910FC87936D1345F2BE1E64
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130805.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:43B994415AA817CC13E0682BFE2E7B6A4A78E539
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130807.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:A5E70307093171F32F72D689F448EF38C8FACD77
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130808.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ magnet:?xt=urn:btih:563FC7A087BBB80B8ACBD2238FD9ABFF9D304FF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130809.jpg" />
 </div>
 
 
@@ -446,7 +521,7 @@ magnet:?xt=urn:btih:37A2CD57BA6140DD3D64E8A42C4C73E689107978
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130811.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ magnet:?xt=urn:btih:25E92436B9ECE24815640F113B1BCBBA253C02C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130813.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ magnet:?xt=urn:btih:08897FA93A9F3009393240250141101B6556CBF1
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130815.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:E2CA0FCE49A5011CBDAB5B7F1F0CBBD85DC44AD0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130816.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:0C7211B32C744480129CC474F60252476361EF9B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130817.jpg" />
 </div>
 
 
@@ -553,86 +628,6 @@ magnet:?xt=urn:btih:0C7211B32C744480129CC474F60252476361EF9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F0DED4E23191AB10F6E788D035190C0D1EA58A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596504   (130818) от 31.12.2012
-
-Туристас / Turistas (2006) [1080i] HDTV
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания шестерых студентов решила провести каникулы, путешествуя по Бразилии. Экзотические пейзажи, красивые животные, интересные встречи — ничто не предвещало беды.
-Неожиданно у затерянного острова близ бразильского побережья их автобус терпит крушение, и молодые люди остаются один на один с джунглями.
-Однако труднопроходимые тропические леса хранят свои секреты.
-Оказывается, у обычных студентов есть что-то очень ценное, и в здешних краях у них отберут это любой ценой.Жанр: УжасыРежиссер: Джон Стокуэлл / John StockwellАктеры: Джош Дюамель, Мелисса Джордж, Оливия Уайлд, Дэсмонд Эскью, Бо Гарретт, Макс БраунПеревод: Профессиональный |полное дублирование|Продолжительность: 01:33:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596916   (130819) от 31.12.2012
-
-Осень (1974) [H.264] DVDRip [Реставрация КП]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130819.jpg" />
-</div>
-
-
-###  Подробнее
-
-В юности они любили друг друга, но потом расстались. Илья женился, Александра вышла замуж. Семейная жизнь у обоих не сложилась. Встретившись вновь, они понимают, что по-прежнему любят друг друга, и решают провести вместе несколько дней в деревне... Однако, прожитые годы и ошибки молодости постоянно разрушают эту идиллию и мешают, особенно Илье, принять, пожалуй, (   Читать дальше...   )Производство: СССРЖанр: МелодрамаРежиссер: Андрей СмирновАктеры: Наталья Рудная, Леонид Кулагин, Наталья Гундарева, Александр Фатюшин, Людмила Максакова, Армен Джигарханян, Эля Макеева, Игорь Кашинцев, Юрий КузьменковСубтитры: ОтсутствуютПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D17C902D522FE929CCEBF472AEE75276567BC0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596854   (130820) от 31.12.2012
-
-Лучшие песни-2012 (2012.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничный концерт из Государственного Кремлевского дворца.
-
-На главной сцене страны собрались самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями.01. Филипп Киркоров – Мне не жаль
-02. Ани Лорак - Обними меня
-03. Сосо Павлиашвили – С Новым годом
-04. Валерия – Романсы(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:43:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 

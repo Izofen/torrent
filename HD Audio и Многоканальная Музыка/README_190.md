@@ -6,7 +6,7 @@ Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147691.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147712.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147719.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147728.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147747.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147813.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147895.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kurt Vile - Back to Moon Beach (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147923.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148620.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148714.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148767.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149216.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149296.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149391.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149430.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149756.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149848.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149897.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149939.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149983.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Country Gold (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149995.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Peter Sellers - The Peter Sellers Collection 1955-1990 (Series EMI Comedy Classi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150169.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150358.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150543.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150550.jpg" />
 </div>
 
 

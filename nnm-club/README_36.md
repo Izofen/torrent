@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Meute - Jubel (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_974.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Angelo Perlepes' Mystery - Spelled By Fire (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_975.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_976.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mors Principium Est - Darkness Invisible (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_977.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_978.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:DD204C2FB956F41ED2F606CE6E8C1C384256A51B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_979.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:CCF56A3ED9067A93FE4CB4CFAD42A1068DDCD01F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_980.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:037C14C7345F92B4C0CB9D7FBF185D42067861EA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_981.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_982.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ InnoExtractor Ultra 11.1.0.153 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_983.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:318E91263AB7DDE4D165B016D65D274C00A315E0
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_984.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_985.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_986.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:3CBD1353FD73F5E86A3D57FD016F1EEA0BE7DC92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_987.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2498E3A8C1718D9515B5E0A9A0DD4913AE8B0A7F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_988.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_989.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5E4B3C1C56D97777A1A33EC24997888C616B0668
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_990.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E5A0D04F748D64CAE88D3C05110FFF472C53D85B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_991.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:BB780712297336FDDFC73C6B032BE3B6C6D2E77A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_992.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:E9AB499D65C1FB16B300A1579D45BB84990DE299
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_993.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_994.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:DC9ADFD84ADD227BFC43724385A3151CAECB3582
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_995.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rage - A New World Rising (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_996.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:CF61B5D6502D75CED0CDD3799F02B01450E9A7F7
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_997.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:229C5DA6D9618F5DFE52CAF555129E1E191B0AE3
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_998.jpg" />
 </div>
 
 

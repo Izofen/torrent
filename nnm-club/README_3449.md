@@ -1,3 +1,79 @@
+###  Публикация: 1723929   (109356) от 18.05.2024
+
+Воображаемые друзья / IF (2024) Telecine [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беа заводит знакомства с воображаемыми друзьями, которых бросили их хозяева.Производство: США, Канада / Paramount Pictures, Maximum Effort, Platinum DunesЖанр: фэнтези, мультфильм, драма, комедия, семейныйРежиссер: Джон КрасинскиАктеры: Кэйли Флеминг, Райан Рейнольдс, Джон Красински, Фиона Шоу, Стив Карелл, Фиби Уоллер-Бридж, Луис Госсет мл., Алан С. Ким, Лиза Колон-Зайас, Бобби МойнаханПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:56Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723865   (109357) от 18.05.2024
+
+Halestorm - Live At Wembley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Miss the Misery (5:23)
+02. Love Bites (So Do I) (3:15)
+03. I Get Off (8:20)
+04. Wicked Ways (3:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8AB2D3360585434F88429D68EF83E5CA72D9D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724004   (109358) от 18.05.2024
+
+Эльмира Батаева | Прими себя и свою жизнь без остатка! (2024) [MP3, Ирина Булекова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найдите своё предназначение, обратите боль во внутреннюю силу и искренне полюбите себя вместе с эффективной книгой-тренингом!
+Способна ли боль стать толчком к переменам, а не погрузить человека во мрак, откуда нет выхода? Может ли расставание с некогда любимым человеком открыть новые дороги, ведущие к людям, которые нас ждут? В силах ли мы сохранить из детства лишь (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 09:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323AFA7F52F179E8C6369F94B820D815B2B316E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723780   (109359) от 17.05.2024
 
 Ivanhoe - Healed By The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -6,7 +82,7 @@ Ivanhoe - Healed By The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109359.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Little Feat - Sam's Place (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109360.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ magnet:?xt=urn:btih:F20A475461ACBE0165C56C011390D5D5DB07A5AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109361.jpg" />
 </div>
 
 
@@ -85,7 +161,7 @@ Scott Hamilton & Jesper Thilo - Scott Hamilton Meets Jesper Thilo (2011) Stunt R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109362.jpg" />
 </div>
 
 
@@ -112,7 +188,7 @@ Joachim Caffonnette Extended - Bittersweet Times (2021) Hypnote Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109363.jpg" />
 </div>
 
 
@@ -139,7 +215,7 @@ Cardiac Arrest - The Stench of Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109364.jpg" />
 </div>
 
 
@@ -166,7 +242,7 @@ Franck Agulhon, Vincent Bidal - NoLaDiK (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109365.jpg" />
 </div>
 
 
@@ -193,7 +269,7 @@ Universe III - Universe III (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109366.jpg" />
 </div>
 
 
@@ -220,7 +296,7 @@ Ben Gailer - Monolith (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109367.jpg" />
 </div>
 
 
@@ -247,7 +323,7 @@ The Barney Kessel Trio - Jellybeans (1981) 1996, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109368.jpg" />
 </div>
 
 
@@ -274,7 +350,7 @@ Collective Soul - Here To Eternity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109369.jpg" />
 </div>
 
 
@@ -301,7 +377,7 @@ Cutz of Ama - Reverie Cinematica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109370.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ El Moono - The Waking Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109371.jpg" />
 </div>
 
 
@@ -355,7 +431,7 @@ Bat - Under The Crooked Claw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109372.jpg" />
 </div>
 
 
@@ -382,7 +458,7 @@ Cardiac Arrest - A Parallel Dimension of Despair (2018) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109373.jpg" />
 </div>
 
 
@@ -409,7 +485,7 @@ Cardiac Arrest - The Day That Death Prevailed (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109374.jpg" />
 </div>
 
 
@@ -436,7 +512,7 @@ magnet:?xt=urn:btih:3114D8A7F8F93C52421C7EBC23482A884C8591BA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109375.jpg" />
 </div>
 
 
@@ -462,7 +538,7 @@ Pain - I Am (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109376.jpg" />
 </div>
 
 
@@ -489,7 +565,7 @@ Jeff Kollman - 2023 A.D. (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Guit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109377.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ magnet:?xt=urn:btih:70BDFB07078EF9B172456763EC3A52758AA73D7F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109378.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ VA - Deep-House Heaven, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109379.jpg" />
 </div>
 
 
@@ -567,7 +643,7 @@ Soul Browser 1.4.17 Mod by ateuffel [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109380.jpg" />
 </div>
 
 
@@ -591,7 +667,7 @@ Cage The Elephant - Neon Pill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109381.jpg" />
 </div>
 
 
@@ -605,79 +681,6 @@ Cage The Elephant - Neon Pill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901099C9EEDB4C6A80457D0DDBB54DB86DB65738
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723809   (109382) от 17.05.2024
-
-PhotoDirector v19.2.1 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109382.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F0F6E6D7A03324B9B09BBBC8BD1766A802BB4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723852   (109383) от 17.05.2024
-
-И. Барс | Четыре Сына (Книга 2). Игры со временем (2024) [MP3, Мира Мирная]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109383.jpg" />
-</div>
-
-
-###  Подробнее
-
-После череды потерь близких Энира должна была сломаться, но она смогла пережить темные для себя времена. Мир узнал о ней, Светлой - потомке истребленных во времена Великой войны иллиров. Теперь на нее открыли охоту. Сможет ли Эни найти путь в Вейлир - запретные леса вейланов? Поможет ли ей Дамаск или предаст, выдав Ардалу, исполняя долг? Отпустит ли ее мужчина, пробудивший (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: АвторПродолжительность: 15:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95717A749D078DEBFEAA2CC2FEF885C216A3F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723850   (109384) от 17.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 5-й матч) Эдмонтон Ойлерз - Ванкувер Кэнакс (16.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109384.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 мая 2024, пятница. 05:00 МСК. 1/2 финала - Запад. 5-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 19 052 зрителя (101% при вместимости 18 910)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BB68C736C42971B0E803D9F4A09E4CCDB29D02
 ```
 
 

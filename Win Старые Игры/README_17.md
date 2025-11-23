@@ -1,3 +1,75 @@
+###  Публикация: 492841   (248256) от 06.05.2012
+
+Moonbase (RePack) [En] 1990 | Pilotus
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_248256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра очень детализирована - помимо добычи ресурсов, торговли и поддержки со стороны земных властей, придётся строить много зданий, следить за уровнем содержания кислорода, количеством воды и температурой на территории колонии, а также за много чем ещё... А конечная цель, как я её понял, - добиться полной независимости вашего маленького государства.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492937   (248303) от 06.05.2012
+
+Extreme Assault [Ru] (RePack) 1997 | Pilotus
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_248303.jpg" />
+</div>
+
+
+###  Подробнее
+
+В борьбе с инопланетянами, которые, как всегда, стремятся завоевать Землю, все средства хороши. В особенности если речь идет о сверхсовременной модели вертолета и танка, которыми вы и будете управлять в этой трехмерной аркаде.Тип издания: RePackЖанр: Аркада (вертолетный симулятор)Язык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493225   (248603) от 07.05.2012
+
+Shanghai Dragon [En] (RePack) 2003 | Pilotus
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рельсовый шутер, где вы попадаете в 1937 год, в Шанхай, куда только что вторглись японские аоиска. Ваша задача - противостоять японским захватчикам.Тип издания: RePackЖанр: Рельсовый трехмерный шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493232   (248616) от 07.05.2012
 
 Total Control (RePack) [Ru] 1995 | Pilotus
@@ -6,7 +78,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249063.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249063.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_249160.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Laser Squad Nemesis [Ru] (P) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249272.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_249272.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249274.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_249274.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249974.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249974.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250348.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251549.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251579.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251579.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252222.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252222.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Fair Strike / Ударная сила [Ru] (RePack) 2003 | Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253507.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253507.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Hostile Waters: Antaeus Rising / Враждебные Воды: территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253561.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253980.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254651.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254651.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254797.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254797.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255154.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255154.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255620.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255620.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -543,79 +615,6 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 
 Культовая аркада с элементами стратегии, в которой мы в роли Космического Чувака, летающего на гироборде (скейтборде без колёс), должны помочь защитить Золотой Город от орд «хопперов», возглавляемых королём Dorf’ом, который имел наглость похитить принцессу этого города. «Элементы стратегии» заключаются в возможности выбора характера миссий – можно строить специальные базы, чтобы уничтожать врагов с их помощью, можно сражаться непосредственно с ними, можно вообще устроить файтинг с Dorf’ом.
 Но независимо ни от чего большую часть времени всё равно предстоит летать на гироборде над планетой, причём необходимо постоянно уворачиваться от разных скал и камней. Смысл перемещений по планете – необходимость добраться в определённую её точку для продолжения борьбы с Dorf’ом. Как только прибыли – начинается сражение с «плохими парнями» в том или ином виде. По типам этих видов не так много, но вот по антуражу – десятки, так что игра не надоест любителям жанра ещё долго после старта.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498862   (255832) от 19.05.2012
-
-Rally Championship 2000 [Ru] (L) 1999
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255832.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Самый высокий фотореализм, какой мы когда-либо видели в игре... самое реальное ощущение вождения, которое мы когда-либо испытывали... Забудьте V Rally 2 и даже Gran Turismo 2... лучшая игра для PC всех времен..."- Ultimate PC
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Трехмерный симулятор раллиЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837146   (256641) от 15.11.2025
-
-Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Legend of Robin Hood (1990, 1991) [En] (1.001,1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый интригующий и стойкий преступник всех времен оживает в самой насыщенной и сложной игре Sierra. Чтобы выжить, вы должны использовать сострадание так же мало, как остроумие и хитрость. Вооружившись логикой, креативностью и моральными суждениями, вы столкнетесь с одними из самых запутанных и сложных головоломок, которые вы когда-либо видели. Многие головоломки (   Читать дальше...   )Тип издания: LicenseРазработчик: SierraЖанр: Приключение, Квест, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500642   (257273) от 23.05.2012
-
-Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложно точно сказать, что такое Quarantine. Аркадная езда со стрельбой? Близко, но неполно. Симулятор таксиста? Не настолько всё сложно. Выполнение миссий на автомобиле? И этим ограничиться нельзя. Это динамичная игра с лёгкими элементами менеджмента, с частой стрельбой и большим количеством миссий.Тип издания: RePackЖанр: 3d action, гонкиЯзык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

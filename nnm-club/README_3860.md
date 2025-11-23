@@ -1,3 +1,76 @@
+###  Публикация: 1691302   (120042) от 31.01.2024
+
+Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20624 (2024.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8611F114B7C0612401EC5DEEA251631D4B22953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695822   (120043) от 31.01.2024
+
+Догмен / Dogman (2023) BDRip [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он лучше всех на свете понимает собак. А те готовы выполнять любые его задания — украсть, припугнуть и даже приготовить блинчики. Догмен — не типичный супергерой с обложки комиксов. Его не волнуют проблемы людей, важно лишь одно — довольна ли стая. Но он единственный командует «взять», когда город прибирает к рукам влиятельный наркобарон.Производство: Франция / Luc Besson ProductionЖанр: БоевикРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Джоджо Т. Гиббс, Кристофер Денэм, Клеменс Шик, Джон Чарльз Агилар, Грэйс Пальма, Ирис Бри, Мариза Беренсон, ,Перевод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full)
+*** Версия фильма, длиннее русского WEB-DL на 4 минуты, на сцены без дубляжа сделаны Русские форсированные субтитры.Продолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CBF56729AD903C28AE78B1893B37C2A529A33E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200166   (120044) от 31.01.2024
+
+Хлоя / Chloe (2009) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэтрин — врач, Дэвид — профессор, у них прекрасный сын. На первый взгляд, это идеальная семья. Но однажды Дэвид опаздывает на самолет и пропускает семейное торжество, посвященное его дню рождения. С этого момента Кэтрин начинает подозревать мужа в измене. Женщина заключает сделку с Хлоей, которая должна соблазнить Дэвида и предоставить подробный отчет. Но со временем (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Атом ЭгоянАктеры: Джулианна Мур, Лиам Нисон, Аманда Сайфред, Макс Тириот, Р.Х. Томсон, Нина Добрев, Мишу Веллани, Джули Ханер, Лаура ДеКартере, Натали ЛисинскаПеревод: ДублированныйПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BA9300B087278C981AB204A2D103CFCA01040E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592779   (120045) от 31.01.2024
 
 Хлоя / Chloe (2009) [1080p] BDRip
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120045.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ CCleaner больше не работает в России
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120046.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120046.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Avast прекратил работу своих антивирусов и пр�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120047.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:2B5BF0970C9A46A9EB23F4FB1A3EFC5573C48DC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120048.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:1273A5FA7FC19F07180378E70AB065E4B5D67BC9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120049.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:59648EA841487A3421642FD68943AC6D93B5B325
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120050.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:F38F446FEC2F2B37A1201AAABE59D823853255FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120051.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:46C1E9791FBFE9CED0447046B8A86851AEA9B353
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120052.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:7C81DECCEC36BBE0D00B8FD6C40CC396D9A90148
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120053.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:A0CD8CBCB6D851ABF700AFF7782F96A31157F188
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120054.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ ABBYY FineReader PDF for Mac 15.2.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120055.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:FE36058C71B31E0E78E9526C995E98AD2CBEEB79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120056.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:CE925897FAB860DC0D145D605FBA982B23A24A5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120057.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ ViewBox v1.8.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120058.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120059.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:4BAB9907533F01CEC6277DFD49E89E7F4CCBE413
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120060.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:16E0811C7E9C4FE0F1A05BED32431A1625C78759
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120061.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ D.A.F Band - Socialovism (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120062.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:9256ECEEABA243FC42D7C670D77711560DEDA4C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120063.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120064.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Vito Rezza - Cognitive Dissonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120065.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120066.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:4B0C221315867AFB47D19D71B5BBCEADB57C7990
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120067.jpg" />
 </div>
 
 
@@ -565,81 +638,6 @@ magnet:?xt=urn:btih:4B0C221315867AFB47D19D71B5BBCEADB57C7990
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1D74E1E181D45A4B0F5C6F19632E1B62F152E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695771   (120068) от 30.01.2024
-
-Прерванный путь / Broken Ways (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я бы назвал фильм романтическим вестерном. Молоденькая наивная девушка выходит замуж за понравившегося ей бравого и смазливого ковбоя. И не знает, дурочка, что он никакой не ковбой, а  элементарный бандюган, хамло и абьюзер. Вот что теперь ей делать?Производство: США, Biograph CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Генри Б. Уолтхолл, Бланш Свит, Гарри Кэри, Чарльз Горман, Фрэнк Опперман, Джозеф МакДермотт, Гертруда Бембрик, Уильям А. Кэрролл, Эдвард Диллон, Дороти ГишПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3090E04D14EDAEC239CFCE1AA4B5031A432BDEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695724   (120069) от 30.01.2024
-
-Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: Under The Pyramids
-02. Egyptron
-03. Living Dead In Beverly Hills
-04. Rusted Gold(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A86ADBA40C50440FD38520564A2E24507CAB137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695661   (120070) от 30.01.2024
-
-Stats 2.9.22 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451C66BF9FF56B32539B181867B27D07615F936A
 ```
 
 

@@ -6,7 +6,7 @@ Elfen Lied | Эльфийская песнь (2004) [MP3|320 Kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63831.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Advanced SystemCare Pro 17.2.0.191 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63832.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D362F5FBCCE0C1A60AA90BA1C7B602E7849414DB
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63833.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:48A0A3D0E83C4E9409A40C8AE90ACBA536FC179A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63834.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:8BB5EF74B10B78DF3ABCEDF0162F8CEF574178EF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63835.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:98E9089C1146C6F062BF9B7633CADC6E3E3FA2AC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63836.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:FBF32242B584A1E1F06502505A065376063B893D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63837.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:98AB196075EEC8BF49D94F292D863FD7A38DD007
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63838.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EAC4E664BAF6C5705B085FBDB34EDD6BC6272D6F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63839.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:04701C8F491FA5016C94C34A384991E8198A5FE8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63840.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:04701C8F491FA5016C94C34A384991E8198A5FE8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63841.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6E4FA0C7F647AECCC3F3EBCE860D4F4114EDA70F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63842.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B9B58572D927454BF65E834E3FAF6210E0B79642
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63843.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:69BCAA47811215FD6509DBA79F5E6865EDB126A1
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63844.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:69BCAA47811215FD6509DBA79F5E6865EDB126A1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63845.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7F1FDF4FE71B627230C9147A01EE0ED21924C673
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63846.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:109C5731CFFAC9CD5917E326F998F1FA5070E93E
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63847.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:BDD3446FCB97E711CFFCB0BCFFB1CDED5F87440D
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63848.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63850.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63851.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B0903B97D70AACC4469630ED7328CCA2B00A2CDA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63852.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63853.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63854.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:23F5FAC9DA3C758A291630C7DA7B8832E0B33B6A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63855.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:26D28857C05B49D09F651DD3D0E10E1FD0DE9A7A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63856.jpg" />
 </div>
 
 

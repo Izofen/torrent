@@ -6,7 +6,7 @@ VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173656.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173691.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Лучшие мелодии на свете - Collection (24CD) (2006 - 200
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174667.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175018.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175018.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175130.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175130.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House,
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176529.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176529.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176682.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176682.jpg" />
 </div>
 
 
@@ -187,6 +187,33 @@ magnet:?xt=urn:btih:FEC35178BB5B563B0985E5CFCC2C505DDB9B39FC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429166   (177371) от 05.12.2020
+
+Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here We Come A-Caroling
+02. It Came Upon a Midnight Clear
+03. O Little Town of Bethlehem
+04. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA3AF3FE364386D7D96A48A78A0FD48E16F3099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593776   (177836) от 01.12.2022
 
 Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrumental, Hammond>
@@ -195,7 +222,7 @@ Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrument
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177836.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177836.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177874.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177874.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ neowake Biofrequencies - Утренняя мотивация 16 Гц: бинау
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178067.jpg" />
 </div>
 
 
@@ -267,6 +294,33 @@ magnet:?xt=urn:btih:1A415BD7B34A67A87BD6A3CDAEC0FB0BF73101A1
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428773   (178243) от 04.12.2020
+
+Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire of Love (3:22)
+02. Sex and Love (3:33)
+03. Lounge for Love (3:38)
+04. Red Room - Sax Bondage (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99D9257FDE88F0C423F9497BAFCD4DF94D67B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666139   (179937) от 03.10.2023
 
 Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
@@ -275,7 +329,7 @@ Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179937.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179937.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180070.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180070.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180108.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180112.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180151.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180151.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180169.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180169.jpg" />
 </div>
 
 
@@ -429,6 +483,33 @@ magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808001   (180650) от 26.11.2022
+
+Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture Score) (Recording Sessions) (2010) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy Open (1:40)
+02. Bedtime Story (1:33)
+03. Creation of Tron (by Jeff Bridges) (0:05)
+04. News Report (1:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603149A2D82FF324BC65320C6BE2B8E90EC8F133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592648   (181024) от 26.11.2022
 
 Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, Pagan folk>
@@ -437,7 +518,7 @@ Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181024.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181024.jpg" />
 </div>
 
 
@@ -456,6 +537,33 @@ magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427804   (181460) от 30.11.2020
+
+North Americans - Roped In (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory of Lunch
+02. Rivers That You Cannot See
+03. Furniture In The Valley
+04. American Dipper(   Читать дальше...   )Жанр: FolkПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E2F253288A8E5BE31BE03AACBC368BB8A4B3C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664944   (182996) от 29.09.2023
 
 Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
@@ -464,7 +572,7 @@ Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182996.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182996.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184275.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184275.jpg" />
 </div>
 
 
@@ -518,7 +626,7 @@ John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184735.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184735.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184769.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184769.jpg" />
 </div>
 
 
@@ -572,7 +680,7 @@ Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwrit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185460.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185460.jpg" />
 </div>
 
 
@@ -586,114 +694,6 @@ Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwrit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290832   (185846) от 25.11.2020
-
-Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
-Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
-С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
-02. Alane (3:43)
-03. Kekana (3:19)
-04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224151   (185858) от 25.11.2020
-
-VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aethera - The Mountain Side (3:56)
-02. Kieran - Drowning (5:48)
-03. Conner O'Reilly - Hear The Angels Call (5:07)
-04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591297   (187179) от 18.11.2022
-
-Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longing
-02. RadianceЖанр: New AgeПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591262   (187518) от 17.11.2022
-
-VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. POLINA - Что-то пошло не так
-2. Люся Чеботина - Главная причина
-3. Николай Ростов - Где ты была вчера?
-4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
 ```
 
 

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146933.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:990E073E644D0722708C1EDBCBFFFE55814F930A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147202.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:4B8CF0EA331DFFB7BEAF536302E4123A36078B1D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147953.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147959.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148001.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148031.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148165.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:E85FEA54984787CFCF455FC5976F77CD24B54BAC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148527.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148897.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:956A286ECD8C76EA22A0D91ECB816453EF329A04
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149185.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149205.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150361.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:7C7499B651361459C05098AE5611F59BCE953A84
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150894.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:72BC80F321C4FEADF4DF5133CB512998BE123C34
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151199.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:7E718B8E3185BED405FA7F5495EA07915B5E0322
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151383.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152256.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152540.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152776.jpg" />
 </div>
 
 

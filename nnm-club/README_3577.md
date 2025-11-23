@@ -1,3 +1,75 @@
+###  Публикация: 1710463   (112684) от 27.03.2024
+
+TechSmith Camtasia 2023 Studio 2023.3.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7050F1B657EB4D7359EB659CD64824DE5E5E0DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710487   (112685) от 27.03.2024
+
+Журнал | Караван историй №4 (апрель 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112685.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Караван историй» – ежемесячный журнал, в котором публикуются материалы о ярких личностях, любовных историях знаменитостей, захватывающих приключениях и самых неординарных событиях века. Издание иллюстрируется эксклюзивными фотографиями, часто из личных архивов героев. «Караван историй» – это легкое, интересное и познавательное чтение.Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AF5D3F788102F74ABEA41CD89669B66D308951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710349   (112686) от 27.03.2024
+
+Ужасный секрет доктора Хичкока / L orribile segreto del Dr. Hichcock (1962) BDRip [H.264] [VO] [Restored]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон. 1885 год. Доктор Бернард Хичкок ведёт двойную жизнь. В клинике при помощи своего нового анестетика он проводит хирургические операции. Возвращаясь домой, Хичкок по ночам удовлетворяет свою тайную и ужасную страсть некрофила, доводя свою жену Маргариту при помощи новой сыворотки до состояния, близкого к смерти. Но однажды, во время одной из таких мрачных любовных (   Читать дальше...   )Производство: Италия / Panda FilmЖанр: ужасыРежиссер: Риккардо ФредаАктеры: Барбара Стил, Роберт Флеминг, Сильвано Транквилли, Мария Тереза Вианелло, Харриет Медин, Аль Кристиансон, Нат Харли, Нил Робинсон, Ховард Нельсон РубьенПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (Bellena), английскиеПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1DC695EB1A14057433D6710410D0B9189BF42B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710532   (112687) от 27.03.2024
 
 Всю ночь / Целая ночь / Toute une nuit (1982) BDRip [H.264/720p] [FR / RU Sub]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112687.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:86A9A4117EEED91A3BCA75D7D29C7ABD43B165B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112688.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:8AEC9561FF35FCB089CE4B9EE98B4916089D43B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112689.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112690.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ Imagine 1.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112691.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:C892248B0C4CC5A01C401323FF2D5AB0BBD85F9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112692.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ VA - Pop Spring Melodies (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112693.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ Wise Memory Optimizer 4.2.1.124 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112694.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ AltTab for Mac 6.67.0 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112695.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ VA - Music News vol.357 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112696.jpg" />
 </div>
 
 
@@ -259,7 +331,7 @@ Mullvad Browser 13.0.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112697.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ magnet:?xt=urn:btih:59F21872B9C4FBC85C42336AB4DEB41221A40C8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112698.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:59F21872B9C4FBC85C42336AB4DEB41221A40C8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112699.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:E9FFD8284625F30A2A61B36F31BD190083AD6351
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112700.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ Xliff Editor 2.9.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112701.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Downie 4 v.4.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112702.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ Shadow Matter - Shadow Matter (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112703.jpg" />
 </div>
 
 
@@ -436,7 +508,7 @@ magnet:?xt=urn:btih:A5CDBF63272C40C5B8D2763E03D25B7030DCA177
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112704.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ ColorWell 7.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112705.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112706.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ magnet:?xt=urn:btih:9363D546D8312F03898357524FD2A76476AC11BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112707.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ magnet:?xt=urn:btih:2F7CFDC5D211B8C6BCE5513FD38C41BB3A6DA1B6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112708.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ MediaMate for Mac 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112709.jpg" />
 </div>
 
 
@@ -567,87 +639,6 @@ MediaMate for Mac 3.1.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF56EFE2F66EFECD8282EE26BF615843E224901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710359   (112710) от 26.03.2024
-
-Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - From The Night (00:03:44)
-02 - Sand Of Time (00:03:54)
-03 - Golden City (00:04:09)
-04 - Stars (00:04:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60774787CB9AB481A15BF9DBDED1534B255A14F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710429   (112711) от 26.03.2024
-
-Владимир Одоевский | Городок в табакерке (2007) [MP3, Пётр Коршунков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Audiobook.
-Владимир Фёдорович Одоевский (1803–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы. Эти удивительные сказки унесут вас в волшебный мир, где правит музыка, и совершаются невероятные чудеса…
-
- Владимир Одоевский на NoNaMe ClubЖанр: Русская литература для детей, классика, сказкаИздательство: ИДДКПродолжительность: 03:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B374573C512FD96239C2F96AC2C5C80B2AAAA883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710445   (112712) от 26.03.2024
-
-Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of Weakness
-02. Alone I Die
-03. The Lighthouse
-04. Black Within(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E5D27EB71C9B5073CFC42310CAA569A10ECE6A
 ```
 
 

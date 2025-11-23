@@ -6,7 +6,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163732.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163747.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ JUG Ru Group | Joker 2022. Конференция для опытных Java-р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163802.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7681F7EF9983EC3470649739D9D4EA385A8F58D2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163858.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JUG Ru Group | HolyJS 2022 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163877.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163894.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163919.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Udemy, Dan Britain, Phil Ebiner | ChatGPT & YouTube: AI Tools for YouTube Video 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163960.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163965.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163981.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Udemy, Roope Kiuttu | Make Money on YouTube Following PROVEN STEPS - Works in 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163982.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164041.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164064.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:E10DF374E16BA3906DE46B3C2C9490960AC494D8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164119.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164128.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164514.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164526.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164590.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164643.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164729.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SovaFilms | Массаж против лишних килограммов [2010]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164750.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:657C72FF121CB7A1151848FF2138F7EB4EC54C8E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164806.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164861.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164913.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Strogoorganic, Мария Винокур, Эля Ямилева | Курс на�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164919.jpg" />
 </div>
 
 

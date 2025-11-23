@@ -6,7 +6,7 @@ Helloween - Helloween (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68712.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A2F8C881FA806420C16F49C7BEE16B806645112F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68713.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Ibiza Spring 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68714.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:75FD500CB446BF40FC5544578AC524E570661DF2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68715.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Albert White - The Definitive Albert White (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68716.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Huckleberry - Huck it (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68717.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Diem Gartopolus - Nor Th (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68718.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Gene Ammons - Three Classic Albums Plus (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68719.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Horse Drawn Cadillac - Mapless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68720.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ophthalamia - A Journey In Darkness (1994) Remastered, 2023, Peaceville [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68721.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bodyfarm - Ultimate Abomination (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68722.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Geraint Watkins and The Mosquitoes - Here and There (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68723.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Massimo Rosner - Long Rest (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Free Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68724.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:FA3CE4972D0E4CE3841693279889B6E2EAE27F57
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68725.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68726.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68727.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:6CC5C04365CB486242276AC49B6BAFDBE9F62DAA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68728.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Solefald - Pills Against The Ageless Ills (2001) Released, 2021, Abstract Emotio
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68729.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C576B703FFDD783F23CF021AD90E544BCD3BDC13
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68730.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:00A0BBB0737E8100B42D657306AC009EFA588F66
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68731.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68732.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:408D9B6039614DC4EF51481E2D69B00272162474
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68733.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:4136FA0E19F3F298F3E91BB5BA91FE14A9A0123C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68734.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68735.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:C6DED3E50D2CB38544C7C0489F31978DE4C23885
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68736.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68737.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Irix HDR Pro 2.3.47 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.16 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10629.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DP Animation Maker 3.5.41 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10979.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nik Collection by DxO 8.1.2 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12084.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Artweaver Plus 8.0.5.3181 [De/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12156.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Insofta Cover Commander 8.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12370.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Zoner Photo Studio X 19.2503.2.631 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12473.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GIMP 3.0.4 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13711.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Topaz Photo AI Pro 4.0.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14078.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14348.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CorelDRAW Graphics Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14383.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14579.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skylum Aperty 1.4.0.1260 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15866.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16909.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ GIMP 3.0.4 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17023.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ ON1 Photo RAW MAX 2025.2 19.2.0.16851 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17612.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Paint.NET 5.1.8 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17617.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Topaz Photo AI Pro 4.0.0 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17922.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Toon Boom Storyboard Pro 7 17.10.0 Build 15295 (x64) [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18437.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Inkscape 1.4.2 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18549.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Toon Boom Harmony Premium 24.0.1 Build 23019 (x64) RePack by PooShock [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18576.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ashampoo Photo Optimizer 11.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18766.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Adobe Photoshop Lightroom Classic 2024 14.3.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19014.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Adobe InDesign 2025 20.3.1.73 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19015.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Adobe Photoshop 2024 25.12.3.1067 Full (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19905.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Adobe Photoshop 2024 25.12.3.1067 Light (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19941.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 476604   (98369) от 01.04.2012
+
+А. Мейкок | История инквизиции [2002] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дух средневековья, возникновение ереси, Лангедок и крестовый поход, инквизиция в Европе - от установления до "великого раскола", главные виды наказаний - это и многое другое вы найдёте на страницах нашей книги.2002Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7849271C2B9A8846D11935F49CC3C5D4C0F2C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476521   (98371) от 01.04.2012
+
+Пожары / Incendies (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента повествует о путешествии близнецов — брата и сестры — на Ближний Восток, где они надеются найти своих родственников.Жанр: Драма, Детектив, ВоенныйРежиссер: Дени ВильнёвАктеры: Мустафа Камел, Хьюсен Сами, Реми Жирар, Мелисса Дезормо-Полен, Максим Годетт, Доминик Бриан, Лубна АзабальПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 02:05:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475509   (98373) от 01.04.2012
+
+Melanie Fiona - The MF Life (Deluxe Edition) (2012) [MP3|320 кб/с]<Soul, Hip-Hop, R&B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time (Feat. J. Cole)
+02. 4 AM
+03. Break Down These Walls
+04. I Been That Girl
+05. Wrong Side Of A Love Song
+06. Running (Feat. Nas)
+07. Change The Record (Feat. B.o.B)
+08. Gone & Never Coming Back
+09. Bones
+10. Watch Me Work(   Читать дальше...   )2012Жанр: Soul, Hip-Hop, R&BПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7D3917D5B71438900022157B536E62359DD825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475535   (98376) от 01.04.2012
 
 Товарищ Дон Камилло / Il compagno Don Camillo (1965) [1080p] BDRemux
@@ -6,7 +87,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98376.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ VA - Perfect Together Dreams (2012) [MP3|320 кб/с]<Trance, Progressive Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98378.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:D5B6F54A34A00071D4EC7AE3C3C891DACA94CFE8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98379.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Adam Beyer - Drumcode 080 - 087 (2012) [MP3|256 кб/с]<Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98381.jpg" />
 </div>
 
 
@@ -120,7 +201,7 @@ Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98382.jpg" />
 </div>
 
 
@@ -153,7 +234,7 @@ Eastwood - North-Eastern Massive (2012) [MP3|320 кб/с]<Atmospheric Dark / Pos
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98385.jpg" />
 </div>
 
 
@@ -181,7 +262,7 @@ magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98387.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98387.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98388.jpg" />
 </div>
 
 
@@ -233,7 +314,7 @@ magnet:?xt=urn:btih:6B2EDDB6E3D5668AE4471A5835ED63C0DE04CABF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98389.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ magnet:?xt=urn:btih:DD956DA9D3F619C014DBAB1146CF2AC9A76F04F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98390.jpg" />
 </div>
 
 
@@ -285,7 +366,7 @@ magnet:?xt=urn:btih:A2A7611EA38B0228B86B867013A2D56FAB1922F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98391.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ VA - Mega Bounce! Spring (2012) [MP3|320 kbps]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98392.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ magnet:?xt=urn:btih:6858AFB91FFB53EE0755D1EA4A376CCBDBE603A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98393.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98393.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ magnet:?xt=urn:btih:6858AFB91FFB53EE0755D1EA4A376CCBDBE603A1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98394.jpg" />
 </div>
 
 
@@ -398,7 +479,7 @@ magnet:?xt=urn:btih:73BB84E13A3367463DF9B4C670ED3E359309605E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98395.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ magnet:?xt=urn:btih:56D894F675304B5211766A1F35A80FE6552B2F03
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98396.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ magnet:?xt=urn:btih:5B4321A26A1038E785BC62FE68B5F7A23CD07AA6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98398.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ Isis - Live VI (16/11/2007) (Released: 14 Feb 2012) [MP3|256 кб/с]<Post-Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98399.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ magnet:?xt=urn:btih:9C11D60249203F20682B808EC26180AF6F7B1D46
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98400.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ magnet:?xt=urn:btih:8BB3F4FDE97160A909CDFDFFC33AFF72CF250962
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98401.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ Memoira - Memoira (2008) [FLAC|Lossless]<Gothic Metal,Melodic Metal (Female Voca
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98404.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98404.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ Fjorsvartnir - Legions of the north (2012) [MP3|320 кб/с]<Melodic Black Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98405.jpg" />
 </div>
 
 
@@ -615,7 +696,7 @@ VA - Энергетик Бум!!! Зарубежный (2012) [MP3|256 kbps]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98407.jpg" />
 </div>
 
 
@@ -635,91 +716,6 @@ VA - Энергетик Бум!!! Зарубежный (2012) [MP3|256 kbps]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B73F685B3A1476CB12822E341066C13D326C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477313   (98408) от 02.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 22
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98408.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 22 
-Название:  Girls Desktop Wallpapers Pack 22 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6668х4992
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C52C23EA89452190D60C2C8CFE3C36A3569630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476937   (98409) от 02.04.2012
-
-Сделай Шаг - Шаг Первый (2011) [MP3|320 кб/с]<Alternative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осталось.
-02. Аттракцион.
-03. В наших голосах.
-04. Зависть.
-05. Карантин.
-06. Не может быть всегда.
-07. Сделай Шаг.
-08. Неужели.
-09. Сон.
-10. Тлеть.2011Жанр: AlternativeПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CA6436BA1DDBF77F662F45385CFC83604E18A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477158   (98411) от 02.04.2012
-
-[Wallpapers] Sexy Girls Pack (01.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5846B2C95717FDE597AEAE1010991FDD47707E1F
 ```
 
 

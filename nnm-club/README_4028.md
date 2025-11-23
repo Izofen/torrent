@@ -1,3 +1,77 @@
+###  Публикация: 1823371   (124410) от 11.10.2025
+
+PSPaudioware - PSP preQursor3 3.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124410.jpg" />
+</div>
+
+
+###  Подробнее
+
+PSP preQursor3 предлагает уникальные фильтры PSP с низкими резонансными пиками для уменьшения артефактов звона, отличным разделением полос и узким вырезом при ослаблении. Все четыре фильтра представляют собой фильтры колоколообразного типа при усилении и имеют прогрессивную добротность.
+PSP preQursor3 представляет усовершенствованное аналоговое моделирование предусилителя (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C16DAEDD2406DB0AD700A391DBD5D2763C9754C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823370   (124411) от 11.10.2025
+
+Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Open Compressor призван раскрывать технические процессы и предоставлять пользователям информацию, необходимую для принятия оптимальных творческих решений.
+Основой пользовательского интерфейса Open Compressor является множество усовершенствованных визуализаторов, которые показывают тип и степень применяемой компрессии, эквализации и сатурации в детальном виде, превосходящем (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE557286C5A221850F3D15DFB80C7B697864E4D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689727   (124412) от 04.01.2024
+
+Неукротимая Анжелика / Indomptable Angelique (1967) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поиски мужа приводят Анжелику к морскому побережью, где следы Жоффре де Пейрака обрываются… Капитан королевской галеры, пораженный красотой молодой женщины, принуждает ее подняться на борт и сопровождать его в плавании.Производство: Франция, Италия, Германия / Cinéphonic, Films BorderieЖанр: мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Роже Пиго, Кристиан Роде, Этторе Манни, Бруно Дитрих, Паскуале Мартино, Зигхардт Рупп, Польдо Бенданди, Омеро КапаннаПеревод: Дублированный (Советский дубляж)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208645CCEE837033BCE26A5F6C7241D66B591DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689858   (124413) от 04.01.2024
 
 Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
@@ -6,7 +80,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124413.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Metric Halo - Make Believe MixHead 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124414.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:3C3E770B40E7D12E2351877214262F5688FF5BDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124415.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Metric Halo - CGII 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124416.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Six Ages: Ride Like the Wind (2019) [En] (1.0.12-1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124417.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124418.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124419.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ magnet:?xt=urn:btih:70BFC50C6D84F8BC8BCD1102B5987DE2F2BFDC1F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124420.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ magnet:?xt=urn:btih:548B10BF55827965F725D2A962982DF7B8A0E668
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124421.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ KiCad 7.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124422.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Velvet Dreamer - Tomorrow Is A New Day (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124423.jpg" />
 </div>
 
 
@@ -278,7 +352,7 @@ magnet:?xt=urn:btih:0C31E372B51E135B5E0706C3192946AEFDBF5860
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124424.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ magnet:?xt=urn:btih:74EF121030B2EF5AD5F5A6F8582CB06BAF4873F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124425.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ magnet:?xt=urn:btih:22FD7C890DBD6E77557A6DCD8DCAEDA777DD2C51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124426.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ magnet:?xt=urn:btih:4B0D7BC57DC03E43EF96D7EAAEBE834C866F57EB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124427.jpg" />
 </div>
 
 
@@ -378,7 +452,7 @@ magnet:?xt=urn:btih:83D244539CFD8CB5BC46999D548D397506F642C4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124428.jpg" />
 </div>
 
 
@@ -405,7 +479,7 @@ magnet:?xt=urn:btih:A8B2480E3B1BBAC7C3049D7B5E7F2D2474F84ECC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124429.jpg" />
 </div>
 
 
@@ -429,7 +503,7 @@ magnet:?xt=urn:btih:C56EFFD1E9658B31512DBB2B754B13A8A0B8E7A4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124430.jpg" />
 </div>
 
 
@@ -453,7 +527,7 @@ Genesis - The Lamb Lies Down On Broadway (1974) Deluxe Edition, Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124431.jpg" />
 </div>
 
 
@@ -480,7 +554,7 @@ magnet:?xt=urn:btih:A84D9C5D5771309394D2141037F98866B9C08D52
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124432.jpg" />
 </div>
 
 
@@ -504,7 +578,7 @@ Hotrod Frankie - My father was a madman (2006) Reissue 2014, Dim Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124433.jpg" />
 </div>
 
 
@@ -531,7 +605,7 @@ MKVToolNix 82.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124434.jpg" />
 </div>
 
 
@@ -555,7 +629,7 @@ Hot Rod Frankie - 1 Album, 1 Single (2008, 2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124435.jpg" />
 </div>
 
 
@@ -568,81 +642,6 @@ Hot Rod Frankie - 1 Album, 1 Single (2008, 2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3608BA7573C81B1C16FDDBEC3788BEBE5499D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823362   (124436) от 11.10.2025
-
-Главная дорога (11.10.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная разметка: просыпаются и водители, и местные жители.
- Связь барахлит, геолокация глючит, а ехать надо: как добраться до нужной точки, когда навигатор показывает, что вы в аэропорту? Андрей Федорцов и Денис Юченков показали правила ориентирования в каменных джунглях.
- Пикапы со скрипом: Mitsubishi L200 vs Toyota Hilux.
- Дорожные ловушки: нелогичная парковка (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18ACBD690F7BD43BF8237D284E7B3250BDE5726C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982381   (124437) от 11.10.2025
-
-Serious Sam 3: BFE / Крутой Сэм 3: BFE (2011) [Ru/En] (3.0.3.0.249955/dlc) Repack xatab
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam 3: BFE — это великолепное возвращение в золотой век шутеров с видом от первого лица, когда мужчины были мужчинами, укрытия были для трусов, а нажатие на курок сопровождалось огромными взрывами. В качестве приквела оригинальной инди-сенсации Serious Sam: The First Encounter, события в Serious Sam 3 происходят во время последней битвы за Землю против легионов (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E58F47E6A9BDF68ABD732920DCB97A86CB9F7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823359   (124438) от 11.10.2025
-
-VueScan Pro 9.8.48.03 RePack (& Portable) by elchupacabra (DC 07.10.2025) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124438.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CD096B71B7DFDE827AE6EB5C2ED6E71337EAC5
 ```
 
 

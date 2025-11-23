@@ -6,7 +6,7 @@
 >>Касл / Castle
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48949.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48950.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Slade 'The Very Best' (The Complete Video Collection) (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48951.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:000E70C4208C0BB7D1FBD5F966B9827BBE24B7CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48952.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ IObit Driver Booster Pro 11.6.0.128 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48953.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:51B1F74A9A24302DC3F3DD67EB45C25D851CF4DD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48954.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:564A1AC1653D35D2F53BF0EFB3B2BB4AF7F9489D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48955.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:51EC5BC965BE4713E5898E9097253B5CA7976D67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48956.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:30D428F88787C9A70FDCE11515CB6D10EC640801
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48957.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:9F1913B836F3ABA91DAA623EFB0493CCBE96407E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48958.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:237FE7DF8511B394AFF7F31DD29B3BFD8A158FDE
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48959.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:803948063286D8BC5746CC7B51F2A8A436D10092
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48960.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Bon Jovi - Greatest Hits The Ultimate Video Collection (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48961.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, З
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48962.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C0E3DD2DF862D77C9D208F7892DC29BA58D18E3C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48963.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8886A78607A85226F401E2821B3F87C00492603B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48964.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - compilation  part 102 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48965.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F529DF5E80B69243E75F4AFD819EAC23222312B8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48966.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:6126443B9A6DA8C25865DF01D261E701683E5D9E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48967.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ eM Client Pro 10.0.3266.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48968.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:BEAF821BB42F718CC5CF4B19FFB15E5D05EC56FD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48969.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F45A41663C54BC01B8CB7A091ADFD2ED3A07EC33
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48970.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48971.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:08B0AE4571FBE4AFBF873A19A576B501E69A5561
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48972.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Wise Care 365 Pro 6.7.5.650 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48973.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ OCCT 13.1.3 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48974.jpg" />
 </div>
 
 

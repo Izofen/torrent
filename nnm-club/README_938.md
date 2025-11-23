@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24725.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:DBC53AB0FCA6E76B76BFF0C8A1A827EE266E8A30
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24726.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Stepik, Сергей Камянецкий | Буткемп «Записки юн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24727.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24728.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24729.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ CyberLink PowerDVD 23.0.2704.62 Ultra (x64) RePack by serge2208 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24730.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:71E7F3F0D90338E51619775FB769CFB52BB74C99
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24731.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24732.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B2315865A5BA4C69E8F04BD2747ABF8270DBEB39
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24733.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ CrossOver Linux 25.0.0 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24734.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ AMD разыграет пять видеокарт Radeon RX 9070 XT — две 
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24735.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AMD разыграет пять видеокарт Radeon RX 9070 XT — две 
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24736.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kaspersky Secure Connection 21.20.8.505 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24737.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4216DF878510FFA743CF71041C27A70756312D6D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24738.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24738.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:036DFC592904D6B0FF549638B79CD4E1F99C655E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24739.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PotPlayer 250313 (1.7.22508) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24740.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:F9648C5F433CD50C8E07FBB1FA256FA9957D75C4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24741.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24741.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:18F83E533F6B281E70575F3C6977A3A17F7C8DDE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24742.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:AD363142ACDCD3BC02F42DECDF2604E8526ADE8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24743.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6E299242CE22A952CA0FC665CFBBE1468101689E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24744.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24745.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ ORDER 13 (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24746.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Windows 10 Pro 22H2 19045.5487 x64 by SanLex [Lightweight] [Ru/En] (2025.03.07)
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24747.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24747.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24748.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:3D34914DB9FC639B2A75D735A7A4099DF8D77169
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24749.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:32A0B729BB54F36E32BA2BA4C6D95AE6DF09FA60
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24750.jpg" />
 </div>
 
 

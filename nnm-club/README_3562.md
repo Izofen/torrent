@@ -1,3 +1,79 @@
+###  Публикация: 1711903   (112294) от 01.04.2024
+
+Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks + .cue] <Electronic, pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Island (3:53)
+02. Pretty In Possible (3:36)
+03. Bunny Is A Rider (3:14)
+04. Sunset (2:43)(   Читать дальше...   )Жанр: Art pop, alt-pop, electronicПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711797   (112295) от 01.04.2024
+
+Проблемы найдут нас / Trouble Will Find Us (2020) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о молодой паре, чьи отношения начинают портиться под давлением жизненных обстоятельств.Производство: Великобритания, Água Viva Pictures, Stave Hill FilmsЖанр: драмаРежиссер: Александр Мило БишофАктеры: Benjamin Chandler, Пепа Дуарте, Дилан Эдвардс, Christopher Foran, Молли Громадзки, Кит Хилл, Isabella Brazier Jones, Рут Кирни, Jonathan Murphy, Philip SchockПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:03Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0714F35108EF3BB14570B0EF97A9005F495444D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711899   (112296) от 01.04.2024
+
+Мишель Сапане | Репортаж из морга (2021) [MP3, Рустам Османов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель Сапане – судмедэксперт с более чем 30-летним стажем работы. Каждый год его команда вскрывает и изучает более 450 тел, помогая следствию установить причины смерти и даже найти преступника.
+Повешенный бизнесмен с пулей в голове, мертвец без лица у железной дороги, задушенный мужчина в советском противогазе… У всех них разные загадочные истории, но один конец (   Читать дальше...   )Жанр: Истории из жизни, КриминалистикаИздательство: БОМБОРА, ЭКСМОПродолжительность: 09:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50211A61724D1F2C7DFD1ECF26C89A804E253C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712028   (112297) от 01.04.2024
 
 PrivaZer 4.0.84 Free + Portable [Multi/Ru]
@@ -6,7 +82,7 @@ PrivaZer 4.0.84 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112297.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112298.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112299.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ USB Device Tree Viewer 4.2.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112300.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:36E7BBC6CFFF65B3FA560AA863160FED81F7898D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112301.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ Topaz Photo AI 2.4.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112302.jpg" />
 </div>
 
 
@@ -157,7 +233,7 @@ Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Hou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112303.jpg" />
 </div>
 
 
@@ -184,7 +260,7 @@ magnet:?xt=urn:btih:B2A4EBF015EC1541840FC7B7971A52DF404439F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112304.jpg" />
 </div>
 
 
@@ -208,7 +284,7 @@ Cookie 7.2.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112305.jpg" />
 </div>
 
 
@@ -233,7 +309,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112306.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ magnet:?xt=urn:btih:4AB63972E476B5057FC0FBD2A515606C88182907
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112307.jpg" />
 </div>
 
 
@@ -281,7 +357,7 @@ magnet:?xt=urn:btih:E870B0B58E1309B6AF884A6466DCFDD6E034CD0D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112308.jpg" />
 </div>
 
 
@@ -305,7 +381,7 @@ FanControl V186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112309.jpg" />
 </div>
 
 
@@ -329,7 +405,7 @@ magnet:?xt=urn:btih:59C857EA19009B1F0889EA56332067A0C7CD3891
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112310.jpg" />
 </div>
 
 
@@ -353,7 +429,7 @@ magnet:?xt=urn:btih:CD03E9FAB8F1C660DA5EED13B9FF4C5F2AAC3F6A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112311.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ magnet:?xt=urn:btih:7AF162934A032C6EC04AE896B537928D68A69340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112312.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ magnet:?xt=urn:btih:7AF35DB2DDBA56667870CDE2B445E68552CC7A21
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112313.jpg" />
 </div>
 
 
@@ -426,7 +502,7 @@ magnet:?xt=urn:btih:41B23CB09E4C518D8AF05D00B5340C6D39AC7607
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112314.jpg" />
 </div>
 
 
@@ -450,7 +526,7 @@ magnet:?xt=urn:btih:29E85D15A0CDD32DF34DC1EA00DAF7839A7B51B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112315.jpg" />
 </div>
 
 
@@ -474,7 +550,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112316.jpg" />
 </div>
 
 
@@ -498,7 +574,7 @@ magnet:?xt=urn:btih:58C5B3C66796D3D329970A034D1DE4781BC690BA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112317.jpg" />
 </div>
 
 
@@ -522,7 +598,7 @@ magnet:?xt=urn:btih:C3A282F61DFD4AEAE3CD31243DB8BC9BD80081F8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112318.jpg" />
 </div>
 
 
@@ -546,7 +622,7 @@ magnet:?xt=urn:btih:8D5A3CAAD1D7BA65CAD2E4FC9AEA018221AA0370
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112319.jpg" />
 </div>
 
 
@@ -557,78 +633,6 @@ magnet:?xt=urn:btih:8D5A3CAAD1D7BA65CAD2E4FC9AEA018221AA0370
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DB831F19A0B6E67FAFFD48A4A720E9EA391E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823081   (112320) от 10.10.2025
-
-История любви и войны / Una Pelicula de Amor y Guerra / A History of Love and War (2024) Telecine  [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пепе Санчес Кампо в самом расцвете сил. Его коррумпированный бизнес в сфере недвижимости процветает, и он собирается жениться на любви всей своей жизни, аристократке Констанце. Однако удача Пепе вот-вот закончится из-за начала войны.Производство: Мексика / Edge Films, Laredo, 17NomadasЖанр: комедияРежиссер: Сантьяго Мохар ВолковАктеры: Лусия Гомес-Робледо, Фернандо Альварес Ребейль, Патриция Берналь, Моника Дель Кармен, Эрнан Дель Риего, Сантьяго Эспехо, Мануэль Гарсиа-Рульфо, Софи Гомес, Мария ИнохосПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1AE133194DFA67306ECD59ADD9202521B02A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823085   (112321) от 10.10.2025
-
-Как приручить лису (2025) WEBRip [H.264] (сезон 1, серии 1-2 из 8) (обновляемая)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зоопсихолог, изучающий лис, спасает жизнь странной замкнутой девушки Дины, но в результате сам становится подозреваемым в убийстве. Он вынужден начать самостоятельное расследование, а для этого ему приходится наладить контакт с дикаркой Диной, далекой от социальных норм и ограничений. Постепенно он выясняет, что в округе уже больше 15 лет пропадают юные девушки, (   Читать дальше...   )Производство: Россия, Место силыЖанр: Детектив, триллер, криминалРежиссер: Юлиана ЗакревскаяАктеры: Кирилл Кяро, Максим Стоянов, Таисья Калинина, Ксения Кутепова, Наталья Фенкина, Андрей Кочинов, Федор Федосеев, Сергей Медведев, Юрий Межевич, Егор Борисов и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F1EB84D823AD8E784D099212C969458BFD26D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823083   (112322) от 10.10.2025
-
-Защитник / The Defender (2004) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберта Джонс, советник президента по национальной безопасности, отправляется в сердце Восточной Европы на секретные переговоры с террористом № 1 Мохамедом Джамаром. В этой поездке Роберта доверяет только своему личному телохранителю Лэнсу Рокфорду, который не задает лишних вопросов. Но когда встречу внезапно нарушает вооруженное нападение, а Джонс и Джамар исчезают, (   Читать дальше...   )Производство: США, Великобритания, Германия, Румыния | Bauer Martinez Studios, Defender Production, Frame Werk Produktion GmbH & Co. KG, Lucky 7 Productions LLC, Lucky UKFS, Media Pro PicturesЖанр: боевик, триллерРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Джерри Спрингер, Шакара Ледард, Томас Локъер, Кэролайн Ли-Джонсон, Джералд Кид, Иэн Портер, Ховард Энтони, Джеффри Бертон, Иддо ГолдбергПеревод: Многоголосый профессиональный (SDI Media Russia), двухголосый профессиональный, авторский (Сергей Визгунов)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED618A15B9693052ACAA48F915107F930B786E80
 ```
 
 

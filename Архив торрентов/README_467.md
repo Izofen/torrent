@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102254.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8243523A676129D4CD934939ECF8660735D0C906
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:51E1C4F8365E4F86F04D4D4907B027175344E10A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102266.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D338C81D8F0BB9D2C2BEA27F8F4128ECDE2BC268
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102270.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B611BE00A9CEE1A45BC2DFC034F956831A9AACBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102271.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gekijouban Sora no Otoshimono: Tokei Jikake no Angeloid / Падшая с неб
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102284.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F7D2F079FAB39C8270FA5841168292D034139102
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102291.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ PictureCode Noise Ninja 2.3.7 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102294.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102294.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ London Elektricity - 8 Albums (1999 - 2011) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102300.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102300.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ iZotope - Iris v.1.0 by UNION x86 x64[STANDALONE|VST|RTAS][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102303.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102303.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ iZotope Iris v1.0 - Инновационный ре-синтезатор, кот
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102323.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102323.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tребования: Nokia c6-00 RM-612   Скриншоты:(   Читать д
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102355.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102355.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Tребования: Nokia c6-00 RM-612   Скриншоты:(   Читать д
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102366.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tребования: Nokia c6-00 RM-612   Скриншоты:(   Читать д
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102373.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:EB93708E24ED0DCA5F034A7B2947766D8FCC7FFE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102381.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102381.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Patifon (Патифон) 4.8 Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102384.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102384.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Patifon (Патифон) 4.8 Portable x32/x64 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102385.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:00B3796EA155A747738A319DCA7A1FD48BC7119E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102386.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:69E2AD46A86E3FC520D35E92AB2F0D29E2369567
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102392.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102392.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ROSA 2012 LTS LXDE beta (Национальая программная плат�
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102395.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B40379E2030F6749D3E65A5EE3514205E0381D21
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102398.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bolide Slideshow Creator 1.2.1007.1649 Portable x32/x64 [Многоязычны�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102400.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Bolide® Slideshow Creator – это обычное в освоении и до
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102419.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:6015605250F13E4EB304A7410B6C4D0DCFD68BF3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102426.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B428CFED30AD0C8AA11AAE0E9FE52F6714CD8DEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102428.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Daum PotPlayer 1.5.32007 (x86-x64) [Русский] (Cборка 7sh3 от 30.04
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102435.jpg" />
 </div>
 
 

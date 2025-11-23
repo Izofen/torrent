@@ -1,3 +1,52 @@
+###  Публикация: 1647311   (208587) от 18.07.2023
+
+Василий Богданович | Вежливый отказ, или Я могу сказать нет и не чувствовать себя виноватым (2008) [MP3, Вячеслав Манылов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто ли вы испытываете неудобства, когда вас просят об одолжении коллеги, друзья, муж (жена), дети? И что вы отвечаете им, когда меньше всего хотите выполнять очередную просьбу? Ничего? Вы соглашаетесь? А потом говорите себе, что вы делаете это в последний раз и надо, наконец, подумать о себе?
+Вы правы, надо, наконец, подумать о себе. А это значит не делать ничего (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудикнига своими рукамиПродолжительность: 07:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67C40EF6C67DE9D2FDEA7B5BB1C57F490C46CC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647379   (208617) от 18.07.2023
+
+Всеволод Коршунов | Призвание: режиссёр. Беседы с режиссёрами российского кино (2022) [MP3, Павел Корицкий, Агния Егошина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московская школа кино и издательство Бомбора представляют! Книга «Призвание режиссёр. Беседы с режиссёрами российского кино» - это настоящий калейдоскоп современного отечественного кино. Киновед Всеволод Коршунов встретился с двенадцатью выдающимися режиссерами нашего времени и поговорил с ними об искусстве, ремесле и индустрии в целом. Каждый из них режиссер, но (   Читать дальше...   )Жанр: кинематограф, режиссураИздательство: БОМБОРАПродолжительность: 05:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F47F758EE16B55E65AF63CCBFBBF9D7C54205C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608360   (208664) от 30.01.2023
 
 Светлана Сосновская | Секс Академия с Светланой Сосновской (Подкаст) (2020) [MP3, Светлана Сосновская]
@@ -6,7 +55,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208664.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208664.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ magnet:?xt=urn:btih:7E5FE4F3D885F34637021905013E4D9457319E44
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208845.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208845.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ Lucy Bella Simkins | The Listening Challenge (2022) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208921.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ magnet:?xt=urn:btih:A8CFBE19B7B9158A62A2BAC44A1ED8475EAA0916
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208927.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208927.jpg" />
 </div>
 
 
@@ -102,7 +151,7 @@ magnet:?xt=urn:btih:BE74B4CCEDED82F84039E46F682655AB1F926E55
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209113.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209113.jpg" />
 </div>
 
 
@@ -126,7 +175,7 @@ magnet:?xt=urn:btih:0B6FBB228F89ACF86646171A1377DB0B61AA1CE9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209125.jpg" />
 </div>
 
 
@@ -150,7 +199,7 @@ magnet:?xt=urn:btih:98DC6B140287935B7BA7DB9E691DDCF351BEA653
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209205.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209205.jpg" />
 </div>
 
 
@@ -175,7 +224,7 @@ magnet:?xt=urn:btih:3C95D3FC119D142E1956D482402763DA1E31E708
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209289.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209289.jpg" />
 </div>
 
 
@@ -200,7 +249,7 @@ magnet:?xt=urn:btih:C4ED112D1865AD7C7512FE9243D3BBCF1E569BD2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209294.jpg" />
 </div>
 
 
@@ -226,7 +275,7 @@ magnet:?xt=urn:btih:002DD9263F08F54B70D8F7C3E28031B203BBF3AB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209312.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209312.jpg" />
 </div>
 
 
@@ -252,7 +301,7 @@ magnet:?xt=urn:btih:22EF0B606FD5860F5AF68EA423891F1CA26878B9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209323.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209323.jpg" />
 </div>
 
 
@@ -276,7 +325,7 @@ magnet:?xt=urn:btih:57A4CAF0FF6C6446A6FF68085AEA7CACDDAB092E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209390.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209390.jpg" />
 </div>
 
 
@@ -300,7 +349,7 @@ magnet:?xt=urn:btih:F1142F745C3DC2713FB3FEFCAF854C78B6AA98AB
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209405.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209405.jpg" />
 </div>
 
 
@@ -326,7 +375,7 @@ magnet:?xt=urn:btih:C54E586F24E88C6F158A9EDFC9DD912247C3E96D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209547.jpg" />
 </div>
 
 
@@ -350,7 +399,7 @@ magnet:?xt=urn:btih:520F1731F248512A06CC89E22E984EDF89EC02CD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209771.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209771.jpg" />
 </div>
 
 
@@ -375,7 +424,7 @@ magnet:?xt=urn:btih:EB4F4EA8A60D794CC4ABD6BD4F6B10E11220D920
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209883.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209883.jpg" />
 </div>
 
 
@@ -401,7 +450,7 @@ magnet:?xt=urn:btih:6E38C779B128CE9D75594E05C7DA26937637B580
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210304.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210304.jpg" />
 </div>
 
 
@@ -426,7 +475,7 @@ magnet:?xt=urn:btih:A33956E10087C8004965437AC21CC9549C36E325
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210313.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210313.jpg" />
 </div>
 
 
@@ -450,7 +499,7 @@ magnet:?xt=urn:btih:A23DA6937E50553946478047353C27EB797F5F35
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210388.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210388.jpg" />
 </div>
 
 
@@ -475,7 +524,7 @@ magnet:?xt=urn:btih:6B878DF187678C193445BDA2166A29A581A5A745
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210515.jpg" />
 </div>
 
 
@@ -501,7 +550,7 @@ magnet:?xt=urn:btih:8424D25BF77766C5387E1B6022B9BE55B0E774DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210574.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210574.jpg" />
 </div>
 
 
@@ -525,7 +574,7 @@ magnet:?xt=urn:btih:51FBF875CE26A1BCC5057B55A5F2C343EEA28C0E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210596.jpg" />
 </div>
 
 
@@ -549,7 +598,7 @@ magnet:?xt=urn:btih:15FA3A1CB5966E7AB2ED7748CD18260E1192A5F1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210598.jpg" />
 </div>
 
 
@@ -573,7 +622,7 @@ magnet:?xt=urn:btih:6B097BD1A74D6E62619EFFFB2410978A2EBE0246
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210638.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210638.jpg" />
 </div>
 
 
@@ -584,55 +633,6 @@ magnet:?xt=urn:btih:6B097BD1A74D6E62619EFFFB2410978A2EBE0246
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41811A7C552FECAC71CAAFD452FDA6ED94B849C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641577   (210687) от 23.06.2023
-
-Сет Годин | Яма: как научиться выбираться и стать победителем (2010) [MP3, Любовь Косинская]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210687.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге "Яма" Сет Годин утверждает, что Винс Ломбарди был не прав, когда говорил, что те, кто сдается без боя, никогда не побеждают, а победители не отступают никогда. Сет уверен, что именно отступление ведет к победе, только нужно знать, когда отступить, и приводит ряд хитроумных аргументов в защиту своего мнения. Автор считает, что рано или поздно (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A943AC3C4F77444CCF133ABDFCD16180F509FDAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641574   (210708) от 23.06.2023
-
-Ровелли Карло | Семь этюдов по физике (2018) [MP3, Геннадий Смирнов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210708.jpg" />
-</div>
-
-
-###  Подробнее
-
-История великих открытий, результаты новейших исследований, поразительные факты и смелые гипотезы.
-Карло Ровелли – физик-теоретик, внесший значительный вклад в физику пространства и времени, автор нескольких научно-популярных книг. Он работал в Италии и США, а сейчас возглавляет исследовательскую группу по квантовой гравитации в Марселе. «Семь этюдов по физике» мгновенно (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FC6097BB9F61DB5B35DE6B1A592DC95C25F081
 ```
 
 

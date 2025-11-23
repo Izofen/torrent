@@ -1,3 +1,84 @@
+###  Публикация: 479579   (98812) от 07.04.2012
+
+Совершеннолетие Рунета: 7 апреля 2012 года доменной зоне .Ru исполнилось 18 лет
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98812.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+7 апреля домен .Ru празднует 18-летие. Именно в этот день в 1994 году состоялось официальное открытие национальной доменной зоны. Первый зарегистрированный ресурс 1-9-9-4.ru. До этого все отечественные сетевые ресурсы размещались на международных доменах и в зоне Советского союза .SU. В свое совершеннолетие домен продолжает удерживать позицию самого популярного в России, уверенно перешагнув отметку в 3,5 миллиона регистраций. В честь дня рождения Рунета ведущий аккредитованный регистратор доменных имен REG.Ru напомнил об основных этапах становления доменной зоны.Активная регистрация доменных имен коммерческого назначения началась еще в 1996 году, но сегодня старожилов почти не осталось – основную часть регистраций (почти 40%) составляют домены, зарегистрированные в зоне .RU менее года назад. Старейшим действующим доменом в национальной зоне .Ru признан сайт nostalgie.ru.С 2006 по 2008 год зона .Ru динамично развивалась: если в 2006 году число зарегистрированных доменов составляло чуть более 718 тысяч, то уже (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479732   (98814) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98814.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №11
+Название: Desktop Wallpapers №11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479683   (98815) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98815.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №7
+Название: Desktop Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479679   (98816) от 07.04.2012
 
 [Wallpapers] Desktop Wallpapers №5
@@ -6,7 +87,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98816.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98819.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98820.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98822.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98823.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98825.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98826.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98827.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ magnet:?xt=urn:btih:C87B086DB8B52037A0C9A96C4BE913EAA4B9DE8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98828.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ magnet:?xt=urn:btih:160C8E2D0E952347924C117A201DDD4276D62AA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98829.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ magnet:?xt=urn:btih:1B2BB1F872C6BCB797EC4D43D2D75379367178B0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98830.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98831.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98832.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98833.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98834.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98837.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98838.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98839.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98841.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98842.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98844.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98845.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98846.jpg" />
 </div>
 
 
@@ -605,87 +686,6 @@ magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479465   (98849) от 07.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479154   (98850) от 07.04.2012
-
-Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98850.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478116   (98854) от 07.04.2012
-
-VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siatria - Закрой глаза (prod. by Shaplin)
-02. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
-03. Akcent - My Passion (Emin K & Ansarov Remix)
-04. Armin Van Buuren feat. Sophie Ellis - Bextor - Not Giving Up On Love
-05. N - Finity - Someone Like You (Kris Mctwain Edit)
-06. Dj Vengerov Feat. Александр Ягья - Потанцуй Со Мной (Club Edit Remix)
-07. Rihanna - Only Girl (In The World)
-08. MF - Все будет хорошо (DJ Rich-Art & DJ Night remix)
-09. Dj Mixer Euro & Nika Belaya Ft Greysound - Зажигаем (Greysound Radio Edit)
-10. Ёлка - На большом воздушном шаре (Viento & Mutti bootleg)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
 ```
 
 

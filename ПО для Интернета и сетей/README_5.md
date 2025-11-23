@@ -6,7 +6,7 @@ Mullvad Browser 13.5.3 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44415.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Viber 23.5.1.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44468.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ LiteManager 5.2 (5200) Free/Pro [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44878.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KeepStreams 1.2.3.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45058.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ KeepBeats 1.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45076.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Mozilla Thunderbird 128.1.1esr [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45408.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EF58519BD674000F52D419AAFD17E01D044E36C2
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45462.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:BA9C621EE47FD8F45CFCB3EB435BD7F766E5444A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45519.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9B37113EC876569DE5DB79876433999BB73BDF32
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45538.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MetaProducts Offline Explorer Enterprise 8.6.4984 RePack (& Portable) by TryRooM
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45692.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ nthLink 6.5.0.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46757.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VCap Downloader 0.1.23.6257 Portable by 7997 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48316.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ eM Client Pro 10.0.3351.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48553.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mailbird Pro 3.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48572.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mailbird Premium 3.0.17 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48593.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Fast Video Downloader 4.0.0.62 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48811.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Wireshark 4.2.6 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49252.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ NetBalancer 12.4.1.3834 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49652.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by TryRooM 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50357.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Megacubo 17.5.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51111.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Comodo Dragon 125.0.6422.142 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51165.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ uTorrent Pro 3.6.0 Build 47124 Stable Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51451.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ LibreWolf 127.0.2-2+ Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51696.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Brave Browser 1.67.123 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51952.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:32E087F65A96614AE56E6BDC8762B5286BBB16E1
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52228.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ MAX Desktop 25.12.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52256.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1720236   (110422) от 02.05.2024
+
+Память / Memory (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошлое не дает покоя Сильвии. На вечере выпускников она встречает Сола и обвиняет его в преступлении, совершенном против нее много лет назад. Сол страдает прогрессирующей потерей памяти и отказывается признавать вину. Постепенно противостояние двух одиноких сердец перерастает в сильное чувство. Тонкая история любви, помогающая справиться с демонами прошлого и обрести (   Читать дальше...   )Производство: Мексика, США / Case Study Films, High Frequency Entertainment, MUBIЖанр: драмаРежиссер: Мишель ФранкоАктеры: Джессика Честейн, Питер Сарсгаард, Мерритт Уивер, Джессика Харпер, Элси Фишер, Брук Тимбер, Джош Чарльз, Том Хэммонд, Брайан Келли, Тарина УэббПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:45Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720051   (110423) от 02.05.2024
+
+Идеальная зависимость / Perfect Addiction (2023) BDRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиенна — успешный тренер по боксу. Однажды она узнаёт, что её парень Джэкс, действующий чемпион, изменял ей с её же сестрой. Разъярённая, она решает отомстить бывшему самым болезненным способом — она берётся тренировать единственного боксёра, который может свергнуть Джэкса с пьедестала. Но то, что начиналось как план мести, постепенно перерастает во что-то большее.Производство: США, Германия / Constantin Film, JB Pictures, Arbor FilmsЖанр: боевик, мелодрамаРежиссер: Кастиль ЛэндонАктеры: Ману Беннетт, Росс Батлер, Поппи Гилберт, Киана Мадейра, Мэттью Нозка, Николас Дювернэй, Бри Уинслоу, Райан Баун, Джей Демеритт, Кайлас МахадеванПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:02Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720129   (110424) от 02.05.2024
+
+Журнал | Просто, вкусно и полезно! №3 (март 2024) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных рецептов. Все рецепты в этом журнале от читателей, они проверены ими не раз, из доступных продуктов и с простым способом приготовления. А чтобы довести их до совершенства - сделать еще вкуснее и полезнее, то тут вам помогут комментарии специалистов: шеф-повара и врача-диетолога.Жанр: КулинарияИздательство: Александр ИоффеФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBED95BB468D8605F56F742480E91FD18054EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720238   (110425) от 02.05.2024
 
 Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Metal>
@@ -6,7 +78,7 @@ Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110425.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110426.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ magnet:?xt=urn:btih:04E914E5BBD91AD47D16B82FB54A2C5A87F047AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110427.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110428.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110429.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Telegram Desktop 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110430.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ Sandboxie 5.68.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110431.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ Sumatra PDF 3.6.16059 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110432.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:6D946EE9BCAD9B2ACAED29BFFABEF153262348A4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110433.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110434.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Vivaldi 6.7.3329.24 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110435.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ Soul Browser 1.4.16 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110436.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110437.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110438.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ Telegram Desktop 5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110439.jpg" />
 </div>
 
 
@@ -386,7 +458,7 @@ magnet:?xt=urn:btih:C9DA5AD699D2FE88F08EDD555F72021E2B4E2F98
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110440.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ USB Device Tree Viewer 4.2.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110441.jpg" />
 </div>
 
 
@@ -434,7 +506,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110442.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ TikTok 34.5.4 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110443.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ magnet:?xt=urn:btih:0817E95BB3DC0333D9FC01AA28AC09CEF705846E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110444.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ OfficeSuite Pro + PDF 14.4.51682 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110445.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ magnet:?xt=urn:btih:3C86FDD9BCCC38D498FF33D63761C20CD840F94A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110446.jpg" />
 </div>
 
 
@@ -557,7 +629,7 @@ magnet:?xt=urn:btih:9137689C17D9E85045F302E2B919AE8BD5F2B7D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110447.jpg" />
 </div>
 
 
@@ -568,85 +640,6 @@ magnet:?xt=urn:btih:9137689C17D9E85045F302E2B919AE8BD5F2B7D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE72626A5F5D26A70B0E33711EA3648B23C4B2D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719677   (110448) от 01.05.2024
-
-Black Tusk - The Way Forward (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of Grasp [00:02:47]
-02. Brushfire [00:02:22]
-03. Harness (The Alchemist) [00:02:35]
-04. Lessons Through Deception [00:02:14](   Читать дальше...   )Жанр: Sludge Metal, HardcoreПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FC7E04A8A5A1FAA5FC22FB67006056AAF254FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719919   (110449) от 01.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 5-й матч) Нью-Йорк Айлендерс - Каролина Харрикейнз (30.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2024, среда. 02:30 МСК. 1/4 финала - Восток. 5-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 18 874 зрителя (99% при вместимости 19 041)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: TBSЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4457E7E81FD5D9C2BC7256F5DCAA643222378518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719505   (110450) от 01.05.2024
-
-Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point [00:03:26]
-02. Line [00:02:53]
-03. Triangle [00:02:15]
-04. Square [00:03:42](   Читать дальше...   )Жанр: Progressive Metal, Heavy ProgПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8E15F4A6A90EA9784ABD8C1AD17F2F15CDE104
 ```
 
 

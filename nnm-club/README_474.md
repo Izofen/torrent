@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cerrone & Christine and the Queens - Catching feelings (2025) EP [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12568.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12569.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Any Video Downloader Pro 9.2.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12570.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Glary Utilities Pro 6.28.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12571.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C62C9115C37FC1BE93099C455C283627CC93FDE8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12572.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C62C9115C37FC1BE93099C455C283627CC93FDE8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12573.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5D63897DD879AD00EE788280E19EC047E06B2C41
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12574.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Xfer Records - Serum 2 2.0.20 VSTi 3, AAX (x64) Revised [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12575.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E9B2B193514971B4763EBC61936E5370F7596457
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12576.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:22728058DA63048CF63F91BD89E1B7E7FCAB4ABB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12577.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12578.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:0F74BF89CFEC97E0BEF6B843885257CD32AE4E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12580.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12581.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DF39E9233EDE90B67FEF4268285DEEF3B613E53D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12582.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:33D51317FD7324BF4150E61109CA354C4E77214F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12583.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E81C2C5F2C2B60120552FB054E6342B8EF308D2C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12584.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:83E939A391F6D34A086969D12B29CD042414B44B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12585.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7D09941D56A7AD9B777AB1B2D2C05DA33923451D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12586.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12587.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:2EA236EB52C70F77ADCBDE63DBAECE5562547E73
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12588.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:7FDD7A1FAFE85FE283085658AA7EE58F5B40FB0C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12589.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3DD5D7B9832A9D220A28B1D38C78A5BBC06B704F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12590.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Perfect Heist 2 (2021) [Ru/Multi] (03.07.2025) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12591.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:B7C095702E91A9E93D82D8F804EEF5AE0D11066C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12592.jpg" />
 </div>
 
 

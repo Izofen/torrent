@@ -1,3 +1,78 @@
+###  Публикация: 1696047   (119964) от 31.01.2024
+
+Nazareth - Rare & Unreleased (2018) 3 x CD [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Storm Warning (Circa 1972/73)
+02. Paper Sun (Circa 1972/73)
+03. Goin' Down (BBC Pop Spectacular, 1973 / Live)(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 03:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E99F5975497DDE0CBD369F9F8DA51C69DB68048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695898   (119965) от 31.01.2024
+
+Крис Бэйли | Гиперфокус (2019) [MP3, Илья Волков]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы заходите в комнату и вдруг понимаете, что напрочь забыли, зачем сюда направлялись? Принимая душ, ловите себя на мысли, что проблема, мучившая несколько дней, решается довольно просто? Смартфон стал черной дырой, поглощающей ваше время? Автор бестселлера «Мой продуктивный год» Крис Бэйли в своей новой книге рассказывает, как управлять самым важным ресурсом XXI (   Читать дальше...   )Жанр: ПсихологияИздательство: Альпина ДиджиталПродолжительность: 06:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96751C77943C289A53E3501C37AC66EB7B47B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695939   (119966) от 31.01.2024
+
+Дом из песка и тумана / House Of Sand And Fog (2003) HDTVRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноимённому роману Андре Дюбуса III и повествует о битве между молодой женщиной и семьей иммигрантов из Ирана за право собственности на дом в Северной Калифорнии, которая, в конечном итоге, приводит к гибели трёх человек...Производство: США / Bisgrove Entertainment, Cobalt Media Group, DreamWorks SKGЖанр: драма, криминалРежиссер: Вадим ПерельманАктеры: Дженнифер Коннелли, Бен Кингсли, Рон Элдард, Шоре Агдашлу, Джонатан Адут, Фрэнсис Фишер, Ким Диккенс, Нави Рават, Карлос Гомес, Киа Джем, Джалех Моджаллал, Самира Дамаванди, Мэттью Саймониан, Намрата Купер, Аль ФарисПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английские, немецкие хардсабы на неанглийскую речьПродолжительность: 02:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3505F696D4664E655636972B7229598B0979186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695969   (119967) от 31.01.2024
 
 Google Chrome 121.0.6167.140 Portable by Cento8 [Ru/En]
@@ -6,7 +81,7 @@ Google Chrome 121.0.6167.140 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119967.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:95EC7012D01802A59647B560F667E8A388EE72C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119968.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_119968.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:95EC7012D01802A59647B560F667E8A388EE72C7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119969.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:D5DE02FBD6F14D6DF3762EB3F9DCB49CA036C139
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119970.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:16999F3AD589A622D6F370488127A5415AAC6D91
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119971.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:2D3EA9105C5340E9FB804F05989E0D2664EE9C83
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119972.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119973.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:16FDED619F034DFBE554CB258B944ED0140EC89B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119974.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:EDE74CD19BFAF536F14A442C96F1AC0A495155B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119975.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ PrivaZer 4.0.82 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119976.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ magnet:?xt=urn:btih:AA9CF378AE84402C62B063D1CF23B4576509CDB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119977.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ Invasion - Invasion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119978.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:F195552AF841675CA0C27AC52FB4A288A00F5042
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119979.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:C084358D72DAC1722E003F0C60C984BD4D5F6E14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119980.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:A8416206E100B36CC5BF38FE953AE3A01A8BB327
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119981.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ Sonic Academy Plugins Bundle 2023.12 VST/VSTi, VST 3/VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119982.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Free Hex Editor Neo 7.41.00.8634 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119983.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ Microsoft PowerToys 0.78.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119984.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:F648A8C4F4D550E4763321298E2089E25E95084B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_119985.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_119985.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:F648A8C4F4D550E4763321298E2089E25E95084B
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119986.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ magnet:?xt=urn:btih:4E93273001A55C7D3BAB9BB35734F0A771FDBBD5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119987.jpg" />
 </div>
 
 
@@ -522,7 +597,7 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119988.jpg" />
 </div>
 
 
@@ -546,7 +621,7 @@ magnet:?xt=urn:btih:779D18812E654A7F3BE64DE592610E239425BAA8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119989.jpg" />
 </div>
 
 
@@ -557,80 +632,6 @@ magnet:?xt=urn:btih:779D18812E654A7F3BE64DE592610E239425BAA8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86EEB357FFCF5CAB5477DCA3C00702C61D88A33D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696054   (119990) от 31.01.2024
-
-Роман Храпачевский | Армия монголов периода завоевания Древней Руси (2022) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119990.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XIII в. княжества Древней Руси и государства Восточной и Центральной Европы испытали ошеломляющий натиск военной машины Монгольской империи, буквально сметающей все на своем пути. Грандиозная по своим масштабам кампания 1236–1242 гг. (общие силы монголов составляли астрономические 250–260 тыс. человек) вошла в историю войн как Великий Западный поход. Население (   Читать дальше...   )Жанр: Военная документалистика и аналитика, ИсторияИздательство: Яуза-прессФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A5C0EDE28825CDFEC8092D0FDDD47CCDDDD249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695892   (119991) от 31.01.2024
-
-Сергей Карелин, Виталий Останин | Мастер Порталов (Книга 3) (2024) [MP3, Вадим Ерофеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кого-то сбивает автобус, и после смерти он попадает в фентези с гаремом и эльфийками. Кого-то богиня призывает, чтобы спасти всех от Темного Властелина. А у меня «просто» пробудилось древнее наследие и я научился открывать порталы. Да, в другой мир.
-
-Вроде бы и этого достаточно, чтобы с ума сойти, так еще и планетка после какого-то Армагеддца, мутанты со всех сторон, (   Читать дальше...   )Жанр: LitRPG, Боевое фэнтезиИздательство: ЛитРес, АвторПродолжительность: 09:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C676B2F2EA35FCE3ABF63F97527928223ECED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695927   (119992) от 31.01.2024
-
-Журнал | Maximum PC №2 (февраль 2024) [PDF][En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maximum PC - это журнал, который каждый компьютерщик, геймер или создатель контента должен читать каждый месяц. Каждый номер содержит множество обзоров продуктов, подробные инструкции и интересные технические новости и информацию, которой жаждут пользователи ПК. Maximum PC охватывает каждую тему, которая требует молниеносного ПК, от редактирования видео и создания (   Читать дальше...   )Жанр: Компьютерные журналыЯзык: АнглийскийИздательство: Future US, Inc.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61FE589A4C13639205A6D5E805FE30429B1250A
 ```
 
 

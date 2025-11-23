@@ -6,7 +6,7 @@ Junco Shakers - Lace up Ya Boots... It's the Junco Shakers (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105419.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ticket West - All Is Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105424.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kaliopi & The Blues Messengers - The Devil's Voodoo Curse (Festival Edition) (20
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105426.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sarah Wright - Drive Outta Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105427.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Doug Duffey and Badd - Ain't Goin' Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105430.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Gibbons - Blues On The Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, C
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105431.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105432.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105434.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105435.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dax Butler - Trouble in Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105436.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Blind Lemon Pledge - Oh so Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105437.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Darrell Arnold - Portraits of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105438.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lou Majaw - The Bluesman of Shillong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105439.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Allan Wylco and the Voltanics - Time in Time Out (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105440.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105496.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105544.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105612.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tony Ivan O'hara - Harder Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105622.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jamie Wood & Nutty Brown - Who's Shuckin Who (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105623.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bill Barber & The Holding Cell - At Muscle Shoals (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105624.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Al Tambay - So This Happened! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105625.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Phineas Newborn, Jr. - The Great Jazz Piano Of Phineas Newborn, Jr. (1961, 1962)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105627.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Preservation Blues Band - Comin Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105634.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Smoke Stack Rhino - The Mojo Dojo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105635.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Unforgettable Ultimate Smooth Jazzy Vacation Playlist to Relax and Recharge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105636.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Ultimate Unforgettable Smooth Lounge Vacation Playlist to Relax and Recharg
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105638.jpg" />
 </div>
 
 

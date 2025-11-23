@@ -6,7 +6,7 @@ Skillbox, Андрей Щедрин | Горшечные растения (2022)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62367.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0A431E40557E31C12E17A372D4E4D2329844AE84
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:ACA8081AD3CA447D238DACDD98C321A08230C550
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62420.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62511.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Paul Anthony | Техники и приемы для портативного ф
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62578.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:F44E31A74E2075B804BDD93654518C5D9A17D5F9
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62669.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Udemy, 3D Tudor | Blender 4 Geometry Nodes for Beginners (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62679.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:D1B889B5E42FE8DAC2BC8DD4A2FDCEF2FBC53766
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62780.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Udemy, Jacob Zirkle | Blender VFX Course: From Beginner To Pro! (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62805.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:29A10EC219F7B3EAF1D0C327BB83C6BE4A12E2F3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62811.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Gumroad, Thiago Klafke | Environment Art Mastery (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62817.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:499954237BCF9B1700B91F1C3244E13916B275C2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62820.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Udemy, Александр Сокирка | Руководство по WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62842.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62931.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:8A44EB9892CAFD499F0168CD6DDBADB06F5ACB72
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62985.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F0CC19C8EFBDF6E4BED928F808F992DD82D80B9B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62987.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:2928739446B0A9481D3EAD056924670800816C35
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62990.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B7ADC5BC28FA2D220CFD341F81C22F8EE8EDF13E
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62998.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Gumroad, Dan Kenton | Revolver Texturing Tutorial (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63052.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:F898F7591FC68727B726D64764872373D8D7A69D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63083.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Balun.Courses, Максим Фатин | Подготовка к алгорит�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63119.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ WebForMySelf | Закрытый клуб для веб-мастеров. Под�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63131.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63145.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Creative Shrimp, Gleb Alexandrov | Cinematic Lighting in Blender (2022) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63146.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C86E8B47DAB54A79BF4412A4EB999E3C0196FC92
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63317.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:549AF9FF70AE7FAE18324EAB69B830E739B87EB9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63539.jpg" />
 </div>
 
 

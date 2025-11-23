@@ -6,7 +6,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8591.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8722.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8737.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8753.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8938.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9048.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9059.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9084.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tall Trails (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9118.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9176.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9188.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Echo Paradox (2025) [En] (19081580) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9268.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9285.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Copycat (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9290.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Forest 6174 (2025) [Ru/Multi] (build 19378140) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9419.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9433.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9438.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9459.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9501.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9508.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9525.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9571.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9581.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9612.jpg" />
 </div>
 
 

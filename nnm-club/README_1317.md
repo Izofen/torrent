@@ -6,7 +6,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D56686547595B1DD3FC61A9C66672556390BB817
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34596.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D4E9ED8A44C3F2E431E34586301A4D407F205DCC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34597.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3526D7A8F1B0E05A4E381146E9EBBC23327F8FBD
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34598.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34599.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SnapEdit - AI photo editor v7.2.5 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34600.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2460988E755E316C158DDD6694187E51232B11D8
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34601.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D0E456966B7D6970D64BB9279F1DA45EB360BFC6
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34602.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8BF5079DABD450550B79AC3DFAA468CBDFD2110C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34603.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2484F5A041AB4025480F3E00919A050FCE40FBDD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34604.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:51E51FDCBAB4DAFB66F366139528FF9612B47622
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34605.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Iotunn - Kinship (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34606.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nancy Sinatra - Sugar (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34607.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Text Editor Pro 31.0.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34608.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Chillhop Essentials Winter (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34609.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Babbba - Smooth as silk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34610.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Vanessa Paradis - Live (1994) Remaster - 30th Anniversary Deluxe Edition, 2024, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34611.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Babbba - Two to Tango (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34612.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Karfagen - Constellations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progresive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34613.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ TreeSize Professional 9.3.0.1954 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34614.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:8929D56C9A423F8802675CD2FEE039D0FD9CA5F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34615.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34616.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Fast Screen Recorder 2.1.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34617.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MediaInfo 24.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34618.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ MobiPDF: Редактор и сканер PDF  v11.1.266629 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34619.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B18B30E2BD9D7ADECCF22C49F4270443339CC5E7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34620.jpg" />
 </div>
 
 

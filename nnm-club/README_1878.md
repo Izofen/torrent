@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49183.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:92157B680A22CF51A772E6A7F485253269EAD67D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49184.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blender 3.6.14 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49185.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ NoMachine 8.12.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49186.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0A041CC23287099D1F70E525B47089FD07B4AA2A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49187.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Audacity 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49188.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Benvista PhotoZoom Pro 9.0.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49189.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Bikemap: велотрекер и маршруты v20.7.0 Mod by AppModz [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49190.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Summer Tech House Hits 2024 [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49191.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Balabolka 2.15.0.875 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49192.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:EB1737CF059883EDF0DFD9917E1958F43B1BDEB3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49193.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Sigil 2.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49194.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ RegCool 2.010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49195.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:CD5A081341F1D8F01E38765617BF160262F235D1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49196.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wood Block Puzzle (QBlock)  v3.9.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49197.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4E695717F4A0CFBDFEB9CA152227091F99B6E98E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49198.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:FCEC60B9DE71C98714E506FE8B655D5C6AA64AE4
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49199.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ IceCream Ebook Reader Pro 6.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49200.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PowerRun 1.7 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49201.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Navigation Bar for Android v3.2.3 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49202.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:B1E1168206828C9BA6218B5027692E030A049CCD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49203.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:FCACD21D688F39F73A6F221C0B839D7C464E6FA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49204.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:8661BB459B7C7C48E3C7E094BB9D91A6C76D059A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49205.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F2BD4F84458A6ADFA5B44F29C4C2F88BEB5C2F2E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49206.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:EA2D752859D954FE65B0FC2852E149675CA41427
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49207.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Enigma Virtual Box 10.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49208.jpg" />
 </div>
 
 

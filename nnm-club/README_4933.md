@@ -1,3 +1,177 @@
+###  Публикация: 1601068   (152922) от 30.12.2022
+
+Ciroza - Ashes (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ashes (06:54)
+02 - Those Like You (05:15)
+03 - Evacuation (04:41)
+04 - Stop The War (04:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA45449072CA12C88BA20939C337627CA23B24E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194908   (152923) от 26.12.2017
+
+Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) License RELOADED
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игры Homeworld приглашают вас возглавить экспедицию, с которой всё началось. Стратегия 'Deserts of Kharak: A Homeworld Story' сделана студией Blackbird Interactive, состоящей из разработчиков игр Homeworld и Company of Heroes. В игре вам предстоит посетить пустыню Кхарак, где за каждой дюной кроется опасность. В ходе кампании Deserts of Kharak далеко в (   Читать дальше...   )Тип издания: LicenseРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16A72B0617859DE1919867789774AA25EE9900C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588833   (152925) от 14.12.2012
+
+Beautiful flowers HD wallpapers (13.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6530424291DEEB10D335EDA6931D06C7D795E69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434046   (152926) от 23.12.2020
+
+VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Korol i Shut - Кукла колдуна (3:22)
+002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
+003. Markul - B.I.D (3:12)
+004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271026   (152927) от 21.12.2018
+
+Птичий короб / Bird Box (2018) WEBRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет назад мир погрузился в хаос: увидев нечто, люди кончают жизнь самоубийством. Женщина с двумя пятилетними детьми, услышав по радио о безопасном месте, отправляется на поиски выжившей общины и прихватывает с собой попугаев в коробке. Чтобы сохранить жизнь в этом новом мире, самое главное — не смотреть по сторонам и слушать, как птицы реагируют на приближающуюся (   Читать дальше...   )Производство: США / Bluegrass Films, Chris Morgan Productions, Universal PicturesЖанр: Ужасы, Фантастика, Триллер, ДрамаРежиссер: Сюзанна БирАктеры: Сандра Буллок, Треванте Роудс, Джон Малкович, Сара Полсон, Джеки Уивер, Роза Салазар, Даниэль МакДональд, Лил Релл, Том Холландер, Машин Ган КеллиПеревод: Дублированный (Невафильм)Субтитры: русские (Forced, Full), английские и др.Продолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9DFF2EFFAA3D1B9B0FA76A63717E37A37F0F69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677003   (152928) от 16.11.2023
+
+Н. Мотт, Р. Герни | Электронные процессы в ионных кристаллах (1950) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описаны основные закономерности электронных процессов, имеющих место в ионных кристаллах.Жанр: ФизикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8EC4C18806684C3E210E71768C9C6AABC04A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601149   (152929) от 30.12.2022
+
+Deliver 2.7.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver — это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлениями по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке по электронной почте, сжатие, доставку в несколько пунктов назначения и многое другое. Уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2022Разработчик: © 2010-2022 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8DC6BCC50116C116922AC9B5AE0C30AB8B38B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968509   (152930) от 24.12.2015
 
 Дэвид Фельдман, Ли Кравец | Заново рожденные. Удивительная связь между страданиями и успехом (2016) [FB2, DOCX, PDF]
@@ -6,7 +180,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152930.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:1FB86636A4DCE1542ABE25C0D32E465E0C188E7E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152932.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:FE454062BA592EACC9C30250FF209FBF26E3F7DB
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152933.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:186B204D0F55FABB41476DDADA397FE67332B654
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152934.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:DFE2362C3013E9B22FE6668600AFAA6C24753162
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152937.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ Chromium 119.0.6045.160 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152938.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ magnet:?xt=urn:btih:0114AC9C99EC510A195032F3260FD3320B9721A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152939.jpg" />
 </div>
 
 
@@ -174,7 +348,7 @@ Re-Loader Activator 2.0 RC 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152940.jpg" />
 </div>
 
 
@@ -199,7 +373,7 @@ WinRAR 5.80 Final (х86) Portable by Deodatto [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152941.jpg" />
 </div>
 
 
@@ -223,7 +397,7 @@ magnet:?xt=urn:btih:67F62493EFBDA8DDA904B59B9C1F7D72D8ABE4F4
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152942.jpg" />
 </div>
 
 
@@ -247,7 +421,7 @@ Creative Wallpapers (10.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152943.jpg" />
 </div>
 
 
@@ -271,7 +445,7 @@ TG Pro (Temperature Gauge Pro) 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152944.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ magnet:?xt=urn:btih:5038E5AEF9E591227BF815252895E1C7EA94F2A3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152945.jpg" />
 </div>
 
 
@@ -320,7 +494,7 @@ Larva Island  (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152946.jpg" />
 </div>
 
 
@@ -344,7 +518,7 @@ magnet:?xt=urn:btih:67255EC3FC376D337F986BDFF0DAF9594D16FBD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152947.jpg" />
 </div>
 
 
@@ -368,7 +542,7 @@ magnet:?xt=urn:btih:883D8E53751D8FA64C437A82A8FFC90B9829ADDD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152949.jpg" />
 </div>
 
 
@@ -393,7 +567,7 @@ magnet:?xt=urn:btih:46AF688E5029CA5FF33C0051FA0A8459258A2161
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152950.jpg" />
 </div>
 
 
@@ -417,7 +591,7 @@ magnet:?xt=urn:btih:3D11D0DCDE182CF160874B42F04019121E15709B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152951.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152952.jpg" />
 </div>
 
 
@@ -455,182 +629,6 @@ Small Jackets - Just Like This! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03AE792F0CE32FEC79E7F4017F26498769F13D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270777   (152954) от 21.12.2018
-
-Веном / Venom (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Китай / Columbia Pictures Corporation, Marvel Entertainment, Pascal PicturesЖанр: Боевик, фантастика, триллер, ужасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Риз Ахмед, Рейд Скотт, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Пегги Лу, Мак Брандт, Рон Сефас Джонс, Мишель Ли (II), Мелора Уолтерс, Сопе АлукоПеревод: Дублированный (iTunes), Профессиональный (многоголосый, закадровый), АвторскийСубтитры: Русские (форс, полные, полные (FOCS)), украинские (полные), английские (SDH)Продолжительность: 01:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B847129E83435C0BA167A0218F51F4064B7C4C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589456   (152955) от 14.12.2012
-
-Журнал | За рубежом №66 [декабрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарное издание о жизни за границей, появившееся в СССР в 1932 году и на долгие годы ставшее для советских читателей источником информации об «их нравах».Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE5AC3A38ECCBC9C8F37A5C157F2F8B90A1AE5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086242   (152956) от 24.12.2016
-
-Юстасия Тарасава | Егорка и Змей Добрыныч (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самой большой на свете стране живёт маленький учёный – первоклассник Егорка. На каникулах у бабушки в деревне он знакомится с дракончиком Змеем Добрынычем и вместе со старшим братом помогает ему добраться до Горного Змея. В пути Егорка попадает в разные истории, встречает новых друзей, а самое главное – понимает, что важнее всего в мире дружба, любовь и доброта. (   Читать дальше...   )Жанр: Детская сказкаПродолжительность: 06:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D173D48B5A0CD49F52F2C867E6D90D8527A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518870   (152957) от 21.12.2021
-
-Final Draft 12 v12.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Draft — профессиональное программное обеспечение для написания сценариев фильмов, телевизионных шоу и спектаклей.
-Приложение представляет собой многооконный текстовый процессор с массой специализированных возможностей под написание сценариев.
-Для использования утилиты вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2021Разработчик: © 2021 Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C451EA78597569E5D536F75C89A2C10D359BA4C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329502   (152958) от 22.12.2019
-
-Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гениальная девочка Нуль только что потеряла свою горячо любимую сестру Пету в аварии. Но ничего! Она обратит свой недюжинный интеллект на то, чтобы вернуть сестру в виде робота! Вот только станет ли новоявленная сестра такой же, как была? Пришло время для сумасшедшей комедии о безбашенном веселье Нуль и её робо-сестры Петы! © CrunchyrollПроизводство: Япония, Shinei AnimationЖанр: комедияРежиссер: Огура ХирофумиПеревод: лолечка & _Niki_ (Sovetromantica)Язык озвучки: ЯпонскийПродолжительность: 12 эпизодов по ~5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA8E84F666683DE60D9814124F6308CBDF39272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677116   (152960) от 16.11.2023
-
-Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152960.jpg" />
-</div>
-
-
-###  Подробнее
-
-HammerFall — группа из Швеции, играющая в стилях хеви-метал и пауэр-метал. Основана гитаристом Оскаром Дроньяком в 1993 году01. Never Forgive, Never Forget
-02. One Against The World
-03. Heeding The Call
-04. The Way Of The Warrior(   Читать дальше...   )Производство: ГерманияЖанр: Power MetalУчастники: Йоаким Канс (вокал)
-Оскар Дроньяк (гитара, бэк-вокал)
-Фредерик Ларссон (бас-гитара, бэк-вокал)
-Понтус Норгрен (гитара)(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3012457584CC6012E58C555A399E1849362D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270000   (152961) от 21.12.2018
-
-Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Smash Bros. Ultimate — нетрадиционный файтинг, в котором перед игроками стоит цель в виде ослабления и выбивания оппонентов с арены. В игре присутствует несколько игровых режимов — базовый режим «против», в котором до 4 противников, управляемых человеком или компьютером, могут сражаться друг с другом; режим «смэш», позволяющий до восьми игроков сражаться индивидуально (   Читать дальше...   )Тип издания: eShopРазработчик: NintendoЖанр: Action, FightingЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6ABB2A18C8C308CFA0FFD1A5D961EA71245883C
 ```
 
 

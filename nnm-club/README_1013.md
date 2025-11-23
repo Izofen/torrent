@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Assorted Remixes Compilation Part 2 (2025) [MP3|320 Kbps] <Electronic, Inst
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26687.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:31DA7CA73715257E8370A264D5DBDEB1B0B0088F
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26688.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:B9BF83F77E9BF3D5F3F90199A6F0EC25B38139AD
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26689.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F64AA738F95A953EE6953CD637AB2DF145E3E300
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26690.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26691.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26691.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E49350FE30FB2BF7BEBE1DDB6E1F4891FE083670
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26692.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26693.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26693.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:331CC75A3F2858146AEAA5161D39A43FF4EE48E7
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26694.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26694.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:05BCF401056D8A0C56CF98DC8EBB878CF8275BB7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26695.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26695.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Romantic Striпgs (2025) [MP3|320 Kbps] <Pop, Rock, Ballad>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26696.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26696.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26697.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:C6C6C273B8D550405A7E532623E36973FE550F25
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26698.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26698.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:18BDF4F72177D560B0A13372815DF41412D0830A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26699.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26699.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Piano Calming Hours: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26700.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26701.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26702.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26702.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26703.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26703.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:E72F6E0B405755F086E9E2B6627CD89FAF597B52
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26704.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26704.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.43.8 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26705.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26705.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26706.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26706.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26707.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26707.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:B0B59AFBC087F1730662EC0F55432082A90F1D3A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26708.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26708.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E11A22645DCE1F8495EF6E5C8B9617C66AF78312
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26709.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26709.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:7C1349342989EC4EEB942FE55A7D9F2232C9D748
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26710.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26710.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:EFB4267CE4D630A3E6CD823ADC2F9996D2A28228
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26711.jpg" />
 </div>
 
 

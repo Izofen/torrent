@@ -1,3 +1,78 @@
+###  Публикация: 1692810   (122148) от 18.01.2024
+
+Wizard 2 for Mac 2.0.16 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wizard — это новый способ анализа данных на вашем Mac. Никакого программирования, никакого набора текста. Просто нажмите и исследуйте.
+Возможно, часть вашей работы связана с работой с данными. Возможно, у вас на работе есть масса данных, но у вас нет времени вникать в них. Возможно, вы тот человек, который читает сенсационный заголовок и хочет знать, что говорят (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2012-2023 Evan MillerПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCF7F2970CC328296FABEF0EF81C7E28BF51FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692911   (122149) от 18.01.2024
+
+WiFi Explorer 3.5.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122149.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53200EEAD209C9B7E45B032B9BDB301C0CAF9AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692921   (122150) от 18.01.2024
+
+Жерминаль / Germinal (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Механик Этьен Лантье, чей бурный нрав с лихвой искупается добрым сердцем, будучи уволен, отправляется искать заработок и в конце концов устраивается в городе Монсу на местные шахты. Однако условия жизни и труда стремительно ухудшаются, и Этьен возглавляет забастовку. В наше время такие темы не в тренде - о борьбе трудящихся за свои права.
+Экранизация романа Эмиля (   Читать дальше...   )Производство: Франция, Pathé FrèresЖанр: драма, экранизация, немое киноРежиссер: Альбер КапелланиАктеры: Mévisto, Jean Jacquinet, Анри Краус, Сильви, Поль Эскофье, Dharsay, Леон Бернард, Альберт Брас, Пол Капеллани, Джинн ШерельПеревод: немой с интертитрамиСубтитры: французские (интертитры), русские отдельным файломПродолжительность: 02:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535F94230307D7509B771D6DDB8F03C38284922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692815   (122151) от 18.01.2024
 
 VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +81,7 @@ VA - The Quiet Storm Soothing Easy Listening Warm Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122151.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Greeting Card Shop v.4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122152.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ Joe Taylor - Westside Chill - Joe Taylor - Westside Chill (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122153.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122154.jpg" />
 </div>
 
 
@@ -112,7 +187,7 @@ Gotus - Gotus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122155.jpg" />
 </div>
 
 
@@ -139,7 +214,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122156.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ Project 86 - OMNI, Pt. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122157.jpg" />
 </div>
 
 
@@ -192,7 +267,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122158.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ SponsorBlock for YouTube 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122159.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ NonVisual Desktop Access (NVDA) 2023.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122160.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Den Harrow - Overpower (1985) Reissue, 1987, Baby Records [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122161.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122162.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122163.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122164.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ magnet:?xt=urn:btih:ECAA5867006D0EE7E85E35128E0FD64955B689C5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122166.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ magnet:?xt=urn:btih:4219943A4FE4DEF286F0C4B0FF1E314AFE480DA1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122167.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122168.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122169.jpg" />
 </div>
 
 
@@ -496,7 +571,7 @@ Java SE Development Kit 17.0.10 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122170.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122171.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122172.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122172.jpg" />
 </div>
 
 
@@ -569,7 +644,7 @@ magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122173.jpg" />
 </div>
 
 
@@ -582,83 +657,6 @@ magnet:?xt=urn:btih:C3C7B86FD882B2A764EBC070801A541ABF1787DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24FAE78429C23CF2ED121C72416C3033BE8D265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692832   (122174) от 18.01.2024
-
-Николай Гоголь | Ночь перед Рождеством. Вий (2011) [MP3, Александр Андриенко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-«Ночь перед Рождеством» – одна из лучших повестей сборника «Вечера на хуторе близ Диканьки», до сих пор не утратившая свежести и обаяния рождественской сказки, насыщенная добрым юмором и лиризмом. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ИД «Равновесие»Продолжительность: 03:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AB8AC3B4CBC4DB5F3EF0965387EC43F2165257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692931   (122175) от 18.01.2024
-
-Metalite - Expedition One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition One (4:02)
-02. Aurora (4:12)
-03. CtrIAltDel (4:55)
-04. Cyberdome (4:45)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFE35D5F0466BE7AB813277C1F7754CB69E032F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691863   (122176) от 18.01.2024
-
-Корнелия Функе | Чернильный мир (Книга 3). Чернильная смерть (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаются странствования Мегги и ее семьи по Чернильному миру, в котором они оказались благодаря чудесному дару отца Мегги оживлять литературных персонажей, читая книги вслух. Чернильный мир зачаровывает своей красотой. Он полон волшебства и превращений, там смеются дети, разгуливают великаны и феи, эльфы и единороги. Но Зло пытается переделать этот мир по-своему, (   Читать дальше...   )Жанр: Детская литература, приключения, фантастика, фэнтезиИздательство: Нигде не купишьПродолжительность: 20:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D9E6DE9D64C00D692C911C3F3C6E6FBD41CDAE
 ```
 
 

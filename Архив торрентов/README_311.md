@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75686.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75698.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75702.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Billy Joel - Live At Shea Stadium (2011) BDRip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75708.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Windows DesktopPack 11.10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75730.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ DeviceLock 7.1.32972 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75740.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ LiveCD ESET NOD32 Rus 08.02.12 4.0.63.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75755.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ LiveCD ESET NOD32 – загрузочный диск, при помощи ко�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75790.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:57081843869D2DD89FC1AAF3EF5C65297AA573EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75810.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Van Halen - A Different Kind Of Truth (Deluxe Edition) (2012) [MP3|320 kbps]<Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75841.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:8F285C3C873FBFD6CC7F85DA1DA1D2E37158C11C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75843.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:BB165BD5B378C4EB1A01DD53CC9F7614F4501CDC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75854.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:BD773D07037544A6ACE8FDC32FFCB219C8235B48
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75870.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinTools.net Ultimate v12.1.1  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75896.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WinTools.net Ultimate - набор инструментов, предназна�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75899.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ WinTools.net Ultimate - набор инструментов, предназна�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75915.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75937.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75949.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Total Commander 7.56a Vi7Pack 1.85 Final [Русский, English]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75950.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Autorun WPI DVD 12.02.2012 by andreyonohov [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75992.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Reg Organizer 5.40 Beta 3 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76035.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sara Tavares - Balance (2005) [FLAC|Lossless]<Pop, folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76045.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Helium Music Manager 8.4 Build 10293 Network Edition [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76066.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Helium Music Manager - продвинутый музыкальный менед�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76073.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ PDF-XChange Pro v4.0201.201 (x32/x64/ML/RUS)+RePack+Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76091.jpg" />
 </div>
 
 

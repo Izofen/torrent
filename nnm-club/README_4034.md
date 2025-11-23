@@ -1,3 +1,76 @@
+###  Публикация: 1689393   (124566) от 03.01.2024
+
+TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не может жить в одиночестве [2023, TV, 12 из 12 + 2 SP] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акэмацу тяжело жилось из-за печальной славы отца - мошенника и любимца женщин. Сын зарёкся искать с ними близости, но сорвался после одного происшествия. Решив усмирить свою душу, он подался в монахи в женский монастырь.
+© crunchyrollПроизводство: студия Gekkou / 月虹Жанр: комедия, романтика, повседневность, эттиРежиссер: Кога КадзуомиЯзык озвучки: Японский, русский (AniDUB)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин., 2 sp по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF37032BF0E5E14DA7DC9E35AEC1290145D51E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689599   (124567) от 03.01.2024
+
+PrivaZer Pro 4.0.81 RePack (& Portable) by Dodakaedr  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124567.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D1AE641F74DB6B488ECEA7838B252C5EDEBDB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689666   (124568) от 03.01.2024
+
+Бесчинство / Outrage (2023) WEB-DLRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124568.jpg" />
+</div>
+
+
+###  Подробнее
+
+История вращается вокруг группы людей, которые собираются во французском замке, чтобы определить будущее французской политики, но они не осознают, что им, возможно, придется заплатить цену за смерть студента по имени Макс Моро, который был убит полицией. Макс был внушен неонацистской идеологией, распространяемой в средствах массовой информации, и собравшаяся группа (   Читать дальше...   )Производство: США, Швейцария / Madpark FilmsЖанр: триллерРежиссер: Мэтью БонсонАктеры: Жюли Гайе, Аделаида Кейн, Джей О. Сэндерс, Клеменс Шик, Мануэль Коши, Виктор Понтекорво, Жозиан Пинсон, Виктор Ассье, Матяш Саймон, Alix Gavoille и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:01Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5775015568B0585BD9281A76C8F4EE7EF8BF9B5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689697   (124569) от 03.01.2024
 
 Н.Е. Мисюра, Е.А. Митюшов | Кватернионные модели в кинематике и динамике твердого тела (2020) [PDF]
@@ -6,7 +79,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124569.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:651302C17E62D460B9648D1024A96F823F7B24A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124570.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ SMD pro, Андрей Нифедов | VirtualDj и Подкастинг (2010) 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124571.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:149D2DC31A481350A6D90ED8BBEC68D38903239B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124572.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:54ED97B01B61E9A5D4EB03B51BC5D08ED1F170E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124573.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:7745E8B710D4A9B656ED41F21CF88F6ADE71E3C0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124574.jpg" />
 </div>
 
 
@@ -156,7 +229,7 @@ magnet:?xt=urn:btih:70416862471290CB9055480299BDE4D75A05862A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124575.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ Enterclass, Владислав Татаринов | Такая разная во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124576.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:3D676577803D275A6808A2A97620B20AA697D45F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124577.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124578.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Telegram Desktop 4.14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124579.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ magnet:?xt=urn:btih:CFCB793DD829119EACAFA2AE6F04EED12F478713
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124580.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ Reface v4.1.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124581.jpg" />
 </div>
 
 
@@ -326,7 +399,7 @@ magnet:?xt=urn:btih:A5293FA4B4C8DB96CE575ADEFB4D5F524CE11726
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124582.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ magnet:?xt=urn:btih:8F479E73062A650179200B849E924DD42F463B64
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124583.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124583.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ magnet:?xt=urn:btih:8F479E73062A650179200B849E924DD42F463B64
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124584.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ magnet:?xt=urn:btih:B45C8662846F3547C12B5399BDFA7FC543672C70
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124585.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ magnet:?xt=urn:btih:B67CD26BC62F32D3175174CCC734F039AFE41ED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124586.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:6F8DC68B772D1848F98FB396C45E1C6EFD369C22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124587.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124587.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ magnet:?xt=urn:btih:6F8DC68B772D1848F98FB396C45E1C6EFD369C22
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124588.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124588.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ magnet:?xt=urn:btih:6F8DC68B772D1848F98FB396C45E1C6EFD369C22
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124589.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ magnet:?xt=urn:btih:4630E40A3801FD1D2E596A3656E72E3CD4782EFA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124590.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124591.jpg" />
 </div>
 
 
@@ -557,81 +630,6 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A604D31D438A43EB5D98FA88A1165E8B03AA4356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359794   (124592) от 03.01.2024
-
-Уильям Шекспир | Гамлет. Ричард III (2011) [MP3, Владимир Шевяков, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Аудиокнига.
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства.
-Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-Ни одно произведение великого английского драматурга (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, пьесаИздательство: МедиаКнигаПродолжительность: 06:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BAAB6E62132EB080E879C1775430A76F254BA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689673   (124593) от 03.01.2024
-
-Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на мой курс Unreal Engine 5 Niagara — Введение в Niagara, здесь, на Udemy. Этот курс познакомит вас с основами пользовательского интерфейса Niagara и вводными эффектами шаблонов до хорошего понимания всех встроенных модулей, доступных для использования, а также охватит более сложные концепции, такие как столкновения и считывание атрибутов. В течение (   Читать дальше...   )Производство: UdemyЖанр: 3D Графика, GameDevЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 12:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFA8678E3D760F70866FFA15967C6BF067C7B5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689665   (124594) от 03.01.2024
-
-Бесчинство / Outrage (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124594.jpg" />
-</div>
-
-
-###  Подробнее
-
-История вращается вокруг группы людей, которые собираются во французском замке, чтобы определить будущее французской политики, но они не осознают, что им, возможно, придется заплатить цену за смерть студента по имени Макс Моро, который был убит полицией. Макс был внушен неонацистской идеологией, распространяемой в средствах массовой информации, и собравшаяся группа (   Читать дальше...   )Производство: США, Швейцария / Madpark FilmsЖанр: триллерРежиссер: Мэтью БонсонАктеры: Жюли Гайе, Аделаида Кейн, Джей О. Сэндерс, Клеменс Шик, Мануэль Коши, Виктор Понтекорво, Жозиан Пинсон, Виктор Ассье, Матяш Саймон, Alix Gavoille и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:20:01Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A70942FB43229CE25C3672977AE36D0732AAD2
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1822983   (104389) от 09.10.2025
+
+Не оставляй меня одну (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать родила Ольгу в 19 лет от молодого повесы, который быстро испарился. Когда девочке исполнилось 2 года, она уехала в поисках любви и счастья. Олю воспитывала бабушка, которая стала ее единственным близким человеком. Следуя своей мечте, Ольга становится хирургом. Она выходит замуж за Валентина, но семейная жизнь не складывается: невозможность иметь детей из-за (   Читать дальше...   )Производство: Россия | «Кинокомпания Гамма»Жанр: МелодрамаРежиссер: Руслан ПаушуАктеры: Анна Леванова, Никита Лобанов, Анастасия Рысева, Андрей Аладьин, Антон Кутынов, Полина Русакова, Дарья Белодед, Анастасия Возжаева, Владимир Гененрайх, Михаил Бондарук и др.Субтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3A89DE4DAE19684F4F83FD0F1EDAF097ED529A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822898   (104390) от 09.10.2025
+
+Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 7) (2025) [MP3, Sibiryak]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что у вас в розетку включен левитатор, и мебель парит в воздухе, пока вы пылесосите квартиру. Или в кармане лежит приблуда, с которой вы можете швыряться файерболлами. Прикольно звучит, не так ли? В общем, я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF020D1D4F29FA3D7D9C5C201B6EADAE7FE6C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822902   (104391) от 09.10.2025
+
+Джонатан Хайдт | Стакан всегда наполовину полон! 10 великих идей о том, как стать счастливым (2020) [MP3, Максим Суслов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое аргументированное исследование феномена счастья, созданное самым лучшим мыслителем нашего времени.
+Критики называют эту аудиокнигу «самым аргументированным исследованием феномена счастья». Журнал Prospect включил ее автора в список лучших мыслителей нашего времени.
+Джонатан Хайдт изучил трактаты древних мыслителей и философские труды за последние 500 лет. Он (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 11:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB78522F568C0C607EDED18703BBA9610259F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822904   (104392) от 09.10.2025
 
 VA - Vocal Anthems Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -6,7 +80,7 @@ VA - Vocal Anthems Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104392.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:5A945B259FB0AE1389C6C477EE350A076EF18D9A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104393.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:EBC5C53ECA0947B1274A495AB035F9CB8EA9139D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104394.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ VA - Compilation Part 197 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104395.jpg" />
 </div>
 
 
@@ -109,7 +183,7 @@ magnet:?xt=urn:btih:899D43E662B82763A9D5C07B42A18338CDDC59A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104396.jpg" />
 </div>
 
 
@@ -136,7 +210,7 @@ magnet:?xt=urn:btih:71D4218FDE006B08BDCC8186DF64C0458B0DF6AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104397.jpg" />
 </div>
 
 
@@ -160,7 +234,7 @@ magnet:?xt=urn:btih:68E72444D8C1DF2D1C1AE3708BECE52A39BE9147
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104398.jpg" />
 </div>
 
 
@@ -184,7 +258,7 @@ magnet:?xt=urn:btih:A950FACDB634EFE6DE8577074440A43699284A02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104399.jpg" />
 </div>
 
 
@@ -208,7 +282,7 @@ magnet:?xt=urn:btih:1585A55C0E7A65B947B8EEA1200717E090B9527A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104400.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:895769012F0E8516C835FE439A74B1B25464B03C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104401.jpg" />
 </div>
 
 
@@ -257,7 +331,7 @@ magnet:?xt=urn:btih:6AADC6ABC21933809804C3BBC5B87BC33E1BB6E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104402.jpg" />
 </div>
 
 
@@ -282,7 +356,7 @@ magnet:?xt=urn:btih:C5084FD27A5B342F4B68DAD4DCA637711179EBB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104403.jpg" />
 </div>
 
 
@@ -309,7 +383,7 @@ magnet:?xt=urn:btih:BC7F185543ED89DFEEBB45A896082D0380BD779E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104404.jpg" />
 </div>
 
 
@@ -335,7 +409,7 @@ magnet:?xt=urn:btih:8AE2AB39BCD63C7B5A6663ADE7790E7A302F451C
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104405.jpg" />
 </div>
 
 
@@ -361,7 +435,7 @@ magnet:?xt=urn:btih:048688419ECABBAAA7ED09BAB33068F70E3C8CC6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104406.jpg" />
 </div>
 
 
@@ -385,7 +459,7 @@ magnet:?xt=urn:btih:11879C946FB4E6EFC54378534CEDD357B3A5753D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104407.jpg" />
 </div>
 
 
@@ -411,7 +485,7 @@ magnet:?xt=urn:btih:E5BB127631DB84157B46F2568BC33EF30710C863
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104408.jpg" />
 </div>
 
 
@@ -437,7 +511,7 @@ magnet:?xt=urn:btih:F7A85CB402D170408BB36E6218AFBC5455BCA3C9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104409.jpg" />
 </div>
 
 
@@ -461,7 +535,7 @@ magnet:?xt=urn:btih:026E360B753F2A18823FC7805FD1DB7524C9F6BF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104410.jpg" />
 </div>
 
 
@@ -485,7 +559,7 @@ VA - Suanda Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104411.jpg" />
 </div>
 
 
@@ -512,7 +586,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104412.jpg" />
 </div>
 
 
@@ -536,7 +610,7 @@ Novi - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Easy liste
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104413.jpg" />
 </div>
 
 
@@ -563,7 +637,7 @@ VA - Rated Revisited Vol. 3 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104414.jpg" />
 </div>
 
 
@@ -577,81 +651,6 @@ VA - Rated Revisited Vol. 3 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA9EDE222BA486B3AB91AEAB72525D140EF7A168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822972   (104415) от 09.10.2025
-
-VA - Inside Ibiza 2025 - The Sound Of The Island (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Bisous & Sgt Slick - Reach Out 02:44
-02. Sarrdo Carocci - Take Me Home 02:39
-03. Ekko - Delante 03:12
-04. Aemilian, Basti M & Blaikz - For You (Ibiza Rework) 03:14(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29B947633CFCD8B46CCE606A7137C125CDBE505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822973   (104416) от 09.10.2025
-
-Журнал | Render Magazine №10 (октябрь 2025) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104416.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550097F73D9DFD07074FD1D4A3B21AF56C3E6412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822979   (104417) от 09.10.2025
-
-Журнал | Мир фантастики. Спецвыпуск №17 (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Мир фантастики» посвящён фантастике в самом широком смысле. В фокусе внимания — книги, фильмы, сериалы, игры и комиксы, статьи о вымышленных вселенных, мифологии и футурологии и всё самое интересное в этой области. О классике и новинках. Под обложкой каждого номера вас ждёт целый мир!Жанр: Журнал фантастикиИздательство: ООО «Мир Хобби»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C7B6F9B2C663DB78589615CDD4554F7FD064C4
 ```
 
 

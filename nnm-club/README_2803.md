@@ -1,3 +1,75 @@
+###  Публикация: 462799   (80238) от 05.03.2012
+
+Oracle Linux 5.8 (Server) [i386 + x86_64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Oracle представила Oracle Linux 5.8, последнее обновление серии 5.x дистрибутива, созданного на основе RHEL 5.8. Oracle Linux Release 5 Update 8 для архитектур x86 (32-bit) и x86_64 (64-bit) поставляется с ядрами Unbreakable Enterprise Kernel
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D347C092D4A4D7E1D151CE621071C903AC52EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459800   (80243) от 05.03.2012
+
+Открытки - Открытка 8 марта.23 февраля [GIF,JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80243.jpg" />
+</div>
+
+
+###  Подробнее
+
+ткрытки с 8 марта. с 23 февраля.Формат GIF.JPGРазрешение файлов: от 313х500 до 646х933
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1645E50CF718C8B22D74D2D7BD0A46774221AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462179   (80245) от 05.03.2012
+
+Имитатор / Copycat (1995) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Триллер, Детектив, КриминалРежиссер: Джон ЭмиелАктеры: Сигурни Уивер, Холли Хантер, Дермот Малруни, Уильям МакНамара, Гарри Конник мл., Дж. Э. Фримен, Уилл Пэттон, Джон Ротмен, Шэннон О’Хёрли, Боб ГринПеревод: Многоголосый закадровыйПродолжительность: 02:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9304E47304866F372061705562C37DCD16623727
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462565   (80247) от 05.03.2012
 
 Хешер / Hesher (2010) BDRemux [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80247.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80248.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80249.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Playboy: разденьте девушку / Undress a Woman (04.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80253.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:00695029AF3E56D24AC05BB3584179D3A2EB038C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80258.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ magnet:?xt=urn:btih:7CF27684A11A5C8F1E470DB1B4FF29F8970ABE34
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80259.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80261.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80262.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:4A14A4471299738D5FF9B6466A187656B7A1665C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80265.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:4A14A4471299738D5FF9B6466A187656B7A1665C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80266.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80268.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80274.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ magnet:?xt=urn:btih:C55E203A7799CD197AAF786582895804EEF6275D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80275.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80282.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80286.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:921E7C3223E157F029CA6E185B3B4CEC0FF71EEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80287.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:79C39C816CB830D3F19771332D275E6A67A1FED4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80288.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:FB3A213D3B8FE232852801070E52FC565C1D73A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80290.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80292.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80297.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ magnet:?xt=urn:btih:2953B2509BB28FD61340099B90B1661F9DF158A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80298.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ magnet:?xt=urn:btih:46CB1BE33D2DDE5608C29D9E1F08F410D07A3278
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80299.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ magnet:?xt=urn:btih:269718FCB1DAA1B769B0BD0F275A2A7A22AAD60E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80301.jpg" />
 </div>
 
 
@@ -586,94 +658,6 @@ magnet:?xt=urn:btih:269718FCB1DAA1B769B0BD0F275A2A7A22AAD60E
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462921   (80313) от 05.03.2012
-
-Windows7 Профессиональная x64x86 AUZsoft v.7.12. [RUS]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80313.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Это совершенно чистая сборка! Ничего не изменено.Интерфейс,папки,иконки,вид файлов-всё стандартное!
-• Установлены обновления по 03.03.2012.
-• Отключен контроль учетных записей.
-• Интегрирован активатор от m0nkrus’a.
-• В начале установки добавлен загрузчикНазвание программы: Windows7 Профессиональная x64x86 AUZsoftЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463020   (80314) от 05.03.2012
-
-Библиотека книг в формате MOBI для Amazon Kindle (Киндл) на русском языке [2007] [FB2]
-
->>Художественная литература
->>Библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переконвертированная в MOBI формат библиотека созданная Monokok'ом v 2007 году с его же любезного разрешения.
-
-Конвертация осуществлялась при помощи Calibre for Kindle.
-
-Библиотека переупорядочена (отсортирована) по жанрам и имеет следующую структуру:
-
-Жанр /2007Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A297D0C360A72DFD77AA55510F456D18808B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458887   (80324) от 05.03.2012
-
-Unreal Tournament 2004 [Native] [Eng]
-
->>Игры для macOS
->>Action, FPS для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unreal Tournamet 2004 - очень популярный трехмерный шутер от первого лица. Начиная еше с первой версии игры ut он был заточен под сетевую игру, однако и одиночная игра в 2004 версии не оставит геймера равнодушным. По утверждению разработчиков, вас ждет более 100 игровых карт, со своим звуковым сопровождением, текстурами и атмосферностью.
-
-Unreal Tournament очень динамичная игра, настолько динамичная, что иногда происходит только на уровне рефлексов.
-
-По сравнению с 2003 тоурнаментом, значительно увеличилось время прохождения основной кампании, да и вообще похоже увеличилось количество всего. Появилось много новой легкой и тяжелой техники, и соответственно контр-оружия для них. Против быстроходных мангустов и легких джипов подойдет хороший заряд самонаводящийся ракеты, а вот против бронированного танка без огромной статичной плазменной пушки не обойтись.
-
-Количество типов состязания тоже увеличилось, нас ждет и классические штурмы, удержания, захваты флагов, борьба за ядро, а также новые Assault и Onslaught, в (   Читать дальше...   )2004Mac OS XТип издания: NativeЖанр: 3D ActionЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB58E0E4F77E0FA74364E6E664C8C2460F00453A
 ```
 
 

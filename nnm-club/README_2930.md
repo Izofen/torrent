@@ -1,3 +1,75 @@
+###  Публикация: 478293   (86529) от 05.04.2012
+
+Если бы я был моим папой (1987-1988) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечты мальчика о добрых делах, которые он сумеет сделать, став взрослым.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Юрий БутыринПерсонажи: Мальчик, его папа, всякие хулиганы, грубияны и т.п.Продолжительность: 00:17:32 (Выпуск 1) + 00:09:26 (Выпуск 2)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C9818D93681B13F248A857C106B8B47B5F2637
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476868   (86531) от 05.04.2012
+
+«Вояка» Батлер / Воюющий дворецкий / Battling Butler (1926) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфред Батлер – избалованный всевозможными удобствами богатой жизни молодой человек, которого отец отсылает в горы порыбачить и поохотиться с надеждой, что сынок хоть немного возмужает, заботясь о себе сам. Но Альфреда никогда не покидает его совершенно преданный слуга, который при просьбе организует всё, что угодно. В горной местности Альфред влюбляется в девушку. Чтобы понравиться её родне, ему приходится выдавать себя за боксёра-одноимёнца по прозвищу «Вояка» (Battling), который вместе с «Алабамским Киллеров» претендует на титул чемпиона в лёгком весе…Жанр: комедияРежиссер: Бастер КитонАктеры: Бастер Китон, Сэлли О’Нил, Уолтер Джеймс, Бадд Файн, Фрэнсис МакДональд, Мэри О’Брайэн, Том Уилсон, Эдди Борден, Шнитц ЭдвардсПеревод: НемойПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26BB130929C9EBA5014D897D6A9E0D3A8597E95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478515   (86532) от 05.04.2012
+
+Shannon Tweeds: Attack of the Groupies (P) [En] 2012
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клон игры Plants vs. Zombies, в которой вам предстоит противостоять ордам поклонниц, собирающимся увести мужа Шеннон Твид, рок-звезду Джина Симмонса.(   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, Аркада, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66220782226DDBC75B36B39BD3D6CA71203914E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478076   (86533) от 05.04.2012
 
 Warp [Ru] (RePack) 2012 | R.G. Repacker's
@@ -6,7 +78,7 @@ Warp [Ru] (RePack) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86533.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:EEAA77F2EBD21C523E8287966456B59CEB7934F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86534.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:8EF3BEB5824A254D1F3BCB3A1C1B7ED93682847D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86535.jpg" />
 </div>
 
 
@@ -85,7 +157,7 @@ MIDI Pack - Collection TWO Part 3 (MIDI) [Английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86536.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86538.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ VA - Top 100 Зайцев.нет (04.04.2012) (2012) [MP3|128-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86539.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ VA - 50 Лучших Клубных Треков в Тачку (2012) [MP3|~249-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86540.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ Brian Johnson - Brian Johnson And Geordie (1981) [MP3|320kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86541.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86542.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:5B82AD0DAE550BB8EF6508C0DA0480375B68D479
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86543.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:8D86B76E5A55424F6D00A2D0E2DC08F6221893BE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86544.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:F2343BCCEDDB0E349CD2A09D3B229FE497F3B9CC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86546.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ MIDI Pack - Collection TWO Part 2 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86547.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86548.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ MIDI Pack - Collection TWO Part 4 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86549.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86550.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:DBC7EAEF28CEA7F020EBA0D00772762B7F07E549
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86551.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:4F8CA26A2B17F6741E324BD6C21E12AE82811552
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86553.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ magnet:?xt=urn:btih:03C9B172F55487B53DCBC7780B02FDD1E9EE5E8E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86554.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ magnet:?xt=urn:btih:AC5905DA61D095869147360409F2AB3797E973B4
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86555.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ Warp [Ru] (RePack) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86556.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ magnet:?xt=urn:btih:B19282F65D095FD26AFA16095F279E06ACE26B69
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86557.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86558.jpg" />
 </div>
 
 
@@ -586,80 +658,6 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0736B788E8666F06B7C1E8BAAA8E108B82C1396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478699   (86559) от 05.04.2012
-
-Марина Литвинович | Власть семей. 20 кланов, контролирующих экономику России. [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия оказалась под властью семейных кланов. 20 семей высших чиновников и бизнесменов подмяли под себя и природные богатства страны, и ее финансовые потоки. Это следует из беспрецедентного журналистского расследования Марины Литвинович. Еще никто до автора не составлял столь полного досье бизнес-интересов и связей членов российского правительства и их ближайших родственников. Исследование основано на открытых источниках, тщательно проверенных и сопоставленных, найдены и новые, нигде не публиковавшиеся и весьма тревожные сведения.
-Сколько на самом деле зарабатывают министры и члены их семей? Как устроен их семейный бизнес? Как власть перетекает в деньги, а деньги - в еще большую власть? Будет ли когда-нибудь проведено официальное расследование бизнеса членов правительства и их семей? Читайте и делайте выводы сами.
-Для широкого круга читателей.2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48EDCA4D868D917413072E4B18E974FD2B0397CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478374   (86560) от 05.04.2012
-
-Ливень / Hard Rain (1997) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышедшая из берегов река становится причиной крупного наводнения в провинциальном американском городке. Мимо города следует инкассаторский автомобиль, перевозящий несколько миллионов долларов. Попав в засаду, неопытный охранник Том оказывается один на один с бандой «беспощадного Джима» и бушующей природной стихией. Выжить невозможно…Жанр: Боевик, Триллер, ДрамаРежиссер: Микаэл СаломонАктеры: Морган Фримен, Кристиан Слэйтер, Рэнди Куэйд, Минни Драйвер, Эдвард Эснер, Майкл А. Гурджиан, Дэнн Флорек, Рики Харрис, Марк Ролстон, Питер МёрникПеревод: ДублированныйПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FCA5F2F830A997D8EA4F1D4B344F410F7BFFBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478326   (86561) от 05.04.2012
-
-Монстр ледяных дорог / Ice Road Terror (2011) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лед ─ далеко не главная неприятность дальнобойщиков ледяных дорог, когда подрыв алмазного рудника пробуждает мифологического доисторического хищника — самую большую рептилию, когда-либо найденную в Арктике. Кроме того она очень голодна и имеет аппетит к людям. Теперь только водители грузовиков могут остановить монстра прежде, чем он достигнет цивилизации и начнет пиршество.Жанр: Фантастика, ТриллерРежиссер: Терри ИнгрэмАктеры: Бри Грант, Ти Олссон, Дилан Нил, Малкольм Стюарт, Майкл Хоган, Меррилин Гэнн, Дэвид Лайл, Уильям Белл, Джим Шилд, Дон Томпсон, Шон О. Робертс, Донаван СтинсонПеревод: Многоголосый закадровыйПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 

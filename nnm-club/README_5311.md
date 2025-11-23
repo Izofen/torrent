@@ -1,3 +1,181 @@
+###  Публикация: 1673849   (163553) от 03.11.2023
+
+Валерий Пушной | Торжество тревог (2023) [MP3, Игорь Демидов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошлое, которое главный герой пытался забыть и думал, что забыл, начинает к нему возвращаться. Его нельзя выбросить из жизни. С ним приходится жить до конца. Оно связывает по рукам и ногам, а иногда не оставляет выбора.Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 17:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE482602C9BE10F6B563B75F012D50B18D7DB7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346579   (163554) от 19.12.2019
+
+О.А. Новиковская | Логопедическая азбука (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163554.jpg" />
+</div>
+
+
+###  Подробнее
+
+О.А. Новиковская, педагог-логопед с 25-летним опытом работы, представляет книгу для любознательных малышей и заботливых родителей – «Логопедическая азбука». Крупные буквы и яркие картинки помогут ребёнку быстро выучить алфавит. Занимаясь по этой книге, малыш научится правильно произносить звуки, сможет расширить словарный запас, развить речь, интеллект и мелкую моторику.Жанр: Познавательная литература для детей, ПедагогикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B81E5BCFB256F8C04992F833CB0B7AE44200D94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517191   (163555) от 14.12.2021
+
+Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163555.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Интро (0:31)
+1.02. В кинозале темном (3:12)
+1.03. Рэкетмены (4:17)
+1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673729   (163556) от 03.11.2023
+
+Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative metal, dance pop, folk metal, nu metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Physically Like You (2:57)
+02. Madhouse (2:54)
+03. Rock To Outer Space (3:29)
+04. Black Soul (3:23)(   Читать дальше...   )Жанр: Alternative metal, dance pop, folk metal, nu metalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98D3AA255BE3F076D3A71373D0C23AA3C77F96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575558   (163557) от 17.12.2022
+
+Русалки (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Размеренную жизнь провинциального города потрясает страшная новость: найдено тело 32-х летней женщины. Есть подозрение, что погибшая — сестра следователя местного ОВД Риты Тихоновой, пропавшая 14 лет назад. Начинается расследование, в ходе которого Рита сталкивается с весьма странными обстоятельствами и понимает, что её окружение хранит страшные тайны, а родные и (   Читать дальше...   )Производство: Россия / АМЕДИА, Продюсерская компания «Среда»Жанр: детектив, драмаРежиссер: Александр КириенкоАктеры: Иева Андреевайте, Пётр Фёдоров, Михаил Горевой, Дарья Мороз, Евгения Дмитриева, Вера Воронкова, Мераб Нинидзе, Анна Цуканова-Котт, Мария Шумакова, Константин ВоробьёвПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA8C4E39C231ABEF32EE0E15FBAF35174A6A153
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346377   (163558) от 19.12.2019
+
+Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.914.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA30EA80A4ABBC04C1F1C7127489658C48A3EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517158   (163559) от 14.12.2021
+
+Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163559.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I'm In The Mood For Love [3:11]
+02. You Are My Lucky Star [2:59]
+03. La Cucaracha [2:41](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 08:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597735   (163560) от 17.12.2022
 
 KMSAuto++ Portable 1.7.8 by Ratiborus [Multi/Ru]
@@ -6,7 +184,7 @@ KMSAuto++ Portable 1.7.8 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163560.jpg" />
 </div>
 
 
@@ -33,7 +211,7 @@ magnet:?xt=urn:btih:8D89A5335D40FD1C6766911F4C858A605E113227
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163561.jpg" />
 </div>
 
 
@@ -57,7 +235,7 @@ magnet:?xt=urn:btih:EDCE1DE6F173AE515DAE621F88684FCE65996163
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163562.jpg" />
 </div>
 
 
@@ -81,7 +259,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -108,7 +286,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163564.jpg" />
 </div>
 
 
@@ -135,7 +313,7 @@ Things 3 v.3.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163565.jpg" />
 </div>
 
 
@@ -160,7 +338,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -184,7 +362,7 @@ magnet:?xt=urn:btih:0FCD5773C5F9733E88B33AB0528F704782FE78AB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163567.jpg" />
 </div>
 
 
@@ -208,7 +386,7 @@ magnet:?xt=urn:btih:978FC0F7928A18A7DD4E20AA11CE35F27D12FA94
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163568.jpg" />
 </div>
 
 
@@ -232,7 +410,7 @@ magnet:?xt=urn:btih:D8F28771F0F46A40F1238B6ADEB3EA9839F912D0
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163569.jpg" />
 </div>
 
 
@@ -256,7 +434,7 @@ DMG Canvas 3.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163570.jpg" />
 </div>
 
 
@@ -280,7 +458,7 @@ magnet:?xt=urn:btih:13B4ABF5BFDCE7E3A48C2F1C480D3C0263D56CD0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163571.jpg" />
 </div>
 
 
@@ -307,7 +485,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163572.jpg" />
 </div>
 
 
@@ -331,7 +509,7 @@ magnet:?xt=urn:btih:729926E5646D581F53BC79A09953A8781316894C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163573.jpg" />
 </div>
 
 
@@ -355,7 +533,7 @@ magnet:?xt=urn:btih:0B52A0A37CC120D138FA76B6A627EF9D6805B0B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163574.jpg" />
 </div>
 
 
@@ -379,7 +557,7 @@ magnet:?xt=urn:btih:BAEB906DA73A0FB6EC8AE6D59D3F99B78B45C025
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163575.jpg" />
 </div>
 
 
@@ -403,7 +581,7 @@ magnet:?xt=urn:btih:69942F0F8AE5AE03AADEDB5B6ED1552DE5B09059
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163576.jpg" />
 </div>
 
 
@@ -427,7 +605,7 @@ PreSonus - Studio One Professional 4.6.0.55605 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163577.jpg" />
 </div>
 
 
@@ -452,7 +630,7 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163578.jpg" />
 </div>
 
 
@@ -466,180 +644,6 @@ Dirty Honey - Can't Find The Brakes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C73556D5A052B3DFE371CD701096C8ABE8648B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432586   (163580) от 17.12.2020
-
-All Ears English, Jessica Beck и др. | 3 Keys IELTS Online Course (2020) CamRip [En]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс создан бывшим экзаменатором IELTS. Увеличение балов гарантировано.
-Наш метод - 3 простых шага, чтобы получить желаемый результат:
-УПРОСТИТЬ. Наш простой учебный план и шаблоны упрощают изучение концепций и стратегий.
-ПРАКТИКА. 95 видеоуроков помогут вам овладеть стратегией IELTS.(   Читать дальше...   )Производство: All Ears EnglishЖанр: Английский языкЯзык озвучки: АнглийскийПродолжительность: 07:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C9A8F2B9CF2833A3CBFB262F419A340AA150AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346458   (163581) от 19.12.2019
-
-В ледовом плену. "Красин" возвращается (2005) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163581.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2004 года США впервые за всю историю полярных исследований обратились к России за помощью. Американская научная станция "Мак Мердо" в Антарктиде оказалась в ледовой блокаде, полторы тысячи человек остались без топлива и продовольствия из-за того, что ледоколы США не смогли пробиться к станции.
-Через три дня после получения просьбы о помощи из (   Читать дальше...   )Производство: АЛЬФА - ФИЛЬМЖанр: ДокументальныйРежиссер: Иван БобрышевСубтитры: отсутствуютПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57A267EDA66586E794E3D0810E710FBF5F79D79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575706   (163582) от 17.12.2022
-
-Русалки (2018) WEBRip (сезон 1, серии 1-16 из 16)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размеренную жизнь провинциального города потрясает страшная новость: найдено тело 32-х летней женщины. Есть подозрение, что погибшая — сестра следователя местного ОВД Риты Тихоновой, пропавшая 14 лет назад. Начинается расследование, в ходе которого Рита сталкивается с весьма странными обстоятельствами и понимает, что её окружение хранит страшные тайны, а родные и (   Читать дальше...   )Производство: Россия / АМЕДИА, Продюсерская компания «Среда»Жанр: детектив, драмаРежиссер: Александр КириенкоАктеры: Иева Андреевайте, Пётр Фёдоров, Михаил Горевой, Дарья Мороз, Евгения Дмитриева, Вера Воронкова, Мераб Нинидзе, Анна Цуканова-Котт, Мария Шумакова, Константин ВоробьёвПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B80831B3BC41A846B6682442718F05BBC6DFBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673892   (163583) от 03.11.2023
-
-Ольга Баскова | Артефакт & Детектив. Подлинная история ожерелья Антуанетты (Том 2) (2022) [MP3, Ольга Плетнева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы открываем учебники истории и видим множество имен. Они принадлежали королям и дипломатам, полководцам и героям, тиранам и узурпаторам, художникам и писателям. Те, кто сокрушают империи и создают их из пепла, кто делают мир прекрасным или погружают в огонь войны, создают гармонию или смуту навсегда остаются жить в памяти человечества. Но помимо гениев и деспотов, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95112F2880C16CD4E752595232B2DF5E180D680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432440   (163584) от 17.12.2020
-
-Светлана Троицкая | Я отлично вижу! Улучшаем зрение сами. Советы врача (2021) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Троицкая – бессменный руководитель центра естественной коррекции зрения и оздоровления – уже 28 лет помогает людям восстанавливать зрение и избавляться от глазных болезней без операций и лекарств.
-Автор разрушает стереотипы о причинах возникновения тех или иных проблем с глазами и дает читателям не просто набор упражнений, а комплексную программу для восстановления (   Читать дальше...   )Жанр: Медицина и здоровье, ОфтальмологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95303A573C045651AD82251BB8D80CF6B7DDEC9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432285   (163585) от 17.12.2020
-
-Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1256.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7042744970D4FD0D84ADBF2A2D513D7389805656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556699   (163586) от 17.12.2022
-
-Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы начнем с ознакомления с пользовательским интерфейсом UE5 и различными меню. Затем начните создавать блокинг сцены, чтобы убедиться, что композиция и масштаб работают нормально. Затем перейдите к изучению редактора материалов от теории PBR до создания основного материала, который можно изменять во время выполнения. Затем мы используем Nanite меши с Megascans для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Создание окруженияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 21:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696B742D55D0DADC2E3F580FD3C88DF032CF2212
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1561015   (125008) от 30.12.2023
+
+Туве Янссон | Опасное лето (2018) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето выдалось тревожным – наводнение пришло в долину и затопило дом муми-троллей. Семья отправилась искать новое жильё. На их удачу, волнами к берегу прибило вполне подходящий дом, который, правда, вёл себя немного странно. У него была крыша, похожая на створку раковины, и вращающийся пол, а если дёрнуть за шнурок – с потолка упадёт картина. Или польёт дождь. Или (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Евгения Канищева, Мария ЛюдковскаяПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10C7BFE96AFDCDF94511B0AE8D1264FCA26A24A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688348   (125009) от 30.12.2023
+
+Lord Of The Lost - Weapons Of Mass Seduction (2023) [MP3|320 Kbps] <Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look (feat. Blümchen) [00:03:57]
+02. Ordinary Town [00:04:23]
+03. Cha Cha Cha [00:02:59]
+04. Judas [00:04:11](   Читать дальше...   )Жанр: Neue deutsche härte, dark metal, dark rock, gothic metal, heavy metalПродолжительность: 2 CD, 01:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCF1743E80C3509FA991844097D8BD66C8A4026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601392   (125010) от 30.12.2023
+
+Анне-Катрине Вестли | Папа, мама, бабушка и восемь детей (Книга 2). Мортен, бабушка и Вихрь (2021) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежская писательница Анне-Катрине Вестли, придумавшая истории про дом, где растут сразу восемь мальчиков и девочек, популярна во всей Европе, наверное, не меньше, чем знаменитая Астрид Линдгрен. Герои её книг – люди простые, но очень симпатичные: добрые, честные, трудолюбивые. Взрослые здесь не теряют умения относиться с юмором к себе самим и друг к другу, какие (   Читать дальше...   )Жанр: детская проза, детские приключения, зарубежные детские книгиПеревод: Любовь ГорлинаПродолжительность: 03:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52CEC9911AD78941E35DF1D3F50B8C1B080B95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688675   (125011) от 30.12.2023
 
 Озеро диких гусей / Nan fang che zhan de ju hui (2019) BDRip [H.264/720p]
@@ -6,7 +81,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125011.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:A7B107FA823F188FD420F6C02B22846131A59DB3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125012.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:32E5908B3F4D2E1CC884566D0E1460223FBD267A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125013.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125014.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ magnet:?xt=urn:btih:7C31CD1F3E61531B2A3AE33C93C0B489ECB07FD8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125015.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ magnet:?xt=urn:btih:9C8BA9F3B995A7DDED88FCE15640FF6DF8126D2B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125016.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ magnet:?xt=urn:btih:5F040E594C0511FDCA09D59E81DD941F7BEA877E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125017.jpg" />
 </div>
 
 
@@ -181,7 +256,7 @@ VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125018.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125019.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125020.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125021.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ magnet:?xt=urn:btih:09B081B5ED7FCECA9244137BB3D600E386A59092
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125022.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125023.jpg" />
 </div>
 
 
@@ -339,7 +414,7 @@ magnet:?xt=urn:btih:A3093C2C008C5EF4AEBB3485CC56D197EB64BE4F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125024.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ magnet:?xt=urn:btih:C8A7B97807803799DB930E7BDB65C7C105720F04
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125025.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ magnet:?xt=urn:btih:468759F1299F0F7AF0753E3B8B83CA57B7753893
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125026.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ VA - Extend The 80s Electro (2018) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125027.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ magnet:?xt=urn:btih:554ADC8E45ECEA4C668ABB1610893174E6DED552
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125028.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:534EA5D09F19E836D41697E0D7CA69DBF3BDD982
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125029.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ Vladi Strecker - Compilation (2023) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125030.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:843AE5FA80DD37BF2949E548FC4612B0000EFDA3
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125031.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:616727F3429EFEFDF3E493EE5A3883851FC4DE25
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125032.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ magnet:?xt=urn:btih:564053DAB6C0A3BC001B94FC8F4502261B251A1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125033.jpg" />
 </div>
 
 
@@ -579,78 +654,6 @@ magnet:?xt=urn:btih:564053DAB6C0A3BC001B94FC8F4502261B251A1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24390805AE369D7DBB37B5272B6A215CF2290C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688501   (125034) от 30.12.2023
-
-Путешествие за одну улыбку / Podroz za jeden usmiech (1972) HDTV [H.264/1080p] (сезон 1, серии 1-7 из 7) С. Ващенко
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дудусь и Полдек - двоюродные братья. Дудусь - неприспособленный очкарик, зато Полдек полная ему противоположность. Братья закончили учебный год и оба отправляются на отдых к морю. Но на вокзале выясняется, что кошелек с деньгами и билетами пропал. Поэтому они отправляются в путешествие к морю в одиночку и без денег. В дороге их ждет много приключений.Производство: Польша / Zespol Filmowy "Panorama"Жанр: комедия, приключения, семейныйРежиссер: Станислав ЕндрыкаАктеры: Хенрик Голембиевский, Филип Лободзиньский, Алина Яновска, Ежи Цнота, Ежи Брашка, Анджей Воячек, Иоанна Ожешковска, Мажена Трыбала, Януш Клосиньский, Ежи ТурекПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, польскийСубтитры: русские (Professor)Продолжительность: ~00:29:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5338727498491ED05E3102F5E1E70DEB5C75C828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688670   (125035) от 30.12.2023
-
-Журнал | Сабрина №1 (январь 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125035.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2ACC0692CF223252C2AA2A53401651826B0990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688695   (125036) от 30.12.2023
-
-Журнал | Information security / Информационная безопасность №6 (декабрь 2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD2D8D25736241275AB64373B9088DE0A8CE24A
 ```
 
 

@@ -1,3 +1,152 @@
+###  Публикация: 1831110   (212537) от 28.10.2025
+
+Шрифты - Envato - Regaza - B3VBCGY [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Regaza — современный и аутентичный шрифт. Идеально подходит как для профессиональных, так и для брендинговых целей продукта.Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FA1979305D3E0F077B51EA041F9694A4E861C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831047   (212554) от 28.10.2025
+
+Шаблоны - UI8 - iPhone 17 Pro Mockup PSD - Orange Color [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите презентации своих проектов на новый уровень с нашим ярким мокапом iPhone 17 Pro в поразительном оранжевом оттенке. Этот мокап идеально подходит для демонстрации ваших приложений, дизайнов UI/UX и брендинговых проектов, добавив профессиональный штрих к вашему портфолио.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441D6884DFEF9A5246C09DBD81D82699843847DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831037   (212556) от 28.10.2025
+
+Шрифты - Envato - Bastion - X7RKVR8 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bastion — светлый шрифт без засечек, создающий элегантный и современный вид.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8149864DA43889E213CB247CAE171AA69CF1CB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831021   (212574) от 28.10.2025
+
+Шрифты - Creative Market - Stones Crush - Handrawn Grunge Font - 291786345 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212574.jpg" />
+</div>
+
+
+###  Подробнее
+
+STONES CRUSH — это нарисованный от руки шрифт с настоящим гранжевым эффектом, который придаст вашим творческим проектам аутентичный и нетронутый вид. Каждая буква прорисована вручную, скрывая естественные недостатки, что придаёт вашему дизайну смелость и мощь.
+
+Благодаря встроенным альтернативным вариантам вы можете создавать уникальные вариации букв для более динамичного (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4575727A654FB2E994ED1369ED32E19A3AB4B368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830989   (212576) от 28.10.2025
+
+Шрифты - Behance - Alexey Atapin - Ingenue - 237011255 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ingenue - это вариативный акцидентный шрифт, вдохновлённый растениями, деревьями и цветами. Включены расширенные латинские и кириллические глифы с цифрами и базовыми символами. Только заглавные буквы.
+Благодаря использованию контекстных альтернатив и лигатур буквы выглядят более естественно связанными, и слова превращаются в единый, цельный узор.
+Это вариативный (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAFC2595D12E080466CC00970F127E9F35C08DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830987   (212578) от 28.10.2025
+
+Шрифты - Sasha Pavljenko - Stieglitz SP [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stieglitz SP — узкий акцидентный шрифт с готическим духом и каллиграфическим изяществом, вдохновлённый надписью на памятнике барону Александру Штиглицу, созданной скульптором Яном Нойманном. Его вертикально вытянутые формы, чёткие засечки и мазки, напоминающие кисть, создают ощущение элегантности рукописной надписи.
+Шрифт сочетает в себе выразительность и удобочитаемость (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB08D72DD4578781F33CB9B3660EDD95CF7B132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563250   (212616) от 13.07.2022
 
 NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
@@ -6,7 +155,7 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212616.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212616.jpg" />
 </div>
 
 
@@ -31,7 +180,7 @@ magnet:?xt=urn:btih:27DE6E350BBED2847E83060FD345FA912BDF61AC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212635.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212635.jpg" />
 </div>
 
 
@@ -55,7 +204,7 @@ magnet:?xt=urn:btih:9466ECC536CC1AF0E507555EBAC9835608AF17AC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212637.jpg" />
 </div>
 
 
@@ -79,7 +228,7 @@ magnet:?xt=urn:btih:A9404BAF905A74493461438125BC4F1A4CD5AC8A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212645.jpg" />
 </div>
 
 
@@ -103,7 +252,7 @@ magnet:?xt=urn:btih:F01C199E25C2AB02A5D3C28236C366C246DF446B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212656.jpg" />
 </div>
 
 
@@ -130,7 +279,7 @@ magnet:?xt=urn:btih:53E5564E7FEBC57E239539EA4676C6D4F853BD74
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212658.jpg" />
 </div>
 
 
@@ -154,7 +303,7 @@ magnet:?xt=urn:btih:F29B7ABA4A3E4F6CEC38DB0AC9A7E9AEB1475A9E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212662.jpg" />
 </div>
 
 
@@ -180,7 +329,7 @@ magnet:?xt=urn:btih:82279B3E877825C94721D0A7830E7015DFA190D2
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212811.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212811.jpg" />
 </div>
 
 
@@ -204,7 +353,7 @@ magnet:?xt=urn:btih:AB9C331CA27E2725365952F5F0D7B658797AD169
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212830.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212830.jpg" />
 </div>
 
 
@@ -229,7 +378,7 @@ magnet:?xt=urn:btih:8DCBF019A92386EA0E04CAFEBBD3F645C11C8E0E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213248.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213248.jpg" />
 </div>
 
 
@@ -254,7 +403,7 @@ magnet:?xt=urn:btih:C6ABB76BED7099971F467D90346B2F8316C7204A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213449.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213449.jpg" />
 </div>
 
 
@@ -278,7 +427,7 @@ magnet:?xt=urn:btih:68797F972096080E7DA787C7053704836F4275AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213450.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213450.jpg" />
 </div>
 
 
@@ -302,7 +451,7 @@ magnet:?xt=urn:btih:806822388867A3C6B7DF8DBEB2422E8732E93D84
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213451.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213451.jpg" />
 </div>
 
 
@@ -326,7 +475,7 @@ magnet:?xt=urn:btih:FD707C1BF7201853EB3CAA47757C05C011643C49
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213452.jpg" />
 </div>
 
 
@@ -350,7 +499,7 @@ magnet:?xt=urn:btih:238932E6D78E642E47A0B0C5E6CF6475709DE216
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213453.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213453.jpg" />
 </div>
 
 
@@ -374,7 +523,7 @@ magnet:?xt=urn:btih:447895D82AE613CC61F85EA99D47B12D485FDEA4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213470.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213470.jpg" />
 </div>
 
 
@@ -398,7 +547,7 @@ magnet:?xt=urn:btih:CD706B4922BDFEEAFEFFFD038F01C1D93B37C904
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213472.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213472.jpg" />
 </div>
 
 
@@ -422,7 +571,7 @@ magnet:?xt=urn:btih:55C6FDE11DBFF938A1310ADEDC9283F210C3E689
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213474.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213474.jpg" />
 </div>
 
 
@@ -446,7 +595,7 @@ magnet:?xt=urn:btih:8D5BF3DFA7ED97AD83878046D1F0A9A96CD101AA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213475.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213475.jpg" />
 </div>
 
 
@@ -470,7 +619,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213477.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213477.jpg" />
 </div>
 
 
@@ -483,153 +632,6 @@ Enefty — это набор пользовательского интерфей
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11B3AC8C70852F9A5F0B24D8D5608C47B8CC915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832396   (213535) от 30.10.2025
-
-Шрифты - Envato - Milday - Handwritten Font - QY8VEMK [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Milday создан специально для тех, кто ищет рукописный шрифт без маркеров. Он вдохновлён абстрактным стилем дудл, но некоторые его сочетания создают игривый и выразительный дудл-стиль. Раскройте свой творческий потенциал с помощью шрифта Milday. Он идеально подходит для любых проектов благодаря лёгкому для чтения, игривому и смелому шрифту!Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8309DD13CB8FEB9574F260AD6F61EF4C5E8E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832309   (213544) от 30.10.2025
-
-Пресеты - Felix Rachor - Travel Presets - Rhodos [COSTYLE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я хотел добавить немного таинственности в репортаж. С помощью этих 7 различных настроек вы можете улучшить свой репортаж, чтобы он в итоге получился гармоничным.Формат: COSTYLE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD3F9BC0C5EB95852FB0F10A00EDE07F0B26A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832288   (213552) от 30.10.2025
-
-Шрифты - Creative Market - Mikado - Modern Serif Font - 291785469 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mikado — смелый и уверенный современный шрифт с засечками, сочетающий в себе классическое очарование и современную выразительность. Благодаря контрастным штрихам и геометрическим пропорциям Mikado идеально подходит для редакционных заголовков, брендинга и упаковки, которые привлекают внимание и обладают вневременной привлекательностью. Его выразительный стиль придаёт (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCD6532B397668D328F03B01745F0F1FD1A846F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832281   (213566) от 30.10.2025
-
-Звуковые библиотеки - Moonboy - Ultimate House Collection [WAV, ALS, FLP, AIF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213566.jpg" />
-</div>
-
-
-###  Подробнее
-
-MOONBOY — всемирно известный EDM-продюсер, известный своим энергичным саунд-дизайном и невероятной способностью создавать композиции в самых разных жанрах.
-
-MOONBOY выделяется среди типичных создателей сэмплов, будучи успешным гастролирующим артистом с миллионами прослушиваний и контрактами на запись. Проверенные методики MOONBOY позволили создать самые востребованные (   Читать дальше...   )Формат: WAV, ALS, FLP, AIF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3ADE5DA91C58FD2C2E5B19BE8F504BED573C573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344088   (213598) от 09.12.2019
-
-8Dio - Claire Alto Flute Virtuoso - RePack Андрей650071 [Kontakt, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в нашу серию Claire Virtuoso Woodwind, созданную номинированным на премию Эмми композитором Колином О’Мэлли. Серия Claire Woodwind - это глубокая коллекция лучших виртуозных сольных деревянных духовых инструментов. Это очень играемые инструменты, наполненные искренними эмоциями, легким и уравновешенным поведением.
-Наш Alto Flute Virtuoso - самый (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI; WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9DC0E461305C5AE507FD3BEA112862047C672E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514931   (213619) от 05.12.2021
-
-Шаблоны - Календарная сетка на 2022 год от White1965 [PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон календарной сетки на 2022 год.Формат: PNG, PSDРазрешение файлов: 700х700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77FB113EACEE86F14179DA47FEA38C4BC1C4011
 ```
 
 

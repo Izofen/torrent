@@ -1,3 +1,81 @@
+###  Публикация: 1742763   (105508) от 13.08.2024
+
+VA - Nahawand: Best of Emotional Trance (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ash K & Junior - The Sound Of Hope (Extended Mix) [8:05]
+02. W!SS with Ash K & Junior - Lonely Path (SounEmot Remix) [8:28]
+03. Iberian - And The Beginning Is Over (DreamLife Remix) [8:04]
+04. DreamLife & Grande Piano - Nemezis (Original Mix) [7:18](   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA9FC0264EA81100013B3682BB4EB932379BF9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742746   (105509) от 13.08.2024
+
+Журнал | Наша история №8 (62) (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB42191A0DD6134CA98B505851B177E110A2F13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742801   (105510) от 13.08.2024
+
+Eric De Vries - My Battle (2024) [MP3|~245 Kbps (V0)] <Industrial, Rhythmic Noise, Techno-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Maximum Chemical Dose [00:07:14]
+02 - Du Du Du [00:07:10]
+03 - Seven Tools [00:05:50]
+04 - I Kill My Endboss [00:09:19](   Читать дальше...   )Жанр: Industrial, Rhythmic Noise, Techno-IndustrialПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940010C30F31FB36C453DE7FD166DAAE51522D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742886   (105511) от 13.08.2024
 
 Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
@@ -6,7 +84,7 @@ Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105511.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105512.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105513.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:6BB47C0AD817754566A3008B80F2797E85B4F1B2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105514.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105515.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105516.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105517.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105518.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ magnet:?xt=urn:btih:ADBF43AB7727E6AE39DAB2D2CDFE2C3F3BF2B75B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105519.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ magnet:?xt=urn:btih:21E43C6DAD75396B509615A58993E64D333F58C5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105520.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105521.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ magnet:?xt=urn:btih:7AC489F5DBE76B4D0ACF6F6B4639988BFFE1940C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105522.jpg" />
 </div>
 
 
@@ -313,7 +391,7 @@ Surge XT 1.3.4 Standalone, CLAP, VSTi 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105523.jpg" />
 </div>
 
 
@@ -338,7 +416,7 @@ magnet:?xt=urn:btih:6E20C63EE7F125E0BFF7756ECE9123BC0F5A4261
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105524.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ magnet:?xt=urn:btih:25103562FD664D2582F03DD66A96871ACBE0990E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105525.jpg" />
 </div>
 
 
@@ -389,7 +467,7 @@ MusicBrainz Picard 2.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105526.jpg" />
 </div>
 
 
@@ -414,7 +492,7 @@ magnet:?xt=urn:btih:6F32D471E39EB032EEE2D4A8AA870CD95A311533
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105527.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ magnet:?xt=urn:btih:D0A7B13A768C41D2CAF1F0273B05E662C711F22D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105528.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ magnet:?xt=urn:btih:5876772BA464DDAF2ACB3253E44A114DBC6B86F6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105529.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:3A84BF94ECC354C1A11661CD86248366D588DC19
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105530.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Levantis - Music For Mother & Baby (Музыка для мамы и малыша
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105531.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:DBE284D59F68EA67D2BDC2DFD38C09F8AB3837B6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105532.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ JetBrains RubyMine 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105533.jpg" />
 </div>
 
 
@@ -573,87 +651,6 @@ RubyMine — умная и удобная интегрированная сре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68983C3DFF11121A2944099D6B7B701513886341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742568   (105534) от 12.08.2024
-
-Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Times Trouble
-02. Celebrate Love
-03. The Way
-04. When She Looks at Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B67A12B393E01E82843EDB85E9FF70DD03F573C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742100   (105535) от 12.08.2024
-
-Heavenwood - 5 Albums, 3 Singles (1996-2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1996 - Diva (Reissue 1997, Avalon - MICY-1024)
-1998 - Swallow (Massacre Records - MAS CD0158)
-2008 - Redemption (Remaster 2016)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 8 CD, 05:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092F5C1C5DA383CE5B5E92CFC6AE877A806E472A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742548   (105536) от 12.08.2024
-
-Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wrong Things
-02. Last dAntz
-03. Fade
-04. No. 1(   Читать дальше...   )Жанр: Alt. Rock, Post-GrungeПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4D3E8793766069888593FDB830766A6BBC3D63
 ```
 
 

@@ -6,7 +6,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23877.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23887.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23888.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23897.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23899.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23902.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23903.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23916.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Operator (2024) [Ru/Multi] (5091) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23917.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23919.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23962.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23962.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23969.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cataclismo (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23973.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23976.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dread Tomb (2025) [Multi] (1.16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23979.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23993.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24007.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Long Dark (2017) [Ru/Multi] (2.40/dlc) Repack dixen18 [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24017.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24022.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24078.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Reignbreaker (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24083.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24095.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24095.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24107.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24113.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24113.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24114.jpg" />
 </div>
 
 

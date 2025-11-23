@@ -6,7 +6,7 @@
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Medialife | Трек с нуля до готового результата в F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234428.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F7D2BFE073F3103A7CFF6B46B41F3AB787C6B276
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234468.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4AAF9F90F8C9333E707FAB5A8FFAA1F3C8AFA1E4
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234504.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234504.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ HTML Academy | Регулярные выражения для фронтенде
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235668.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235668.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ HTML Academy | TypeScript, часть 1. Теория типов (2022) [unpacke
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235703.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235703.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ HTML Academy | Анимации, часть 1. CSS-анимации (2022) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235715.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235715.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ HTML Academy | Протоколы и сети: основы (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236766.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236766.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:085052360B7250A202235351AE2410DAE27A0CB4
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237077.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Atmel Corp | ATMEL AVR/AVR32 Technical Library May 2012 [2012] [ISO]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248271.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248271.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Design-Genetics-Studio | Уроки Joomla! 1.5.x [2009] [NRG]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253807.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Cambridge English Grammar in Use  & Etc (1CD & Books)
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254474.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ HTML Academy | Онлайн-курс «Webpack» (2023) [unpacked] [AD]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254710.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254710.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Stepik | Продвинутая работа с ошибками в Go (Golang) 
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255327.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255327.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Stepik, Антон Телышев, Дмитрий Назарков | Продв�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255328.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255984.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255984.jpg" />
 </div>
 
 
@@ -413,6 +413,30 @@ magnet:?xt=urn:btih:72C709F7F271503CC2ECF6CD0B05A323F70B0D55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEDD28435A460B96265CDF949BF48B7E0AAD8DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501140   (258393) от 25.05.2012
+
+DVD приложение к журналу "Хакер" №06 (161), 2012 [unpacked]
+
+>>Мультимедийные материалы
+>>Приложения к журналам
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258393.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хакер" – это журнал помогающий читателю освоить современные компьютерные технологии, программирование, скрытые возможности программ и оборудования, знакомит с компьютерной историей, людьми, повлиявшими на развитие компьютерной индустрии. Причем делает это с юмором, простым языком. Наша задача – помочь молодежи освоиться в мире IT-технологий, поддержать (   Читать дальше...   )Жанр: DVD приложение к журналу (раздача каталогами)Формат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CC2FC112A5F4C449DEB9C34B71209472E4BCC8
 ```
 
 

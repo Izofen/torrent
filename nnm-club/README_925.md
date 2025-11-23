@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24387.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24387.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIMP 5.40.2668 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24388.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24388.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ramin Zahed | Артбук по мультсериалу Любовь, смер�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24389.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Control (2020) [Ru/Multi] (1.30/dlc) Repack Other s [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24390.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24390.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MKVToolNix 91.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24391.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24391.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:646F4FE9EF2EA87890DC4C25C9421D15AE2525C9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24392.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Scott Allen | Сборник стратегий AngularJS / An AngularJS Playboo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24393.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24394.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MiniOS (все редакции) v4.1.1 [amd64, i386] 4xDVD [RU]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24395.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Siberian Way (2025) [Ru/En] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24396.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24396.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24397.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24398.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24399.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24399.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows Repair Toolbox 3.0.4.6 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24400.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24400.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ethereal Abyss (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24401.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24401.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24402.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0C3EDC8DE8E7C540C0E7895AB52DFC334E223BCD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24403.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:CEC17F64CA4F6DB12AC79013B251114FD105B45E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24404.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ WonderFox HD Video Converter Factory Pro 27.9 RePack (& Portable) by elchupacabr
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24405.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:D2A713CCBF85A83520A5B725636D6D0A5232BBB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24406.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ NetLimiter 5.3.23.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24407.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24407.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:2A3F2830C5068559090DB56E9C57B097EEB30AEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24408.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ NetLimiter 5.3.23.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24409.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24410.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24410.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24411.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24411.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:CE8B7FB6BDD8EFF5606D9CA52B6D77A64515F6E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24412.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ No Love Lost - Bliss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105494.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hyperion - Seraphical Euphony (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105497.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Battle Lost - Into The Realms (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105504.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ My Design Immortal - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105507.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105511.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105515.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105516.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105518.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105534.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Heavenwood - 5 Albums, 3 Singles (1996-2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105535.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105536.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105539.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105540.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Revolution Saints - Against The Winds (2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105546.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dagoba - Different Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105547.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume One (2024) Japanese Edition [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105551.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rewind - I'm In Rewind (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105553.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Asmodai - Soul Collector (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105554.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Pine Box Boys - Kung Fu Wolfman vs. the Blob (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105555.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rhabstallion - Bat Shit Crazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105556.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105571.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nightsteel - Nightsteel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105576.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Saga - Time's Up  (1986) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105581.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Eternal Storm - A Giant Bound To Fall (2024) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105583.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105593.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lumen - Lumen & Orchestra (2024) [MP3|320 Kbps] <Symphonic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105597.jpg" />
 </div>
 
 

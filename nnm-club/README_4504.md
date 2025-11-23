@@ -1,3 +1,154 @@
+###  Публикация: 1348962   (139380) от 30.12.2019
+
+Последствия / Posledice / Consequences (2018) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудный подросток Андрей уже исчерпал терпение родителей. Парень предстает перед судом за мошенничество, и отправляется в центр для несовершеннолетних правонарушителей, где встречает соответствующую компанию. Стойко выдержав жестокий обряд посвящения, Андрей завоевывает уважение и дружбу агрессивного главаря местной банды.Производство: Словения, Австрия / 100, NuFrame, Temporama, Zwinger FilmЖанр: ДрамаРежиссер: Дарко СтантеАктеры: Matej Zemljic, Тимон Стурбей, Gasper Markun, Lovro Zafred, Lea Cok, Росана Хрибар, Деян Спасич, Blaz Setnikar, Iztok Drabik Jug, Матьяж ПикалоПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F202DB9932AC4BDEE7A5B829AFA49A08D5B9FCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436171   (139383) от 30.12.2020
+
+Хоккей. Молодёжный Чемпионат мира 2021. Группа A. Канада — Швейцария (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Хоккей. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139383.jpg" />
+</div>
+
+
+###  Подробнее
+
+45-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2021 года.
+30 декабря 2020, среда. 02:00 МСК
+Предварительный раунд. Группа A.
+Канада — Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA5DC8CFEFE1268655C69F0C562BE086D955E9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679257   (139384) от 24.11.2023
+
+Эрнест Беккер | Побег от Зла (2023) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Побег от Зла" Эрнеста Беккера, является продолжением и завершением темы страха перед смертью и попытках убежать от него, который терзает человека в частности, и человечество в целом, с момента его появления на планете. Первая книга дилогии - "Отрицание смерти" получила  Пулитцеровскую премию 1974 года. Вторая книга - "Побег от Зла" (   Читать дальше...   )Жанр: Зарубежная психология, Социальная психологияПеревод: Николай Габов + DeepLИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DF6F4137E0CA32232F7C363AD4EE3149193A80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088388   (139385) от 31.12.2016
+
+VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UDM - Tornado (Original Mix) 6:37
+02. Lucid Blue - Eyes Wide Open (Saad Ayub Remix) 6:40
+03. Adam Lester - That Moment (Original Mix) 8:59
+04. Kukuzenko - Immortal (Original Mix) 6:44(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D898577BC38E1255383D5FF49D80E02F3A1CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803112   (139386) от 30.12.2017
+
+Не горюй! (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139386.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания Петербургского университета, полный надежд и грандиозных планов, возвращается в родной городок молодой врач Бенжамен Глонти. Но жизнь, как и до его отъезда, течет своим чередом: растет семейство сестры, усердно с утра до вечера переписывает бумаги ее муж Лука, время от времени спускаясь в погребок, чтобы «опрокинуть» рюмочку.
+И по-прежнему, слоняясь (   Читать дальше...   )Производство: СССР, Мосфильм, Экспериментальное творческое объединение, Грузия-фильмЖанр: драма, комедияРежиссер: Георгий ДанелияАктеры: Серго Закариадзе, Вахтанг Кикабидзе, Софико Чиаурели, Анастасия Вертинская, Лия Гудадзе, Верико Анджапаридзе, Сесилия Такаишвили, Ариадна Шенгелая, Георгий Кавтарадзе, Ипполит Хвичия, Карло Саканделидзе, Давид Абашидзе, Коте Даушвили, Евгений Леонов, Сергей Филиппов, Абессалом Лория, Леван Шамилов, Ия Нинидзе, Нана Канделаки, Баадур Цуладзе, Мераб Кокочашвили, Гия (   Читать дальше...   )Продолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659403BB633970DB8A4EA8E8A9003CD25EAD1F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273040   (139387) от 30.12.2018
+
+Slimjet 21.0.8.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B11C28B99CB61179E0AFCB0929D038065EB6195
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436026   (139388) от 30.12.2020
 
 Растровый клипарт - Glass with alcohol drink stock photo [JPG]
@@ -6,7 +157,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139388.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ Redemption Cemetery 15: The Stolen Time / Кладбище искупления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139389.jpg" />
 </div>
 
 
@@ -54,7 +205,7 @@ magnet:?xt=urn:btih:B09A2E4A29C0D7C713F72C57A0389C82C235C11A
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139391.jpg" />
 </div>
 
 
@@ -78,7 +229,7 @@ magnet:?xt=urn:btih:73F0F7876F0E3E6281E235343780C09AE690F76F
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139392.jpg" />
 </div>
 
 
@@ -102,7 +253,7 @@ magnet:?xt=urn:btih:07765BCAB6D131209D90E22F9189B428FCE93544
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139393.jpg" />
 </div>
 
 
@@ -127,7 +278,7 @@ magnet:?xt=urn:btih:9928C6EA6ED659A1FFC17D9A6DB73F76E9B17A23
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139394.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ magnet:?xt=urn:btih:DED22896C5941A257B2A7EA7D0FDD2055BD1341B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139395.jpg" />
 </div>
 
 
@@ -175,7 +326,7 @@ magnet:?xt=urn:btih:BA425765A7F113F1C986C685188B4438F7BB0F79
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139396.jpg" />
 </div>
 
 
@@ -200,7 +351,7 @@ Bobby Previte & Bump - Counterclockwise (2003) Palmetto Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139397.jpg" />
 </div>
 
 
@@ -227,7 +378,7 @@ Wargame. Anthology / Wargame. Антология (2012-2014) [Ru/Multi] (17.08.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139398.jpg" />
 </div>
 
 
@@ -251,7 +402,7 @@ magnet:?xt=urn:btih:4E8977137DA5B053F8AD78D2AF4B626D295F712F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139399.jpg" />
 </div>
 
 
@@ -275,7 +426,7 @@ VA - No More Games (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139401.jpg" />
 </div>
 
 
@@ -302,7 +453,7 @@ magnet:?xt=urn:btih:07A0F40E9FC244ECC372DA0F8299808E14437B9C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139403.jpg" />
 </div>
 
 
@@ -326,7 +477,7 @@ magnet:?xt=urn:btih:F56DA338689CC58A730CE2F61F1486C4F5911AE9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139404.jpg" />
 </div>
 
 
@@ -350,7 +501,7 @@ magnet:?xt=urn:btih:CF754846DDF3048FAB79550DD25E57F3A8C067F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139405.jpg" />
 </div>
 
 
@@ -374,7 +525,7 @@ magnet:?xt=urn:btih:0E45776840D4172DDDDEC1E03C2A2A8C58109F59
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139406.jpg" />
 </div>
 
 
@@ -398,7 +549,7 @@ Lee Morgan - The Rajah (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139407.jpg" />
 </div>
 
 
@@ -425,7 +576,7 @@ magnet:?xt=urn:btih:4966CBFB55B71271FCBCE6FA816C7D022EA5988D
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139408.jpg" />
 </div>
 
 
@@ -449,7 +600,7 @@ magnet:?xt=urn:btih:2101C6E29496C4DBFCE6D5462A14A1B1C4545793
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139410.jpg" />
 </div>
 
 
@@ -473,7 +624,7 @@ magnet:?xt=urn:btih:4EA0371057EBE6A079B3E447901C134A48F649CE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139411.jpg" />
 </div>
 
 
@@ -485,157 +636,6 @@ magnet:?xt=urn:btih:4EA0371057EBE6A079B3E447901C134A48F649CE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AE8655513D15102B696DB2041A4D06182FC783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436084   (139412) от 30.12.2020
-
-Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
-A1 Girls, Girls, Girls
-A2 Save Your Kisses For Me
-A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679272   (139414) от 24.11.2023
-
-DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A71F23FEBF0D12FF5BD1A6EC8301D72A714011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195438   (139415) от 30.12.2017
-
-Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / Twentieth Century Fox, Marv FilmsЖанр: Боевик, Приключения, Криминал, КомедияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8EA0ABD956E070C80AAFCA3E6A7BD66216BFE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970609   (139417) от 31.12.2015
-
-Мераб Мамардашвили | Картезианские размышления (1993) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа М.Мамардашвили «Картезианские размышления» открывает «золотую серию», которая будет составлена из трудов российских и зарубежных авторов, естественным образом вошедших в мировую гуманитарную культуру.
-Издание «золотой серии» позволит широкому кругу читателей познакомиться с классическими работами в области гуманитарного знания и будет способствовать восстановлению (   Читать дальше...   )Жанр: История философииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456750C237D29CCBED528ABD877052BB5A380E79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088406   (139418) от 31.12.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - I Live for That Energy (ASOT 800 Anthem) (Extended Mix) 6:40
-02. DRYM & Abstract Vision - Shark (Original Mix) 5:07
-03. Feel & Natalie Gioia - Madwoman (Attila Syah Remix) 5:32
-04. Dennis Sheperd & Liuck Ft. Lady V - Glass House (Original Mix) 5:34(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BC3FC25B0F7C9CD946BC2E5376DE703192146F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195488   (139420) от 30.12.2017
-
-RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139420.jpg" />
-</div>
-
-
-###  Подробнее
-
-RaceTime: Undercover – это увлекательная гоночная история. Вас ждут интереснейшие гонки, захватывающие погони на огромных скоростях. Сможете ли добраться до финиша? Никто не обещает, что будет легко.Тип издания: LicenseРазработчик: NoNameDevЖанр: Arcade, RacingЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C23F404F929E2CC2EE268B2506711AADE6D31B9
 ```
 
 

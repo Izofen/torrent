@@ -1,3 +1,99 @@
+###  Публикация: 1669562   (172793) от 16.10.2023
+
+Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94552F540C23EF4F0DC3C2665F207D0C99A3A851
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669306   (172799) от 16.10.2023
+
+FastCopy 5.4.2 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172799.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, китайский, японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D294954328B4E2775C0BC25C374CC820A7786C20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669309   (172801) от 16.10.2023
+
+Resource Hacker 5.2.3.379 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Hacker - программа для просмотра, извлечения, изменения и добавления ресурсов для Win32-приложений, т.е. по своей функциональной направленности схожая с широко известной программой Restorator (внешностью, кстати, тоже), но бесплатна... Resource Hacker может применяться как для простого "выдергивания" иконок, музыки и прочего, находящегося в исполняемых (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C447FF3190278E7122948787BA9E9F2CC508E90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669464   (172802) от 16.10.2023
+
+Room Arranger 9.8.0.640 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D213605CF3B82958A63F7E555EBCF8B288BAA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669408   (172804) от 16.10.2023
 
 JetBrains Clion 2023.2.2 for Mac Intel/ARM [En]
@@ -6,7 +102,7 @@ JetBrains Clion 2023.2.2 for Mac Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172804.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ OneCommander Pro 3.56.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172806.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ XnViewMP 1.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172809.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ IObit Uninstaller Pro 13.1.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172811.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ Optimizer 16.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172813.jpg" />
 </div>
 
 
@@ -129,7 +225,7 @@ VueScan Pro 9.8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172814.jpg" />
 </div>
 
 
@@ -153,7 +249,7 @@ Adobe Media Encoder 24.0.0.54 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172815.jpg" />
 </div>
 
 
@@ -177,7 +273,7 @@ magnet:?xt=urn:btih:593629FAC7D2553BC60340BDEC04957EDC736E8B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172820.jpg" />
 </div>
 
 
@@ -201,7 +297,7 @@ PDF Reader Pro Edition 2.9.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172821.jpg" />
 </div>
 
 
@@ -225,7 +321,7 @@ Text Editor Pro 27.8.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172823.jpg" />
 </div>
 
 
@@ -249,7 +345,7 @@ n-Track Studio Suite 10.0.0.8038 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172825.jpg" />
 </div>
 
 
@@ -273,7 +369,7 @@ Wondershare UniConverter Ultimate 15.0.3.14 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172831.jpg" />
 </div>
 
 
@@ -297,7 +393,7 @@ Process Lasso Pro 12.4.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172832.jpg" />
 </div>
 
 
@@ -321,7 +417,7 @@ Glary Disk Cleaner 5.0.1.297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172837.jpg" />
 </div>
 
 
@@ -345,7 +441,7 @@ JetBrains RubyMine for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172844.jpg" />
 </div>
 
 
@@ -369,7 +465,7 @@ Path Finder 2162 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172846.jpg" />
 </div>
 
 
@@ -393,7 +489,7 @@ DVD-Cloner 2023 for Mac 10.20.738  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172851.jpg" />
 </div>
 
 
@@ -417,7 +513,7 @@ Dropzone 4 Pro v.4.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172852.jpg" />
 </div>
 
 
@@ -442,7 +538,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172855.jpg" />
 </div>
 
 
@@ -467,7 +563,7 @@ VueScan Pro 9.8.18 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172856.jpg" />
 </div>
 
 
@@ -491,7 +587,7 @@ Sync Folders Pro 4.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172858.jpg" />
 </div>
 
 
@@ -516,7 +612,7 @@ Text Workflow 1.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172859.jpg" />
 </div>
 
 
@@ -528,103 +624,6 @@ Text Workflow 1.7  [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDFFB5F759BEAED183094ABB15C5170E194105F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669334   (172860) от 16.10.2023
-
-Icecream Video Converter Pro 1.35 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный, но простой в использовании медиа конвертер, который поддерживает все самые распространенные аудио и видео форматы, включая AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и многие другие, а также позволяет конвертировать медиа файлы для мобильных устройств.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB71514CC202335F749C96EAB86BE6E69AD4F5E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669330   (172864) от 16.10.2023
-
-High-Logic FontCreator Professional 15.0.0.2941 Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172864.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572F120BEB7783EF77F1D8B5DFBDF7EB302912A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669463   (172871) от 16.10.2023
-
-EverWeb (Standalone) 4.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172871.jpg" />
-</div>
-
-
-###  Подробнее
-
-С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
-EverWeb даже создает мобильные сайты, которые отлично смотрятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2023Разработчик: © 2022 RAGE SoftwareПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F0623989500D9670053F4413EC36E4A54902F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669364   (172872) от 16.10.2023
-
-System Dashboard Pro 1.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172872.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2023 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95E37E5A60E375CD4F44F290A6149A4BAA35097
 ```
 
 

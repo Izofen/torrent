@@ -1,3 +1,75 @@
+###  Публикация: 1685364   (127327) от 18.12.2023
+
+ALLPlayer 9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127327.jpg" />
+</div>
+
+
+###  Подробнее
+
+ALLPlayer, наверное, одна из самых популярных программ для просмотра фильмов и прослушивания музыки, с современным интуитивно понятным интерфейсом, известная больше по смартфонам и планшетам, чем по Windows. Все функции легко доступны, именно в тот момент, когда они необходимы, а благодаря встроенным кодекам ALLPlayer может воспроизводить практически любой формат (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57115AA4EC7CA79F96550AE80856CCD44758C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062062   (127328) от 18.12.2023
+
+BeamNG.drive (2015) [Ru/Multi] (0.31.1.0) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127328.jpg" />
+</div>
+
+
+###  Подробнее
+
+BeamNG.drive — невероятно реалистичный автосимулятор с практически безграничными возможностями. В основе игры лежит система физики мягких объектов, способная правдоподобно моделировать компоненты автомобиля в реальном времени. Благодаря годам кропотливой разработки, исследований и испытаний, BeamNG.drive способен передать весь восторг вождения в реальном мире.Тип издания: RepackРазработчик: BeamNGЖанр: Racing (Cars), Sandbox, Simulation, 3DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE2F4CD06ABADF106F3BAB9467FEFCE49FF7779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 132771   (127329) от 18.12.2023
+
+В Париж (2008) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в 60-е годы прошлого века, в заштатном провинциальном городке. Иван — передовик, токарь на заводе, один растит сына Лешку. В семье возникают проблемы: у любимой женщины Ивана огромная недостача, ей грозит тюрьма. А Лешку, на глазах любимой девушки, унизили хулиганы. Батя находит нестандартный выход из этих ситуаций: он сам делает пистолет (   Читать дальше...   )Производство: Россия,  ПЦ "Пирамида"Жанр: ДрамаРежиссер: Сергей КрутинАктеры: Юрий Степанов, Полина Кутепова, Ярослав Жалнин, Георгий Дрозд, Валерия Ходос, Евгений ЕфремовПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684683   (127330) от 18.12.2023
 
 Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +78,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127330.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127331.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Windows 7 (3in1) x64 by Updated Edition (07.12.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127332.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:A1893E597ECDA56E8FD9B59F0E82C5440AB05754
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127334.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:ECBEA554FA12C484C5DFE5E45E6E6E04C68AE72A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127335.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:28EF814ED5A8FE79D5DCF9F74732B172CF84ACD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127336.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:0E5463EA4A66DF9CAA214D076CD609450FAEEC68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127337.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:A43CADEFE8C4D61E3CB07DFA72738D7DB0DD833C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127338.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:EF5F5EF3F4A3037AE1080F2C4B1FC62062013E37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127339.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:94963315E16597349C0341693CBFC5C756AF48F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127340.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:34D701360801435E0B9DC3233136958E708FA869
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127341.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:296CD96E750C6293CC7DD2027AE531EE833F3C4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127342.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ DefenderKiller 11.0.8 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127343.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:31D45981828E4FE00DA5DD9FD2B1921B0F22C9A8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127344.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:BA3C0979FB79E840E2B89FC4892682078C687D68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127345.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127346.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:0F25553CD1CFB98293D1CA07E1D4DDF1C026C755
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127347.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ UseEye - Stoned Mental (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127348.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ Monty Alexander - The River (1985) 1990, Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127349.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ Shamayna - Shamacaine (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127350.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127351.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127352.jpg" />
 </div>
 
 
@@ -567,87 +639,6 @@ Gravegod - Promised Graveland (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0B05119AA6FF759B99E599329F8879F3E87D5EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684867   (127353) от 17.12.2023
-
-Charles Mingus - Blues & Roots (1959) 2007, Warner Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wednesday Night Prayer Meeting [5:44]
-02. Cryin' Blues [5:03]
-03. Moanin' [8:02]
-04. Tensions [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8ED32C2C94BF90473DD41939B1957B76B90EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684860   (127354) от 17.12.2023
-
-Bob Brookmeyer New Art Orchestra - New Works: Celebration (1997) 1999, Challenge Records [FLAC|Lossless|tracks + .cue] <Cool, Third Stream, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration Jig [2:32]
-02. Celebration Slow Dance [8:24]
-03. Celebration Remembering [10:59]
-04. Celebration Two And [10:16](   Читать дальше...   )Жанр: Cool, Third Stream, Big BandПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8902A5522CD997F440EF03A2285AF2ED859E4D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684799   (127355) от 17.12.2023
-
-Illt - Mercy Of The World (2022) [FLAC|Lossless|image + .cue] <Thrash Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 In the void
-02 Homicide
-03 Wrath of the demon
-04 The call of infinity(   Читать дальше...   )Жанр: Thrash Black MetalПродолжительность: 00:34;55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1465C94757256396A2E0FD18B0CC878B48DDB0
 ```
 
 

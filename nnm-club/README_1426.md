@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37429.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Dawn of the Ashen Queen (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37430.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F92394CDB861014A8EA8D4401176337AEA026B23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37431.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:02C4D9CC84A4A3ED653B4FB28B15838F67C1EDB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37432.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.7) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37433.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CBD0B13C38EDD0B161D1392E6F1D8DBBDBF35CF6
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37434.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CA8F03CF706C7007DEAA8B80DBD3BD091EC84080
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37435.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9236AD13F167803733FD5222AD21D90EF9FB53F5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37436.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:395E5FC78CDE7EE1E0A6647749D94910C5B22F1E
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37437.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:79AE378F2768D73F8CA0233012F43E4359C1E9CC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37438.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:161AE4C5ED808B1AB03B031C8FF8319C5C9808AD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37439.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:A195EFDD15EBEB2F39376D95AE06E6AD25D180E5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37440.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37441.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.11.02 [Ru/E
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37442.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:95C1A76771ACD5E370B27710A182B7A37E022145
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37443.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A3A89797A8DA83D2D77CF729C4C43DD856DDA1B6
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37444.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:56928EE2BBB9E8FF8739FF0D915BF4E77CC54215
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37445.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2314 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37446.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5131 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37447.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:9B543C3F48F36AFA7282946EC1480BF37478600D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37448.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by alexyar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37449.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37450.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D15FDAE953F28074CEDA215A18D51AB32E0F9AFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37451.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Flotsam (2019) [Ru/Multi] (0.8.5f1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37452.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37453.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A392D1DB791B2FE705882C4978C7B86E7641CF31
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37454.jpg" />
 </div>
 
 

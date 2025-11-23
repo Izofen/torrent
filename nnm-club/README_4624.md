@@ -1,3 +1,152 @@
+###  Публикация: 590418   (143297) от 17.12.2012
+
+Animal Wallpapers (16.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BA8DA4DA31E72C9AA46B108D55BC2536CB7E14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195305   (143298) от 28.12.2017
+
+Михаил Михайлов | Мастер големов (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Повелитель металла».
+
+Кому-то суждено родиться с магией. Косте повезло получить дар при переходе через межмировой портал. Не все было у него гладко при обретении этой силы, но сейчас он уже уважаемый человек в герцогстве, которое стало его домом. Жажда новых знаний, считающихся забытыми, гонит его в самые опасные уголки мира, заставляет вступать (   Читать дальше...   )Жанр: Героическая фантастика, Попаданцы, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5E87600C3FACA0C8668F90CF9173AFDF289EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351194   (143300) от 28.12.2020
+
+Подшивка | Woodsmith (2020) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodsmith — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, практически (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D6182500C0DB2144ECB4293FBB0D294AF49B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669642   (143301) от 22.11.2023
+
+Алекс Делакруз | Красный рассвет (2023) [MP3, Alex]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно знакомый и в то же время чужой мир. Мир, где Третья мировая случилась сразу после Второй, и где в 2023 году выжившие великие державы спорят за контроль над территориями Африки и Северной Америки. Ему всего двадцать один. Привычная жизнь давно разрушена, за спиной – перекрестки иных миров. Он в этом мире чужой, и он здесь как предвестник открытия врат, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA8C9FC39C379FCB7434BD0274EFF2C36D24E15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088050   (143302) от 29.12.2016
+
+Johnny Smith - Favorites (1959) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moonlight In Vermont [02:38]
+ 02.My Funny Valentine [03:24]
+ 03.Little Girl Blue [02:55]
+ 04.My One And Only Love [02:47](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC31CD53E9755EEA3BE64A5C4E89929418DD8768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348568   (143303) от 28.12.2019
+
+Дельты великих рек. Юкон / Deltas of the World. Yukon Arctic Wilderness (2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дельта Юкона в юго-восточной части Аляски осталась таким же диким уголком как и сто лет назад. Речной лабиринт простирается от самой реки и питает территорию как артерии...Производство: ЕС, Filmtank, Apollofilm, Arte, AutenticЖанр: Документальный, природа, флора, фаунаРежиссер: Эмануэль ДэкомбПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCBB4A2E0C2D817FF6FD398991C8F66C03B34FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241744   (143304) от 27.12.2018
 
 Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 14 из 14] WEB-DL 720p rus
@@ -6,7 +155,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143304.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ magnet:?xt=urn:btih:A13389E1BA70E0A7FF3556DBF5E58CCCBCC2538D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143306.jpg" />
 </div>
 
 
@@ -54,7 +203,7 @@ magnet:?xt=urn:btih:C0C356235402F1B930B76E600AA266908AC32A4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143307.jpg" />
 </div>
 
 
@@ -78,7 +227,7 @@ magnet:?xt=urn:btih:4518C6DCD9A1119593A822B8E008DC47728F1FDA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143308.jpg" />
 </div>
 
 
@@ -105,7 +254,7 @@ Paul Hardcastle - Jazzmasters V (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143309.jpg" />
 </div>
 
 
@@ -132,7 +281,7 @@ magnet:?xt=urn:btih:422CF0C125B90A5D634B6435105C18E37CA82C7B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143311.jpg" />
 </div>
 
 
@@ -156,7 +305,7 @@ Native Instruments Traktor Pro 3 v3.5.2.299 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143313.jpg" />
 </div>
 
 
@@ -180,7 +329,7 @@ magnet:?xt=urn:btih:60DF8D55CF76ED42B6C8233BDD7ACA35FD9B1460
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143315.jpg" />
 </div>
 
 
@@ -204,7 +353,7 @@ Megadeth - Warheads On Foreheads (2019) Compilation, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143317.jpg" />
 </div>
 
 
@@ -231,7 +380,7 @@ Frank Morgan - Listen to the Dawn (1994) Verve[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143318.jpg" />
 </div>
 
 
@@ -258,7 +407,7 @@ magnet:?xt=urn:btih:7A5B6BD824CD30DBBA008142D18802A2248E96D2
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143319.jpg" />
 </div>
 
 
@@ -282,7 +431,7 @@ magnet:?xt=urn:btih:84D7B3B1CF5809670E6FBEE4C0ACF9A0B2FD9F14
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143320.jpg" />
 </div>
 
 
@@ -306,7 +455,7 @@ magnet:?xt=urn:btih:84D7B3B1CF5809670E6FBEE4C0ACF9A0B2FD9F14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143321.jpg" />
 </div>
 
 
@@ -331,7 +480,7 @@ magnet:?xt=urn:btih:A43A23D84DBB1D5C720ACD7559A5865167B08F8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143323.jpg" />
 </div>
 
 
@@ -355,7 +504,7 @@ magnet:?xt=urn:btih:9086F76730DC76CB9B4FB7F2CBC1E95D0655BF05
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143324.jpg" />
 </div>
 
 
@@ -379,7 +528,7 @@ magnet:?xt=urn:btih:574E41F4F69F4019B7FB02CCC24EBB0FD07E63D5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143325.jpg" />
 </div>
 
 
@@ -405,7 +554,7 @@ VA - Chill Your Soul (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143327.jpg" />
 </div>
 
 
@@ -432,7 +581,7 @@ magnet:?xt=urn:btih:F505FA4F762918487AABE8ABDC2B9500A4E22448
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143329.jpg" />
 </div>
 
 
@@ -456,7 +605,7 @@ Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143330.jpg" />
 </div>
 
 
@@ -483,7 +632,7 @@ Inno Setup 5.5.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143331.jpg" />
 </div>
 
 
@@ -494,159 +643,6 @@ Inno Setup - программа для создания инсталляцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:151821884069896A0D172830F00BEEA3E76F7FB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590172   (143332) от 17.12.2012
-
-Там Америки нет - Я тебя жду (2005) [MP3|320 кб/с]<Шансон>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Загадка
-02. Ва Па Ба
-03. Я тебя жду
-04. Незнакомка
-05. Осень
-06. Сигарета
-07. Шалф 62% swing
-08. Струна
-09. Дверь
-10. Лайнер(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928AAFBAB5DB2354D0E685ECA68ED80C70A8D6EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678635   (143333) от 22.11.2023
-
-qBittorrent 4.6.1 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143333.jpg" />
-</div>
-
-
-###  Подробнее
-
-qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF4D322ED7FBE503600887F0C70C105986A974C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767512   (143334) от 27.12.2018
-
-Вий (2013) BDRip [H.264/1080p] [3D, Вертикальная анаморфная стереопара]
-
->>След.
->>Отечественные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, ЧехияЖанр: Фэнтези, триллер, приключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Андрей Смоляков, Алексей Чадов, Агния Дитковските, Юрий Цурило, Ольга Зайцева, Александр Яковлев, Игорь Жижикин, Валерий Золотухин, Нина РуслановаПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68D660A5AEAF4DF868F331BEDF7C8FE166087C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435523   (143336) от 28.12.2020
-
-MiniTool Partition Wizard Technician 12.3 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143336.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Partition Wizard Technician - мощный менеджер для работы с разделами жесткого диска. С его помощью можно изменять размер раздела, создавать новые разделы на жестком диске, удалять и форматировать уже существующие разделы. Partition Wizard обладает удобным интерфейсом, который будет понятным большинству более-менее подготовленных пользователей, MiniTool Partition (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9F2FE11551B442B4CA845A794A061A01945006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767045   (143338) от 27.12.2018
-
-Вий (2013) BDRip [H.264/1080p] 3D [Вертикальная анаморфная стереопара]
-
->>След.
->>Отечественные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, ЧехияЖанр: Фэнтези, Триллер, ПриключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Андрей Смоляков, Алексей Чадов, Агния Дитковските, Юрий Цурило, Ольга Зайцева, Александр Яковлев, Игорь Жижикин, Валерий Золотухин, Нина РуслановаПеревод: Не требуется (Русский )Субтитры: ОтсутствуютПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F67FDFDAAA65FAADCAC2592C3D9BEF0A3CB6DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348622   (143339) от 28.12.2019
-
-Михаил Ланцов | Фельдмаршал. Отстоять Маньчжурию (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русско-японская война – боль и национальная трагедия России! Множество умов тревожили мысли о причинах поражения. Множество людей жаждало ее «переиграть». Но удача улыбнулась не тому, кто об этом мечтал – наш современник Алексей Орлов, мало что помнящий о той полузабытой войне, после своей гибели внезапно осознает, что является генералом Куропаткиным, только-только (   Читать дальше...   )Жанр: Героическая фантастика, Исторические приключения, ПопаданцыПродолжительность: 8:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8836D257ED23B22C8A13FC10A627DCAD6A7C39E
 ```
 
 

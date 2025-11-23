@@ -1,3 +1,78 @@
+###  Публикация: 1520521   (127639) от 16.12.2023
+
+Морган де Кадье, Жюльет Лагранж | Лучший подарок для мамы (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем скоро у мамы день рождения, а кабанчик Хьюго до сих пор не приготовил ей подарок. Но он не отчаивается. В лесу наверняка найдётся лучший и самый красивый подарок для мамы. Ведь там столько всего интересного! К тому же лесные жители тоже пытаются помочь кабанчику. Но подарки, которые они предлагают, совсем не нравятся Хьюго. Найдёт ли кабанчик подарок для мамы? (   Читать дальше...   )Жанр: Зарубежные детские книги, СказкиПеревод: Анастасия СтрокинаИздательство: Манн, Иванов и ФерберФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9F055C0FAE40C582EA8C7586C89739FB402605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684324   (127640) от 16.12.2023
+
+VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - My Way (3:39)
+02. Rema - Calm Down (3:39)
+03. Hamza - Nocif (3:49)
+04. SDM - Bolide allemand (2:56)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676DC2CBBAC03776D835E0437F5243BE21CFCE8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684694   (127641) от 16.12.2023
+
+Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по синтезу многоуровневого параллакса изображения AE Motion Science – Rock and Roll Parallax. Используйте изображения без авторских прав в Интернете для создания эффектов push-pull камеры с многослойными изображениями и добавления текстовых субтитров. Всего будет объяснено 7 различных методов создания эффекта параллакса. . Rock & Roll Parallax (   Читать дальше...   )Производство: Motion ScienceЖанр: Моушен дизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7487A7228B42D6042B3B9AC19EC3122A8E99F0C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684700   (127642) от 16.12.2023
 
 Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
@@ -6,7 +81,7 @@ Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127642.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:03D8CB32B7E0A638C5B6BDC0EE5E7DF2FC07A8EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127643.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:82B5965345202DECCEA90FF35E73BC5467B95A17
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127644.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:4BA1F83A39FA375F72EEBD4A7009620ED179B410
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127645.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:D81A8FE12B936679876619A9EE3B3349976DE959
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127646.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ WPS Office + PDF 18.5.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127647.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:8288386E8CD6CA317D9907AC7DE44137CE26D92D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127648.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:20D4E7BE0BB38274CA34CA7D6B3BA0EE8A7E1E04
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127649.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:93674130A45E551AD14C1D1398219AD241F3B00D
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127650.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ AR Ruler App: Линейка Рулетка v2.7.5 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127651.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ magnet:?xt=urn:btih:C45DB5530621F9C770E18E2936CDDD429F4C7D42
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127652.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127653.jpg" />
 </div>
 
 
@@ -302,7 +377,7 @@ magnet:?xt=urn:btih:1FCB8D3852ADC3D1270B91B91109487EFF4C2BDD
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127654.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ Calibre 7.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127655.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127656.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ magnet:?xt=urn:btih:52A74B1FF0C3120573B6583F1DB6BE0F52C99869
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127657.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ magnet:?xt=urn:btih:5C26C1870ADD3322C522C51F21876F13F77CDEF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127658.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127659.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127660.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:2937F6F95397370516F3C430601CEB0D7C5F0439
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127661.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:72B5E643570437770675D38616421D3A1AEC5F68
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127662.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ magnet:?xt=urn:btih:AF7B7C54B70FF992FC87B2828E8F7B4CB4F546B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127663.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127664.jpg" />
 </div>
 
 
@@ -559,81 +634,6 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C901088288F70BA6919A6F8B9CA98D0EA09CA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484215   (127665) от 16.12.2023
-
-Мелисса Медина, Фредрик Колтинг | «Ромео и Джульетта» Уильяма Шекспира (2019) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые произведения многих взрослых теперь можно читать вместе с детьми. Пересказанные в понятной и интересной форме и дополненные потрясающими иллюстрациями, эти истории помогут детям оценить и полюбить классику и сохранить эту любовь до той поры, когда они сами смогут прочитать произведения в оригинале.
-
-Эта книга идеально подойдёт для занятий интерактивным чтением (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Зарубежная классика, Зарубежные детские книгиПеревод: Анастасия А. МаркеловаИздательство: Альпина ДиджиталФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B0CFD46E4BAA962C7A6EE1DF89B4C144749FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684731   (127666) от 16.12.2023
-
-Темный рай / Tume paradiis / Dark Paradise (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127666.jpg" />
-</div>
-
-
-###  Подробнее
-
-27-летняя Кармен узнает, что ее недавно похороненный заботливый отец на самом деле жил в долгах, и вся их жизнь была одной большой ложью.Производство: Эстония / Three BrothersЖанр: ДрамаРежиссер: Трийн РууметАктеры: Реа Лест, Йорген Лийк, Steffi Pähn, Liisa Saaremäel, Juhan Ulfsak, Reimo Sagor, Maria Avdjushko, Ain Mäeots, Kaie Mihkelson, Kristo ViidingПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:36Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BD9AC145427E2E3066BA6874A90FB31D66BAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684604   (127667) от 16.12.2023
-
-Томас Эриксон | Все начальники – козлы, а подчиненные – бездельники (2023) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы никак не можете понять, чего от вас хочет начальник; если подчиненные не слышат ни слова из того, что вы им говорите; если в офисе вы чувствуете себя, как в зоопарке, скорее всего, никто не пытается испортить вам жизнь специально. Просто вы – красный, а ваш начальник – зеленый. Ну, или наоборот.
-Благодаря этой книге вы сможете найти общий язык со своими начальниками (   Читать дальше...   )Жанр: Карьера, кадры, Психология и психотерапия, СамосовершенствованиеПеревод: М. О. ПетроваИздательство: Эксмо: БомбораФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BADEE61DF098357161F4F2E5A4C272B235A1318
 ```
 
 

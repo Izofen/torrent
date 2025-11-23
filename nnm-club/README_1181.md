@@ -6,7 +6,7 @@ Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:106F550C50ED7638601B559157D79075ED4AC96D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31060.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F18A16EBB41C941B0821C7D628BCF780E80E19E7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31061.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C4EE9E0F4010C9DFA514096EDF5679CAAED4F555
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31062.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ascold Flow | Граф Берестьев (Книга 1). Законы Рода 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31063.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DAA12605CFE731EDDDD4A3D14708D442165C7DC7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31064.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CDCCD7CBD5CFAF06605E0213BD48CD79064DC010
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31065.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:88C07D0F6CED16C1900D89EE003F06B081ECE2F5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31066.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ HDCleaner 2.085 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31067.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:363274DF229C6F5C43D6211A88B8EE7037E358EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31068.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TweakPower 2.067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31069.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ DVDFab 13.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31070.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:96EFD3C0B3515B580A1B0082C3E4833F1C7A0205
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31071.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:77C0A3C6F82EFDE55AFE59DDDF3941D0310B0B0C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31072.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ FanControl V211 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31073.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:79B7EA25875845B408D88B77266A32F3914EE06D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31074.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:9CA81F180235CE756CA7E4CA20051B9C4DE8EA86
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31075.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31075.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ EarthView 7.10.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31076.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:C11C7EFAD9A2DAA864BA9F0EE7FC1BA67563DB09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31077.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Vivaldi Metal Project - Studio Albums (3 releases) (2016-2022) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31078.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:E1519AECA61FA985A8D8BD1E64613BB16B452716
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31079.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31080.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:794D74826AAF770E1755682116BA513DD5D8CFD8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31081.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B177ED4937C8F9CF2D4C2A0E5F9B69B89726226B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31082.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ BurnAware Professional 18.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31083.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:EC2F7761C0E02AED7725F380F8A23160D2F1F0FA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31084.jpg" />
 </div>
 
 

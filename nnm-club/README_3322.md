@@ -1,3 +1,82 @@
+###  Публикация: 1738417   (106054) от 28.07.2024
+
+VA - RnB Soulful Collection (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aliah - Tease
+002. Arin Ray - Above The Rim Freestyle
+003. Inayah - Glory
+004. Ashanti - Thank You(   Читать дальше...   )Жанр: Rhythm And Blues, SoulПродолжительность: 11:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0334406D31CCD7A00E9C2E21655A267D67808F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737750   (106055) от 28.07.2024
+
+VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbps] <New Age, Mantra, Meditative>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Malia - Hare Krishna [07:44]
+02. Galt MacDermot, Tom Pierson - Hare Krishna [03:21]
+03. Baird Hersey & Prana, Krishna Das - Hare Krishna [06:40]
+04. Aria - Hare Krishna [04:56](   Читать дальше...   )Жанр: New Age, Mantra, MeditativeПродолжительность: 08:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D4C3E8A9C338F4616F9C7B780C83F3F1A264DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739470   (106056) от 28.07.2024
+
+Darktable 4.8.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106056.jpg" />
+</div>
+
+
+###  Подробнее
+
+darktable — фоторедактор, предназначенный для организации всего рабочего процесса обработки фотоснимков (в том числе, в формате RAW) — от импорта фотографий с камеры и их всесторонней обработки до экспорта с поддержкой обычного сохранения на диск, экспорта в облачные хранилища и отправки снимков по почте.
+Полноэкранный, масштабируемый пользовательский интерфейс darktable (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E49A33223AD6B222CFAD7F208CFD2B1C1B31E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739590   (106057) от 28.07.2024
 
 MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +85,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0726) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106057.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:88F5562EC0D36EEE455ECA679883099F4FF2BA7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106058.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106059.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ magnet:?xt=urn:btih:33A57985A3094DBFB838187005032743F9655E29
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106060.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ Firefox Browser 128.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106061.jpg" />
 </div>
 
 
@@ -129,7 +208,7 @@ Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106062.jpg" />
 </div>
 
 
@@ -154,7 +233,7 @@ LightX - Фоторедактор v2.2.1 b454 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106063.jpg" />
 </div>
 
 
@@ -178,7 +257,7 @@ BananaVisualLibraries 1.0.0.2 [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106064.jpg" />
 </div>
 
 
@@ -202,7 +281,7 @@ VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106065.jpg" />
 </div>
 
 
@@ -229,7 +308,7 @@ magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106066.jpg" />
 </div>
 
 
@@ -253,7 +332,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 (x32) / Build 87960 (x64) RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106067.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.065.1459 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106068.jpg" />
 </div>
 
 
@@ -301,7 +380,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106069.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ OneCommander Pro 3.87.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106070.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106071.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ magnet:?xt=urn:btih:CCC86F54C9A39D900A30352AC963A8864534E16A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106072.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106073.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ PhotoRoom v5.1.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106074.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ magnet:?xt=urn:btih:C9A2A92672783A6BB84B60AA8061A8E98AB1ACCB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106075.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ magnet:?xt=urn:btih:7CD214C81E4463F5C65C7836095077825BEF88C5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106076.jpg" />
 </div>
 
 
@@ -499,7 +578,7 @@ KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106077.jpg" />
 </div>
 
 
@@ -524,7 +603,7 @@ magnet:?xt=urn:btih:958EDE81E0977B59B69594970F0A19673FD7AAB1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106078.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ magnet:?xt=urn:btih:4F04EDE7238C30C4B541528DBAC304409E7A6A7E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106079.jpg" />
 </div>
 
 
@@ -564,87 +643,6 @@ magnet:?xt=urn:btih:4F04EDE7238C30C4B541528DBAC304409E7A6A7E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B888B65B05CA4C81C82DDE2A71461F8291994C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739304   (106080) от 27.07.2024
-
-Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meaningless Sex (3:44)
-02. Kiss Me (3:35)
-03. Hit It Again (3:56)
-04. Better If I Just Pretend (2:58)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739365   (106081) от 27.07.2024
-
-Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Charles Square (Live at Wembley Stadium) [00:04:17]
-02. There’s No Other Way (Live at Wembley Stadium) [00:04:21]
-03. Popscene (Live at Wembley Stadium) [00:03:33]
-04. Tracy Jacks (Live at Wembley Stadium) [00:04:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E10677C3DD44F5040896AE6BDED5A8BD8BE14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739242   (106082) от 27.07.2024
-
-Константин Паустовский | Рассказы (2014) [MP3, Михаил Яншин, Михаил Ульянов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Константин Георгиевич Паустовский (1892–1968) русский советский писатель.
-Радиоспектакли по одноимённым рассказам Константина Паустовского. Паустовский много писал о природе, о животных, но главный предмет его творчества – человек. Героев Паустовского отличает нравственная чистота и скромность.
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ИДДК, ГостелерадиофондПродолжительность: 01:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3377A44B278670D20907F439CC4A19E78438E7EB
 ```
 
 

@@ -1,3 +1,187 @@
+###  Публикация: 1678118   (145815) от 21.11.2023
+
+Immortal Guardian - Psychosomatic (2021) [MP3|320 Kbps] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychosomatic
+02. Read Between the Lines
+03. Lockdown
+04. Phobia(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F1A2CFF6493B847F084841EF120F55B9A22CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969988   (145816) от 28.12.2015
+
+VA - Fines de Semana Perezosos (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daki 2000 - 1000 Colors [05:56]
+02. Jess & Jess - Ondas de Sonido [06:03]
+03. Mike Warren - Gentle Stream [05:44]
+04. Claudia Hunt - Fatal Attraction [05:21](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDBD30FEE92869EFA76B0710132FE02DF83A7D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348152   (145817) от 26.12.2019
+
+YouTube By Click Premium 2.2.122 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145817.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube By Click - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать интересующий Вас ролик, нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E208E129A515442782F23B8C9DB3947B1343A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435284   (145818) от 27.12.2020
+
+Александр Тамоников | Месть по-царски (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145818.jpg" />
+</div>
+
+
+###  Подробнее
+
+1553 год. Трагически погибает сын Ивана Грозного царевич Дмитрий. В ходе следствия выясняется, что ребенок стал жертвой тщательно спланированного покушения. Известно и имя организатора убийства — князь Василий Ростов. Он бежит в Ливонию, надеясь за границей спастись от неминуемой расправы. В погоню за преступником царь посылает специальный отряд под командованием (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 07:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B81BEDD86B97DDF9BE1F6F4B1162BFF2675A695
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589964   (145819) от 16.12.2012
+
+Capture The Crown - 'Til Death (2012) [MP3|320 кб/с]<Post-Hardcore | Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145819.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Arrival
+2. #OIMATEWTF (featuring Denis Shaforostov)
+3. Fork Tongued
+4. Ladies & Gentlemen...I Give You Hell!
+5. LAX
+6. You Call That A Knife? This Is A Knife!
+7. Storm In A Teacup
+8. Help Me To Help You
+9. Deja Vu
+10. Insomniac(   Читать дальше...   )Жанр: Post-Hardcore | ElectronicПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150FEDCBD20F96F33D27B2EB4A396501C6A32A09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678332   (145820) от 21.11.2023
+
+Журнал | Юность №8 (август 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145820.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
+До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC2ABC874617419051A87896CF6365330C06FEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347542   (145821) от 26.12.2019
+
+Ученые нашли разгадку редкого феномена «ледяных волос»
+
+>>След.
+>>А знаете ли вы..
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если температура зимой колеблется около нуля градусов, стоит высокая влажность и наблюдатель находится между 45 и 55 градусами северной широты, среди леса, у него есть шанс столкнуться с необычным явлением, которое носит название «ледяных волос». Это тонкие нити или пряди, состоящие изо льда, которые вырастают на поваленных деревьях. Зрелище очень необычное и действительно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519994   (145822) от 26.12.2021
 
 Сто к одному (26.12.2021) WEBRip [H.264/720p-LQ]
@@ -6,7 +190,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145822.jpg" />
 </div>
 
 
@@ -30,7 +214,7 @@ SZMC - Dark Energy - The Album (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145823.jpg" />
 </div>
 
 
@@ -57,7 +241,7 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145824.jpg" />
 </div>
 
 
@@ -82,7 +266,7 @@ magnet:?xt=urn:btih:5406FEF124C0944402225C01FA5E92A124A11122
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145826.jpg" />
 </div>
 
 
@@ -106,7 +290,7 @@ BBEdit 14.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145827.jpg" />
 </div>
 
 
@@ -130,7 +314,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.66 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145828.jpg" />
 </div>
 
 
@@ -154,7 +338,7 @@ VA - Black Hole Trance Music 12-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145829.jpg" />
 </div>
 
 
@@ -181,7 +365,7 @@ Internet Download Manager 6.36 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145830.jpg" />
 </div>
 
 
@@ -205,7 +389,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145831.jpg" />
 </div>
 
 
@@ -229,7 +413,7 @@ VA - Sincopat 2021 Night Collection (2021) [AAC|~339 Kbps] <Deep House, Tech Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145832.jpg" />
 </div>
 
 
@@ -256,7 +440,7 @@ magnet:?xt=urn:btih:EEA96F50399F331DA6ABEDC5637370C1562BDA13
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145833.jpg" />
 </div>
 
 
@@ -283,7 +467,7 @@ magnet:?xt=urn:btih:3C1D63133F0A77BEB1F0A77EB4C7499B9A105E31
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145834.jpg" />
 </div>
 
 
@@ -310,7 +494,7 @@ magnet:?xt=urn:btih:C5C36D2A623400EC3010C922CACDEEDA4B2C5DBC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145835.jpg" />
 </div>
 
 
@@ -334,7 +518,7 @@ magnet:?xt=urn:btih:3DF79E6790C5B4623D0DE2F6E283D9377CFCC268
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145836.jpg" />
 </div>
 
 
@@ -358,7 +542,7 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145837.jpg" />
 </div>
 
 
@@ -385,7 +569,7 @@ Dp-6, Vadim Basov - Re2021view (2021) [AAC|~330 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145838.jpg" />
 </div>
 
 
@@ -412,7 +596,7 @@ magnet:?xt=urn:btih:A2BD0731B05720AC76D3DCDFDCAEC2C05CC8E87D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145839.jpg" />
 </div>
 
 
@@ -436,7 +620,7 @@ magnet:?xt=urn:btih:5E39EDA59D08223DF44AFBC6AFDA1400F25B6EA1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145840.jpg" />
 </div>
 
 
@@ -460,7 +644,7 @@ magnet:?xt=urn:btih:C77B99903D09D65EC55452C9FAF261EDED788552
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145843.jpg" />
 </div>
 
 
@@ -471,185 +655,6 @@ magnet:?xt=urn:btih:C77B99903D09D65EC55452C9FAF261EDED788552
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92F7DF82E98CD5E54EBBF2B0562BC8512D567783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519967   (145844) от 26.12.2021
-
-VA - Dream Into 2022 (2021) [AAC|~312 Kbps] <Deep House, Organic House, Progressive House, Indie Dance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiorella (fr) - Sanctuary (6:20)
-02. Blanka Barbara - Poem for Osiris (5:43)
-03. Kiantek - Kepler (Ben Eidani Remix) (6:16)
-04. Alnath - Expecto (5:25)(   Читать дальше...   )Жанр: House, Deep House, Organic House, Progressive House, Indie DanceПродолжительность: 04:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E284712C8A8C06D47DE9EAEA3AF6CABDDF3C9F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678364   (145845) от 21.11.2023
-
-Topaz Video AI for Mac 4.0.5 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2023Разработчик: © 2023 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B259CFCA98BE8A32D252280E2B0E9E387F69AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272224   (145846) от 26.12.2018
-
-VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Deepluxe
-02. Living Room - Lazy Days
-03. Thomas Siffling Trio - Die Leichtigkeit des Seins
-04. Francois Maugame - Vitra(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 01:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BEDB75D3186DE0735B258E5FBEF5B44E2CDDFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087240   (145847) от 27.12.2016
-
-Трансформеры. Трилогия. / Transformers. 3-Movie Set. (2007/2009/2011) HDRip [H.264] [MP4|1024x428]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, повествующие о войне между инопланетными разумными машинами, вошли в историю фантастического кинематографа и стали явлением масс-культуры XX века. Все начиналось 11 миллионов лет назад…Производство: США / Paramount Pictures, DreamWorks SKG, Hasbro Inc., Di Bonaventura PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Меган Фокс, Джош Дюамель, Тайриз Гибсон, Джон Туртурро, Рэйчел Тейлор, Энтони Андерсон, Джон Войт, Кевин Данн, Джули Уайт, Рамон Родригез, Изабель Лукас, Джон Бенжамин Хикки, Роузи Хантингтон-Уайтли, Патрик Демпси, Фрэнсис МакДорманд, Кен Жонг, Алан Тьюдик, Джон Малкович, Тайриз ГибсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 02:23:27 | 02:30:35 | 02:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA502F6467FEAD28323C43012F6D0A9CE953DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519766   (145849) от 26.12.2021
-
-VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiss-i Elektro - Soul of Istanbul (5:38)
-02. Alkiviades - Hermes (5:49)
-03. Akuba - Gaia (7:47)
-04. Kurup - Maré Alta (7:37)(   Читать дальше...   )Жанр: House, Organic House, Afro House, Deep House, Melodic House & TechnoПродолжительность: 02:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272074   (145850) от 26.12.2018
-
-Журнал | Моя прекрасная дача №25 (декабрь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.
-
-Примечание: в скане отсутствует страница с содержанием номера.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348095   (145851) от 26.12.2019
-
-Эспен в поисках Золотого замка / Askeladden - I Soria Moria slott (2019) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Король и королева отравлены. Единственный шанс на спасение — живая вода, спрятанная на краю света в стенах таинственного Золотого замка. Эспен с принцессой Кристин отправляются в путешествие, полное опасностей и приключений.Производство: Норвегия / Maipo Film, UmediaЖанр: Фэнтези, приключенияРежиссер: Миккель Бренне СандемусеАктеры: Вебьёрн Энгер, Элли Харбоа, Мадс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Гэбриел Эндрюс, Гискен Арманд, Петронелла Баркер, Фроде Биркеланд, Гард Б. Эйдсвольд, Александра ГйерпенПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9293C3CF2ED73A8BA96411C1B68281682B860C62
 ```
 
 

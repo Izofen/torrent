@@ -1,3 +1,78 @@
+###  Публикация: 483067   (88507) от 14.04.2012
+
+American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2000 | Pilotus
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alice - это необычный 3D-шутер от 3-го лица, основанный на всемирно известных произведениях Льюиса Кэрролла. Съехавшая с катушек Алиса вернулась в мир сказок и совершенно не узнала его - вокруг смерть, страх и разруха. Взяв в руки необычное оружие, Алиса с помощью неуловимого Чеширского Кота и чокнутого Белого Кролика начинает освобождение этого странного мира от владычества злобной Червонной Королевы. На ее пути станут стражнки-карты, шахматные фигуры, детеныши Бармаглота, а также перверсийные двойники персонажей кэрроловской "Алисы": Шляпник, близнецы Труляля и Траляля, Герцогиня и многие другие. Прекрасные ландшафты Страны Чудес чередуются с психоделическими уровнями в сюрреалистическом пространстве. Это самая необычная трактовка классической сказки для взрослых!Тип издания: RePackЖанр: Трехмерный экшен от третьего лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482831   (88508) от 14.04.2012
+
+[Программа] (Андроид 2.1+) RUSSIA MEGA SET - Супер коллекция виджетов и живых обоев!
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88508.jpg" />
+</div>
+
+
+###  Подробнее
+
+St.World представляет самую волшебную коллекцию дизайнера приложение РОССИИ. Качество часы виджетов + живые обои + + виджет погоды на 10 HQ обои + компас и HQ мелодии
+Наслаждайтесь магией SET РОССИЯ MEGA2012
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482876   (88511) от 14.04.2012
+
+VideoNet 8.4 [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88511.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoNet – цифровая система видеонаблюдения и регистрации, созданная для охраны таких объектов, как: банковские учреждения, большие и малые промышленные объекты, офисные помещения, складские помещения, загородные дома, компьютерные центры, гостиницы, университеты, автостоянки, жилые дома и многие другие.
+VideoNet – это мощный охранный комплекс, предоставляющий возможности видеонаблюдения, аудио/видеорегистрации, управления устройствами телеметрии, охранными датчиками, релейными выходами и передачи аудио/видеосигналов как от локальных видеокамер и микрофонов, так и от удаленных. Система позволяет подключать широкий спектр устройств: устройства видео/аудиозахвата, купольные видеокамеры, обычные видеокамеры, устройства телеметрии, коммутаторы, контроллеры охранных датчиков, контроллеры релейных выходов и производить настройку их параметров программными средствами.
+VideoNet – это возможность централизованного наблюдения одновременно за несколькими охраняемыми объектами, где бы Вы не находились: на рабочем месте, дома, (   Читать дальше...   )Название программы: VideoNetЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482941   (88512) от 14.04.2012
 
 Traffic Inspector 2.0.1.721 Full [Русский]
@@ -6,7 +81,7 @@ Traffic Inspector 2.0.1.721 Full [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88512.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88514.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88515.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:8A71552AE2BAE58AD8A8F17104335A8B2F422B57
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88516.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:E9E5A1B38EFD6A880C6434B9223D8CFC570D4798
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88517.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ IVT BlueSoleil с поддержкой голосового звонка (VOIP) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88519.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Real RocketDock by kubunes v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88520.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ Trend Micro Titanium Maximum Security 2012 5.0.0.1312 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88521.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Trend Micro™ Titanium™ Maximum Security 2012
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88522.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ Trend Micro™ Titanium™ Maximum Security 2012
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88525.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ MAGIX Video Easy 3 HD 3.0.1.29 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88528.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88529.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:A708CC603235647943C594E8E8D84EB997F4C1F8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88531.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ magnet:?xt=urn:btih:E5810F83480B346DC6DA7895D6E499533F1AACD2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88532.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88534.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ magnet:?xt=urn:btih:361EC2EEC61637E4866B83EE8DEE227301FEC665
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88536.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88539.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ VA - Ultrasound (1997) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88543.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ VA - Ultrasound (1997) [FLAC|Lossless|tracks] <Drum & Bass>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88545.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:90A4E44530C41F112C6F2035FA94D34331A99A16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88547.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:B3322212E3115EED259BC1390E9359694CA921A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88550.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:C1F7BF2221DBF03850AE3A1100D6C9BBBCD83BEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88551.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ magnet:?xt=urn:btih:1FBF2D5065D46C9C21A072267651C102EF34AD67
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88553.jpg" />
 </div>
 
 
@@ -576,79 +651,6 @@ magnet:?xt=urn:btih:1FBF2D5065D46C9C21A072267651C102EF34AD67
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75505F377C4267C57604DD5C1DF1B1D055B7099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483574   (88557) от 15.04.2012
-
-Николай Махотин | Справочная книжка для русских офицеров [1875] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развитие военной науки и практики на принципиально новой основе, утвердившейся в ходе военной реформы второй половины XIX века, требовало обновленной справочной литературы по соответствующей тематике. Следствием принятых мер явился значительный подъем и инициативы авторов, и издательской деятельности военного ведомства в конце 60-х гг. и в последующее десятилетие. Наряду с многотомными энциклопедиями массовый характер приобрел выпуск малоформатных справочных пособий. Особое признание получила "Справочная книжка для русских офицеров", составленная генерал-майором Генерального штаба Махотиным и отнесенная к числу "самых необходимых настоятельных пособий для всякого офицера". До конца века данный справочник переиздавался несколько раз, сохраняя свою актуальность и универсальный характер. С каждым новым изданием в него не только вносились обновленные сведения по всем отраслям военного дела, но и совершенствовалось полиграфическое исполнение. Так, по свидетельству библиографа П. Бранта, очередное (   Читать дальше...   )1875Жанр: Раритеты / Справочники / Военное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315FC1C95F7D0943C41B145C1C5EDBEF2D873FF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483668   (88558) от 15.04.2012
-
-Ф.К. Бабак | Стрелковое оружие Вермахта [2002] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88558.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается стрелковое оружие Вермахта, которое долгие годы состояло на вооружении не только германских войск, но и армий многих стран мира. По каждому образцу приводится история его разработки, описание конструктивных особенностей и тактико-технические характеристики, наиболее подробно описано взаимодействие механизмов, а также разборка и сборка оружия. Текст дополняется многочисленными рисунками и чертежами. Книга представляет интерес для широкого круга читателей.2002Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DB39FFE215A4D632431C92D72CDD2D5B89B269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483451   (88561) от 15.04.2012
-
-Г.Х. Андерсен | Сказки [2008, 2010] [FLAC]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бы ни писал Ганс Христиан Андерсен – стихи, романы, путевые очерки или пьесы, – ничто не могло сравниться с его сказками. В них он нашел свое истинное призвание. Вот когда пригодился его чудесный дар – воображение. «Мне часто чудится, что каждый плетень, каждый цветочек говорят мне: «Погляди на меня, и у тебя будет сказка обо мне». Андерсену достаточно было взглянуть на старый уличный фонарь, осколок стекла, обыкновенные ножницы или полюбоваться скромной ромашкой – и рождались истории, одна другой удивительнее. Рассказ о простой щепке, плывущей в уличной канаве, мог поведать о радостном и печальном, о смешном и трогательном.
-Герои андерсеновских сказок – люди, животные, игрушки и самые неприметные вещи. Иногда они оказывались участниками фантастических приключений. Чаще же жизнь их была обычной, привычной. И жили они не в сказочной, придуманной стране, а в домах с островерхими крышами, которые и сейчас стоят на улицах родного Андерсену Копенгагена. Скромные герои сказок Андерсена одерживают победы над лицемерием, (   Читать дальше...   )2008Жанр: Сказка, аудиокнига, аудиоспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20ACA1D8CCB8B58B785A181C36EEA0D70176834C
 ```
 
 

@@ -6,7 +6,7 @@ Kris Cayden - Stranger Than Fiction (2025) [MP3|320 Kbps] <Electronic, Dubstep>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66034.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66035.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66036.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ David M'ore - Holy Sinners & Sinful Saints (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66037.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gentlemen's Blues Club - Gbc Vol. 4 - Preacher's Cadillac (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66038.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Way Out West ft. Kirsty Hawkshaw - Stealth (2002) [FLAC|Lossless|tracks + .cue] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66039.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66040.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:91F56839359B064B03852500C7EB2FFA7D1E73A4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66041.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:4AED0ECDB1C9D3550498F1A486B5DCBD0CFFAFD9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66042.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66043.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66044.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66045.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Narrows - New Distances (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66046.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66047.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66048.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66049.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0FFC9D9B41BBA3255C02C865E6C40139548FB47B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66050.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66051.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66052.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:21BC8AC72F6DE479D6B090BDD179A21870FA9336
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66053.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ SanMinor - The Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Rap, Hip Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66054.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Orb - Aftermath (2004) [FLAC|Lossless|tracks + .cue] <Progressive Breaks, Tr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66055.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:49C763A07BCE259E2AE83E3B59312F6FAF45D7EF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66056.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Neil Young - Talkin to the Trees (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66057.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:44F0E8F95140B65D35A7B3202BE7947AEA5598B7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66058.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:81D68798A5A0E20C29F18EB17261AE2AE5C47735
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66059.jpg" />
 </div>
 
 

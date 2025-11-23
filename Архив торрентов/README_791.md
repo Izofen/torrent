@@ -1,3 +1,77 @@
+###  Публикация: 1432622   (161629) от 19.12.2020
+
+Гренландия / Greenland (2020) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания /  Anton, G-BASE, Riverstone Pictures, STX Films, Thunder RoadЖанр: боевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Английские (SDH)Продолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B4FF37AC92FADF4B18AD51C6B03165D6294F35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598716   (161635) от 20.12.2022
+
+Adobe Bridge 2023 13.0.1.583 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC811522263DEAF02B82668ECD0645289C3CC8D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598817   (161639) от 20.12.2022
+
+Blender 3.4.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
+
+В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C870B2963B3D7B826F9153C059DAA9EDB512CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517849   (161641) от 17.12.2021
 
 Sketch 81.1 [En]
@@ -6,7 +80,7 @@ Sketch 81.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161641.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:FB1362F9D9158FC39E0410064B3823D3CD0990DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161644.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ uTorrent Pack 1.2.3.77 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161662.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Magic Recovery Software 2022.12 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161672.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Sublime Merge Dev Build 2066 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161676.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ File Cabinet Pro 8.4 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161682.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ IObit Uninstaller Pro 12.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161694.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Acorn 7 v7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161695.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:DD3A47655BA5CD955466DCF4C97DC4E5765E4B12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161702.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ Rhinoceros 3D 8.0.23304.09001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161708.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC2020-12-19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161710.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ IObit Smart Defrag Pro 8.3.0.252 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161743.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ Psiphon 3 build 176 (DC 19.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161745.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ DxO PhotoLab Elite 6.1.1 build 86 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161748.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ Udemy, Andrei Neagoie и др.| Complete Ethical Hacking Bootcamp 2021: Zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161752.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ Loopback 2.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161755.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ Qalculate! 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161759.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ Opera 94.0.4606.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161764.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ BELOFF [dp] 2020.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161778.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Solod: Коллекция Чистых Голосов / Solod: Clearvoices colle
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161796.jpg" />
 </div>
 
 
@@ -492,7 +566,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 17.12 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161807.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ Adobe InCopy 2023 18.1.0.51 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161808.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ Reason Studios Reason 12.5.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161810.jpg" />
 </div>
 
 
@@ -554,78 +628,6 @@ Reason Studios выпустила новую версию DAW Reason 12. Про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928881D30B485862EE611D16B57B778C04AC5226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517504   (161812) от 16.12.2021
-
-Windows 10 21H2 (19044.1415) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка windows 10 выполнена на основе оригинальных образов Microsoft Windows 10.19044.1415 Version 21H2 (December 2021 Update) (MSDN) и содержит три редакции ОС в одном образе. Предназначена как для домашних пользователей, так и для рабочих станций, где требуется минимальное отклонение от оригинала. Все изменения в сборке производились исключительно при помощи DISM. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B2D578E44ABE52DC412BC1F3C397461DD3F14D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433014   (161813) от 19.12.2020
-
-Bootstrap Studio 5.5.1 RePack (& Portable) by xetrin [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - мощная программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Bootstrap Studio помогает создавать стильные сайты. Он идет с большим количеством встроенных компонентов, которые вы можете перетаскивать, чтобы собрать удобные по навигации веб-страницы. Он построен на основе чрезвычайно популярной структуры Bootstrap и экспортирует (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F88F4C8645AECAC386432923ABC3BA4DF964940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598765   (161822) от 20.12.2022
-
-JRiver Media Center 30.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161822.jpg" />
-</div>
-
-
-###  Подробнее
-
-JRiver Media Center - мультимедийный центр. Воспроизводит практически все популярные аудио- и видеоформаты, в том числе MP3, аудио-CD и DVD, способен преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты, а также создавать аудио-CD, причем для выполнения этих задач программа содержит множество настраиваемых параметров. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD256C73E11D3BC4BE49349936F311249D33946
 ```
 
 

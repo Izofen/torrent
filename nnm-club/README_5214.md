@@ -1,3 +1,175 @@
+###  Публикация: 1518070   (160998) от 18.12.2021
+
+Главная дорога (18.12.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация: вы заехали к другу в гости, хорошо сидите, но внезапно планы меняются, нужно срочно ехать, а вы выпили. Да и машина нужна утром дома. Что выбрать — такси, эвакуатор или «трезвый водитель»? В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков проверили, действительно ли по вызову приезжают именно трезвые водители, готовы ли они заключать договор (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88608445BFB4B1A97896B3FE0C3AB6357FE2B2FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598728   (160999) от 21.12.2022
+
+Бардо / Bardo, falsa cronica de unas cuantas verdades / Bardo, False Chronicle of a Handful of Truths (2022) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мексиканский журналист возвращается на родину и осмысляет свои с ней отношения.Производство: Мексика / Estudios Churubusco Azteca S.A., RedrumЖанр: драма, комедияРежиссер: Алехандро Гонсалес ИньярритуАктеры: Даниэль Хименес Качо, Гризельда Сицилиани, Химена Ламадрид, Íker Sánchez Solano, Луис Кутюрье, Луз Хименез, Андрес Альмейда, Клементина Гвадаррама, Джей О. Сэндерс, Франсиско РубиоПеревод: Авторский (Юрий Сербин | 18+)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2CC338F49BD743D26955ADD102F2CB54DE071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599027   (161000) от 21.12.2022
+
+AnyDesk 7.1.7 + Portable [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082FF999D5BFEA8DF71714E9748329057C4EE1E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518198   (161001) от 18.12.2021
+
+Pussies On The Dancefloor - Rumors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rumors
+02. Never Ever
+03. Abbie
+04. Broke But Rich(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6BAA407599C230ECD51B55F161F09984A9DD63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616325   (161002) от 05.11.2023
+
+Вероника (2022) WEBRip [H.264/720p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероника возвращается в родной город, чтобы отомстить за смерть отца, который погиб много лет назад при странных обстоятельствах. Он упал в водоем, катаясь в лодке со своей новой женой Кариной. Мачеха была под подозрением, но следствие тогда зашло в тупик, дело закрыли, а Вероника попала в детдом. Теперь, узнав, что в дом Карины требуется домработница, девушка решает (   Читать дальше...   )Производство: Россия / Кинокомпания АРСЖанр: мелодрамаРежиссер: Сергей ГиргельАктеры: Александра Каштанова, Иван Зайцев, Анна Бреннер-Вартаньян, Таисия Орлова, Сергей Чекерес, Дмитрий Давидович, Станислав Савостин, Александр Провалинский, Елена Шабад, Валерий КащеевПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40794DDCA77DBBAB81EDF52A2DCF4996AB8EE0D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433324   (161003) от 20.12.2020
+
+Журнал | IT Expert №11 (299) (ноябрь-декабрь 2020) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161003.jpg" />
+</div>
+
+
+###  Подробнее
+
+IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE1FB562D534EF80C6CD889281EDE9F08A2C1D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433421   (161004) от 20.12.2020
+
+Чайна Мьевиль | Крысиный король (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161004.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Крысиный король» — это один из самых ярких дебютов в английской прозе рубежа веков.
+Однажды утром Сола Гарамонда будит грохот вышибаемой двери. Полиция увозит его в тюрьму и обвиняет в убийстве собственного отца. Но в камеру Сола неуловимой тенью проникает призрак городских свалок и выводит его на свободу. Призрак представляется Крысиным королем и заявляет ему, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270D283968E7D27F90C05C6C6DA97B90E74C9B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674334   (161005) от 05.11.2023
 
 AOMEI Backupper Technician Plus 7.3.3 Repack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +178,7 @@ AOMEI Backupper Technician Plus 7.3.3 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161005.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (01.10.2022) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161006.jpg" />
 </div>
 
 
@@ -54,7 +226,7 @@ Hawkwind - Somnia (2021) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161007.jpg" />
 </div>
 
 
@@ -81,7 +253,7 @@ magnet:?xt=urn:btih:0E26532F52FA7DBB8AFFA9D6D848A391923BE1DA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161008.jpg" />
 </div>
 
 
@@ -105,7 +277,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1366 (Updated December 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161009.jpg" />
 </div>
 
 
@@ -129,7 +301,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -153,7 +325,7 @@ Bill Haley & The Comets - The Very Best Of (1999) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161011.jpg" />
 </div>
 
 
@@ -180,7 +352,7 @@ Chromium 87.0.4280.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161012.jpg" />
 </div>
 
 
@@ -204,7 +376,7 @@ magnet:?xt=urn:btih:2E012DF61E2799F3B2950742ACF66CB1182C17ED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161013.jpg" />
 </div>
 
 
@@ -228,7 +400,7 @@ magnet:?xt=urn:btih:2070DCFEC3E5B8BD2D340082BA0529D57ADB4503
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161014.jpg" />
 </div>
 
 
@@ -252,7 +424,7 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161015.jpg" />
 </div>
 
 
@@ -276,7 +448,7 @@ magnet:?xt=urn:btih:6DA234F10E3AE33FA8F94CBEF464373ECF918ACB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161016.jpg" />
 </div>
 
 
@@ -300,7 +472,7 @@ magnet:?xt=urn:btih:1A643E1BB2E9177E738543FD7C50CA48DECDF981
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161017.jpg" />
 </div>
 
 
@@ -324,7 +496,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161018.jpg" />
 </div>
 
 
@@ -348,7 +520,7 @@ magnet:?xt=urn:btih:4885E390B1E5C8241446BBD7251FE1560018FEC7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161019.jpg" />
 </div>
 
 
@@ -372,7 +544,7 @@ magnet:?xt=urn:btih:B33C5D268383AF58741F2ED084D73F7C7783D6F8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161020.jpg" />
 </div>
 
 
@@ -396,7 +568,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -421,7 +593,7 @@ magnet:?xt=urn:btih:6E20A0F1CEE5A454B6A851F66FFE032292C87117
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161022.jpg" />
 </div>
 
 
@@ -445,7 +617,7 @@ Firefox Browser 91.4.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161023.jpg" />
 </div>
 
 
@@ -456,177 +628,6 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893D21D32ED4620C14F16F688BC81BBBC7164FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433361   (161024) от 20.12.2020
-
-Allavsoft Video Downloader Converter 3.23.1.7653 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0147C951013CBCD056CE9B61CC3D5B368A8F8BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518104   (161025) от 18.12.2021
-
-VA - The Bearded Man - Beards In The Snow 2021 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Clément Leroux - Baby (Tell Me)
-2. Nicolas Haelg/Marie Beeckman - Gravity (2021 Edit)
-3. Harold van Lennep - Liberation (Re-Edit)
-4. GOLDHOUSE - Sex On Me (Re-Edit)(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9192DC3D80850F07406DBB91172AAC3C5FBC731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674310   (161026) от 05.11.2023
-
-Ивашка из дворца пионеров (1981) WEB-DLRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161026.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Бабы Яги именины, приглашены гости, которых она хочет угостить чем-то вкусным. Как водится, посылает она гусей-лебедей за упитанным мальчиком, которым оказывается Уфимцев Ваня из Дворца пионеров.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, сказка, комедияРежиссер: Геннадий СокольскийАктеры: Светлана Харлап, Гарри Бардин, Ефим КацировСубтитры: отсутствуютПродолжительность: 00:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF55BA720ADA8E6E8E798AF786EF6FD0A05278C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598945   (161027) от 21.12.2022
-
-Windows 11 Pro VL x64 22Н2 (build 22621.963) by ivandubskoj 21.12.2022 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Pro (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1027490D0B0260F939828DA1B0B777E606141C2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433198   (161028) от 20.12.2020
-
-Фотографии - PHOTOBASH - FIGHTER PILOT [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор содержит подробные снимки и ракурсы двух униформ летчиков-истребителей, подчеркивающие замысловатые детали конструкции шлема, ткани и аксессуаров экипировки.Формат: JPGРазрешение файлов: 1231x3000-7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC515E5CCE433CFFDEAA7944ACA2616D70DBEE50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599057   (161029) от 21.12.2022
-
-PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое приложение с удобным интерфейсом для чтения и редактирования PDF с вкладками, которое делает чтение и редактирование приятным и эффективным.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2022Разработчик: © GoodPDF LimitedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFE6BAB1867869BC892A10BC4792FF8C84E9681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674547   (161030) от 05.11.2023
-
-Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решение проблем - очень важный навык для любого художника. Рабочий процесс связан с большим количеством неожиданностей, сложностей и неординарных подходов. В этом уроке, Марко проведет вас за руку через весь процесс создания цифрового изображения. Так же он постарается помочь вам настроить свое мышление, направить его в нужное русло.Производство: SkillshareЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
 ```
 
 

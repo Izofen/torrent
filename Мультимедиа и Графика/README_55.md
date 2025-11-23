@@ -1,3 +1,75 @@
+###  Публикация: 492716   (248330) от 06.05.2012
+
+FXpansion - BFD Eco v.1.0.1.27+(BFD Eco Data v 1.1.5) by ASSIGN[BIN|ISO][английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_248330.jpg" />
+</div>
+
+
+###  Подробнее
+
+BFD Eco - изящный, функциональный и доступный программный инструмент для создания партий акустических барабанов, основанный на движке BFD2. Оптимизированный для максимальной гибкости и функциональности, в то же время оставаясь простым в использовании, BFD Eco предоставляет большую библиотеку звуков ударных и паттернов, а также обеспечивает совместимость с широким спектром дополнительных расширений от FXpansion и сторонних разработчиков. BFD Eco предоставляет доступ к лучшим звукам из библиотеки BFD2, которые были записаны в Лондоне на студии Air Studios. Инструмент включает множество пресетов для того, чтобы показать всю мощь секции микширования. Эквализация, динамическая обработка и эффекты позволяют формировать звук и стерео пространство для любых ситуаций. Основанные на технологии DCAM компрессия, фильтрация и драйв обеспечивают тембр аппаратных устройств, в то время, как интегрированная версия пластинного алгоритма Overloud Breverb может использоваться для эффектов реверберации. Также BFD Eco содержит секцию (   Читать дальше...   )Название программы: FXpansion - BFD Eco v.1.0.1.27Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834303   (248546) от 03.11.2025
+
+VidCoder 12.11 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248546.jpg" />
+</div>
+
+
+###  Подробнее
+
+VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake. Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC073D6FE0A7F7B86297AEE4F26F858153DCE04E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834099   (248614) от 02.11.2025
+
+Fast Video Cutter Joiner 6.9.2.0 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834362   (249042) от 03.11.2025
 
 Wondershare UniConverter 17.0.0.425 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ Wondershare UniConverter 17.0.0.425 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249042.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249042.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Turbo Play Free 2.4651 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249439.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249439.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ GForce Software Minimonsta2 1.0.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249631.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249631.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Blue Cat's Connector 1.12 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249833.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249833.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Unfiltered Audio Plugins 2023.3 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250021.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250021.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ BLEASS - Motion EQ 1.1.1 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250093.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250093.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Winxvideo AI 4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250333.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250333.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Spotify 1.2.75.280 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250370.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250370.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ VidCoder 12.12 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250372.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250372.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Shotcut 25.10.31 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250431.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250431.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ PotPlayer 251028 (1.7.22691) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250508.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250508.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ VideoProc Converter AI 8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250509.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250509.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Spectrasonics - Omnisphere 3.0.0d STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250537.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250537.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ Affinity Studio 3.0.0.3791 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250592.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250592.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ DxO PhotoLab 9.2.0 build 524 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250753.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250753.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Capture One 23 Pro/Enterprise 16.7.1.3218 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250754.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250754.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250813.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250813.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ DMG Audio - Compassion v.1.06 x86 x64[VST2|VST3|RTAS][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250987.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250987.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ StaxRip 2.50.4 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251218.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Steinberg - Cubase Pro 15 15.0.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251286.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251286.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ Capture One 23 Enterprise 16.7.1.3218 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251709.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251709.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ Affinity Studio 3.0.1.3808 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251844.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251844.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252198.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252198.jpg" />
 </div>
 
 
@@ -560,78 +632,6 @@ V-Ray — система рендеринга, разработанная ком
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7DD35A37C27F2D61BC3B729A87E9B5B69F54D30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836138   (252268) от 09.11.2025
-
-Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252268.jpg" />
-</div>
-
-
-###  Подробнее
-
-DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEB29441B060E3E69DED85ABBB8C4DA25CEB213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836131   (252281) от 08.11.2025
-
-Zoner Photo Studio X 19.2509.2.661 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB86C8F39CC1241AE7D957A785B3B5E1BCBBE66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836126   (252284) от 08.11.2025
-
-FireAlpaca 2.13.26 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252284.jpg" />
-</div>
-
-
-###  Подробнее
-
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CF4613026C0035B814DC4713F2F311991C2FA4
 ```
 
 

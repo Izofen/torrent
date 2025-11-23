@@ -1,3 +1,76 @@
+###  Публикация: 970621   (138254) от 31.12.2015
+
+Рамки - Маша и Медведь [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамка для оформления фотографий Ваших ребятишек.
+Автор: FireFly-zzzz1988Формат: PNGРазрешение файлов: 2480х3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDE074CF19C321CC1332D53BEEA3F7C6CF3431E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270191   (138257) от 30.12.2018
+
+Тайны следствия (2018) SATRip [H.264] (сезон 18, серии 1-24 из 24)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следователю Марии Сергеевне Швецовой предстоит разобраться в новых запутанных преступлениях. Тем временем у остальных героев в жизни большие перемены. Оля наконец забеременела от Курочкина, будущий папаша разрывается между домом и работой..Производство: Россия / ООО "Кинопроизводственный центр", ООО "Прогресс-Студия"Жанр: криминал, детективРежиссер: Егор Баринов, Жанна КохановаАктеры: Анна Ковальчук, Вячеслав Захаров, Игорь Николаев, Александр Новиков ,Антон Ксенев, Давид Бродский, Андрей Шарков, Степан Пивкин, Татьяна Левина , Анастасия Ступина и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822CB2F19E09BBA20F3F9953B7C5923A6A46410D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436075   (138258) от 30.12.2020
+
+Кавказская пленница, или Новые приключения Шурика (1966) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправившись в одну из горных республик собирать фольклор, студент Шурик влюбляется в симпатичную девушку Нину - спортсменку, отличницу, комсомолку и просто красавицу. Но её внезапно похищают банда их трёх человек, чтобы насильно выдать замуж. Наивный Шурик не сразу сообразил, что творится у него под носом, - однако затем отважно ринулся освобождать кавказскую пленницу.Производство: СССР / МосфильмЖанр: Комедия, Приключения, Мелодрама, МюзиклРежиссер: Леонид ГайдайАктеры: Наталья Варлей, Александр Демьяненко, Фрунзик Мкртчян, Владимир Этуш, Георгий Вицин, Евгений Моргунов, Юрий Никулин, Руслан Ахметов, Донара Мкртчян, Михаил Глузский, Нина Гребешкова, Пётр Репнин, Эммануил Геллер, Георгий МиллярСубтитры: РусскиеПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E879113D685F03A3A269317D41BAC2EE73FC2E4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195767   (138259) от 31.12.2017
 
 Белый пароход (1975) TVRip
@@ -6,7 +79,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138259.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138260.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:A8EE49C209BF6BD5DCC6F809793852A98A6F1EF9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138261.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Proteus 8 Professional 8.8 SP1 (Build 27031) with Advanced Simulation [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138262.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:1393CFC7F0D5438583B7976DEF0F04254B60F1D5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138264.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:9443A90D7EB7A5E0744329BF7339A2D331F29FB8
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138265.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ Galaxy on Fire 2. Full HD [Ru/En/Multi11] (RePack/1.0.3) 2012 | Fenixx
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138266.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:AAEC0BB7435CB97A9ED29AC1E5A2C147A03D78D6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138267.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138269.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ magnet:?xt=urn:btih:08DEB9E6AC645D9C69E1574B685B1E61BDA510E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138270.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ magnet:?xt=urn:btih:5731193E1FADCC3B4C26BD6171298EF2783B6777
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138271.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ magnet:?xt=urn:btih:707DC465D07331B26946E3775E16937C22D99EFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138272.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ magnet:?xt=urn:btih:8E6E474ADDA7186730071871109167EC48AB8C8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138273.jpg" />
 </div>
 
 
@@ -326,7 +399,7 @@ magnet:?xt=urn:btih:ADA57CE93A86722DB292292219C9BB0EABC0F776
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138274.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ magnet:?xt=urn:btih:81D0A9164CD0191BEB45E31189B54F4CEA245BEA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138276.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138277.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138278.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ magnet:?xt=urn:btih:214B9A46F99BA501577E8C3378CF920365B36DED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138279.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avant
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138281.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138282.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138283.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138284.jpg" />
 </div>
 
 
@@ -547,7 +620,7 @@ magnet:?xt=urn:btih:62A004D7559F911A8FB12529DA53370316D120E6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138285.jpg" />
 </div>
 
 
@@ -558,78 +631,6 @@ magnet:?xt=urn:btih:62A004D7559F911A8FB12529DA53370316D120E6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0AE974E2F67552F3809A62D8BC29E89ED20038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179308   (138287) от 30.12.2021
-
-Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия той самой прародительницы казуального жанра "шарико-плевалок" на PC. Пребывание бесстрашной жабы в древних храмах на зловещем острове затянулось, и теперь противостояние злым силам переходит на новый уровень. Вас ожидает свыше шестидесяти уровней в "полинезийском" стиле, 4 режима, новые бонусы и сражения с "боссами" в финале (   Читать дальше...   )Тип издания: UnofficialРазработчик: PopCap GamesЖанр: Arcade, LogicЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435130   (138288) от 30.12.2020
-
-Вейпинг без рецепта оказался бесполезен для отказа от курения табака
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метаанализ, проведенный американскими исследователями, показал, что приобретение никотинсодержащих электронных сигарет по собственному желанию в целом не повышает вероятность отказа от табакокурения. В то же время, если подобный продукт назначен врачом, его использование может помочь бросить курить. Результаты работы опубликованы в American Journal of Public Health.После (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235616   (138289) от 30.12.2018
-
-Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады!   Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляцией физики от легендарного разработчика Bugbear, подарившего миру FlatOut 1 & 2! Жгите резину и рвите металл (   Читать дальше...   )Тип издания: RepackРазработчик: BugbearЖанр: Экшены, Инди, Гонки, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Немецкий, Финский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Финский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0651947550256E4F78A966DC5C5A3CDD607552
 ```
 
 

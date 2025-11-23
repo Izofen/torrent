@@ -6,7 +6,7 @@ HWiNFO 8.24 Build 5700 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22827.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80CB2586FC4CD459B42C4EC257A7B08D2ABF26B9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22828.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:80EACF01FF440B75AAA6F98B3923148F10C8A718
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22829.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22829.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ NirLauncher Package 1.30.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22830.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22830.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Tor Browser Bundle 14.0.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22831.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22832.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BC90E460142743D17627EF46B4039653F67A7738
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22833.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22833.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Juicy Lucy - Collection, 9 Albums (1969 - 2002) 11 CD [FLAC|Lossless|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22834.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C6AA82047B0ADD8620E5B3EB644FAFDD00B4BB41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22835.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ FotoSketcher 3.98 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22836.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:343516FF404D64FB531D92C4936C77E7D1216423
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22837.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:343516FF404D64FB531D92C4936C77E7D1216423
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22838.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22838.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5BEA889F377D6D80C30B486282EF6D1EB1EF346B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22839.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22839.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Bandicam 8.1.1.2518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22840.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22840.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:873D6B7E9F748975FCE23F830B85EAEEFB31CD3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22841.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22841.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6362D6161E43927CD6A4200B9363F85341B2175C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22842.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:998C25B55E1F2BDACF1D956A23DB5B70937E7F91
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22843.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22843.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B38657ED514908F26B87517D1DE185BA9CF7CF8F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22844.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5E164AEBA0E2BF4EDBEE4D8A71F6A208D5A1B167
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22845.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22845.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:5E164AEBA0E2BF4EDBEE4D8A71F6A208D5A1B167
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22846.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22846.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:E256A663B4DF5CA9F1B9659C5D0EBBB9A2017F89
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22847.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22847.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22848.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:D28E98B60ECC0E1C49D960F67882AD7C22F40593
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22849.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7A3088273122F0D7999FCC78FFEDD2F01DB7DAA0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22850.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22850.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:A66D25E004E02D075BFFD6B9B8C86EE0B1C9EDE6
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22851.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22851.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Start Everywhere 1.4.2.42 (x64) Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22852.jpg" />
 </div>
 
 

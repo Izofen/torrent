@@ -6,7 +6,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_296.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07AF67822A8912E7816440A8EA662F22178B997E
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1837.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E0FD5A424022977DBF43DE5E6122CBE26CD9CFD7
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3013.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FFF729F4E5180A693000CA92D7231DC9B1C63B67
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4382.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CCB15669F62A863BD769C55F5FD8A18C0BA3FCD3
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4418.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0473270645095C307AD4066A7B835C0EDEDCB6DB
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4461.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B2A7B41F874B40353160BAA1716B1D476085473C
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6657.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F9F19293E3AFE8EDD439471F107BE81B2023DBF9
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7324.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D5E73D6A2D46989730E84B0DD98053EFC388A70A
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8536.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E18CF6492F721996E75419A749420AD99463B6C9
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8687.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:927C31006259307A0DCC469BDBFA5B8A425E5E75
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10770.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [H.264/1080p] 
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13549.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:39D8C97F9EC297DAA6C10DEE8CBC1A60C6CD69A8
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20886.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:ABE72306075B0C9CD1F3B56CC20C8070351E0B01
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21049.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:7A83850933405066EC1BB3632E9F2A87B31EF03F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23336.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23336.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:2B7370346E0C02DD1C497D81E459361DEBCC07E9
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25644.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:03886B75DF29D841CBE7B6E2539E6A28E1DE1D8C
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26519.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:180E2650DB7CD78456DC99DDBD1D893CD48F060D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26548.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:645669BCEB8CEDCA000A113083B33AE81DC8DA65
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27812.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1A327AFC4C6648018E30CA2C7F98AB2A4DBBF23F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28025.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:EE14E8AD60E01D38F18F3A3733870A1904C9C335
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30920.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:00A473627396D262D28E2ACAFF12CF03DE0B3FFD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32619.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:51A14E3BC199DCE0BC632E335C509830F09753C4
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34136.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [AV1/2160p] [4
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37687.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C59E33086395F0DBED77B77DDCBF667D564D24AA
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37790.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ RRR: Рядом ревёт революция / RRR (2022) BDRip [H.265/1080p] [
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39096.jpg" />
 </div>
 
 

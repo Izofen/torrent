@@ -6,7 +6,7 @@ James Day - Frequencies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7198.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DB Cohen - On Target (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7199.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jelly Ellington - Glow (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7202.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Al Jones - Still in Charge (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7204.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:041D2AAADC95EB9474569F742693FA058C1FE2ED
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7205.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7217.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Long Tall Deb & Colin John - Light It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7227.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7239.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Steel Bones - 3 Legs Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7270.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chico Hamilton - The Chico Hamilton Special (1960) 2016, Hallmark [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7424.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Frank Wess & Johnny Coles - Two At The Top (1983 - 1988) 2CD, 2012, Uptown Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7840.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Clark Terry & Chico O'Farrill - Spanish Rice (1966) 2004, Verve [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8244.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Funky House Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8393.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Funky Summer Grooves (SUMMER 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8410.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Jazz & Chill Bestsellers 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8436.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Milt Jackson - Four Classic Albums: Second Set (1956 - 1959) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8531.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mel Torme - My Kind Of Music (1961) 2000, Verve Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8659.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Milt Jackson - In A New Setting (1964) 1999, Verve Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8664.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Summer Full of Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9741.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9745.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - The Best Smooth Female Jazz: Timeless Voices (2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10471.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Joe Bonamassa - Breakthrough (2025) [MP3|320 Kbps] <Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11073.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Sting in Jazz: A Jazz Tribute to Sting (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11185.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Black Lodge (David Lynch's Tribute) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11491.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Eva Carboni - The Blues Archives (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11495.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Secret Garden and the Dusty Man - Keep Looking Up (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11500.jpg" />
 </div>
 
 

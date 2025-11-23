@@ -1,3 +1,77 @@
+###  Публикация: 1705193   (113984) от 07.03.2024
+
+Судьба человека с Борисом Корчевниковым. Юрий Беляев и Татьяна Абрамова (26.01.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113984.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
+
+Гостями (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Юрий Беляев и Татьяна АбрамоваЯзык озвучки: РусскийПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E337553D9C3EC8405D098E042A530FA2E9C59EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705037   (113985) от 07.03.2024
+
+Николай Непомнящий | 100 кошачьих «Почему». Вопросы и ответы (2014) [MP3, Светлана Репина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном популярном издании излагаются вопросы, касающиеся содержания, питания, физиологических особенностей, ухода и оказания первой медицинской помощи кошкам при ранениях, ожогах, химическом и электрическом воздействии и др. Особое внимание уделяется повадкам и объяснению поведения кошек в различных ситуациях. Даются конкретные советы по воспитанию кошек с различным (   Читать дальше...   )Жанр: Познавательная литератураИздательство: Нигде не купишьПродолжительность: 08:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24043C8BF535E89DC39AE3F18104D68A0143F815
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705224   (113986) от 07.03.2024
+
+Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для SQL Server предоставляет вам полностью графический подход к управлению и разработке баз данных. Быстро и легко создавайте, редактируйте и удаляйте все объекты базы данных или выполняйте SQL-запросы и сценарии. Подключайтесь к любому локальному или удаленному SQL-серверу и совместимо с облачными базами данных, такими как Amazon RDS и Microsoft Azure.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57617B01C8C8EBDF88A892CFC862E48BB456038D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704959   (113987) от 07.03.2024
 
 ВИА «ABC» под управлением Ангело Владковича (Югославия) - ABC (1975) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -6,7 +80,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113987.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ VA - Modern Urban Jazz Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113988.jpg" />
 </div>
 
 
@@ -60,7 +134,7 @@ magnet:?xt=urn:btih:2D90203B97957355B27324C550FA3ABAD4701530
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113989.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113990.jpg" />
 </div>
 
 
@@ -114,7 +188,7 @@ SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113991.jpg" />
 </div>
 
 
@@ -139,7 +213,7 @@ magnet:?xt=urn:btih:3186CE22F1A9FAC51CA22C26CD2085568E983573
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113992.jpg" />
 </div>
 
 
@@ -166,7 +240,7 @@ magnet:?xt=urn:btih:2E65F4CF4DB41D487F616C29DFAB6130C259671A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113993.jpg" />
 </div>
 
 
@@ -191,7 +265,7 @@ magnet:?xt=urn:btih:A4F77BD60B53917924C2BC34C2175B5F85668FF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113994.jpg" />
 </div>
 
 
@@ -215,7 +289,7 @@ magnet:?xt=urn:btih:0526EB86210FD7F2A103D54CFBBF564EFB736A65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113995.jpg" />
 </div>
 
 
@@ -239,7 +313,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -264,7 +338,7 @@ Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113997.jpg" />
 </div>
 
 
@@ -291,7 +365,7 @@ Prism 10 v.10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113998.jpg" />
 </div>
 
 
@@ -316,7 +390,7 @@ HWiNFO 7.73 Build 5380 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113999.jpg" />
 </div>
 
 
@@ -340,7 +414,7 @@ magnet:?xt=urn:btih:F1186D82C7818D950B61B992EF4B0DABD86807F5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114000.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ magnet:?xt=urn:btih:931FDF975AE38A8F6460AA81E4019C2FA51F2FA4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114001.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ magnet:?xt=urn:btih:9F02E818C22BDDBAF30D74212E252A46F0753155
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114002.jpg" />
 </div>
 
 
@@ -415,7 +489,7 @@ magnet:?xt=urn:btih:46A145C8A506C196F3D79C7A7BD2FB8647FE5958
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114003.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ Process Lasso Pro 14.0.0.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114004.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ Andry - Skies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114006.jpg" />
 </div>
 
 
@@ -516,7 +590,7 @@ magnet:?xt=urn:btih:F3706AF9AD3C3C99FBC90AB8CCD7CC4885C65BA1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114007.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ Cycling'74 Max 8.6.1 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114008.jpg" />
 </div>
 
 
@@ -567,7 +641,7 @@ magnet:?xt=urn:btih:4F59091B3E03F20AA253E04E894DBCCA0030F23C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114009.jpg" />
 </div>
 
 
@@ -580,83 +654,6 @@ magnet:?xt=urn:btih:4F59091B3E03F20AA253E04E894DBCCA0030F23C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4478B2D3C8F8B65864DD8242B72A573A61BB19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704400   (114010) от 06.03.2024
-
-Magoria - Hollingsworth Mansion (2017) 2024, Butler Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Haunted House (00:02:52)
-02 - New Estate (00:05:08)
-03 - Don't Open The Gate (00:05:11)
-04 - Diamond In The Dark (00:05:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B3DE1317A44F31F9D51E192D486061CDCC79FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704988   (114011) от 06.03.2024
-
-ForkLift 4 v.4.1.1 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114011.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DE9040D1950FB1DD3F6D6A8DFA7B53BFAA0E7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704956   (114012) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Королевская невеста (2013) [MP3, Аркадий Бухмин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Audiobook.
-Сказка немецкого писателя-романтика Эрнста Теодора Амадея Гофмана (1776–1822) «Королевская невеста» (1821). Сказка, написанная с натуры, в которой повествуется о разных людях и обстоятельствах их жизни и приятным образом подготовляется всё то удивительное и весьма диковинное, что содержится в последующих главах…
-Произведения Гофмана наполнены (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: ИДДКПродолжительность: 02:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C3E99740DA8F4BE567306DAEC4915B88E244D2
 ```
 
 

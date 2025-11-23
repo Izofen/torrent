@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38054.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Thing (2002) [Ru/En] (1.2) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38055.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metro Awakening (2024) (1.0 build 16229071) Repack seleZen [VR only]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38058.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CF8A67A9401DB0E89873D598FFCF35D3A047BB4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38059.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38060.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6568E3C928DCA1E4A340DB05C0C0740AAA3C323B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38061.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5D0008AEE5B8D2A81566E1144455EB0A288D1FAA
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38062.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38063.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38064.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:FC63CD6596D82BFE838CCAD2103837A71472A241
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38065.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:BEE5DBE81D8BB8E57E8719095B9811E707D22744
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38066.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:03BD1D3AE559D77A519F692A6C40438F2DCC6287
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38067.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Hot and Erotic (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38068.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:AF7D7C10D765BE7B8CA60748D699887A99A44996
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38069.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:7153FADA1F2613D93697A657D67CC9587AF773A8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38070.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:18182389B3754DA25456EEA0471ACD49D8F9681C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38071.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:BABEF429D94DD6F0CF2770841AB48D464F0B8843
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38072.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Balabolka 2.15.0.881 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38073.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DCC8A662AE656CA2C68971C0CBFBE964BA3FCCC0
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38074.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:4FB953E517D5FA03DB5C6061A1246E8EAF7E0CF3
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38075.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:FF0ABBB8AA044CA12B1FE6102EE0156A34A3C3A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38076.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Thenx v5.6.1 [En] Mod by youarefinished
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38077.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:A9887B2CE05FB31F4B6A514383B78A619A8F0183
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38078.jpg" />
 </div>
 
 

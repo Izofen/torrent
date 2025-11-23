@@ -6,7 +6,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4456.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5E43B1A3187AF8988913699FDF53E744BC081144
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4839.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:67E35FC3D7A90EFAABC5B047F4D9376356D75C18
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5285.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7149.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7756.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8611.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9022.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9827.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9989.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11065.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11634.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11806.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12375.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7DFB7AD73805164DE1319E08D1F9BC5D173D11E6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12502.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12578.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:B1070E7D22F4E6B26865DF1516FF906268D7E314
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12757.jpg" />
 </div>
 
 

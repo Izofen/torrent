@@ -1,3 +1,81 @@
+###  Публикация: 1745338   (105092) от 25.08.2024
+
+Process Lasso Pro 14.3.0.58 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0419120F1FCDCEB9712657FE95106C5FD2AEEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745242   (105093) от 25.08.2024
+
+Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock/AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Autumn's Dream — хард-рок-группа, образованная в 2002 году вокалистом и клавишником Микаэлем Эрландссоном из Швеции и гитаристом Энди Малечеком из немецкой хард-рок-группы Fair Warning.2003 - Last Autumn's Dream
+2004 - Last Autumn's Dream II
+2005 - Winter In Paradise
+2006 - Saturn SkylineЖанр: Melodic Hard Rock, AORПродолжительность: 13:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745251   (105094) от 25.08.2024
+
+Paul Carrack - How Long (Has This Been Going On?) [Greatest Hits 50th Anniversary Collection, 1974-2024] (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Long (2024 Version)
+02. Groovin’ (2014 Remaster)
+03. Eyes of Blue (2014 Remaster)
+04. Satisfy My Soul (2014 Remaster)(   Читать дальше...   )Жанр: Blues, Soul, Pop RockПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFE63CB5D9F3F1DCEFD6F0B4D48D56D79A83CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745325   (105095) от 25.08.2024
 
 XYplorer 26.30.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +84,7 @@ XYplorer 26.30.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105095.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105096.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Colin James - Chasing The Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105097.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105098.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105099.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ magnet:?xt=urn:btih:06FD8B9C3A34288C11DE491AFECE2049528F1E78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105100.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105101.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105102.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ magnet:?xt=urn:btih:4CD081E9601F4F75240122EA45E17F8EE68C3479
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105103.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ Aiseesoft Video Converter Ultimate 10.8.68 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105104.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105105.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ StartAllBack 3.8.6 build 5143 (DC-22-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105106.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ PDF Shaper Ultimate 14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105107.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ Extreme Picture Finder 3.66.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105108.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ Nomad Factory - British Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105109.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ magnet:?xt=urn:btih:043AF9391E26364406C1A84DAF1043EE6C26EAA4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105110.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ Extreme Picture Finder 3.66.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105111.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ magnet:?xt=urn:btih:856CEA154CC48F480AD72E11A49D850CF860EB5C
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105112.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ PrivaZer Pro 4.0.92 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105113.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ WinTools.net Premium 24.8.1 Classic / Professional / Premium RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105114.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ magnet:?xt=urn:btih:4DA63FA4F273100D42BE5A7865175C3A4A23D5DF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105115.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105117.jpg" />
 </div>
 
 
@@ -566,81 +644,6 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by Dodakaedr [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:494C5617E81FE178FE273A121EBD747B652D03AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745265   (105118) от 25.08.2024
-
-Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 2024, Chrysalis Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Indie Rock, Alternative Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Million Years B.C. (Live in Portsmouth 19/10/1993) [00:00:59]
-02. Spoilsports Personality Of The Year (Live in Portsmouth 19/10/1993) [00:03:59]
-03. Mid Day Crisis (Live in Portsmouth 19/10/1993) [00:03:15]
-04. My Second To Last Will And Testament (Live in Portsmouth 19/10/1993) [00:02:51](   Читать дальше...   )Жанр: Synth-pop, Indie Rock, Alternative RockПродолжительность: 3 CD, 02:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2D247F68934EE82689556B88FC37940EB76738
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745328   (105119) от 25.08.2024
-
-Сообщение от мамы / Nachricht von Mama (2022) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмисерийная драма «Сообщение от мамы» рассказывает историю молодого вдовца, потерявшего жену из-за рака. Перед смертью жена оставила ему и их детям сотни видеообращений. «Я смирилась с тем, что умираю. Но не с тем, что оставляю вас одних. Благодаря этим видео я все ещё немного с вами, если хотите», — это одно из многих видеопосланий, которые Элли записала для (   Читать дальше...   )Производство: Германия / Pyjama PicturesЖанр: драмаРежиссер: Феликс Биндер, Sabrina RösselАктеры: Джессика Гинкель, Голо Ойлер, Матильда Смидт, Клаудиа Решель, Юлия Голдберг, Marlene Morreis, Тим Оливер Шульц, Карла Ньине, Люк Мэтт Рёнтген, Matteo Hilterscheid и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1A9F757C197D4A9775EDCFE91257157DD30E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745313   (105120) от 25.08.2024
-
-Vivaldi 6.8.3381.57 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37EA1B7977F88C023A9318753FB87BA516F968B
 ```
 
 

@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25146.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:370F3BD183C0EDA4C425F8AFB842231AE24B1F0D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25147.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2ED02070820B4DA05F782DB005F4BB56CD81D70D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25148.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A63F06A864ECBD14FD7EECAF68F623683A25C44B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25149.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25149.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A63F06A864ECBD14FD7EECAF68F623683A25C44B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25150.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25150.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DAB58A720C910937A16B86026FE70ADC54A9B4C1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25152.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7736DFF1093A5AD80E42BB8EC499F5EDE95E7CFB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25153.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25153.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25154.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:382AE887C877C5554CD4C0D7CAF65CA179CFAEE4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25155.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ v2rayN 7.10.4 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25157.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25157.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:86D59269A26CFA9BFEB1549174147BDFF6F489E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25158.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:86D59269A26CFA9BFEB1549174147BDFF6F489E4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25159.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3DDA9FC28EFADE60DBA450B24AC2D3C4976EB6A4
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25160.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:748F8B5B8E8E9A28652DF4D72B380A0F6BB8A7D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25161.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25161.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E74488944D1600CA62B387684FED480D5AE7048C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25163.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25163.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:DD09C9493127EAB44C223B11FDB7678CF2A4AFBA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25164.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25164.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ UltraUXThemePatcher 4.4.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25165.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25165.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:FD5608BDD54062E89A886020D5640AF168FD19B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25166.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25166.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:FD5608BDD54062E89A886020D5640AF168FD19B0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25167.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25167.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:044A067F8024B1A681525465037FBA22650836AB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25168.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25169.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:163237E52CCD443409EF39CA06DC7637DF81ACA9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25170.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:163237E52CCD443409EF39CA06DC7637DF81ACA9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25171.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Season 2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25172.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6DC16B1072BF503C2DA7828207FDC9CC40DFD0DC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25173.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Codeby | Paranoid Rebirth — курс по анонимности и безоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25174.jpg" />
 </div>
 
 

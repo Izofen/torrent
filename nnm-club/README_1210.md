@@ -6,7 +6,7 @@ Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31813.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31814.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6863FEE92458BC817494A130D52E44BBE1C2FDF4
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31815.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31816.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FurMark 2.5.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31817.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Chicane - Thousand Mile Stare: The Collectors Edition (2CD) (2011) [MP3|320 kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31818.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ RUTUBE - видео, шоу, трансляции 29.11.1.TV-androidtv [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31819.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31820.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C23BE1CA4AF420A3762A9DA24AB0B2F901B13568
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31821.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:81D5A50EB732D62DFDEB70784D6433D178143E9A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31822.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Room Arranger 10.0.1.714 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31823.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31824.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31825.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31826.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:339890C04B7ADD981ED192F0BB82489D447F884F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31827.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Beach Invasion 1945 - Pacific (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31828.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:6F38F20A3D745F97691A5A5B2197EB2AD44D170D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31829.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Antivirus Removal Tool 2025.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31830.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31831.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adventure Allies (2025) [Ru/Multi] (build 16612391) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31832.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Studio Guti | Master Poses [17 книг] (2024) [PDF] [EN]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31833.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ GRID™ Autosport v1.10RC10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31834.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ NVIDIA готовит видеокарту, для питания которой
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31835.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ NVIDIA готовит видеокарту, для питания которой
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31836.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:7075C9A6784EE52C1D21F19902E18765583A523A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31837.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:BA1393567F0DC2B0CD603ED8B00F19DE5DC943E2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31838.jpg" />
 </div>
 
 

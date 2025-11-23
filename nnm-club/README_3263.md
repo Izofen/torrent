@@ -1,3 +1,84 @@
+###  Публикация: 1749330   (104520) от 13.09.2024
+
+Solitude Aeturnus - Through The Darkest Hour, Downfall (1994-1996) Compilation, Reissue, 2021, Back On Black [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Through The Darkest Hour:
+1. Falling 04:07
+2. Haunting the Obscure 05:32
+3. The 8th Day: Mourning 06:07(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065D1CF6036605A6207A597DA0250438DD27619B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749109   (104521) от 13.09.2024
+
+VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Henlich - Yellow Moon (4:21)
+02. Kim Levien - All My Love (4:10)
+03. Robin Flam - When Eyes Meet (4:10)
+04. Don Leviev - Black and Blue (3:58)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E524DEFEF3F8BE9CE56821E216887A56814D1CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749170   (104522) от 13.09.2024
+
+London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - House [3:11]
+02 - Fakest Bitch [4:20]
+03 - You And I [5:01]
+04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DF294D122F7B2C93C736B8AC3D63E67E83DAF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749260   (104523) от 13.09.2024
 
 VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +87,7 @@ VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104523.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104524.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104525.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104526.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104527.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104528.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104529.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ magnet:?xt=urn:btih:493DD44C9A25F3C2CB4AA0D564ACE3105FB5BDA2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104530.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ London Grammar - The Greatest Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104531.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Chaos Unleashed - I Am Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104532.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Witchz - Drugz2feel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104533.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Big Big Train - A Flare On The Lens (Live in London 2023) (2024) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104534.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ TooEvil - Lepers and Lace (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104535.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ magnet:?xt=urn:btih:F54B8EED94CA03E4645A5292DC9990CA090DCE61
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104536.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104537.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 2 (1990) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104538.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ Jim Hall And Friends - Live At Town Hall, Vol. 1 (1991) MusicMasters [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104539.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ Skelethal - Within Corrosive Continuums (2024) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104540.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ The Mourning - Hush (2024) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104541.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104542.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:CB669FED220E357672AB604BBA974838C224F5DC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104543.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104544.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104545.jpg" />
 </div>
 
 
@@ -602,87 +683,6 @@ Symphony of Unity - The Countdown to Tomorrowland Brasil, São Paulo, Brazil (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D66867FAC16E299DDB719971DB9C71C418FD589B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748612   (104546) от 10.09.2024
-
-Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do Your Want Fire?
-2. The Escape (Liberation Pt. III)
-3. She's This Way
-4. Hide Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16589225808CDB784A36CB0DFF6A947983D0AF4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748472   (104547) от 10.09.2024
-
-VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat System - What's Going On (In Your Mind)
-02. Amen U.K. - Passion
-03. Celvin Rotane - Back Again
-04. U 96 - Seven Wonders(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBE48B644BA1AE6189817CBE089FE2BE76B52EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748210   (104548) от 10.09.2024
-
-VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clueless - Don't Speak
-02. Party Jam - Don't Stop The Music
-03. N. E. O. N. - Living In The Jungle
-04. Rytmica - Swing Da Thing(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D26498D5C8D5E2A34050D002BC12F7D076B68B0
 ```
 
 

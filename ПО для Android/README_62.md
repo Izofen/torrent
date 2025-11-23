@@ -1,3 +1,27 @@
+###  Публикация: 1594210   (178535) от 30.11.2022
+
+Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monefy Pro - Трекер бюджета - программа для учёта финансов. Она подойдёт для отслеживания денежных потоков для одного человека или семьи средних размеров по численности. Статьи поступления и расхода разделённые по разным категориям, сферам и направлениям помогут не запутаться и получать только правильное представление о существующей картине в кошельке. Даже если (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 29.11.2021Разработчик: ReflectlyПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594360   (178624) от 30.11.2022
 
 Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
@@ -6,7 +30,7 @@ Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178624.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178624.jpg" />
 </div>
 
 
@@ -22,6 +46,54 @@ magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428676   (178956) от 03.12.2020
+
+Пистолеты v8.5.4 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержится описание пистолетов. Обширный каталог пистолетов различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428674   (179030) от 03.12.2020
+
+Винтовки v8.5.4 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержится описание винтовок. Обширный каталог винтовок различных стран мира с подробным описанием.Тип издания: Пиратка (Full)Релиз состоялся: 29.11.2020Разработчик: Kirill SidorovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9D39ED6990304BE41C37A5E12BBD300A7D1E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593870   (179683) от 28.11.2022
 
 WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
@@ -30,7 +102,7 @@ WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179683.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179683.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179866.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Microsoft Office 365 (Mobile) 16.0.15726.20196 Mod by StephenP [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180086.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180405.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180405.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180884.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180884.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:D98FFC132E6A92F25FB9D533AF57C001B42B3B42
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180955.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181028.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181028.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181058.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181058.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181156.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181156.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181236.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181236.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181293.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181293.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181442.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:2ABB0C4C060338D069E5345D776F59EA2032709A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181520.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181520.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:C77C2FCCF7E381873353F76E057C8424D3669C0F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181539.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181539.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181564.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181564.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181911.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181911.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181978.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181978.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182017.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182017.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182062.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182062.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182078.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182078.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_183842.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_184486.jpg" />
 </div>
 
 
@@ -547,78 +619,6 @@ DNS Changer Android — это первый уровень интернет-бе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820E0A740CC2D5AE2378965FCEB5CDF4BD231D51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426911   (184954) от 26.11.2020
-
-Ultimate Background Eraser v2.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончательный Фоновый ластик обеспечивает быстрый и легкий способ изменить фотографии фона. Просто нажмите на область, которую вы хотите удалить, и автоматический ластик сделает остальную работу за вас. Вы также можете удалить ваши фотографии фона вручную нажатием пальца или с помощью Lasso (Image нарезка) инструмента. Удалить фон из ваших фотографий и сохранить (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 29.02.2020Разработчик: Iris Studios and ServicesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591934   (185222) от 20.11.2022
-
-РИА v4.1.55 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185222.jpg" />
-</div>
-
-
-###  Подробнее
-
-РИА Новости — это оперативная информация о самых резонансных и важных событиях в России и в мире: оборона и безопасность, ключевые события и встречи мировых лидеров, курсы валют и цены на нефть, новости бизнеса, катастрофы и происшествия, новости науки и техники, региональные новости городов (события в Москве и события в Санкт-Петербурге). Официальное новостное приложение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 05.10.2022Разработчик: Медиагруппа «Россия сегодня»Поддерживаемая ОС: Android 5.0-12Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A865B8BC1CFA7821748D54D838A67E3CFBF129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103766   (185667) от 25.11.2020
-
-Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устройство угрожает отключением, потому что вы забыли зарядить его перед выходом из дома? Вы оставляете телефон включенным надолго, чтобы зарядить его  до уровня 100%, потому что просто не знаете, когда он зарядится полностью? Нужно знать, что такие условия зарядки могут с течением времени негативно отразиться на работоспособности батареи вашего устройства? Вам нужно (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 24.03.2020Разработчик: DigimasterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B9FDCFD40478868C444A0122926C85ADE62A49
 ```
 
 

@@ -6,7 +6,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27255.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27257.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27258.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27259.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dr Livesey Rom And Death Edition (2023) [Ru/Multi] (Build 15093803) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27262.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27319.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27333.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (0.6.2) Repack EXROW [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27346.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27353.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Heroine's Quest: The Herald of Ragnarok (2014) [Ru/Multi] (1.2.9.2/dlc) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27424.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27425.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DeathOmen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27445.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27450.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27450.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27451.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27457.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27463.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27467.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.31/dlc) Repack Let'sРlay [Fleet Command Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27491.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27496.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27509.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27515.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.3.105740/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27516.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack seleZen [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27521.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27521.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27527.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27527.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Get Tilted! :) (2025) [Ru/Multi] (1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27531.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27531.jpg" />
 </div>
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1195399   (143396) от 28.12.2017
+
+Дем Михайлов | Господство кланов (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143396.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Господство кланов» – первая книга одноимённого цикла по «Миру Вальдиры». Главный герой Ростислав Грохотов работает в частной компании, а всё свободное время проводит, погружаясь в виртуальную реальность – игровое пространство мира Вальдиры. Виртуальные приключения кажутся герою гораздо интереснее реальной повседневности. Меж тем фирма терпит банкротство, и Ростислав (   Читать дальше...   )Жанр: Боевая фантастика, боевое фэнтези, LitRPGПродолжительность: 10:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9921C4B58FFB1DDCD9524A08741A1FA28B57C4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589431   (143397) от 17.12.2012
+
+Erik De Koning Mix - Greece 2000 (2008) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Drives - Greece 2000 (Erik De Koning Remix) [07:25]Жанр: TranceПродолжительность: 00:07:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272168   (143398) от 27.12.2018
+
+Wondershare Recoverit 7.4.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (был Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47BC05BA66B93DD3DC4AE950EE166D957AC4080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195048   (143400) от 28.12.2017
+
+AIMP 4.50 Build 2058 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143400.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0921E00B5D02539BD1699AE500769172DDB69936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678671   (143401) от 22.11.2023
+
+Прокол / Blow Out (1981) BDRip [H.264/720p] [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда звукорежиссёр Джек записывал звуковые эффекты для нового фильма, он стал свидетелем падения в реку потерявшего управление автомобиля и спас из затонувшей машины девушку по имени Салли. Ехавший с ней мужчина погиб. Джек тщетно пытается убедить полицию, что одновременно со звуком лопнувшей покрышки слышал звук выстрела. Помощник погибшего, оказавшегося известным (   Читать дальше...   )Производство: США, Filmways PicturesЖанр: драма, криминал, детектив, триллерРежиссер: Брайан Де ПальмаАктеры: Джон Траволта, Нэнси Аллен, Джон Литгоу, Дэннис Франц, Питер Бойден, Курт Мэй, Джон Акино, Джон МакМартин, Дебора Эвертон, Дж. Патрик МакНамара, Мисси Кливлэнд, Роджер Уилсон, Лори-Нэн Энглер, Синди Мэнион, Мисси О’ШиПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163039D515B26FC4643021CA25A3D7CD5AD85F12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520200   (143402) от 27.12.2021
+
+WizTree 4.07 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143402.jpg" />
+</div>
+
+
+###  Подробнее
+
+WizTree - небольшая и полезная утилита для определения файлов и папок, которые занимают много пространства на жестком диске. Особенностью данного приложения является его высокая производительность анализа дискового пространства благодаря прямому взаимодействию с главной файловой таблицей, которая содержит подробную информацию о содержимом носителя.Интерфейс программы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D1357A968C4F8376386FD04243F9203513FF09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969923   (143404) от 29.12.2015
 
 Hibike! Euphonium / Sound! Euphonium / Играй, эуфониум! [2015, TV, 13 ep + 7 SP] BDRip Hi10p 720p Raw+Rus x2(ext)
@@ -6,7 +151,7 @@ Hibike! Euphonium / Sound! Euphonium / Играй, эуфониум! [2015, TV, 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143404.jpg" />
 </div>
 
 
@@ -30,7 +175,7 @@ MarginNote 3 Pro v3.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143405.jpg" />
 </div>
 
 
@@ -56,7 +201,7 @@ Harllequin - Hellakin Riders (2012) [WavPack|Lossless]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143406.jpg" />
 </div>
 
 
@@ -89,7 +234,7 @@ CGMA, Anthony Vaccaro | Organic World Building in UE4 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143408.jpg" />
 </div>
 
 
@@ -113,7 +258,7 @@ magnet:?xt=urn:btih:61BE025C97D3E2E9D00D095BEF7BDC39B44FFDFA
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143409.jpg" />
 </div>
 
 
@@ -138,7 +283,7 @@ magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143410.jpg" />
 </div>
 
 
@@ -162,7 +307,7 @@ magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143411.jpg" />
 </div>
 
 
@@ -186,7 +331,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143412.jpg" />
 </div>
 
 
@@ -219,7 +364,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143413.jpg" />
 </div>
 
 
@@ -243,7 +388,7 @@ Windows and Office Genuine ISO Verifier 11.12.44.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143415.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ magnet:?xt=urn:btih:5AAB72B4AB9FC19B39CC556587BA465EBCC0A9C9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143416.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143417.jpg" />
 </div>
 
 
@@ -320,7 +465,7 @@ magnet:?xt=urn:btih:42485072C2A3495FF5AD8EF3FC1C351952F5A1B6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143418.jpg" />
 </div>
 
 
@@ -344,7 +489,7 @@ Mystic Circle - Open The Gates Of Hell (Digipack 12 - track version) (2003) [Wav
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143419.jpg" />
 </div>
 
 
@@ -377,7 +522,7 @@ FontExpert 2021 18.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143421.jpg" />
 </div>
 
 
@@ -401,7 +546,7 @@ MAGIX Sound Forge Pro Suite 15.0 Build 161 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143422.jpg" />
 </div>
 
 
@@ -425,7 +570,7 @@ XnView MP 1.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143424.jpg" />
 </div>
 
 
@@ -449,7 +594,7 @@ magnet:?xt=urn:btih:ED5F7BE6075B2187A66C795DD48F4645CEE0E535
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143425.jpg" />
 </div>
 
 
@@ -474,7 +619,7 @@ magnet:?xt=urn:btih:A746BA192675F8A2A92EDEAA3ACB92748C5849A6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143426.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ magnet:?xt=urn:btih:EE408199093304FFDE03642A464C85238D4FA71A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143427.jpg" />
 </div>
 
 
@@ -512,155 +657,6 @@ magnet:?xt=urn:btih:EE408199093304FFDE03642A464C85238D4FA71A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD4AE0A963DDD6CAA7C0843E6DFEC294AE66C2D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677854   (143428) от 22.11.2023
-
-Зази в метро / Zazie dans le metro (1960) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143428.jpg" />
-</div>
-
-
-###  Подробнее
-
-комедия по вышедшему в 1959 году одноимённому роману Раймона Кено... Зази приезжает в Париж вместе с матерью, которая сразу отправляется к своему другу, оставив дочь на попечение дяди Габриэля. Тот показывает девочке город и даже забирается с ней на Эйфелеву башню. Но Зази ничего не интересует, кроме метро, а оно, как назло, закрыто из-за забастовки. И тогда юная (   Читать дальше...   )Производство: Франция, Италия, Nouvelles Éditions de Films, LocafilmsЖанр: фэнтези, комедияРежиссер: Луи МалльАктеры: Катрин Демонжо, Филипп Нуаре, Юбер Дешам, Карла Марлье, Анна Фрателлини, Витторио Каприоли, Жак Дюфило, Ивон Клеш, Одетт Пике, Николя Батай, Антон Робло, Марк Делшниц, Жак Гёзи, Кристин Ховард, Луис ЛаЛэйннПеревод: профессиональный многоголосый, профессиональный одноголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E996DE86EBA29C0BBD851FF54FD6916852E05970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969935   (143429) от 29.12.2015
-
-Shakra - The Best (2015) 2CD Compilation  [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil In Me
-02. I Do It My Way
-03. Welcome Home Again
-04. And Life Begins(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BB01FF49DBCF367891761537DAAB56F18CE5A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590419   (143430) от 17.12.2012
-
-Gilrs Wallpaper (16.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0016C7315115676DD29B0629D490E8AB14D34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435442   (143431) от 28.12.2020
-
-О.Г. Быковский и др. | Сварочное дело (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основные способы сварки, резки и контроля качества сварных швов и соединений. Приводятся рекомендации относительно выбора материалов, технологии и техники сварки и резки, особенностей использования современного оборудования, мероприятий по организации и охране труда при этих видах металлообработки.
-Соответствует ФГОС СПО последнего поколения. Рекомендовано (   Читать дальше...   )Жанр: Материаловедение, технологии материаловФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957F2A6126808C012ACA80EDE3D0F7F85C8989B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520353   (143434) от 27.12.2021
-
-Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © DxOПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA50B516C81C76B8A4C3A22EFB68C37DD3F8480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348493   (143435) от 28.12.2019
-
-Наталия Антонова | Туфелька для призрака (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143435.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новогодние праздники в дом к частному детективу Мирославе Волгиной приходит Андрей Лукин и требует отыскать… призрака! В далекой юности он провел ночь с девушкой Зинаидой и только после узнал, что она умерла, рожая его ребенка. Но теперь Андрей уверен, что на днях видел Зину на вечеринке. Приблизиться к ней ему не удалось – девушка сбежала, потеряв туфельку. Мирослава (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300EC150B4A8A6ED6361E78365A65AAF94162735
 ```
 
 

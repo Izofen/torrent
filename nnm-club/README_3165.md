@@ -1,3 +1,84 @@
+###  Публикация: 1765618   (101398) от 13.12.2024
+
+Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Wind of Destiny (0:58)
+02. What's In Thy Command (3:54)
+03. Along the Crusade (3:57)
+04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765524   (101399) от 13.12.2024
+
+Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted (5:14)
+02. Awake (5:02)
+03. Rapturous Me (3:48)
+04. Gotta Try (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F9DDBE871E8B7A64F6F03ADFD0AEE945BA28E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765374   (101400) от 13.12.2024
+
+Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Princess of Evil [3:19]
+02. Slightly Brightly [2:38]
+03. Deep People [3:04]
+04. The Count on Rush Street [3:10](   Читать дальше...   )Жанр: Cool, Bop, West Coast JazzПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765513   (101401) от 13.12.2024
 
 Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
@@ -6,7 +87,7 @@ Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101401.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:D46B011E0DDEF7523293563F714684261E6ADE17
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101402.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:B271AB66E98A5FF295141F5EABD42A020B28A44D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101403.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:E827E4D0BD801B83B0F253696DAF02C03AFF60AF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101404.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:E7365A239369C479C3118882313F148532A6408E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101405.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ magnet:?xt=urn:btih:D1C42C28AD7D8F8CBA861699055ACEAC36D2B269
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101406.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ magnet:?xt=urn:btih:C6DA03FDE8B654EF2ECBFBEA91988C81AAD9D82D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101407.jpg" />
 </div>
 
 
@@ -179,7 +260,7 @@ Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101408.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101409.jpg" />
 </div>
 
 
@@ -233,7 +314,7 @@ Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101410.jpg" />
 </div>
 
 
@@ -260,7 +341,7 @@ VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101411.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101412.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ magnet:?xt=urn:btih:9853C8B851DF5E1052766752A08CA240AC8CF63D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101413.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ David Hasselhoff - You Are Everything (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101414.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ magnet:?xt=urn:btih:660552DF5FE1E872DE7285FF79B6437E0F758D4E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101415.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ PowerDirector – Video Editor v14.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101416.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ VA - Black Hole Trance Music 12-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101417.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ magnet:?xt=urn:btih:EEA9B00F4B8A25A6E69ECC4FBE271A1D7618B3D8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101418.jpg" />
 </div>
 
 
@@ -464,7 +545,7 @@ magnet:?xt=urn:btih:C0BA267F69519940DAC86634B977759800AE1BAB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101419.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ Magic Kingdom - Blaze Of Rage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101420.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ VA - Alter Ego Records - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101421.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ Volturian - Studio Albums (2 releases) (2020-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101422.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ VA - Armin van Buuren - A State Of Trance 1203 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101423.jpg" />
 </div>
 
 
@@ -581,79 +662,6 @@ VA - Armin van Buuren - A State Of Trance 1203 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E88DD85471077DFA820937EAEA86BCDB0DAA3670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765616   (101424) от 13.12.2024
-
-Реми Майснер. Желчно-невротическая беседа о вреде всяких революций. Часть 1-я (2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш уютнокухонный творческий коллектив смотрит и разбирает контрреволюционный ролик "Бездна. Как мы все потеряли. Империя без автомобилей." за авторством Стаса Асафьева.
-Вечно живой Ильич учит нас: один дурак может нагородить столько чуши, что и сто мудрецов устанут разбирать. Весь стасиковый цикл роликов О Вреде Революций мы разобрать не успели, ибо за (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, экономикаЯзык озвучки: РусскийПродолжительность: 05:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D65F0DD0809DEE935506841878A98B7C70E3C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765505   (101425) от 13.12.2024
-
-Лучшее рождественское представление на свете / The Best Christmas Pageant Ever (2024) WEB-DLRip  [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не готов к хаосу и сюрпризам, которые происходят, когда шесть самых непослушных детей городка срывают ежегодный Рождественский спектакль.Производство: США, Канада / Lionsgate, Media Capital Technologies, Kingdom Story CompanyЖанр: комедия, семейныйРежиссер: Даллас ДженкинсАктеры: Stanlee Arches, Ванесса Бенавенте, Мариам Бернштейн, Себастьян Биллингсли-Родригес, Kamal Chioua, Беатрис Шнайдер, Сара Констибл, Mason D Nelligan, Мэттью Лэмб, Joshua DownesПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:01Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765420   (101426) от 13.12.2024
-
-Журнал | Homebuilding & Renovating №1 (2025) [PDF][EN]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A07813088D812E3BC89CB9F80D67AA74FBAEA46
 ```
 
 

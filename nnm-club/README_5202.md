@@ -1,3 +1,183 @@
+###  Публикация: 1674774   (160678) от 07.11.2023
+
+Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignem Purificat Lilitu
+02. Fearless Dominance
+03. Opus ad Errantem (instrumental)
+04. De verloren tijd(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FCF931D2EDFC1572BFC9982E76308600138022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674975   (160679) от 07.11.2023
+
+MWeb Pro 4.5.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160679.jpg" />
+</div>
+
+
+###  Подробнее
+
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BFB831AC489273BDE4E6FFD3849BFE992425DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674989   (160680) от 07.11.2023
+
+Slidepad 1.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160680.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB157676EB9D9250118218FB6A09712AF9D0FC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674986   (160681) от 07.11.2023
+
+SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160681.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD0EFC197D23BD832553264299A28B1B00BBD49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674779   (160682) от 07.11.2023
+
+Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IntroЖанр: Thrash MetalПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAFEB35F5BA9B8E3A49E7179D6C2ACACE62C00D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674861   (160683) от 07.11.2023
+
+Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poseso 03:47
+02. Sincronizado 04:04
+03. Mensaje oculto 03:19
+04. Provocacion 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03557961D6A9C5D46CDE4B02C7C43F775E09A4C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674859   (160684) от 07.11.2023
+
+Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Live
+02. The One You Are
+03. Enjoy!
+04. Fly Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D850B76CB30F6F805603A1E921CE137B3FF82A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674899   (160685) от 07.11.2023
 
 GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
@@ -6,7 +186,7 @@ GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160685.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ Boxy SVG 4.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160686.jpg" />
 </div>
 
 
@@ -57,7 +237,7 @@ Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160687.jpg" />
 </div>
 
 
@@ -84,7 +264,7 @@ Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160688.jpg" />
 </div>
 
 
@@ -111,7 +291,7 @@ Saboter - Mankind Is Damned (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160689.jpg" />
 </div>
 
 
@@ -138,7 +318,7 @@ Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160690.jpg" />
 </div>
 
 
@@ -165,7 +345,7 @@ Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160691.jpg" />
 </div>
 
 
@@ -192,7 +372,7 @@ WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160692.jpg" />
 </div>
 
 
@@ -219,7 +399,7 @@ Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160693.jpg" />
 </div>
 
 
@@ -246,7 +426,7 @@ Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160694.jpg" />
 </div>
 
 
@@ -273,7 +453,7 @@ Cookie 7.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160695.jpg" />
 </div>
 
 
@@ -298,7 +478,7 @@ FSNotes 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160696.jpg" />
 </div>
 
 
@@ -322,7 +502,7 @@ Red Harvest - New World Rage Music (2001) Promo CD [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160697.jpg" />
 </div>
 
 
@@ -349,7 +529,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160698.jpg" />
 </div>
 
 
@@ -374,7 +554,7 @@ HateFrame - Sign of Demise (2005) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160699.jpg" />
 </div>
 
 
@@ -401,7 +581,7 @@ Skarz - What Remains (2020) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160700.jpg" />
 </div>
 
 
@@ -428,7 +608,7 @@ Archicad 27 build 3001 + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160701.jpg" />
 </div>
 
 
@@ -453,7 +633,7 @@ magnet:?xt=urn:btih:4CC00F88DCBD4064D7B08093271A9E74A634A3B2
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160702.jpg" />
 </div>
 
 
@@ -477,7 +657,7 @@ magnet:?xt=urn:btih:3A4CD5DBDE10A5FDDC716A89D69C3B4A65EBD3BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160703.jpg" />
 </div>
 
 
@@ -491,178 +671,6 @@ magnet:?xt=urn:btih:3A4CD5DBDE10A5FDDC716A89D69C3B4A65EBD3BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C118599783302BA49335809E537D1B4A07E1AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 115930   (160704) от 06.11.2023
-
-Эпидемия - Полная дискография (6 Альбомов) (1998 - 2007) [FLAC|Lossless]<Power Metal>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. Звёздный портал
-03. Владыки гор
-04. Исповедь первого Бога(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3C5A4C4308EDC1F399E17517474EAEBABEF396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654565   (160705) от 06.11.2023
-
-Зимний король / The Winter King (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал «Зимний король» – это экранизация знаменитой трилогии Бернарда Корнуэлла о короле Артуре и рыцарях Круглого стола. События разворачиваются в V веке в Британии. Королевство подвергается постоянным нападениям жестоких и алчных саксов, которые грабят деревни, насилуют женщин и похищают людей в рабство. Юный Артур Пендрагон отважно встает во главе бриттов, чтобы (   Читать дальше...   )Производство: США, Великобритания, Bad Wolf, One Big PictureЖанр: фэнтези, драмаРежиссер: Отто Батхёрст, Фэррен Блэкберн, Ану МенонАктеры: Йен де Кестекер, Стюарт Кэмпбелл, Валин Кэйн, Стивен Элдер, Саймон Мерреллс, Мэтт Мелла, Элли Джеймс, Кен Нвосу, Tatjana Nardone, Эндрю Гауэр, Натаниэль Мартелло-УайтПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40F16218B053ACAD365873DC1ABF5C9A9807626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674360   (160706) от 06.11.2023
-
-До звезды (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсолютно вдруг, абсолютно неприметного человека, с «неполным высшим», собираются отправить во внеземную цивилизацию, в качестве опытного образца. Этого требуют инопланетяне с корабля, который завис над землей.
-Что успеет сделать простофиля за оставшиеся на Земле несколько дней? О чем в условиях абсолютной секретности поговорит с родными, друзьями? А что сможет поведать (   Читать дальше...   )Производство: Россия / Творческий центр Андрея НосковаЖанр: комедияРежиссер: Андрей НосковАктеры: Нина Усатова, Юрий Гальцев, Александр Тютрюмов, Андрей Носков, Андрей Зибров, Софья Юрко, Светлана Щедрина, Андрей Шарков, Игорь Головин, Наталья КутасоваПеревод: Не требуется (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1610A09CE35B3DBF9E06ABDA30D2C5D558704665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674346   (160707) от 06.11.2023
-
-Солдат / Jawan (2023) WEBRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160707.jpg" />
-</div>
-
-
-###  Подробнее
-
-История человека, который мстит коварному торговцу оружием, подставившему и погубившему его родителей.Производство: Индия / Red Chillies EntertainmentЖанр: Боевик, криминалРежиссер: АтлиАктеры: Шах Рукх Кхан, Наянтара, Виджай Сетхупатхи, Дипика Падукон, Санджай Датт, Приямани, Санья Малхотра, Гириджа Оак, Лухар Кхан, Санджита БхаттачарьяПеревод: Двуголосый любительский (Crazy Cat studio)Язык озвучки: Русский, хиндиСубтитры: Русские, английскиеПродолжительность: 02:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F69D92E4498CF99B1951DEE1D5C1B8BAD391A13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226154   (160708) от 06.11.2023
-
-Моральный кодекс (Сергей Мазаев) - 8 Альбомов (1990-2010) [APE/FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: RockПродолжительность: 1:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C25B6413D6B4B3940480068BC50B695FC4AB73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674715   (160709) от 06.11.2023
-
-Дмитрий Колисниченко | Командная строка Linux (2023) [PDF, DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены задачи, которые выполняются из командной строки операционной системы Linux. Объясняется, как попасть в командную строку, работать в консоли, настраивать систему с помощью программ, обладающих только текстовым интерфейсом. Описаны особенности файловой системы Linux, наиболее полезные команды для работы с текстом, сетью и Интернетом, а также команды системного (   Читать дальше...   )Жанр: АдминистрированиеИздательство: БХВ-ПетербургФормат: PDF, DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1C059E30AD35502F3D5BCF0786E9F3452D9666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638464   (160710) от 06.11.2023
-
-Tiny Thor (2023) [Multi] (6125) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiny Thor предлагает 16-битную графику и геймплей, сосредоточенный на использовании Мьёльнира, который ведет нашего норвежского героя через сложные уровни, полные всевозможных препятствий. В игре присутствует удобное управление, динамичность и нотки ностальгии. «Сегодня твой день рождения, Тор. Бери Мьёльнир, молот, который никогда не упускает свою цель» - Один. (   Читать дальше...   )Тип издания: LicenseРазработчик: Asylum SquareЖанр: Action, Adventure, IndyЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE75C793CAAA31E3AC31A9DC3870A20D2375ED49
 ```
 
 

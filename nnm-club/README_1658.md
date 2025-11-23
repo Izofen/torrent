@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FAD0ADA27144A2098BF796ABB522E750EA06F0D4
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43464.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9F8012B4C609C0F8E5209DF724125D87E9CCFA04
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43465.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Disk Drill 5.6.912 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43466.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43467.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8F1867AB69C195BD0D4354A080EFD19EE3071032
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43468.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43469.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43470.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:825DA9E31E51490A34E9AF0663FBF4801B954155
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43471.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:825DA9E31E51490A34E9AF0663FBF4801B954155
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43472.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bad Attitude - Right From The Start (1988-1991) Compilation, Reissue, 2024, FnA 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43473.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:50DCC8EF31BA8DB45F2110359ED80F14E0D05393
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43474.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43475.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:42E0C87C65DB546A426F2E9B578887D4CE33BE3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43476.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:F032BB25813B0B812BD2909C8E667D08C9B0B3CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43477.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43478.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:4680AE9C96EBDA59110A4E530F98B1387119CAE4
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43479.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43480.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43481.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:EBE3B1AE39E8AC3D5B3C77FDDBA534885F1574AA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43482.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D1A5AF0B51D7B998FA7C43668E4B4B817F7E708C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43483.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8E7AEC7785A4352AF4B5F14CEEB1393D87419714
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43484.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43485.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:16973636DC428BED935F4E8D51F090ED308AC703
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43486.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:6DEC3D60DF7128D8EFC0C6962E3F0E0B11CB3FAF
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43487.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:45DF516EFFD508F8B265C0B242668B213BD40DE4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43488.jpg" />
 </div>
 
 

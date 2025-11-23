@@ -6,7 +6,7 @@ Roxette - Travelling (2012) [MP3|~224~283 кб/с]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84051.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA-Hard Dance Awards 2012 (Mixed by Kutski, Zatox & Steve Hil) (2012) [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84052.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:3690E5E3283726F522198F89D407DD6D3434EF3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84057.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:21E70B03BAD980BC17AAD47C75B430290030B8EE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84077.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84083.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84084.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Andrea Bocelli - Concerto One Night in Central Park (2011) [FLAC|Lossless]<Class
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84092.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:73F56C203F93171749A418DBC305D5A1355AA46C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84101.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84109.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84117.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:B177753956B946F793DA6FE4DBAF6451268B0A7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84118.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [FLAC|Lossless]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84133.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Dicter 3.31 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84135.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Dicter – программа переводчик осуществляющая 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84138.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:EC10EC55F8A9173CAB41549F0EE15C9F84450C5A
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84149.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:0B470F4B35CCCE48BA6CD62894ECBCDC0B693242
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84151.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:17EBB1CAA007AA80C3DBFA4E99E27CFBC5ED284A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84158.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84161.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84162.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A2FB83253CF112F46640F7672D3C40653158742F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84173.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Kaspersky World 1.3.2.103 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84181.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84184.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84199.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84225.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84228.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84229.jpg" />
 </div>
 
 

@@ -1,3 +1,184 @@
+###  Публикация: 1434766   (147395) от 26.12.2020
+
+Александр Заморин и Софи Лебедева | Безупречная композиция. Полный курс! (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы тоже чувствуете, что можете фотографировать лучше, то вам не стоит торопиться покупать дорогое оборудование или ехать в Альпы ради красивых снимков!
+
+Для того чтобы вам помочь, я собрал все свои знания в удобный и понятный курс, который способен за пару месяцев даже из новичка сделать грамотного и сильного фотографа.
+(   Читать дальше...   )Жанр: ФотографияПродолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FF1867D5671464513866AEA30D9FF2E0463708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678125   (147397) от 20.11.2023
+
+VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - You Are The Best Thing (4:18)
+02. Papik - Wave (3:15)
+03. Papik - Sweet Love (3:37)
+04. Soulstance - Je Sto Vicino A te (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519581   (147398) от 25.12.2021
+
+VA - B2B Best of 2021 (2021) [AAC|~332 Kbps] <Tech House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelina Manuhutu - Takes a Little Something (6:45)
+02. Manuel De La Mare - Evil (Knober Remix) (6:24)
+03. Moreno Pezzolato - Tunnel (5:36)
+04. Luigi Rocca, RUDE (IT) - Temptation (6:10)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 05:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3851CFA9591C660D334D46129EF69942808110F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347966   (147399) от 25.12.2019
+
+AnyBurn 4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Burn - небольшая бесплатная утилита для работы с CD/DVD/Blue-ray дисками. Интерфейс программы достаточно удобен: главное окно представляет из себя набор закладок, которые выбираются в зависимости от конкретной задачи. Можно записать на диск готовые образы или отдельные файлы и папки, записать Audio-CD из имеющихся файлов аудиоформата, стереть перезаписываемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535744E8EF769287CDCF481DD2A6B6DD2C2F3AE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086979   (147400) от 26.12.2016
+
+Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марс, 2170 год — с момента окончания событий Red Faction: Guerrilla, предыдущей игры серии, прошло 50 лет. Тогда силам сопротивления и их союзником удалось отстоять свою свободу и установить на планете мир и спокойствие. Однако длились они недолго. В результате техногенной катастрофы жить на поверхности Марса стало невозможно, и колонистам пришлось переселиться в (   Читать дальше...   )Тип издания: RepackРазработчик: VolitionЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2929FBB2123ABBCEA7B54A3E0D7F571F584987CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969555   (147401) от 27.12.2015
+
+С. Дробязко | Вторая Мировая война 1939-1945 (2006) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена центральному событию военной истории ХХ века. Она включает краткие сведения о вооруженных силах всех стран - участниц войны, описания ключевых кампаний и операций на разных театрах военных действий от Атлантики до Тихого океана, а также биографии наиболее выдающихся военачальников противоборствующих сторон.
+Издание содержит множество великолепных (   Читать дальше...   )Жанр: Военная исторяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA065A1523B3FE71078E1DDCE1F7C13919C54B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271937   (147402) от 25.12.2018
+
+Тодд Локвуд | Летний дракон. Первая книга Вечнолива (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Майя и ее брат Дариан живут бок о бок с драконами. Их мать трагически погибла, а отца, кажется, не интересует ничего, кроме этих сверхъестественных существ.
+
+Все меняется, когда Майя и Дариан видят легендарного Летнего дракона. Что несет это знамение героям? Проклятие или свет?
+(   Читать дальше...   )Жанр: Зарубежное фэнтези, Фэнтези про драконовПеревод: Ксения ГусаковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C894DF8B61C95A549ABFAF0A7610348C2AC667E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435062   (147404) от 26.12.2020
 
 Udemy, Imtiaz Ahmad | Головоломки Java для устранения страха перед программированием / Java Puzzles to Eliminate Code Fear (2020) PCRec [En / En Sub]
@@ -6,7 +187,7 @@ Udemy, Imtiaz Ahmad | Головоломки Java для устранения с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147404.jpg" />
 </div>
 
 
@@ -30,7 +211,7 @@ magnet:?xt=urn:btih:4D563C899C1D6DCC5A394B2D63BD178BB1D33BB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147405.jpg" />
 </div>
 
 
@@ -54,7 +235,7 @@ David Coverdale - Whitesnake and Northwinds (1988) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147406.jpg" />
 </div>
 
 
@@ -81,7 +262,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -108,7 +289,7 @@ VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147408.jpg" />
 </div>
 
 
@@ -135,7 +316,7 @@ magnet:?xt=urn:btih:0601E06338E189CF7211E05840659BFA0FF3751C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147410.jpg" />
 </div>
 
 
@@ -159,7 +340,7 @@ VA - White Sensation Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147411.jpg" />
 </div>
 
 
@@ -186,7 +367,7 @@ magnet:?xt=urn:btih:D4D4EEE9886F76D44098D5AD8EA71F7B8D9769DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147412.jpg" />
 </div>
 
 
@@ -210,7 +391,7 @@ magnet:?xt=urn:btih:2D115DE1D2416D333157627940597BA61ED162B1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147413.jpg" />
 </div>
 
 
@@ -234,7 +415,7 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147414.jpg" />
 </div>
 
 
@@ -261,7 +442,7 @@ magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147415.jpg" />
 </div>
 
 
@@ -285,7 +466,7 @@ magnet:?xt=urn:btih:57155A9DD7BFBB72475F0B3517FD710AFCA41FD9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147416.jpg" />
 </div>
 
 
@@ -309,7 +490,7 @@ magnet:?xt=urn:btih:2705EC3C372C47FF9D5D532B1D25FBC63D68B01F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147417.jpg" />
 </div>
 
 
@@ -333,7 +514,7 @@ magnet:?xt=urn:btih:0E2CE418087A6F99BCF7778C9E0F05F875D16024
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147418.jpg" />
 </div>
 
 
@@ -357,7 +538,7 @@ VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147419.jpg" />
 </div>
 
 
@@ -384,7 +565,7 @@ magnet:?xt=urn:btih:5680D94C4CB7BA05D58E80DD7FD5BD44DBAD033D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147421.jpg" />
 </div>
 
 
@@ -408,7 +589,7 @@ magnet:?xt=urn:btih:6822CA16B3B5742DE8421DFE2002B15238BE6C3A
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147422.jpg" />
 </div>
 
 
@@ -435,7 +616,7 @@ magnet:?xt=urn:btih:0BFF991E12CED6AE70E9C3F17F1AB5BE5C8EE52F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147423.jpg" />
 </div>
 
 
@@ -459,7 +640,7 @@ magnet:?xt=urn:btih:93A7FD25F984C3C1A4F4B98ED419E7610F36F093
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147424.jpg" />
 </div>
 
 
@@ -471,183 +652,6 @@ magnet:?xt=urn:btih:93A7FD25F984C3C1A4F4B98ED419E7610F36F093
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B492B296C17BF7BE8F0687F7075D37176D0C5F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587729   (147426) от 15.12.2012
-
-K-Lite Codec Pack 9.6.0 (Basic, Standart, Full, Mega, x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147426.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - бесплатный пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347992   (147427) от 25.12.2019
-
-Журнал | Домашние заготовки. Спецвыпуск №10 (октябрь 2019) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EC3348724FCE242D321A0EC1CBD76225138F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087100   (147428) от 26.12.2016
-
-Проекты - VideoHive - HUD Sci-Fi Infographic - 18967517 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147428.jpg" />
-</div>
-
-
-###  Подробнее
-
-HUD Sci-Fi Infographic - от Автора: "мы создали современный, профессиональный и новый стиль HUD инфографики элементов. Полезные технологические элементы и загадочные вступления, предварительный просмотр игры, отслеживание движущихся видео и т.д. В этом пакете мы имеем как сложные модульные HUD-элементы, так и данные инфографики. Таким образом, вы можете объединить (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDA000D4A584FA18DADF841486985CBA5A9C9A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969253   (147429) от 27.12.2015
-
-Garmin: City Navigator Philippines NT 2015.40 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Филиппин для навигаторов ГарминТип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: сентябрь 2015Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F635C9E6CE2F4F26C99BC86A05A9950C7961EA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272042   (147430) от 25.12.2018
-
-Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rise Up
-02.  Reborn
-03.  Everybody's Someone (With Olivia Newton-John)
-04.  Gonna Be Alright(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B4F73D0FC3C6845AB76B7ACDF5D32A620E58F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678115   (147431) от 20.11.2023
-
-Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of Us Must Know (Sooner or Later) (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:44)
-02. Blowin' in the Wind (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:36)
-03. Just Like a Woman (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (5:07)
-04. Oh, Sister (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1B5E86D5902AEBF3DF2A635A57F348C88EFE90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519404   (147433) от 25.12.2021
-
-VA - When Friday Comes – Feel Good Friday Feeling (2021) [AAC|~322 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Dawe, KSI - Lighter (3:02)
-02. Clean Bandit, Topic, Wes Nelson - Drive (2:59)
-03. Joel Corry, Jax Jones, Charli XCX, Saweetie - OUT OUT (2:43)
-04. Alex Hosking, Majestic - Need Your Love (2:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D45D2CC07AED033949415894276A409D50D67D
 ```
 
 

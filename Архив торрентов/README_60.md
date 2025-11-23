@@ -6,7 +6,7 @@ MassTube Ultra 20.1.5.129 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19079.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Office Installer & Office Installer+ 1.26 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19097.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19099.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OCCT 14.0.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19150.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fan Control V224 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19157.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Auslogics Disk Defrag Pro 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19159.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Auslogics Duplicate File Finder 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19167.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Auslogics File Recovery 12.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19170.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TechSmith Camtasia  25.1.0 Build 9076 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19175.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Vivaldi 7.3.3635.12 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19180.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19183.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Imagine 2.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19185.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ USB Safely Remove 7.1.1.1326 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19186.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PotPlayer 250313 (1.7.22508) RePack (& Portable) by elchupacabra (06.05.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19188.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 38 Public Beta 3 RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19190.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Auslogics SSD Optimizer 2.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19199.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Auslogics BoostSpeed 14.0.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19201.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Fast Video Cutter Joiner 6.8.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19205.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ MultiTimer: МультиТаймер v1.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19227.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ discoDSP - OB-Xd 3.8.0 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19235.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Allavsoft Video Downloader Converter 3.28.0.9253 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19253.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ jetAudio HD Music Player Plus v12.3.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19258.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Icecream Video Converter Pro 1.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19259.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:34A77F8311DBF194BC2775A2CCB98F322A508128
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19264.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Light Image Resizer 7.2.0.101 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19266.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Avidemux 2.8.2 Nightly (250501) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19281.jpg" />
 </div>
 
 

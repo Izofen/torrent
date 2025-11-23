@@ -1,3 +1,78 @@
+###  Публикация: 1679884   (134951) от 27.11.2023
+
+Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I'd Love To Live (Chtel Bych Zit Tak, Jak Se Ma)
+A2 You're Special (Jsi Zvlastni)
+A3 You Know What It's All About (Kam Tak Nahle Pospichas?)
+A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679977   (134953) от 27.11.2023
+
+MotoGP. Этап 20. Гран-при Валенсии. Гонка (26.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134953.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2023, воскресенье 17:00 МСК. Этап 20, Валенсия. Гран-при Валенсии. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7EB86C81744F16D4EA5CA5DD262A8CF647A20D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594007   (134954) от 24.12.2012
+
+Sexy Girls Wallpapers (24.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B037258F468710AFC188C5D1057A658C9CBD47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679014   (134955) от 27.11.2023
 
 Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-11-03) [MP3|320 Kbps] <Progressive House, House, Tech House>
@@ -6,7 +81,7 @@ Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134955.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ VA - Just jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134957.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:BB003CA7E3B9CE6CCAA4190B8E3F3F95DEE52E4C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134959.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134960.jpg" />
 </div>
 
 
@@ -115,7 +190,7 @@ VA - Uplifting Only Top 15: November 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134961.jpg" />
 </div>
 
 
@@ -142,7 +217,7 @@ Sexy Girls Pack Wallpapers (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134962.jpg" />
 </div>
 
 
@@ -166,7 +241,7 @@ VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134963.jpg" />
 </div>
 
 
@@ -193,7 +268,7 @@ Best HD Wallpapers Pack (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134964.jpg" />
 </div>
 
 
@@ -217,7 +292,7 @@ Block of Flats - No Hope For The Hopeless (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134965.jpg" />
 </div>
 
 
@@ -244,7 +319,7 @@ nuTXT 3.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134966.jpg" />
 </div>
 
 
@@ -268,7 +343,7 @@ magnet:?xt=urn:btih:A57D1CD2CDBCBDAB230BD626E560B0AFAD3BE8FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134967.jpg" />
 </div>
 
 
@@ -293,7 +368,7 @@ VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134968.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134969.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ King Buffalo - Live At Burning Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134970.jpg" />
 </div>
 
 
@@ -374,7 +449,7 @@ Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134972.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Gilrs Wallpaper (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134973.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ Bookends 14.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134974.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134976.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134977.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134979.jpg" />
 </div>
 
 
@@ -522,7 +597,7 @@ VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134981.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134982.jpg" />
 </div>
 
 
@@ -579,7 +654,7 @@ magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134983.jpg" />
 </div>
 
 
@@ -592,88 +667,6 @@ magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F7F241CF044FB7017F98C7D91658ED3C86C9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594008   (134984) от 24.12.2012
-
-Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679836   (134985) от 27.11.2023
-
-Борис Заходер | Сказки Бориса Заходера (Аудиоспектакль) (2010) [MP3, Клара Румянова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Мелодия – детям».
-В сказках Бориса Заходера, смеясь или негодуя, дети учатся понимать простую, но очень важную истину – «что такое хорошо и что такое плохо». Так, в тему постижения жизни Борис Владимирович включает понятия Добра и Зла, Справедливости и Несправедливости. И в этом большом и сложным мире иногда бывает трудно найти свое счастье. Где же и как (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4EC7F3DD44B9B43611DE598396452167B8DE07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593356   (134986) от 24.12.2012
-
-VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 01:09:45
- 01. Don’t Forget Me (Way Out West’s Dust Biter Mix) - Way Out West
- 02. Feel the Vibe (Eric Prydz Remix) - Axwell
- 03. Without You Near (Gabriel & Dresden Mix) - Markus Schulz, Departure & Gabriel & Dresden
- 04. Resurrection (Gabriel & Dresden Vocal Mix) - Nicol Sponberg
- 05. Dark Side of the Moon - Ernesto vs Bastian
- 06. Lyteo (Rank 1 Remix) - Mr. Sam
- 07. More Than A Life Away - Marco V
- 08. Pleasure Island (Vocal Mix) - Randy Katana
- 09. The Loves We Lost (Vocal Mix) - Tiësto(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
 ```
 
 

@@ -6,7 +6,7 @@ VA - Calm Horizons 2: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42501.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42502.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C6D17B862170852CE2BB0B0D680E79CD469FD92D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42503.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4FE6058CE66ECFC39FB5F89430BDEDB3B43C76E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42504.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Armada Music - ADE 2024 (2024) [MP3|320 Kbps] <House, Progressive House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42505.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Powermix Part IV (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42506.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Serious Black - Rise of Akhenaton (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42507.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Blues Pills - Birthday (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42508.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Summer Fresh 001 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42509.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42510.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Legacy of Light - Fragments of Major Arcana (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42511.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cold Contrast - Last Honest Words (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42512.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42513.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D5A6A18F916AF29076C0E9C7C6F3AB39084FAFB3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42514.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Little Quirks - Little Quirks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42515.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F2F8DFE7D699C3F8874B58359E0732C404CC6C4E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42516.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:3DE0D99ECA45C072B4F7ACED3E1253EA476D12A6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42517.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F16C73256237A65FF20092556544F02EEE339A2F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42518.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:35E44D011F31B153E9E8D21CCF4383664C6F4355
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42519.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Music Without Borders (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42520.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:A52494396271CE7401D585D7A7C2DF0FEE35DE8C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42521.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D885AE1A6832790E903DFD7D9F9E891EB22AE32B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42522.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Music News For Forum vol.026 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42523.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Самые новые песни о любви 6 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42524.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:4CF517525115CCB6DDEF3413D5B1E27D059CE441
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42525.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:90E99E0F3555029D1D4CBF1983E88E1321DA831B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42526.jpg" />
 </div>
 
 

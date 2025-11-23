@@ -1,3 +1,76 @@
+###  Публикация: 1686008   (126989) от 20.12.2023
+
+DxO PhotoLab Elite 7.2.0 build 120 RePack by KpoJIuK [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A970F12AD628433FBD78D353D33D1AEE8F1C70C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680337   (126990) от 20.12.2023
+
+Пожалуйста, не уничтожай: Сокровище Туманной горы / Please Don't Destroy: The Treasure of Foggy Mountain (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийная труппа «Пожалуйста, не уничтожай», состоящая из Мартина Херлихи, Бена Маршалла и Джона Хиггинса, представляет свой первый полнометражный фильм «Сокровище Туманной горы». Сюжет фильма рассказывает о трех друзьях детства, которые вместе работают в магазине товаров для активного отдыха в маленьком городке. Однажды они видят в социальной сети карту сокровищ (   Читать дальше...   )Производство: США / Universal Pictures, Apatow Productions, Mosaic, Talent OneЖанр: комедияРежиссер: Пол БригантиАктеры: Мартин Херлихи, Джон Хиггинс, Бен Маршалл, Конан О’Брайен, Боуэн Янг, Мэг Штальтер, Икс Майо, Николь Блум, Седрик Ярбро, Хлоя ТроустПеревод: Многоголосый профссиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DAA680D474906F051AB48FA1E1DD1F2C072C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685438   (126991) от 20.12.2023
+
+Украинская налоговая оштрафовала PornHub на $5,5 тыс
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава комитета ВРУ по вопросам финансов, налоговой и таможенной политики Даниил Гетманцев рассказал, что украинская налоговая служба оштрафовала сайт для взрослых PornHub, не платящий так называемый «налог на Google».
+«К сожалению, не все плательщики, оперирующие сервисами для взрослых, одинаково ответственно относятся к налогообложению», – сокрушается Данило Гетманцев.Он (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627163   (126992) от 20.12.2023
 
 Непутевые заметки с Дмитрием Крыловым (2023) WEB-DL [H.264/1080p] (выпуски 1-44) (обновляемая)
@@ -6,7 +79,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126992.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:17F04E714FED119154A119CD089DE24E25F8BF14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126993.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:B60EE1986C18AB77CD634764C213A1BFBDF95665
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126994.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Toaru Ossan no VRMMO Katsudouki | A Playthrough of a Certain Dude's VRMMO Life |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126996.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:83C2712B4CC645EEF20552CFCFC69D6345609B87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126997.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:FE1E668D1436448DF9EDEBBB0DEA0E7DA0144C2C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126998.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:BB22D7C2A1AA951F4A593F56BE3DB2E7686AABF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126999.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:2C6BA0132B2EA0E8E80A798FA71D583460D61FD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127000.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127001.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ Snappy Driver Installer Origin R759 | Драйверпаки 23.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127002.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:21AE2739C9917C8ED662AF006AEC8374EE8D532D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127003.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ magnet:?xt=urn:btih:763460C66DEB592A1970E0A14683FF97852C46D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127004.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:763460C66DEB592A1970E0A14683FF97852C46D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127005.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127006.jpg" />
 </div>
 
 
@@ -371,7 +444,7 @@ magnet:?xt=urn:btih:5E3892261DD0C59E39872773F6930F862E08C881
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127007.jpg" />
 </div>
 
 
@@ -395,7 +468,7 @@ magnet:?xt=urn:btih:5C4B575673340F179727B726BF43FC1C437C7728
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127008.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:1F05A4F9453674E15B1FB34968350DDF9A0A7BB7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127009.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ The Long Dark (2017) [Ru/Multi] (2.08.125148 S/2.26.126828 S/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127010.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ magnet:?xt=urn:btih:3A96A672DAB3F2D3F8F99F32531B02E735ADECC9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127011.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ magnet:?xt=urn:btih:59056C6CB95FDAA1BCD5600D6F1C5AAC247E9EA5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127012.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127013.jpg" />
 </div>
 
 
@@ -539,7 +612,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127014.jpg" />
 </div>
 
 
@@ -550,80 +623,6 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0472126D717BA6F900307CA542F02325701CF8DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676763   (127015) от 20.12.2023
-
-Astra Linux Special Edition 1.7.5 [amd64] 2xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127015.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7.5 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7.5 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3698A8AC0971D9F45A83A6A3F02396501CDB37E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069836   (127016) от 20.12.2023
-
-UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127016.jpg" />
-</div>
-
-
-###  Подробнее
-
-UFS Explorer Professional Recovery разработан практикующими специалистами и имеет интерфейс, ориентированый на профессионалов. Содержит набор инструментов для низкоуровневого анализа и восстановления данных, включая восстановление RAID массивов любой сложности.
-Позволяет успешно работать со сложными случаями потери данных на широком спектре файловых систем. Версия (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC3A029E5AAD1195DA4AE7D08250BE144F7582F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654616   (127017) от 20.12.2023
-
-Лайт HD ТВ v3.6.0 Mod by vadj [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 19.12.2023Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4BFB37CB6F23C5B642CEB85E22AED3133B13E7
 ```
 
 

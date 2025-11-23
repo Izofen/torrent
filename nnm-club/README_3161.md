@@ -1,3 +1,81 @@
+###  Публикация: 1765944   (101294) от 15.12.2024
+
+Чудо техники с Сергеем Малозёмовым (15.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утепляемся технологично! В чем секрет одежды и обуви с мембраной? В каких случаях дорогая куртка не оправдает надежд покупателя? Большой тест гаджетов с подогревом для рук, ног и всего тела! Кокосовое масло: реклама обещает удивительную универсальность, но стоит ли на него тратиться?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B15FEB9C21489BAAA8B6564F5F5BAB9B2FE864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765892   (101295) от 15.12.2024
+
+VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Indiano - Meditation (10:28)
+03. Kalico Jak - Sunlight Through the Treetops (9:04)
+04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766007   (101296) от 15.12.2024
+
+Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101296.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Это игра (00:03:29)
+✧ 02 - Выбора нет (00:04:05)
+✧ 03 - Летала душа (00:04:48)
+✧ 04 - Что будет с нами- (00:03:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765989   (101297) от 15.12.2024
 
 Ермак! - 3 Albums (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo-Core>
@@ -6,7 +84,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101297.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101298.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101299.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101300.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101301.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101302.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101303.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Brinker - Alloy Rock (1986) Reissue, Remastered, 2023, MelodicRock Classics [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101304.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ magnet:?xt=urn:btih:1ADF6700E0CA182D2A17030B3A648CA003DD6423
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101305.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Daytona - Garder La Flamme (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101306.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ Atom Stone - Take Me To The Fire (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101307.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Pleasureland - Pleasureland (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101308.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101309.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ Heart 2 Heart - Alley Of Dreams (2024) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101310.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ Balabolka 2.15.0.884 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101311.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Purple Disco Machine - Club Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101312.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ magnet:?xt=urn:btih:4F26D8D62F2C1F204BB1E6C4F06E5E156DB79BD7
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101313.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ Lunacy Audio - BEAM 1.3.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101314.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ magnet:?xt=urn:btih:6F1DD9DFC49F1D2E30D5116CE11EEAF1E685E228
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101315.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ Purple Disco Machine - Club Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101316.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Sleep Monitor: Sleep Tracker v2.8.1.1 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101317.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:D1C980DC227ACF4E9C93B0E596F10AE6CD736C05
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101318.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Sunstorm - Restless Fight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101319.jpg" />
 </div>
 
 
@@ -595,81 +673,6 @@ Sunstorm - Restless Fight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62C0F7B738216114A076FA85E5A2CB2A1BA50D26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765916   (101320) от 15.12.2024
-
-Тор / Thor (2011) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о супергерое, основанный на персонаже комикса Marvel с таким же названием... Эпическое приключение происходит как на нашей планете Земля, так и в королевстве богов Асгарде... Могучий Тор, сильный, но высокомерный воин, чьи безрассудные поступки возрождают древнюю войну в Асгарде. Тора отправляют в ссылку на Землю, лишают сил и заставляют жить среди обычных (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios Inc., Paramount PicturesЖанр: фэнтези, боевик, приключенияРежиссер: Кеннет БранаАктеры: Натали Портман, Энтони Хопкинс, Крис Хемсворт, Том Хиддлстон, Стеллан Скарсгард, Кэт Деннингс, Кларк Грегг, Идрис Эльба, Колм Фиор, Рэй Стивенсон, Таданобу Асано, Джошуа Даллас, Джейми Александер, Рене Руссо, Адриана БаррасаПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA69D2DF82C4F0A2D520420C092D280B498F67B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765960   (101321) от 15.12.2024
-
-Происшествие / Jiken / The Incident (1978) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Шохэй Оока... Тело Сакаи Хацуко, 23-летней женщины, убитой ножом, было найдено в лесу. Несколько дней спустя 19-летний рабочий верфи Уэда Хироси был арестован и обвинён в убийстве. На суде над Уэдой разворачивается сложная история...Производство: Япония / Shochiku EigaЖанр: драма, криминалРежиссер: Ёситаро НомураАктеры: Кэйко Мацудзака, Синобу Отакэ, Тосиюки Нагасима, Цунэхико Ватасэ, Синсукэ Асида, Хисая Морисигэ, Дзюнко Нацу, Ко Нисимура, Нобуко Отова, Син Сабури, Асао Сано, Тэцуро Тамба, Кэи ЯмамотоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B07E17B5DC9029CF017D57159D93C63AA7A8C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765900   (101322) от 15.12.2024
-
-VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
-02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
-03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
-04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
 ```
 
 

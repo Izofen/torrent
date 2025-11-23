@@ -1,3 +1,101 @@
+###  Публикация: 1430115   (174180) от 09.12.2020
+
+Maplesoft Maple 2020.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система компьютерной алгебры Maple, обладающая удобным графическим интерфейсом, позволяет производить символьные и численные решения дифференциальных уравнений и интегральных уравнений и вычислять интегралы.
+Сегодня пакет Maple используется в самых разных сферах – от управления марсоходом до преподавания основ математики.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF604C822E9F5F36AB16087A327315A72E96BCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430198   (174190) от 09.12.2020
+
+WinToHDD 4.8 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174190.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727981710AD3958360D9929A3AB71139BDE0BBB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595854   (174196) от 07.12.2022
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.12.07 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5977E224C448CF8E5A46C9334A32926DC4461A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593057   (174210) от 07.12.2022
+
+VMware Workstation Pro 17.0 for Linux 17.0.0 Build 20800274 [x86, amd64] (bundle)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174210.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation Pro™ enables technical professionals to develop, test, demonstrate, and deploy software by running multiple x86-based Windows, Linux, and other operating systems simultaneously on the same PC.
+You can replicate server, desktop, and tablet environments in a virtual machine and allocate multiple processor cores, gigabytes of main memory, and graphics (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92162A093D00E38315AE18FFB18F58D3B6E050D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595920   (174239) от 07.12.2022
 
 StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
@@ -6,7 +104,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174239.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174239.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ WhatsApp 2.2245.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174242.jpg" />
 </div>
 
 
@@ -56,7 +154,7 @@ Light Image Resizer 6.0.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174248.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174248.jpg" />
 </div>
 
 
@@ -80,7 +178,7 @@ Tor Browser Bundle 10.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174260.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174260.jpg" />
 </div>
 
 
@@ -104,7 +202,7 @@ StartAllBack 3.5.6 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174262.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174262.jpg" />
 </div>
 
 
@@ -128,7 +226,7 @@ Windows 7 (3in1) x64 by Updated Edition (11.10.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174275.jpg" />
 </div>
 
 
@@ -154,7 +252,7 @@ Cent Browser 4.3.9.226 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174279.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174279.jpg" />
 </div>
 
 
@@ -178,7 +276,7 @@ PotPlayer 221102 (1.7.21833) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174298.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174298.jpg" />
 </div>
 
 
@@ -202,7 +300,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174304.jpg" />
 </div>
 
 
@@ -228,7 +326,7 @@ Revo Uninstaller Pro 5.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174305.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174305.jpg" />
 </div>
 
 
@@ -252,7 +350,7 @@ Psiphon 3 build 176 (DC 06.12.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174306.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174306.jpg" />
 </div>
 
 
@@ -278,7 +376,7 @@ HWiNFO 6.40 Build 4330 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174312.jpg" />
 </div>
 
 
@@ -302,7 +400,7 @@ Microsoft PowerToys 0.65.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174317.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174317.jpg" />
 </div>
 
 
@@ -326,7 +424,7 @@ Blender 3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174322.jpg" />
 </div>
 
 
@@ -352,7 +450,7 @@ Geekbench 5.4.6 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174327.jpg" />
 </div>
 
 
@@ -376,7 +474,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.3570]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174330.jpg" />
 </div>
 
 
@@ -403,7 +501,7 @@ Opera 73.0.3856.257 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174358.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174358.jpg" />
 </div>
 
 
@@ -427,7 +525,7 @@ magnet:?xt=urn:btih:A79EB2F95575EAE9F7F851061AD145D8D8185F72
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174365.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174365.jpg" />
 </div>
 
 
@@ -451,7 +549,7 @@ Ashampoo UnInstaller 12.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174370.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174370.jpg" />
 </div>
 
 
@@ -475,7 +573,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174371.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174371.jpg" />
 </div>
 
 
@@ -501,7 +599,7 @@ VueScan Pro 9.7.96 (05.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174373.jpg" />
 </div>
 
 
@@ -525,7 +623,7 @@ Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174374.jpg" />
 </div>
 
 
@@ -536,104 +634,6 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE32CFDBAC564E2A9036F37F9E5AEA96D2414CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595937   (174385) от 07.12.2022
-
-EF Commander 2022.12 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174385.jpg" />
-</div>
-
-
-###  Подробнее
-
-EF Commander  — замечательный двухпанельный файловый менеджер с почти неограниченными возможностями, простой в использовании и крайне нетребователен к ресурсам компьютера. Используется для управления файлами самых разнообразных типов и форматов, выполнен в стиле Total Commander, но несколько отличающийся от последнего функциями и интерфейсом.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEA6B22BA2FFBC0933DA4B0D3B26EBAAB352961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595758   (174386) от 07.12.2022
-
-Audacity 3.2.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CB6F1CE5358852D7831969E5087592F28C19D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595842   (174389) от 07.12.2022
-
-HWiNFO 7.34 Build 4930 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174389.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA08A72332E2AA598EB91B4D1AF48333C017F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595895   (174394) от 07.12.2022
-
-Telegram Desktop 4.4.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEA590865D338552A36A11B77AB3392A3D8CBA8
 ```
 
 

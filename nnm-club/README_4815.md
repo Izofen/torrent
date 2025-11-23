@@ -1,3 +1,176 @@
+###  Публикация: 1086730   (149245) от 25.12.2016
+
+Проекты - VideoHive - Christmas - 19169491 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas - проект для создания Рождественского пожелания или другого праздничного приветствия!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A96125472F128E837C457557BF8F1D54083E4EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513556   (149246) от 23.12.2021
+
+Джиперс Криперс / Jeepers Creepers (2001) BDRip [H.264/1080p-LQ] [Remastered]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделав ужасное открытие в подвале старой заброшенной церкви, Триш и ее брат Дэрри едут домой. Но обычное ежедневное путешествие на машине оборачивается ужасающей гонкой, приз в которой — их жизни. Тинейджеров преследует неуничтожимая сила, охотящаяся на них с азартом хитрого хищника, обнаруживая в названии старой песенки «Jeepers Creepers» бездны нового смысла самого (   Читать дальше...   )Производство: США, Германия / American Zoetrope, Cinerenta Medienbeteiligungs KGЖанр: Ужасы, Триллер, Детектив, ДрамаРежиссер: Виктор СальваАктеры: Джина Филипс, Джастин Лонг, Джонатан Брек, Патриша Белчер, Брэндон Смит, Айлин Бреннан, Пегги Шеффилд, Джеффри Уильям Эванс, Патрик Черри, Джон БешараПеревод: ДублированныйСубтитры: Русские, английские (full, SDH)Продолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0367084B7F77209FBB7F7C8DECABD94BF9F3055A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425352   (149247) от 25.12.2020
+
+Хрустальный гроб / Стеклянный гроб / El ataud de cristal (2016) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роль аутистки Дезири в инди-фильме "Пустошь светлячков" становится переломной в карьере молодой актрисы авангардного театра Аманды, превратив её в кинозвезду мировой величины. Спустя 20 лет Аманда получает престижную кинопремию. Однако вместо церемонии вручения лимузин везет её к расплате за прошлые грехи.
+Психологический триллер испанского режиссера Харица (   Читать дальше...   )Производство: Испания / Basque Films, Byp Media, Demeter FilmsЖанр: триллерРежиссер: Хариц ЦубиллагаАктеры: Паола БонтемпиПеревод: Двуголосый закадровый (ViruseProject)Субтитры: русские, английскиеПродолжительность: 01:16:54Реклама: нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70382F5A42788DB34333AAB9A683F63B22FE4E5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677682   (149248) от 19.11.2023
+
+VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kbps] <Tech House, Melodic House, Hard Dance, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headhunterz - Guess Who's Back
+02. Yellow Claw & Juyen Sebulba - Do You Like Bass? (Headhunterz Edit)
+03. Joy Kitikonti - Joyenergizer (Dr. Rude Remix)
+04. Headhunterz - The Flame Inside(   Читать дальше...   )Жанр: Tech House, Melodic House, Hard Dance, TranceПродолжительность: 06:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047A47758A64AAE104C218E3C44AF4534244A86E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588321   (149251) от 15.12.2012
+
+GOM Player 2.1.47 Build 5133 Final [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149251.jpg" />
+</div>
+
+
+###  Подробнее
+
+GOM Player - мультимедийный плеер для систем Windows. Не уступающий похожим по качеству воспроизведения видео, по скорости загрузки и по удобству использования – это один из лучших мультимедиа плееров на настоящий день! Соответствующей специфичностью этого проигрывателя является умение проигрывать много медиа-файлов без необходимости в сторонних кодеках, благодаря встроенной поддержке большинства распространенныхкодеков. Сверх того существует неповторимая возможность проигрывания повреждённых либо недогруженных файлов.Название программы: GOM Player 2.1.47 Build 5133 FinalЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519203   (149252) от 23.12.2021
+
+MAGIX Sound Forge Pro 15.0 Build 161 (x64) RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149252.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D61E056B2328476C2CEDBA982646C7CB710468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271428   (149253) от 23.12.2018
+
+Олег Данильченко | Лузер (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на глазах оживают ночные кошмары, а по окрестностям бродят живые мертвецы, просто доживать не получиться!
+Жизнь у каждого складывается по-разному. Кому-то фартит, а кого-то записывает в неудачники, и вот ты уже не живешь, а доживаешь по привычке. Исчезли куда-то друзья-приятели, близких ты тоже больше не интересуешь, а тут еще возраст давит на психику. Как (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 17:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B55386565B0448543B4F3555F7EBC7D10A03520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086645   (149254) от 25.12.2016
 
 Источник (2016) WEB-DLRip
@@ -6,7 +179,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149254.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ ValhallaDSP Bundle 2020.11 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149256.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149257.jpg" />
 </div>
 
 
@@ -81,7 +254,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149259.jpg" />
 </div>
 
 
@@ -108,7 +281,7 @@ magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149260.jpg" />
 </div>
 
 
@@ -132,7 +305,7 @@ magnet:?xt=urn:btih:1C6991E3468925E478EA9CAE27E23D32AF478D2D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149261.jpg" />
 </div>
 
 
@@ -156,7 +329,7 @@ magnet:?xt=urn:btih:83DEBF7107EB73E1B2F23362FAD3CD9403699C58
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149262.jpg" />
 </div>
 
 
@@ -181,7 +354,7 @@ magnet:?xt=urn:btih:38F7DB9A7C924FAC1952B83AA3C09DF1976143E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149263.jpg" />
 </div>
 
 
@@ -205,7 +378,7 @@ magnet:?xt=urn:btih:2DDB37FF6888C3FA0ADD726ED17797699432BA74
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149264.jpg" />
 </div>
 
 
@@ -229,7 +402,7 @@ magnet:?xt=urn:btih:8ECADDF6AAEC57375E2912D96B6846ED2BB38A4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149265.jpg" />
 </div>
 
 
@@ -253,7 +426,7 @@ magnet:?xt=urn:btih:3CBB5FBC6D62731A1A76FC704C7B692EBD635BDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149266.jpg" />
 </div>
 
 
@@ -277,7 +450,7 @@ Microsoft Visual Studio 2019 Enterprise 16.8.2 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149267.jpg" />
 </div>
 
 
@@ -301,7 +474,7 @@ magnet:?xt=urn:btih:5A78D0A5F2E72B39C8406534D6A749F38A3F53ED
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149269.jpg" />
 </div>
 
 
@@ -325,7 +498,7 @@ magnet:?xt=urn:btih:6FE80264D1F0AF5E8867CAC38317F063D2EC7B1C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149270.jpg" />
 </div>
 
 
@@ -349,7 +522,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149271.jpg" />
 </div>
 
 
@@ -376,7 +549,7 @@ magnet:?xt=urn:btih:6B7B5D08BE81A2505095CC7B2A657EEA85306676
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149272.jpg" />
 </div>
 
 
@@ -400,7 +573,7 @@ magnet:?xt=urn:btih:2AB061295A06421BD178E6505C6C6BCDB82864DF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149273.jpg" />
 </div>
 
 
@@ -433,7 +606,7 @@ magnet:?xt=urn:btih:D81235D53A1CF71743826031F367A05C465E4D65
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149274.jpg" />
 </div>
 
 
@@ -460,7 +633,7 @@ magnet:?xt=urn:btih:2E4A8723413B8C626BA7F2BA411FE46F614D0E45
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149275.jpg" />
 </div>
 
 
@@ -471,178 +644,6 @@ magnet:?xt=urn:btih:2E4A8723413B8C626BA7F2BA411FE46F614D0E45
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F4E6B8992A1163D94C4386142AB98562540A68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677951   (149276) от 19.11.2023
-
-Не­понятый / Incompreso / Misunderstood (1967) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149276.jpg" />
-</div>
-
-
-###  Подробнее
-
-По книге Флоренс Монтгомери.
-После смерти матери для восьмилетнего Андреа самым близким человеком становится его младший брат Мило. Отстраняясь от детей, и особенно от Андреа, ослеплённый горем потери жены папа братьев, английский консул в Италии, не замечает страданий своего старшего сына. И лишь после несчастного случая отец осознаёт своё губительное равнодушие...Производство: Италия / Instituto Luce, Rizzoli Film S.p.a.Жанр: драма, экранизацияРежиссер: Луиджи КоменчиниАктеры: Энтони Куэйл, Стефано Колагранде, Simone Giannozzi, Джон Шарп, Адриана Фаччетти, Анна Мария Нардини, Силла Беттини, Рино Бенини, Джорджия Молл, Грациэлла ГранатаПеревод: многоголосый профессиональный (НТВ)Язык озвучки: русский, итальянскийСубтитры: английские, французскиеПродолжительность: 01:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C248B87326B8C85530BF7633701E312C35053526
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086726   (149277) от 25.12.2016
-
-Проекты - VideoHive - Christmas Tree Slideshow - 19167750 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 3D слайд-шоу в стиле Рождественской елки.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497F029E3F097CE0C5051362F0BF8EDC0F35D496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968659   (149278) от 26.12.2015
-
-Роман Масленников | Новая PR-элита (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149278.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Вас ждут удивительные беседы с Менеджером Мафии, девушкой-медиабич, руководителем рекламного агентства гаремного типа и директором компании «Назаров и партнерши». А также – самой отвязной блогершей Рунета и самой красивой юридической пиарщицей. Впервые – интервью с пиарщицей самых именитых моделей.Но и это еще не все! Вас приглашают к беседе и уже ждут, (   Читать дальше...   )Жанр: Пиар, PR, Реклама, Маркетинг, БизнесФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D226974CFE8A66D2AAA37EF069A97CA3A50F60FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271205   (149280) от 23.12.2018
-
-MultiBootHDD 2018 22.12.18 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка на базе конструктора BootHDD by Policai для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE57F8883FFCB509C58810E2ECF11C2CC7BDAE90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335237   (149281) от 25.12.2020
-
-Rag'n'Bone Man - Wolves (2016) EP [FLAC|Lossless|tracks + .cue] <Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reuben's Train (2:11)
- 02. No Mother (3:45)
- 03. Guilty (3:36)
- 04. Lay My Body Down (3:37)(   Читать дальше...   )Жанр: Rhythm & BluesПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F54602E6095B51D8988CD502C5294FBE1B75F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969277   (149283) от 26.12.2015
-
-Александр Дюков и др. | Великая оболганная война-2. Нам не за что каяться! [сборник] (2008) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши враги — и внешние, и внутренние — покушаются на самое святое — на народную память о Великой Отечественной войне. Нас пытаются лишить Великой Победы. Вторя геббельсовской пропаганде, псевдоисторики внушают нам, что Победа-де была достигнута «слишком дорогой ценой», что она якобы обернулась «порабощением Восточной Европы», что солдаты Красной Армии будто бы «изнасиловали (   Читать дальше...   )Жанр: Публицистика, ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B575E30DD000386AF65EFC0551AD67D6F5EBB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252909   (149284) от 23.12.2018
-
-Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149284.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Bakumatsu» является пересечением сразу нескольких жанров и устоявшихся сюжетных паттернов. Классическая история про «попаданца» начинается в Киото, где главная героиня встречает загадочного человека, вручающего ей карманные часы необычной конструкции. Странные часы приводят героиню к ритуальным вратам японского синтоистского храма - тории. Тории символизируют собой (   Читать дальше...   )Производство: Студия Studio DEEN / スタジオディーンЖанр: приключенияРежиссер: Ватанабэ МасакиПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, Английские, Испанские, ПортугальскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A67299865106E0E1DECF73655CADEC21BB31F3D
 ```
 
 

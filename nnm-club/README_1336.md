@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steinberg - Cubase Pro 14 14.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35090.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E3CA5535EC28AF51E2DFB6E16347B5775AF0538E
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35091.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E3CA5535EC28AF51E2DFB6E16347B5775AF0538E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35092.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3CA5535EC28AF51E2DFB6E16347B5775AF0538E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35093.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:EE14046C6665C7250C9155C712A2BA6F7503A50D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35094.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7C956618A17F40691C6C17FBF27546EB85203F65
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35095.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F39AF6CE55AC601030FE272A8525F533B34516DD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35096.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Hardstyle Workout 2024 playlist [MP3|320 Kbps] <Hardstyle>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35097.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Лучшая дискотека шансона -18 (2024) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35098.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - The Annual 2025 - Ministry of Sound (2024) 2 CD [MP3|320 Kbps] <Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35099.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:317AAD5BC8A48A8AF50DF592A4AC579094006C6F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35100.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35101.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:1A0294FEA70E264685E687A3C5BEF1E143B91339
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35102.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:60119FC0607471191DCDCAFFE1EA53FFB69D2326
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35103.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Compilation  Part 132 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35104.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:7B60A27A798E9DC6268758C19DAA712E80400612
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35105.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F82EBA5458DF1F6050881DA2ED8C663B0586D587
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35106.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:AE3C46988C3FDA19152921B26DB156AA94364E45
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35107.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:CADDADABB8433D665760E1034863CD36AD72270C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35108.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ RegCool 2.018 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35109.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:CA540F1B9E9E5C8F5E792104C2559BFE7E5B6E3D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35110.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:6D6D56E533C9D62ECE55B273C303312FC4F7F6D9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35111.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35112.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:826AD87539077576A1F53CDE9B2A33A284BBF41E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35113.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:FF37C02D4F2EB51674FDF50033192F2891584CEA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35114.jpg" />
 </div>
 
 

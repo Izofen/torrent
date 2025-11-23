@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6316F4657355B960C30FEE90B5A62576ADE1A169
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36104.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6316F4657355B960C30FEE90B5A62576ADE1A169
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36105.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1C17DB0C3E46CA06E303B0C059B3315887A491CE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36106.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DC1328E2A4B2CA0CB881BAEC44D86539EF8BF197
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36107.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CF0645BFD9706F735DEECCF2FDD6E755B0477806
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36108.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:400C9B1880C6EAA4C8960CEF399014115DBACCD2
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36109.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PotPlayer 241120 (1.7.22370) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36110.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Ashampoo UnInstaller 15.00.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36111.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Need For Speed: Underground 2 Russia Drift (2012) [Ru] RePack/Mod 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36112.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36113.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Outline Client VPN 1.14.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36114.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:1B282C309975B94CC952F2A07FAACE7FC1015CE5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36115.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36116.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DB861538315CC97321DC0B3B04454F38471DB727
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36117.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:678FBB8F9067C56765E899EF6B9F4E20908E5BC6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36118.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6D4D45E04A7402D547448625D2D2E772A88AC954
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36119.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6DFFFD08BA83662A8E6B514F999F2E72BD9FC747
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36120.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:085B77D29C95AEB9809AFB0AB48D68F89474ABE8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36121.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CD4BF784DB13C618562AAAF295E5702BE5D2D2B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36122.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36123.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FEAFD543CED54CDA45EBC55B0F10356702845BE0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36124.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:BA50DB37F09E50C232D001D8EF14A7F3DD77BEDB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36125.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Beyond Hanwell (2024) [En] (1.1) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36126.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:82D288B1C64EAD37095D167CA4FCBF1A7031DA6C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36127.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4C901EA03983469916427C9B6FABEBDBF863CAB9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36128.jpg" />
 </div>
 
 

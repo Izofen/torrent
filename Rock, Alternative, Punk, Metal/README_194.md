@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E6FA0CE3975D2304018EA02F14C956F5949E7C4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125429.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eutectica - [In]human (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125432.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Souls Of Steel - Songs of Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125433.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Demon - Breakout (1987) Japanese Edition, Reissue, Remastered, 2020, Rubicon Mus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125434.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ordahlia Nera - Mask of Broken Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125437.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Scarlett O'Hara - Overthrown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125439.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Demolish - The Unique Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125440.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - All New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125455.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rainbow - Essential (2014) Universal Music Group Studios - 5348106 [FLAC 24/44.1
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125474.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125561.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Thread - Thread (1995) 2xCD, Reissue, Remastered, 2023, Escape Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125566.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125567.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125581.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Demon - Heart of Our Time (1985) Japanese Edition, Reissue, Remastered, 2020, Ru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125586.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125593.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125653.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125702.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ EverLevel - Future (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125708.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ George Hills - Dancing With A Stranger (1991) Reissue, Remastered, 2023, Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125709.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Mitch Malloy - Making Noise (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125714.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Hekz - Terra Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125738.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mötley Crüe - From The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Glam Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125765.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Jesse Roper - Way Down In The Valley (2025) [FLAC|Lossless|WEB-DL|tracks] <Ameri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125900.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ King Cat Rhythm - Black Rings (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125904.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Rainbow - Transmission Impossible (2022) [MP3|320 Kbps] <AOR, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125991.jpg" />
 </div>
 
 

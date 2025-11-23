@@ -1,3 +1,76 @@
+###  Публикация: 589176   (151243) от 14.12.2012
+
+Контрабандист / Sumagura: Omae no mirai o hakobe (2011) DVDRip[H.264]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151243.jpg" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о Рюске Кинуте, неудавшемся актёре с серьёзными долговыми проблемами. Его ростовщик поручает ему работу в команде, работающей с одной из бандформирований города. Однако, когда команда начинает работать на обе банды, то оказывается втянутой в небольшую войну. С этих пор жизни Рюске и его коллег грозит опасность, и адвокат им не поможет.Жанр: Криминал, ДрамаРежиссер: Кацухито ИшииАктеры: Сатоси Цумабуки, Масатоси Нагасэ, Ясуко Мацуюки, Хикари Мицушима, Цуёши Аб, Масанобу Андо, Тацуя Гасюин, Хитоси Киёкава, Фумиё Кохината, Шота МацудаПеревод: Одноголосый закадровыйПродолжительность: 1:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80664B42835AC8C81AAEB64A3EA8272D6C168118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589093   (151250) от 14.12.2012
+
+Извлечение / Extracted (2012) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Томас Джейкобс изобретает способ проникать в память людей и просматривать их воспоминания «своими глазами». Так он может возвращаться в собственные воспоминания и снова переживать счастливые моменты своей жизни. Но однажды Том вынужден действовать в разрез своим моральным принципам и использовать своё изобретение, чтобы войти в воспоминания одного наркомана и в буквальном смысле слова увидеть, совершал ли он преступление, в котором его обвиняют. Однако по причине повреждённости сознания преступника наркотиками, Том оказывается пойман в ловушке внутри его головы. Теперь ему предстоит прожить в памяти наркомана почти четыре года, до тех пор, пока он не обнаружит долгожданную возможность побега.Жанр: Фантастика, ДрамаРежиссер: Нир ПанириАктеры: Саша Ройз, Дженни Моллен, Доминик Богарт, Ричард Риле, Ник Джеймисон, Родни Истман, Фрэнк Эшмор, Брэд Калвер, Тай Симпкинс, Сара ТомкоПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434534   (151255) от 24.12.2020
+
+darktable 3.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151255.jpg" />
+</div>
+
+
+###  Подробнее
+
+darktable — фоторедактор, предназначенный для организации всего рабочего процесса обработки фотоснимков (в том числе, в формате RAW) — от импорта фотографий с камеры и их всесторонней обработки до экспорта с поддержкой обычного сохранения на диск, экспорта в облачные хранилища и отправки снимков по почте.
+Полноэкранный, масштабируемый пользовательский интерфейс darktable (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C98FA75FFF2BBF1706ED0C61F7725CF504D670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519084   (151259) от 22.12.2021
 
 Pixelmator Pro 2.3.4 [Multi/Ru]
@@ -6,7 +79,7 @@ Pixelmator Pro 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151259.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ SRWare Iron 47.0.2500.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151263.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Calibre 5.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151279.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:2DB624BA3D86A26FF95E0A01547C4329949C4A92
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151287.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Emurasoft EmEditor Professional 23.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151292.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Autorun Organizer 5.01 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151301.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ Emurasoft EmEditor Professional 23.0.0 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151307.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ mp3DirectCut 2.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151310.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:83C6CFB04C8DB91033B91226F36E84178DFA9ACE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151312.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Linux Mint Debian Edition 2 (MATE) by Lazarus [64-bit] (1xDVD) [Авторска
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151320.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:4DE64AD7B3AE430705E8CEB9594D7C1250CE2AC4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151322.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ Blackmagic Design Fusion Studio 17.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151324.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:8C0A71EFEBF2752B6AE0372CBF7D7515BF527745
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151337.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151339.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ AIMP 5.01 Build 2356 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151340.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:E1F76B3B9420E88EA464D7FDD09D919B020478B8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151344.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Dropbox 3.12.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151346.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ magnet:?xt=urn:btih:0EB98134F2382BA81A8BD351EC4AA9ECE03F31C2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151347.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Auslogics BoostSpeed 10.0.1.0 DC 27.12.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151353.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Movavi Video Suite 20.1.0 (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151376.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ PopDo 2021.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151379.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ Nox App Player 3.7.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151389.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ SRWare Iron 47.0.2500.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151393.jpg" />
 </div>
 
 
@@ -549,80 +622,6 @@ SRWare Iron - безопасный, удобный и быстрый в рабо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CEB97EC66E3EA107EB44226356F053F40F5669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347465   (151398) от 23.12.2019
-
-Topaz Sharpen AI 1.4.5 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31D0C2486B34F77AA6E63D731BCFB19B92A137D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588976   (151399) от 14.12.2012
-
-Не называй меня малышкой / Barb Wire (1996) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка охвачена второй гражданской войной. Единственным нейтральным городом остается Стил Харбор. А самое популярное место в Стил Харборе — гриль-бар «Дубовая голова». Имя его владелицы, красавицы по кличке «колючая проволока» окружено легендами. Когда эмоции в ее баре перехлестывают через край, она лично исполняет обязанности вышибалы, а вот справиться с ней не удавалось еще никому. Единственный человек о котором она заботилась — ее слепой младший брат Чарли.
-
-Но вот в городе появляется Аксель Худ. Он должен переправить в Канаду доктора Тайру Армстронг, чтобы предупредить Комиссию по перемирию о страшном биологическом оружии, которое может повлечь за собой глобальную катастрофу. Акселю нужна помощь, и он знает, что оказать ее может лишь «Колючая проволока»….Жанр: Фантастика, боевикРежиссер: Дэвид ХоганАктеры: Памела Андерсон, Темуэра Моррисон, Виктория Роуэлл, Джек Ноузуорти, Ксандер Беркли, Удо Кир, Андре Рози Браун, Клинт Ховард, Дженнифер Банко, Стив РейлсбэкПеревод: Профессиональный (многоголосый закадровый), авторский одноголосыйПродолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD3ACB511B21AA26DAF7F62A8F679A1B60CB199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270875   (151404) от 22.12.2018
-
-DVDFab 11.0.0.8 Portable (32/64 bit) by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151404.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVDFab - программа для копирования DVD и Blu-Ray дисков на DVD5/DVD9 и Blu-Ray диски с возможностями гибкой обработки видеопотока. Утилита является одной из лучших на сегодняшний день для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами. Снимает все защиты и ограничения с диска и, при желании, пережмет диск большой емкости и вместит его в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4C8C293CCA4102FF87BCA69779CB8313669A65
 ```
 
 

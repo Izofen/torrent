@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68764.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F3970591C09B0B4E41F984B4E97EBD7176FDA956
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68765.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:0C175BEC9E5EC8BEFBFCDFEF7E297C67742259EE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68766.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E04C6F057067E245C2E24163DEF705E5C1578B42
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68767.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:0B8D03A91F68DE2038532D8C27ACA0B269FF8922
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68768.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:B9FE46873771AAFCE2528D9047BCF2F5D524C1A1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68769.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:07D9D724EBF9D97531889CC35FCAAE610592A860
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68770.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68771.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:3F6C3A562857C2654B928B73560756D696E28419
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68772.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:8AD6D946C5AF6FAC89F935FED04587B347588B2D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68773.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:3A3003B601789B9A3236BA11352E2565389843D1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68774.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68775.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68776.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68777.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:0D9732889B199D849DEA0C08CBB83BAA4284F52C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68778.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Nachtblut - Todschick (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68779.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0868A892B7F2E19CCB37F879EA218B040E493AB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68780.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Nu Urban Jazz Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68781.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:76CAF97EBA74F004C39BEF45A9496B8796F7226F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68782.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4F9C7D5CB9BCFC9C15B4DD2D1A3FA10633EA2534
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68783.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Miami Music Week 2025 Sampler (2025) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68784.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:CD3B27E6638EA8DEBF03A453A30D41867B624C1D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68785.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Arion - The Light That Burns The Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68786.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68787.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68788.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Riot V - Armor Of Light (2018) 2xCD, Japanese Edition, Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68789.jpg" />
 </div>
 
 

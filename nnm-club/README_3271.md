@@ -1,3 +1,82 @@
+###  Публикация: 1747587   (104728) от 06.09.2024
+
+Ксения Москалева | Краткое изложение книги "Радикальное Прощение" (2024) [MP3, Геннадий Форощук]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победите душевную боль и исцелите жизнь вместе с бестселлером в удобном формате саммари!
+Как погрузиться в книгу, не читая ее полностью? Для этого существует саммари – краткое изложение основных идей книги. Оно содержит все ключевые мысли, которые автор хотел донести до читателя, и в то же время сохраняет атмосферу и дух оригинального текста. Мы пересказали книгу (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: Аудиокнига АСТПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6261E75E1F178C7D27720CD970DCC3D8107689D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747612   (104729) от 06.09.2024
+
+Твин Пикс - Избранное (2024) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104729.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Электрик
+2. Надежда на Солнце
+3. С высоты
+4. Девочка-смерть(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3E855FCD21B447070DEF7685F90744E9DA90CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747645   (104730) от 06.09.2024
+
+Siiickbrain - My Masochistic Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Dark Electro, Alt. Pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Eyes [00:01:43]
+02. Psychopath [00:03:00]
+03. Parasite [00:01:56]
+04. Liar [00:02:16](   Читать дальше...   )Жанр: Industrial Rock / Dark Electro / Alt. PopПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7845A4DDB2CE05E734F8973AE94BC8A6608C3237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747608   (104731) от 06.09.2024
 
 Твин Пикс - Избранное (2024) [MP3|320 Kbps] <Post Punk, New Wave>
@@ -6,7 +85,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104731.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (0409) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104732.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ MuseScore 4.4.1 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104733.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ magnet:?xt=urn:btih:83923A522D91848DE17F820628F12B6369B47337
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104734.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104735.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104736.jpg" />
 </div>
 
 
@@ -159,7 +238,7 @@ Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104737.jpg" />
 </div>
 
 
@@ -186,7 +265,7 @@ Lyran Lions - Chronicles of the Traveler (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104738.jpg" />
 </div>
 
 
@@ -213,7 +292,7 @@ magnet:?xt=urn:btih:0E17F164C948D52E91D23C4D2E6EE6CA739712A5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104739.jpg" />
 </div>
 
 
@@ -237,7 +316,7 @@ Jab Aggressors - Silent Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104740.jpg" />
 </div>
 
 
@@ -264,7 +343,7 @@ magnet:?xt=urn:btih:CC058AE82BE374169F7CF9DBFEC955962FA52512
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104741.jpg" />
 </div>
 
 
@@ -290,7 +369,7 @@ Boguslaw Balcerak's Crylord - Endless Life (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104742.jpg" />
 </div>
 
 
@@ -317,7 +396,7 @@ SonicFlame - FLAME OF LIFE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104743.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Wheel - Hip Eponymous (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104744.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ magnet:?xt=urn:btih:3A621DFC1153393DB3CE988D6CDE1040F656A349
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104745.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Powerdong - The Divine Phallusy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104746.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ Fullria - Aqueles Dias (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104747.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ Joe Calabro - The Storm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104748.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ magnet:?xt=urn:btih:B65E433DE271CF2562310C7FAC22A3719DA2A538
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104749.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ Lyran Lions - Star Rider (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power, Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104750.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104751.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Spitfyre - Fall Of Empires (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104752.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104753.jpg" />
 </div>
 
 
@@ -596,81 +675,6 @@ magnet:?xt=urn:btih:49D20433C25A29CEE81AB83F08456B8F9EF665B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3DCB7F29F47D7CEFA496453CFAF67B55B8E89D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747198   (104754) от 04.09.2024
-
-Process Lasso Pro 15.0.0.50 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F57B5066B476F55F300BDC79919DD34498452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747095   (104755) от 04.09.2024
-
-Hozier - Unreal Unearth (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Selby (Part 1) (3:40)
-02. De Selby (Part 2) (3:48)
-03. First Time (3:53)
-04. Francesca (4:30)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776EDDAD8149EBEDEFFD2956AEA6D16F301E7BA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747222   (104756) от 04.09.2024
-
-Журнал | Садовод и огородник №17 (532) (сентябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104756.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AC727272142117B85395EA24C76B4DD727C653
 ```
 
 

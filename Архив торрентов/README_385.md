@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89867.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kaspersky World 1.3.5.89 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89871.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89876.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:26317E12FDC86305902318B0C6DB9246BE491573
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89884.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:26317E12FDC86305902318B0C6DB9246BE491573
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89892.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:F995A30EFA6A05A964049F1F5C2B47D66EFD8D05
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89896.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:F995A30EFA6A05A964049F1F5C2B47D66EFD8D05
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89901.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:65935FB967C31864B1CBAE86E5CE2E54A84ACAF6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89919.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mecha World (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89920.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:382BB2E6B1C7BA924D350D258397B373D3BAC92E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89924.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:382BB2E6B1C7BA924D350D258397B373D3BAC92E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89926.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Tom Clancy's Rainbow Six 3: Complete Edition + Raven Shield 2.0 [En] (RePack) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89930.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Puissance - 14 albums (1995-2007) [mp3|192-320 kbps] <Martial Industrial, Dark A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89969.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:B48859A270F7988F8A5049C903A403F3F1BC6A3B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89977.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:80D1FF927855247D2E206E2664EB357FEFA782CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89984.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:BCDAE6832B29901B00B4628D696C207DBF3C4B3A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89991.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:BCDAE6832B29901B00B4628D696C207DBF3C4B3A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89994.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E5E220914C88654EE652FCE55A32040146AE29F8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89995.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Galaxy Hunter - Sleeping Child (2009) [MP3|320 кб/с]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89999.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90004.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Various Artists - The Hearts Of Shadow Gods (1996) [mp3|320 kbps] <Dark Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90024.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Synthaurion - Distant Frontier (2010) [MP3| ~189-221 кб/с ]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90029.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Offline Explorer Enterprise 6.2.3734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90258.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Offline Explorer Enterprise объединяет лёгкость использ
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90262.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D9EE0250A82A4F607853AB43DCE8B00D6D6E94FA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90263.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:7253DF8520BD94124C0199753DAB51313ED3EC14
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90266.jpg" />
 </div>
 
 

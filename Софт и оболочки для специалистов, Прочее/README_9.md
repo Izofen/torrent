@@ -6,7 +6,7 @@ Open Server Panel 6.4.6 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173411.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174258.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174258.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ MapleSoft MapleSim 2020.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174291.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174291.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ App Builder 2023.61 (x64) Portable by FC Portables [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176552.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ App Builder 2023.61 (x64) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177346.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179569.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179569.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Materialise Magics 27.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_181072.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.17 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185811.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185811.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.18 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188089.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188089.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 [11116.177] (Offline Cac
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188094.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188094.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VirtualBox 7.2.4 Build 170995 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188097.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188097.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ HP Service Pack for ProLiant Gen 10 2023.03 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188187.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188187.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ HP Service Pack for ProLiant Gen 10 2023.09 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188194.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188194.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ HP Service Pack for ProLiant Gen 9 2022.08 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188381.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188381.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ HP Service Pack for ProLiant Gen 11 2023.04 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188476.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188476.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Advanced Installer 21.0.1 RePack (& Portable) by xetrin [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190359.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190359.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ KLayout 0.27.12 + (standalone) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191743.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191743.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ ZWMeshWorks 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192873.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192873.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ CADbro 2023 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193166.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193166.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ZWSim Structural 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193186.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193186.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ZWSim EM 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193203.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ OrcaSlicer 2.3.1 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193355.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193355.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ LEX LIVE 10 Preview v.26.0.5 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193560.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193560.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Koplayer 2.0.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193700.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193700.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ LTspice 17.1.10 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193983.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Keysight Advanced Design System 2024 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194371.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194371.jpg" />
 </div>
 
 

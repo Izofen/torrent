@@ -1,3 +1,75 @@
+###  Публикация: 1652010   (194588) от 09.08.2023
+
+Шоугёлз / Showgirls (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая длинноногая танцовщица Номи отчаянно пытается добиться успеха в Лас-Вегасе и устроиться в популярное шоу. Но пока ей приходится согласиться на работу в стриптизе. Вскоре девушке достаётся счастливый билет — она знакомится с королевой сцены Лас-Вегаса Кристал. Та устраивает Номи в свое шоу и вводит ее в мир шоу-бизнеса — мир случая, предательства и интриг, (   Читать дальше...   )Производство: Франция, США / Carolco Pictures, Chargeurs, United Artists SeeЖанр: для взрослых, драмаРежиссер: Пол ВерховенАктеры: Элизабет Беркли, Кайл МакЛоклен, Джина Гершон, Гленн Пламмер, Роберт Дави, Алан Рачинс, Джина Равера, Лин Туччи, Грег Трэвис, Аль РуссоПеревод: Дублированный, многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC254B2AE48C9969A64CB86D09F89EEEC2574F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651904   (194602) от 09.08.2023
+
+Легко ли быть молодым? / Vai viegli but jaunam? (Is It Easy to Be Young?) (1986) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм становится первым документальным представителем одного из самых важных перестроечных жанров: "проблемного" фильма о молодежи. На смену давно устаревшим лозунгам пришло время судьбоносных вопросов - "кто виноват?", "что делать?" и сакраментального "кому на Руси жить хорошо?". Наступает период поиска ответов на эти "вечные (   Читать дальше...   )Производство: СССР, Рижская киностудияЖанр: документальный, драмаРежиссер: Юрис ПодниексАктеры: советская молодёжь 1980-х годовПеревод: Одноголосый профессиональныйЯзык озвучки: русский, латышскийСубтитры: русские, английские, латышскиеПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D51CB74F33C067BCB47F298EAAB8633C866626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646464   (194709) от 06.08.2023
+
+Пропавшая экспедиция; Золотая речка (1975; 1977) DVDRip [H.264/1080p] [Дилогия] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда искателей расследует утечку сибирского золота за границу. Продолжение детектива "Пропавшая экспедиция"Производство: СССР, Мосфильм, Киностудия им. М. ГорькогоЖанр: боевик, драма, приключенияРежиссер: Вениамин ДорманАктеры: Александр Абдулов, Николай Горлов, Александр Кайдановский, Юрий Каюров, Андрей Харыбин, Георгий Мартиросян, Ольга Матешко, Николай Олялин, Сергей Сазонтьев, Виктор СергачевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF70E1A4237DEC73D716BA0F0C1FC48BF293BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651279   (194729) от 06.08.2023
 
 Меня зовут Арлекино (1988) WEB-DLRip [H.264/1080p] [Handmade Upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194729.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194729.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:D62608C1361AB647A604475FE8AF88D83B4DD6AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194829.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194829.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:3BE6E8E47107E9B4CF9AECF2C24E739425E40B99
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194860.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194860.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:E3CB828A942E9212FBB962BE0BEC35DA7956F62B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194877.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194877.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:ABEA78D9D41255B509678A31CEC32BD941312A18
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194879.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194879.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:DF9000682F093006AFFDBAADEA73F6C6943D9DF5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194903.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194903.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:7B1F261A07C01526A4E5E882917C90F7E50895E3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195007.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195007.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:E01DDE3F5C3627589709FFDBCFC0405A3A35B51B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195027.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195027.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:AF2FF106773DB0AB3102CF4B788B793E25DFE7F9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195029.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195029.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:C3D5EF3F8428CE7D1C980F136CB47CCEEA84C340
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195095.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195095.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:43132B445D159687D9FB3D98C36CC36A37A5E95D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195138.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195138.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:DDEFD8147B035DB97053E00FCCC857DD9B668A9D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195207.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195207.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:DA52750CFEC4C5AAB0DF022A2474EAD23D8010D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195224.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195224.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:57501329D8B1CC22A1DD8B2FE0831AF85C2A624C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195251.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195251.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:F4ACAB7D4A7E0718DFB34E8AAA05C555A9710478
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195253.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195253.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:2F961EBB6C5D181119EDD19B8ADA5AEE188E5F60
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195265.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195265.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:8E8BE87A09F925E17F476D1013F8A5FD4690E9CF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195284.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195284.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:59C0D792D19B65E54B809AB10DF195F0C93B7E21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195306.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195306.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:A9524562BC8FD459AF024FB0F5E5B8B813555802
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195330.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195330.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:9D00E7CE752B70E7317C27C67CBE58BF1A9C093E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195365.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195365.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:4125BD99978A06DF257320586D65BF3F85527A52
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195375.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:59F74163FF77F8ABA294A80A77AD844AC586D94E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195398.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:779D2B93495DB611518F75150D8392E0E1102EA5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195447.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195447.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ magnet:?xt=urn:btih:779D2B93495DB611518F75150D8392E0E1102EA5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37994181F0D0F2F970CC3A3884058E956FA833B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647295   (195498) от 20.07.2023
-
-Лжец, лжец / Liar Liar (1997) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флетчер Рид — блестящий адвокат и неисправимый лжец. Он по привычке врет жене Одри, сыну Максу и учит клиентов подстраивать правду под свои нужды, перекраивать истину ради своей выгоды. Жена бросает Флетчера из-за его вредной привычки лгать, а сын Макс в свой день рождения, задувая свечи на торте, загадывает только одно желание: «Хочу, чтоб мой любимый папочка перестал (   Читать дальше...   )Производство: США / Universal Pictures, Imagine EntertainmentЖанр: комедияРежиссер: Том ШэдьякАктеры: Джим Керри, Мора Тирни, Джастин Купер, Кэри Элвес, Энн Хейни, Дженнифер Тилли, Аманда Донохью, Джейсон Бернард, Свузи Кёрц, Митч РайанПеревод: Многоголосый профессиональный, двухголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D407C97C50CD2B2C6B188050624686529E5C9BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642902   (195523) от 19.07.2023
-
-Оскар / Oscar (1967) BDRip [H.265/2160p] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утром выходного дня крупного промышленника Бертрана Барнье будит незваный гость. Им оказывается один из его служащих, Кристиан Мартэн. Цель его визита — попросить прибавку к жалованию с 2 тыс. франков до 6 тыс. франков в месяц. Такое высокое жалование нужно ему для того, чтобы попросить руки его возлюбленной, привыкшей к безбедной жизни. После долгих препирательств, (   Читать дальше...   )Производство: Франция,  Gaumont InternationalЖанр: комедияРежиссер: Эдуар МолинароАктеры: Луи де Фюнес, Клод Риш, Марио Давид, Жермэн Дельба, Клоди Жансак, Агата Натансон, Доминик Паж, Поль Пребуа, Сильвия Сорель, Филипп ВаллориПеревод: Дублированный (Союзмультфильм)Язык озвучки: французский, русскийСубтитры: русские, английские (pgs)Продолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1589D46F76E7AF172BA75A7EFA07B96998F955D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646493   (195550) от 17.07.2023
-
-Дайте жалобную книгу (1965) DVDRip [H.264/1080p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Москве работает ресторан «Одуванчик», который пользуется у посетителей дурной славой. Персонал хамит и нерадиво обслуживает клиентов, кругом пыль и грязь, кухня отвратительна, жалобная книга всегда «занята».
-И всё бы так и осталось, если бы в это злополучное место не пришёл журналист газеты «Юность» Никитин (Олег Борисов) и его коллеги. Столкнувшись с ужасным обслуживанием (   Читать дальше...   )Производство: СССР, МосфильмЖанр: комедияРежиссер: Эльдар РязановАктеры: Лариса Голубкина, Олег Борисов, Анатолий Кузнецов, Алексей Сафонов, Анатолий Папанов, Николай Крючков, Рина Зелёная, Юрий Никулин, Георгий Вицин, Евгений МоргуновПродолжительность: 01:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7721EF21E6A9840469845FEEA63CD4BCE6888A
 ```
 
 

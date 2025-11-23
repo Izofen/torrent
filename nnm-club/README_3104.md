@@ -1,3 +1,95 @@
+###  Публикация: 479798   (98892) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 41
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98892.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 41 
+Название:  Desktop Wallpapers Pack 41 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х720 - 4885х1560
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8710D88EB5D3C83664BEE31790F065BCEFD5FE73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479535   (98893) от 07.04.2012
+
+VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project 46 & Gemellini feat. Corinne Lee - Crazy (Original Mix)
+02. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix)
+03. Pedro Henriques feat. Giuseppe Viola - Spread The Love (Original Mix)
+04. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix)
+05. Agulo feat. David Berkeley - Fire Sign (Suncatcher Remix)
+06. Northbrook - Move Your Body (Tommie Sunshine Remix)
+07. House Rockerz - Hemmungslos (Extended Mix)
+08. Betsie Larkin with Super8 & Ta - All We Have is Now (Original M
+09. Mohombi - In Your Head (High Level Club Mix)
+10. Glamrock Brothers - Drunken Sailor (Club Mix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478759   (98894) от 07.04.2012
+
+OSI - Fire Make Thunder (2012) [FLAC|Lossless]<Progressive Rock,Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Call 7:10
+02. Guards 5:03
+03. Indian Curse 4:42
+04. Enemy Prayer 4:54
+05. Wind Won't Howl 5:05
+06. Big Chief II 3:04
+07. For Nothing 3:18
+08. Invisible Men 9:54Жанр: Progressive Rock,Progressive MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479730   (98895) от 07.04.2012
 
 [Wallpapers] Girls Desktop Wallpapers №7
@@ -6,7 +98,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98895.jpg" />
 </div>
 
 
@@ -34,7 +126,7 @@ magnet:?xt=urn:btih:6E7A6EF740426BE07AED1505C5AB6CE9035E29D5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98896.jpg" />
 </div>
 
 
@@ -62,7 +154,7 @@ magnet:?xt=urn:btih:D568BDED94A9A628AF60F646F39192CC270C2927
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98902.jpg" />
 </div>
 
 
@@ -86,7 +178,7 @@ VA - Deep Line. Lounge Collection (2012) [MP3|320 kbps]<Chillout | Downtempo | L
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98903.jpg" />
 </div>
 
 
@@ -119,7 +211,7 @@ Data Flow Accelerator 3.4.2.24 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98904.jpg" />
 </div>
 
 
@@ -152,7 +244,7 @@ Data Flow Accelerator - бесплатный менеджер закачек, с
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98905.jpg" />
 </div>
 
 
@@ -176,7 +268,7 @@ magnet:?xt=urn:btih:69AAEDEC1BFA25920021EF776AF9406244DE203F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98906.jpg" />
 </div>
 
 
@@ -204,7 +296,7 @@ magnet:?xt=urn:btih:FFC4570E7CDA48CA4C605A51A1D3272EC2D547FF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98907.jpg" />
 </div>
 
 
@@ -229,7 +321,7 @@ magnet:?xt=urn:btih:3E5D23D464FA41AD058EA19D4C9906BC38081EF3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98908.jpg" />
 </div>
 
 
@@ -253,7 +345,7 @@ magnet:?xt=urn:btih:337548FC1723B82E251752746C2CABE26893E800
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98909.jpg" />
 </div>
 
 
@@ -281,7 +373,7 @@ magnet:?xt=urn:btih:2602C0E6F22F706D602AE1C96A918811E657E4AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98911.jpg" />
 </div>
 
 
@@ -305,7 +397,7 @@ magnet:?xt=urn:btih:7BB3429D85238DD8D3EE8FBF9B4ABF0CC02A37EC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98913.jpg" />
 </div>
 
 
@@ -333,7 +425,7 @@ magnet:?xt=urn:btih:2BA251A0792602F3C9081BCEFBF5A7F0FEA3D9C9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98917.jpg" />
 </div>
 
 
@@ -361,7 +453,7 @@ Jeff Kashiwa - Back In The Day (2009) [FLAC|Lossless]<Smooth Jazz, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98918.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98918.jpg" />
 </div>
 
 
@@ -394,7 +486,7 @@ Jeff Kashiwa - Back In The Day (2009) [FLAC|Lossless]<Smooth Jazz, Contemporary 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98921.jpg" />
 </div>
 
 
@@ -418,7 +510,7 @@ magnet:?xt=urn:btih:565CF216127C4B604A3BDD2737EEA214E308E69C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98928.jpg" />
 </div>
 
 
@@ -442,7 +534,7 @@ magnet:?xt=urn:btih:565CF216127C4B604A3BDD2737EEA214E308E69C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98931.jpg" />
 </div>
 
 
@@ -466,7 +558,7 @@ Can - Sacrilege (2CD) (1997)[FLAC|Lossless]<Trip Hop, Abstract, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98934.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98934.jpg" />
 </div>
 
 
@@ -498,7 +590,7 @@ CD One - 00:49:24
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98936.jpg" />
 </div>
 
 
@@ -526,7 +618,7 @@ DJ Tiesto - Club Life 258(03.2012) [MP3|320 кб/с]<Trance ,Progressive House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98937.jpg" />
 </div>
 
 
@@ -559,7 +651,7 @@ magnet:?xt=urn:btih:A71877A09A84AC6DA3DB0F9101E6E53D5349E66B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98938.jpg" />
 </div>
 
 
@@ -583,7 +675,7 @@ magnet:?xt=urn:btih:6A99EFC2A8B0FE4214EF1891E1EC3DF59F752ACF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98940.jpg" />
 </div>
 
 
@@ -607,7 +699,7 @@ Data Flow Accelerator 3.4.2.24 Portable [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98942.jpg" />
 </div>
 
 
@@ -627,87 +719,6 @@ Data Flow Accelerator - бесплатный менеджер закачек, с
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478906   (98943) от 07.04.2012
-
-До мозга костей / Skin Deep (1989) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немолодой писатель-алкоголик по имени Зак, который страстно хочет вернуть свою бывшую жену. Но для этого ему нужно прекратить свои бесконечные любовные похождения, а это совсем непросто!Жанр: КомедияРежиссер: Блейк ЭдвардсАктеры: Джон Риттер, Винсент Гардения, Элисон Рид, Джоэл Брукс, Джулианна Филлипс, Челси Филд, Питер Донат, Дон Гордон, Нина Фош, Дениз КросбиПеревод: Авторский одноголосый (Михалёв)Продолжительность: 01:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D1E0098A93EEC9A9EC944CC8C94B9793F25668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479568   (98945) от 07.04.2012
-
-Титаник с Леном Гудманом / Titanic with Len Goodman (2012) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеведущий Лен Гудман утверждает, что многие истории с гибелью "Титаника" только начались. Чтобы подтвердить эту мысль, он отправляется на родину "Титаника" - судоверфи в Белфасте. Так начинается удивительное путешествие, в котором причудливо переплетается прошлое и настоящее...Жанр: Документальный, ТелепередачаРежиссер: Эдвард ХартПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Английский (Red Bee Media Ltd.)Продолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08831C383F5C5CBAAFD74151556B78CD3A7DCC64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479495   (98947) от 07.04.2012
-
-VA - Моя ночная коллекция (2012) [MP3|192-320 kbps]<Pop | Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Chris Rea - The Road To Hell
-02 Joe Cocker - My Father'S Son
-03 Styx - Boat - The River
-04 Smokie - Living Next Door To Alice
-05 Tanita Tikaram - And I Think Of You
-06 Sting - Shape Of My Heart
-07 Deep Purple - Soldier Of Fortune
-08 Eagles - Hotel California (Live)
-09 Chris Rea - Looking For The Sammer
-10 Scorpions - Still Loving You(   Читать дальше...   )2012Жанр: Pop | RockПродолжительность: 07:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E228165392CCB97D41ACBB4E8AD6B43DB5A1B8E4
 ```
 
 

@@ -6,7 +6,7 @@ Alessandro Brunetta - Shakedown! (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109938.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gugun Blues Shelter - Coming Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109943.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WailingGita - Mafia's Masquerade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109946.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Monica Shriver - Unfolding (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109947.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Novelty Five - Rosetta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109949.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fux Jazz Band - Mi Lugar de Fantasía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109952.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AWaJI Jazz Blues - Superstition (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109954.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bastardz Music Lab - Episode #64 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109955.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Burning Sleeves - Turning the Light On (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109975.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Paddy Boy Zimmermann Band - The Paddy Boy Zimmermann Band (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109976.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gary Cain - Outside The Lines (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109982.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sensual Lounge Music Universe, Romantic Jazz Music Club - Sex Before Noon: Morni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110005.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ New Order - Power, Corruption & Lies (1983) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110030.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110038.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mikel Gaztelurrutia Trio - Black on White (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110043.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Julian Costello Quartet - And All The Birds Were Set Free (2024) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110046.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Katinka Alme Band - Sirkus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110047.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Oakman - Violent Oblivion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110049.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ English Teacher - This Could Be Texas (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110065.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blake Aaron - Love and Rhythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110075.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bob Marley & The Wailers - Uprising (1980) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110083.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Deep Six Blues - The Devil's Hand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110099.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Glen Campbell - Glen Campbell Duets: Ghost On The Canvas Sessions (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110107.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Marvel83' - 5th Element (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110114.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ibibio Sound Machine - Pull the Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110164.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rapid Transit - Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110203.jpg" />
 </div>
 
 

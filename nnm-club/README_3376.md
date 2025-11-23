@@ -1,3 +1,84 @@
+###  Публикация: 1732523   (107458) от 25.06.2024
+
+Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Hedor De La Inmundicia
+02. Amok
+03. Toro De Falaris
+04. Necropsia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38CF5762E21A42369F4C2A232AFE3E9E1FE68FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732471   (107459) от 25.06.2024
+
+Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive Motel (3:27)
+02. Limo Voodoo (3:28)
+03. Loser (3:37)
+04. By This River (5:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94C48E9C729C56E1996C660B98B7055B390692A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732491   (107460) от 25.06.2024
+
+Helen Humes - 1948 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Out for Tears [3:19]
+02. Married Man Blues [3:14]
+03. Somebody Loves Me [2:27]
+04. Don't Fall in Love with Me [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79019371A894BA0BACBA1D937F8D8FDD568B2674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732430   (107461) от 25.06.2024
 
 Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
@@ -6,7 +87,7 @@ Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107461.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107462.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107463.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107464.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:0967008EDAFA319331CEABBC8B71B96F2805E32B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107465.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:D495782D8C5BEA9B59CEF7B835EEE2D7EDEE344C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107466.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107467.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107468.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107469.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:29635C7A1652E73A73297246EF7C20A043B61A9D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107470.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Allan Wilson - Walking to Nowhere (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107471.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ James Brown & The Soul G's - Chastain Park Atlanta 1985 Live (2024) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107472.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107473.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Or Not - Violence & Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107474.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ Atlantic - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107475.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ Riviera Paradise - Ready for More (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107476.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ Those Damn Crows - Inhale/Exhale (2023) Expanded Edition, 2024, Earache Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107477.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ Timi Yuro - You Are My Special Angel (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107478.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ Katarina Kochetova - Beyond Motion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107479.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Harry James - The Chronological Classics: 1942-1944 (2002) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107480.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ WDR Big Band & John Goldsby - WDR Big Band — Small Group Sessions — Incentiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107481.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ Rifflord - 39 Serpent Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107482.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107483.jpg" />
 </div>
 
 
@@ -608,87 +689,6 @@ VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD004F831D00904C00FC2B95F657765AA4A39CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731950   (107484) от 24.06.2024
-
-Thomas Dolby - The Flat Earth (1984) 40th Anniversary Edition, 2024, Echo [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dissidents (2009 Remastered Version) [00:04:56]
-02. The Flat Earth (2009 Remastered Version) [00:06:40]
-03. Screen Kiss (2009 Remastered Version) [00:05:35]
-04. White City (2009 Remastered Version) [00:05:22](   Читать дальше...   )Жанр: SynthpopПродолжительность: 02:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6297F8B454617A12305CDF8B6F3456ABE669F714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732270   (107485) от 24.06.2024
-
-Babbba - Cabaret Conversation (Vol.4) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surpassed (2:19)
-02. Sway Trance (2:00)
-03. Sweet Connection (3:48)
-04. Syncopated You (3:28)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178AEC22944708E819EF6619B3AB7A1F807F9F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732180   (107486) от 24.06.2024
-
-Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [MP3|320 Kbps] <Symphonic-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Solemn Hour
-02. Faster
-03. Paradise (What About Us?)
-04. Stand My Ground(   Читать дальше...   )Жанр: Symphonic-MetalПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DBF9227D283384E563C9417962068C1FF25951
 ```
 
 

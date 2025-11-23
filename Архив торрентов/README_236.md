@@ -6,7 +6,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54598.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains PyCharm Professional 2024.1.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54600.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jetbrains WebStorm 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54606.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v18 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54612.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v18 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54629.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ MInstAll v.31.05.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54643.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ iTop VPN 5.5.0.5240 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54652.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54653.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Google Chrome 125.0.6422.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54654.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Duolingo: изучай языки 5.152.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54667.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Brave Browser 1.66.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54668.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sumatra PDF 3.6.16318 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54670.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Google Chrome 125.0.6422.142 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54682.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ImgDrive Pro 2.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54684.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BalenaEtcher 1.19.21 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54691.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ HashTools 4.8.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54698.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Hosts File Editor+ 1.5.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54711.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Planet VPN 2.8.26.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54725.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Calibre 7.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54762.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Vivaldi 6.7.3329.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54773.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ PDF Shaper Premium / Ultimate 14.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54777.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ FBackup 9.9.916 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54778.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Perfectly Clear WorkBench 4.6.1.2663 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54779.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PortableApps.com Platform 29.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54780.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Tablacus Explorer 24.5.30 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54781.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ dBpoweramp Music Converter 2024.05.30 (x64) Portable by FC Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54788.jpg" />
 </div>
 
 

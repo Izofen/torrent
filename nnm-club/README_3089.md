@@ -1,3 +1,84 @@
+###  Публикация: 476369   (98255) от 31.03.2012
+
+Лилия Малахова | Зачем нужны мужчины [2011] [FB2,RTF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98255.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приоткрыта завеса многочисленных тайн тайн мужского "Я". Оказывается, мужской пол необходим нам. Он - двигатель эволюции и научно-технического прогресса, истории и культуры. Возможно, что без мужчин мы так и остались бы всего лишь обезьянами, научившимися прямо ходить. Эта книга станет для вас источником не только любопытной, но и полезной информации и поможет взглянуть на мужчин чуть-чуть иначе. Мужчина - разрушитель и творец одновременно, охотник и жертва, властитель и раб своей сути. Чего он заслуживает - любви или ненависти? Кто он и зачем пришел в этот мир? Могла ли природа обойтись без мужчин? Зачем нужны мужчины?2011Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9729DA84A6AC2131CE4CD9B8A74EAC6D7138CD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476235   (98256) от 31.03.2012
+
+VA - MAXI. Романтика Русского Рока (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Земфира - Небо Лондона (live) (3:12)
+2. Високосный год - Тихий Огонек (4:22)
+3. Макаревич - Перекресток (4:49)
+4. Кино - Пачка Сигарет (4:30)
+5. Ольга Дзусова - Тополя (3:36)
+6. Любэ - Старые друзья (3:49)
+7. Кино - Кукушка (6:42)
+8. Леприконсы - Напиши мне (5:06)
+9. Ляпис Трубецкой - Зеленоглазое такси (2:49)
+10. Чиж и Ко - О любви (4:39)2012Жанр: RockПродолжительность: 03:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0488A235CA78AFAC0A2363D028C8D94898B32444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475178   (98258) от 31.03.2012
+
+Дикий Юг. Тасмания - последнее убежище / Wild South. Tasmania the last refuge (1990-1999) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476014   (98259) от 31.03.2012
 
 Любимые / The Loved Ones (2009) DVD9
@@ -6,7 +87,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98259.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98260.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98260.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98261.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ VA - Disco Stars (2012) [MP3|320 kbps]<Pop | Italo-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98262.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ cHAMBAo - Endorfinas En La Mente (2004) [MP3|320 кб/с]<Electronic, Latin, Fla
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98263.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy List
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98264.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ magnet:?xt=urn:btih:2F155E1F16DF8F2176CC6075FFBC829108C77254
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98269.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ Open Xange 2012.04 RC1 [x86_64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98271.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ VA - Дискотека "Наступает Ночь" (2012) [MP3|256 kbps]<Disc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98273.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ magnet:?xt=urn:btih:4E8F4C040F44335750B17AC439282E9AA9D111B0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98275.jpg" />
 </div>
 
 
@@ -283,7 +364,7 @@ Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98276.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98278.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98279.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98280.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98284.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98284.jpg" />
 </div>
 
 
@@ -439,7 +520,7 @@ VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98285.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98288.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98289.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98292.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98294.jpg" />
 </div>
 
 
@@ -600,7 +681,7 @@ VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98295.jpg" />
 </div>
 
 
@@ -633,7 +714,7 @@ Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98296.jpg" />
 </div>
 
 
@@ -664,7 +745,7 @@ VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98297.jpg" />
 </div>
 
 
@@ -684,105 +765,6 @@ VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474754   (98300) от 01.04.2012
-
-VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alya - Damelo (DJ Geny Tur & DJ МакsимOFF Remix) (3:52)
- 2. Bastille - One Night Love Affair (Aylen Remix) (4:28)
- 3. Benny Benassi feat. Sandy - Illusion (Ramirez Remix) (4:31)
- 4. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
- 5. Cher Lloyd - Want U Back (Cahill Extended Mix) (5:52)
- 6. G&G feat. Jonny Rose & Chris Reeder - All Falls Down (Extended Mix) (4:16)
- 7. Klaas - Engelstrommeln (Radio Edit) (3:03)
- 8. Michael Telo - Ai Se Eu Te Pego (DJ Geny Tur Remix) (4:34)
- 9. Spring Emotions & Seaside Clubbers - Egoist (Mondo Remix) (7:05)
- 10. Wendel Kos & Big Fish - Ready To Rock (Original Mix) (6:16)22.03.12Жанр: Electro HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476093   (98302) от 01.04.2012
-
-Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]<Jazzgrind / grindcore / fusion / jazz / progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Forester 031 (0:31)
- 02 Servitor(0:48)
- 03 Classic galaxy(0:42)
- 04 Not ok radioactive situation(0:49)
- 05 Slug situation(0:47)
- 06 Hypnoconsultism(0:57)
- 07 Headless 200(0:51)
- 08 Diplomat 6(0:53)
- 09 Apparatus(0:46)
- 10 Multism(0:50)(   Читать дальше...   )2010Жанр: Jazzgrind / grindcore / fusion / jazz / progressiveПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476788   (98308) от 01.04.2012
-
-VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix)
-02. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
-03. Hands Up Squad - Alice In Wonderland 2k12 (Hardmaster Remix Edit)
-04. Topmodelz - Two Princes (Paramond Edit)
-05. Bodybangers Feat. Carlprit & Linda Teodosiu - One More Time (Tujamo Remix Edit)
-06. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix)
-07. Horn E. - Balando Cachonda (I Wanna Fuck)
-08. Flo Rida - Good Feeling (DJ Kapuzen & DJ Spaty Radio mix)
-09. Eagles - Hotel California (Ivan Flash Remix)
-10. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
 ```
 
 

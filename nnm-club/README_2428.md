@@ -6,7 +6,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63493.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:41BE66DAEE09822F9EDC2F899DD89C149FE10518
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63494.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AF0C99A79E5444FF13C54F061FA8ED26F99AE508
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63495.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63496.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ TuneIn Radio 33.6 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63497.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ FinePrint 11.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63498.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E8845717882CEBEE9645D63AFA7BEAF59BBF1A51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63499.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Reface v4.6.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63500.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5C79BB0909B4BEDC158CC55D9095B1A3EAAACB86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63501.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9D03DD59C02EC6A907026C0415CBC9BF36D886AF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63502.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5B68EAD4299B750D3B8ADFB7F60C9345D9209F40
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63503.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Cyberduck 8.8.0 Build 41209 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63504.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PlayerPro Music Player 5.35 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63505.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A2A50AF91CBE52974305E30EE6CB46B47D0710BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63506.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:DC83B1B3AC434444BF8D000DA029B5C5F070F58E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63507.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7F60F550F48BDD3B7B8637F51258B56B82F3C3EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63508.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PictureThis - Plant Identification v3.79 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63509.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63510.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8A33451903DD2919059DCE3CEF871492E0986507
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63511.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lucky Season: King of Fools (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63512.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4A8AE64755B8A519C5D745C39F0871E943FD60F3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63513.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D0868605EE6AB92C2C1F8FFA9CD9A6B5A763F90A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63514.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Duplicate File Finder Pro 2401 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63515.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Reconstruct Subdiv script for Autodesk Maya v1.3 by Nick Barre [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63516.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8299552D9F982989B3A6BEE54524EBA8F98B990C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63517.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:74310F4F79C4E2B422F09A7D3634E74984E8BE12
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63518.jpg" />
 </div>
 
 

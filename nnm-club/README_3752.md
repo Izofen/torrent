@@ -1,3 +1,76 @@
+###  Публикация: 1700248   (117234) от 16.02.2024
+
+Google Chrome 121.0.6167.185 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01A86DB82D2AE767C218D85768FBD486F99FDED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700403   (117235) от 16.02.2024
+
+Сергей Карелин | Проект Х (2024) [MP3, Константин Парфенов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Советскому руководству становится известно о секретном немецком проекте «Проект Х». Так как данный проект оказывается связанным с известным немецким профессором оккультных наук, принимается решение возродить секретный отдел НКВД, занимавшийся тем же, что и фашистское «Аненербе», но закрытый как прибежище врагов народа....Жанр: Боевая фантастика, Боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 07:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277CA63C399579BC9DDFAE659AAD67AF87E0F959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700469   (117236) от 16.02.2024
+
+LRTimelapse Pro 6 v.6.5.4 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117236.jpg" />
+</div>
+
+
+###  Подробнее
+
+RTimelapse — приложение предназначено исключительно для профессионалов и опытных фотолюбителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка утилиты, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фотоизображения, по нескольким ключевым кадрам.
+Интервальная съемка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2024 Gunther WegnerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31796BF975D123D1D209458FE1B7A2AD41D9B88B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700241   (117237) от 16.02.2024
 
 Brave Browser 1.62.165 Portable by Cento8 [Ru/En]
@@ -6,7 +79,7 @@ Brave Browser 1.62.165 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117237.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ FanControl V181 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117238.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:BA8C352635B33EC2B1F314ED71E2E56D808D559A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117239.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117240.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:0D29830A77DF4C3B64D2CE62D8CB19979A1E8E16
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117241.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:7EF07A8A07248240FFA20B17DA304F4A4534FF65
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117242.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117243.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Sante DICOM Viewer Pro 14.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117244.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ VA - Greatest Ever Decade 90s (2021) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117245.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ magnet:?xt=urn:btih:B90CBE4A4B2172EF2707C84F2DAEB0A15A4744B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117246.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ magnet:?xt=urn:btih:F205EB30C3975B959C6195D17B9AE23281D36E96
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117247.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ Microsoft .NET 7.0.16 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117248.jpg" />
 </div>
 
 
@@ -305,7 +378,7 @@ magnet:?xt=urn:btih:4A415457807BBCC1097D22ADC6FC820AB486981B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117249.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ Teach-In - The Best Of The Best (1997) [OGG Vorbis|480 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117250.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:85162C345E5075C5E7E1ED38B99720E94759FCE2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117251.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ magnet:?xt=urn:btih:79EBB3FE1DFF8C0B5C54DFA7D3778DF8E1E0169C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117252.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Topaz Video AI 4.1.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117253.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117254.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ magnet:?xt=urn:btih:BB1AC04CB919E49751CBF90299FB61F956ED53EA
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117255.jpg" />
 </div>
 
 
@@ -480,7 +553,7 @@ magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117256.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ magnet:?xt=urn:btih:49EFF7F1A37B4F3AA344F2F4E5FBE86FD19E2BE6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117257.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ magnet:?xt=urn:btih:B368AF3351778D9A01A8312587D0FF812D44F06F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117258.jpg" />
 </div>
 
 
@@ -556,7 +629,7 @@ Wireshark 4.2.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117259.jpg" />
 </div>
 
 
@@ -568,82 +641,6 @@ Wireshark - бесплатный сниффер, предназначенный 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F3E97782A541428122BB4BE81E137C9BD4D5D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699986   (117260) от 16.02.2024
-
-VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dead Or Alive - You Spin Me Round (Like A Record)
-02.  Haircut 100 - Fantastic Day
-03.  Bros - I Owe You Nothing
-04.  Altered Images - Don't Talk To Me About Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77608A39F64296B8CC8F59530820C41D154D187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698691   (117261) от 16.02.2024
-
-На спутнике Сатурна именуемым «Звезда Смерти» может быть внутренний молодой океан
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи предполагают, что один из спутников Сатурна может скрывать под своей ледяной кратерной поверхностью океан, который может стать прибежищем для жизни.Мимас - малый спутник, но его кратер настолько велик, что напоминает космическую станцию ​​«Звезда Смерти» из «Звездных войн».Астрономы долгое время считали, что у Луны твердое остывшее ядро, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700369   (117262) от 16.02.2024
-
-Цыганская невеста / La novia gitana / The Gypsy Bride (2022) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа Кармен Мола.
-Инспектор спец бригады расследует ритуальное убийство молодой цыганки, которое полностью воспроизводит смерть её сестры 6 лет назад. Загвоздка в том, что виновный уже отбывает наказание в тюрьме.Производство: Испания / Diagonal TV, ViacomCBS International StudiosЖанр: драма, криминалРежиссер: Пако Кабесас, Хуан Мигель дель КастильоАктеры: Нереа Баррос, Висенте Ромеро, Игнасио Монтес, Лусия Мартин Абельо, Мона Мартинес, Франсеск Гарридо, Хинес Гарсия Мильян, Дарио Грандинетти, Моника Эстарреадо, Морено Борха и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DDAE29CB054A7CDC34D223856225E9F363734E
 ```
 
 

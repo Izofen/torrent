@@ -6,7 +6,7 @@ Wallpaper Sexy Girls 0.10
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Velocidad Absurda - Reborn For The Extermination (2011) [MP3|320 кб/с]<Brutal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100088.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ludicra - The Tenant (2010) [MP3|320 кб/с]<Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100089.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mozilla Thunderbird 12.0 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100090.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mixed Wallpapers 0.8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100093.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Mustasch - Sounds Like Hell, Looks Like Heaven (2012) [FLAC|Lossless]<Stoner / H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100098.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100098.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mustasch - Sounds Like Hell, Looks Like Heaven (2012) [FLAC|Lossless]<Stoner / H
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100100.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100102.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100103.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100105.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:18814D2D27C521860E98F901759D1A6567C42B4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100107.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0613C7B7B222EE86E52B321F7EA328D8F2C67EB3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100113.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:452E2E47C78DCC06DD357AC3A242E747775FD85C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100115.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100120.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Chill Out Room XVI [3CD] (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100121.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:4FF013453DB4FAC03D8C3FFE278E59F00F8E9697
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100136.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:C6B8D497F00EF623828789DFCDFB65B9B6434BC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100139.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:23334ABB78DED717AC60D9299A16DC2B7B4B0DD6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100140.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:3C59B799B2CB7E2F59CBBA3022CF416699095BB8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100143.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:11D24F5FC7B2582BBE78F91D3AC38ADEB46DBBAE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100145.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mixed Wallpapers 0.9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100147.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Avgrunn - Conceived Genetically Perverse (2012) [MP3|229-271 kbps]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100151.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100153.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100154.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Penthagon - Penthagon (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100155.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100157.jpg" />
 </div>
 
 

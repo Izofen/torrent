@@ -1,3 +1,78 @@
+###  Публикация: 1692366   (122668) от 16.01.2024
+
+Черный шум / Black Noise (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элитную команду службы безопасности отправляют на закрытый частный остров с поручением спасти важную персону. По прибытии отряд обнаруживает, что остров в запустении, но вскоре им приходится столкнуться с незнакомыми смертоносными технологиями и жутким звуком, который невозможно выкинуть из головы.Производство: США / MSR Media, Sherborne MediaЖанр: фантастика, боевикРежиссер: Филиппе МартинесАктеры: Джексон Рэтбоун, Уэйн Энтони Гордон, Фрэнк Корби, Томас Дауни, Джин Фриман, Эштон Ли, Ив Мауро, Сэди Ньюман, Ники СпиридакосПеревод: Дублированный (Zone Vision)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B277242F92751FD3BC6DB42F6275E7D6A47E7D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692389   (122669) от 16.01.2024
+
+Онлайн школа RealManual, Василий Егоров | ArgoCD+Keycloak: devops-практика (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс не просто учебный материал, а обширная практика, охватывающая работу с инструментами ArgoCD и Keycloak, а также множество других зависимостей и технологий. Основной упор сделан на развитие и практическое применение навыков в реальных условиях.
+Ключевые особенности курса:
+    ✅Полноценная DevOps Практика: Курс включает в себя работу с настоящими инструментами (   Читать дальше...   )Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 06:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692388   (122670) от 16.01.2024
+
+Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быстрый старт (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите полное руководство по Adobe Firefly в Photoshop с практическими навыками
+Данный класс – подробное руководство по использованию инновационного инструмента Adobe Firefly в Adobe Photoshop. В ходе класса рассматриваются основные аспекты Adobe Firefly, включая использование генеративных сетей для создания изображений на основе введенных пользователем запросов. (   Читать дальше...   )Производство: LiveclassesЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 01:57:15Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C54EDD23A9E76BD34457B98815C57F9FD7CB6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394794   (122671) от 16.01.2024
 
 Николай Гоголь | Мёртвые души (2005) [MP3, Михаил Ульянов]
@@ -6,7 +81,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122671.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ magnet:?xt=urn:btih:8BD7F8ED3F2A923C9619930BA4EB76F8DF1B1EA3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122672.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:00C8D07381BC5D8B35559B81D9BB7532DBAA365C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122673.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:09BEAAC39FD7C2CD9D167FDA4A299C383D9434DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122674.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:571D4A304A141018E68287C7DA1C374479B8661D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122675.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ magnet:?xt=urn:btih:E1DA58F2379F0109458C320B5FEAE9263FFE3631
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122676.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122677.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:3D7EEAC22A39CC32777B7300F7B11FC48474935F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122678.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:B0652827012B11CF30151D0C273A5A1B0FB4ED3A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122679.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:EF305F95E4FD883C671F310C2E5B9EF6C3BFBE51
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122680.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:C2D0D5DB5C2F7D1A6E2CCCF3E600017169318E27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122681.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ magnet:?xt=urn:btih:6E8153B3B242F21B147B532BCE38751193767AE6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122682.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:A84D1E005E3A138313AED3F14446CD722CE06D44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122683.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:7448D87DA71D4E90FEAAD55DE76DF4505BD6AD1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122684.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:1544397511917A7654C299E68B03BB034846E39D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122685.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:BB17A0EAB0A51643E5AA6B8861283A32C0F3C6A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122686.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:90169AD494060499369A347CC0E3FADFD9B79E19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122687.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:5FCA08476C0B54B432C49F4831C6CD90E1D4CBEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122688.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:B3F0FB1BC30120C54AF87B728E8A7B121EC2F919
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122689.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122690.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ magnet:?xt=urn:btih:AAA9D1CA03718B396FA3FA4373C37DC03DB78965
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122691.jpg" />
 </div>
 
 
@@ -515,7 +590,7 @@ magnet:?xt=urn:btih:17159847FC7678F4A739DC808B8BEFD3F3E14948
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122693.jpg" />
 </div>
 
 
@@ -553,80 +628,6 @@ magnet:?xt=urn:btih:AA9D574A1AA569E6B38DD7B7210C489153FA29F5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692428   (122694) от 16.01.2024
-
-Луна / Deo mun (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122694.jpg" />
-</div>
-
-
-###  Подробнее
-
-2029 год. Пять лет назад Южная Корея пыталась отправить экспедицию на Луну, но ракета взорвалась вскоре после старта, поэтому на новую миссию возлагаются большие надежды. Уже выведенный на окололунную орбиту космический корабль попадает под действие сильного солнечного ветра, происходит утечка топлива и взрыв, в результате которого погибают два из трёх членов экипажа. (   Читать дальше...   )Производство: Корея Южная / BLAAD StudiosЖанр: Фантастика, драма, триллерРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Хон Сын-хи, Чхве Джон-у, Брэд Литтл, Пол де ХэвиллэндПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: 02:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479902610802F8E55A865B2DD91E52945A1593E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 118978   (122695) от 16.01.2024
-
-АББА: Фильм / Abba The Movie (1977) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм охватывает период наивысшей популярности группы, между альбомом 1976 года «Arrival» и альбомом 1977 года «The Album», песни из которых представлены в виде видеозарисовок.Производство: Швеция, АвстралияЖанр: документальный, драма, комедия, музыкаРежиссер: Лассе Халлстром /Lasse Hallstrom/Актеры: Агнета Фельтскуг /Agnetha Faltskog/, Бенни Андерссон /Benny Andersson/, Бьерн Ульвеус /Bjorn Ulvaeus/, Анни-Фрид Люнгстад /Anni-Frid Lyngstad/, Роберт Хьюз /Robert Hughes/Перевод: профессиональный одноголосыйСубтитры: нетПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4405282674EB78011E9A36948B1D72E80B5DA003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469696   (122696) от 16.01.2024
-
-М. Л. Закожурникова и др. | Русский язык. Учебник для 1-го класса (1965) [Раритет] [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составили:
-М.Л. Закожурникова, Ф.Д. Костенко, Н.С. Рождественский
-Предлагаемое раритетное издание является пособием по обучению чтению и письму детей 6-7 летнего возраста, слегка пожелтевшие страницы.Жанр: УчебникИздательство: «Просвещение» МоскваФормат: PDF, DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
 ```
 
 

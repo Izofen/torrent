@@ -1,3 +1,27 @@
+###  Публикация: 1648803   (207907) от 26.07.2023
+
+LiveTcpUdpWatch 1.51  Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207907.jpg" />
+</div>
+
+
+###  Подробнее
+
+LiveTcpUdpWatch — это инструмент для Windows, который отображает оперативную информацию обо всех действиях TCP и UDP в вашей системе. Каждая строка в основной таблице LiveTcpUdpWatch отображает протокол (TCP/UDP/IPv4/IPv6), локальный/удаленный IP-адрес, локальный/удаленный порт, количество отправленных/полученных байтов, количество отправленных/полученных пакетов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB9D21D25DB570D8B67141982469ECAF24E4823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574600   (208866) от 05.09.2022
 
 Wu10Man 4.4.0 + Portable [En]
@@ -6,7 +30,7 @@ Wu10Man 4.4.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208866.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Task Manager DeLuxe 4.8.0.0 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208908.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by JooSeng [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208977.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208977.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ TaskSchedulerView 1.73 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209154.jpg" />
 </div>
 
 
@@ -104,7 +128,7 @@ ReviverSoft Driver Reviver 5.42.2.10 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209604.jpg" />
 </div>
 
 
@@ -128,7 +152,7 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209955.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209955.jpg" />
 </div>
 
 
@@ -152,7 +176,7 @@ Driver Booster Pro 10.2.0.110 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210375.jpg" />
 </div>
 
 
@@ -176,7 +200,7 @@ CPUID HWMonitor Pro 1.52.0 (x64) Portable by FC Portables [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211018.jpg" />
 </div>
 
 
@@ -200,7 +224,7 @@ CleanMyPC 1.12.2.2178 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211803.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211803.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ Glary Utilities Pro 6.33.0.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212271.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ W10Privacy 5.3.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212273.jpg" />
 </div>
 
 
@@ -272,7 +296,7 @@ Revo Uninstaller Free 2.6.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212408.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ Registry Clean Expert v4.83 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213353.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213353.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ PrivaZer Pro 4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213421.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213421.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ Glary Utilities Pro 6.33.0.37 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213433.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213433.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ PrivaZer Pro 4.0.114 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213446.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213446.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ Ashampoo WinOptimizer 28.00.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213581.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213581.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ Any RAR Password Recovery 9.9.8 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213842.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ WinUtilities Professional Edition 15.45 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214148.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214148.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ Startup Delayer 3.0 Build 366 Standard [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217282.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ OpenGL Extensions Viewer 4.5.2 Build 36.0.0.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219821.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219821.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ ScanMyReg 3.2 RePack by tolyan76 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229062.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229062.jpg" />
 </div>
 
 
@@ -539,7 +563,7 @@ Ashampoo UnInstaller 16.00.02 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230236.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230236.jpg" />
 </div>
 
 
@@ -563,7 +587,7 @@ WinUtilities Pro 15.86 (акция Сomss) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236159.jpg" />
 </div>
 
 
@@ -587,7 +611,7 @@ Uninstall Tool 3.6.0 Build 5684 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239438.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239438.jpg" />
 </div>
 
 
@@ -598,30 +622,6 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B26EB6D4B777B161754E7E102CCD24D157F1615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833121   (246181) от 31.10.2025
-
-Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpg" />
-</div>
-
-
-###  Подробнее
-
-С новым Ashampoo WinOptimizer 28 ты автоматически получаешь наилучший опыт работы с Windows. Новая система автоматизации ускоряет, очищает и настраивает твои приложения. Благодаря новому модулю Profile Booster твой компьютер легко адаптируется к твоим потребностям благодаря приоритизации процессов, автоматической очистке временных файлов и настраиваемым конфигурациям (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33657C658EB13F10084017EAB7D87086682A754D
 ```
 
 

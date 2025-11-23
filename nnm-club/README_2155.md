@@ -6,7 +6,7 @@ PicWish: AI Photo Editor v1.6.11 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56395.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VueScan Pro 9.8.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56396.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Guitar Pro 8.1.2 Build 37 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56397.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:AE1EB95E21976BEFE5EFF98BEFA20F3846960750
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56398.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:393B1AF7A20B5BD8CAAE1D4B727A0F52F65A7D2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56399.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:1FF0DD6CAC1BAFE0F7EBCA49AF278D59A409DBCD
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56400.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9ABE2AC5B32D903B674BE8915AFAC01AD1E8612F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56401.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9ABE2AC5B32D903B674BE8915AFAC01AD1E8612F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56402.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ EngExpert, Диана Семенычева | Как в 10 раз эффекти�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56403.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:9A34111A25E4E4A8A46622BCF55971D88D9846E3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56404.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56405.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C4BA99096BDCF3D8A652876974DE02615B404FC7
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56406.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:149997D0C85B673167A176A35FEECFFF522DF6C7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56407.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:DFCC9478A522AEF6085EF8BA881A57E29CCF807B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56408.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:1035615A7808FD2B9A3B3DA7AC9C6DECB2F5893F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56409.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:FA572D2A086783D69C00AB6D6DF0A52E74FE630B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56410.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:66B76B18E674355F998022027737845AC67E042D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56411.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:91C630CE8DEF2D39F120624C5F8C3790C199BFFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56412.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:A0E572EA0E2387A2711A5D8E4043C368257635C0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56413.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:F740329503BFC994D1EA970D93A120DE99F9E0B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56414.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:66591494B29FE0ECCCB27777C8E08D29AD23FC0A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56415.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0EE05A88D8EBC8ECCB511AEA871CEB9C90899F17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56416.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0EE05A88D8EBC8ECCB511AEA871CEB9C90899F17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56417.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6FFDC105FFE17A092DFE1D2807B6AC529A7B38BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56418.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6FFDC105FFE17A092DFE1D2807B6AC529A7B38BA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56419.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ SketchUp Pro 2024 24.0.553 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56420.jpg" />
 </div>
 
 

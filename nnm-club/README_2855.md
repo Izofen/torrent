@@ -1,3 +1,93 @@
+###  Публикация: 470617   (83210) от 20.03.2012
+
+[Wallpapers] Girls Wallpapers Mix (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA87D1AC9389537FC54BFCE44E056F4BA28881B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470681   (83211) от 20.03.2012
+
+VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vlada Crystal - Я Разрешаю Тебе
+02. Driu Mc Feat. Funky Inlite - Только Тебе
+03. Mc Zali - Облака (Kolya West Remix)
+04. Анастасия Коновалова - Люблю Тебя
+05. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
+06. Сацура - Больше Чем Слова
+07. Music Hayk - Деньги И Слава
+08. Миша Романова - Невесомая
+09. Dj Party-Zan Feat. Nity - Нас Не Удержать (Radio Edit)
+10. K.Melody - Te Quiero2012Жанр: PopПродолжительность: 06:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF3BCE30DF3EB9E97CB003FB4B9681BC2584427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470701   (83212) от 20.03.2012
+
+VA - Protozoa 2.0 Interstellar Evolution (2012) [MP3|320 кб/с]<GOA Trance, Nitzhonot>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goalien - Discarded Entity (Part I) 06:40
+02. JBC Arkadii - Air 08:10
+03. Midi Rico - Explosions Wackier 06:58
+04. Zed Reactor - Vega Sector 08:02
+05. Dragun - Brave New World 07:05
+06. Ephedra - Time Machine 07:26
+07. Phargua - Digital Dew 08:00
+08. Ephedra - Landscapes From Heaven (Extended Version) 08:17
+09. Ion Vader - Liquidious Fleshbag 07:54
+10. Goalien - Discarded Entity (Part II) 08:222012Жанр: GOA Trance, NitzhonotПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FE73A7ED933D2F82086588A12AF1DD859D68CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470983   (83214) от 20.03.2012
 
 [Wallpapers] Sexy Girl Wallpapers Pack 44
@@ -6,7 +96,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83214.jpg" />
 </div>
 
 
@@ -34,7 +124,7 @@ VA - Танцевальный топ радиостанций Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83218.jpg" />
 </div>
 
 
@@ -67,7 +157,7 @@ Ministry - Relapse (2012) [MP3|~245 кб/с (V0)]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83219.jpg" />
 </div>
 
 
@@ -100,7 +190,7 @@ magnet:?xt=urn:btih:AF82BA869C97D39CEF9BD287F5E04EEFF3B8E390
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83220.jpg" />
 </div>
 
 
@@ -124,7 +214,7 @@ magnet:?xt=urn:btih:EB2C53901D786D03B2A2E8E33FA1DA9731CFBDD6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83221.jpg" />
 </div>
 
 
@@ -148,7 +238,7 @@ Best Of 538 Dance Smash - Summer Edition (2011) 5CD [MP3|320 кб/с]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83223.jpg" />
 </div>
 
 
@@ -181,7 +271,7 @@ magnet:?xt=urn:btih:1A13C69685C9E02ECC9475DD470C0C51FDDEE353
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83228.jpg" />
 </div>
 
 
@@ -205,7 +295,7 @@ magnet:?xt=urn:btih:96B5B725A9A9A02D7A9FD454E78A4A0A216A093A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83230.jpg" />
 </div>
 
 
@@ -229,7 +319,7 @@ VA - Ночной Клуб Radio Record (2012) [MP3|160-192 kbps]<Uplifting Tran
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83232.jpg" />
 </div>
 
 
@@ -262,7 +352,7 @@ magnet:?xt=urn:btih:C90AE807BB9AA6896D1A9E9846A77680818E8E78
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83233.jpg" />
 </div>
 
 
@@ -287,7 +377,7 @@ magnet:?xt=urn:btih:81D769397B1979E5A46AAE3DE47238608465756C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83234.jpg" />
 </div>
 
 
@@ -312,7 +402,7 @@ magnet:?xt=urn:btih:D109A5217D53DBE11D1997A8DEB56B15342757B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83239.jpg" />
 </div>
 
 
@@ -336,7 +426,7 @@ magnet:?xt=urn:btih:FFC4025C0F333065484891E85D4E23F0882FF0CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83241.jpg" />
 </div>
 
 
@@ -360,7 +450,7 @@ magnet:?xt=urn:btih:4B3498291E81965926EEA732AF40CE1795CFA81A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83242.jpg" />
 </div>
 
 
@@ -384,7 +474,7 @@ magnet:?xt=urn:btih:E25BAC457337973C37C9EDD4D4B7B1CE176B4DB7
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83244.jpg" />
 </div>
 
 
@@ -408,7 +498,7 @@ magnet:?xt=urn:btih:1C46E0039196DE38E210709DD44A95A8A980DDCF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83245.jpg" />
 </div>
 
 
@@ -432,7 +522,7 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83246.jpg" />
 </div>
 
 
@@ -465,7 +555,7 @@ magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83248.jpg" />
 </div>
 
 
@@ -489,7 +579,7 @@ magnet:?xt=urn:btih:92ACA186841F6833CF222DFD2E0C69167F6EE5BC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83249.jpg" />
 </div>
 
 
@@ -513,7 +603,7 @@ FotoMix 8.8 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83250.jpg" />
 </div>
 
 
@@ -537,7 +627,7 @@ FotoMix 8.8 [Multi/Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83251.jpg" />
 </div>
 
 
@@ -561,7 +651,7 @@ magnet:?xt=urn:btih:2268BF88A68FC2BC22C029B7DA015A4975DFB983
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83252.jpg" />
 </div>
 
 
@@ -585,7 +675,7 @@ magnet:?xt=urn:btih:659B6F4867ADF38A8E74889421A15DA31114E8FA
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83253.jpg" />
 </div>
 
 
@@ -596,86 +686,6 @@ magnet:?xt=urn:btih:659B6F4867ADF38A8E74889421A15DA31114E8FA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0432B291697FD1A36716F80A6F5DD97EFC6F5462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470144   (83257) от 20.03.2012
-
-Книжные серии Амфора 2003 ... Амфора 2007 [2003-2007] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжные серии "Амфора" по годам - это художественная литература высокого класса! Множество лауреатов различных премий и всемирных бестселлеров.2003-2007Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C2B543C1E34EEF3F7A8224DE2E3045FA3CE1D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470850   (83259) от 20.03.2012
-
-Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83259.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pushin' Daisies ... 5:38
-2. Not Disappearing ... 7:12
-3. What U Said ... 6:29
-4. Killed My Ass ...6:27
-5. Inside My Soul ... 5:02
-6. The Leaving ... 8:41
-7. Twisted ...5:24
-8. Maggot I ... 4:02
-9. Sweet Love ... 6:28Жанр: Classic Rock, Hard RockПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470768   (83261) от 20.03.2012
-
-Незабываемый роман / An Affair to Remember (1957) [720p] BDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый сердцеед Никки Ферранте и певица Терри Маккей познакомились на борту роскошного океанского лайнера, пересекавшего Атлантику. Несмотря на скандальную репутацию Никки, и на то, что оба помолвлены, они полюбили друг друга. Понимая непрочность сильных страстей, они договорились: если за шесть месяцев их любовь не угаснет, ровно по прошествии этого срока они встретятся на крыше Эмпайр Стэйт Билдинг… В Нью-Йоркском порту Никки и Терри расстаются: она уезжает с встречавшим ее Кеннетом, а он — со своей невестой Лоис. Проходит шесть месяцев и Никки Ферранте поднимается на крышу небоскреба…Жанр: Драма, мелодрама, комедияРежиссер: Лео МакКэриАктеры: Кэри Грант, Дебора Керр, Ричард Дэннинг, Нева Паттерсон, Кэтлин Несбит, Роберт К. Льюис, Чарльз Уоттс, Фортунио Бонанова, Джордж Уинслоу, Дороти Адамс, Ричард Аллен, Женевьева Амон, Аль Бэйн, Батч Бернард, Дино Болоньезе, Пол Брэдли, Мэри Кэрролл, Норман Чемпион III, Кэтлин Чарни, Брайан КоркоранПеревод: Многоголосый закадровый, АвторскийПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C58F6C5A6CDC38189F47AEA5883BFEA7B18D48
 ```
 
 

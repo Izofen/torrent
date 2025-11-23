@@ -6,7 +6,7 @@ Igor Pumphonia - Best Of 2023 (2024) [MP3|320 Kbps] <Chillout>
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123670.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123783.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123789.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123810.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Музыка для сна и прослушивания перед сно�
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123827.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123908.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123912.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123945.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124037.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ L'ame Immortelle (L'Âme Immortelle) - Ungelebte Leben (2024) [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124067.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124164.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124166.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124168.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124170.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124172.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124193.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Trance Emotions Vol. 12 (Best of Edm Playlist Compilation 2024) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124198.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Trance Anthems 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124334.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Andrew Rayel - Find Your Harmony Radioshow (Yearmix 2023) (2024-01-03) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124343.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Laibach - 3 Releases (2023) [MP3|320 Kbps] <Industrial, Neo-Classical, Experimen
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124362.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Class
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124391.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Eric Prydz - Live @ Forever Stage Forever Midnight, Los Angeles Convention Cente
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124512.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124527.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Keep It Trance Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124536.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124537.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124651.jpg" />
 </div>
 
 

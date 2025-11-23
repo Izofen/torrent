@@ -1,3 +1,78 @@
+###  Публикация: 1695196   (120562) от 28.01.2024
+
+Нетология | Нутрициология для себя - как правильно питаться (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь составлять сбалансированный рацион для себя и своих близких при любом бюджете
+Сможете постепенно наладить отношения с едой и повысить качество жизни
+Развеете мифы о правильном питании и избавитесь от ограничений, связанных с едой
+В современном ритме жизни мы часто пренебрегаем возможностью нормально и без спешки позавтракать или пообедать, отдавая предпочтение (   Читать дальше...   )Производство: НетологияЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 07:13:32Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9102423F2D1A6C15D0F98F6644BF8C32EFBDAFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695266   (120563) от 28.01.2024
+
+Интерстеллар / Interstellar (2014) BDRip [H.264/1080p-LQ] [IMAX Edition] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания / Warner Bros. Pictures, Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Кейси Аффлек, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Джессика Честейн, Джон Литгоу, Мэтт ДэймонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53566472DB9328846B7A824DB2194F37F9F3CB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695255   (120564) от 28.01.2024
+
+Пустоши / Hwangya / Badland Hunters (2024) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Корея Южная / Big Punch Pictures, Climax Studio, Nova FilmЖанр: Боевик, приключения, фантастика, драмаРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ли Хи-джун, Ли Джун-ён, Но Джон-и, Ан Джи-хе, Ким Ён-сон ...Перевод: Любительский многоголосый (DubLik TV)Язык озвучки: РусскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AE29708709A65E5497AAA3DDD4DDB97E182F32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695228   (120565) от 28.01.2024
 
 Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
@@ -6,7 +81,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120565.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120566.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:B6822C7416963D55CE37CEC15C4B957ADA3E46A9
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120567.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:3E7794AE57495028F06B9C49C3D6498CFD80A391
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120568.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:9C6D10C71E1EA883708FFBDF4372DB50D23C96C0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120569.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:1C861ED32117FF29815F9D2332621D11D868323B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120570.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:AC752C7395DE697630B8D8E030D8483BE60F1A19
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120571.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120572.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120573.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:EFFB725D4A7F9CF784E3F0FDA8942785C48AD747
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120574.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ DtcFix v3.42 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120575.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:470F6082F6E0B7A150529406505521638204E200
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120576.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:908BF9B1C99F5691B1066CFE8D46F23A7CFB6979
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120577.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ magnet:?xt=urn:btih:E5CA1613E7F807BEA6F9000502C3A6BA0899E99A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120578.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ Tekken 8 (2024) [Ru/Multi] (1.01.03/dlc) Repack DjDI [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120579.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:39C7E17EBC2D1EA4972E5C4845CA3A676C163328
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120580.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ Kaspersky 21.16.6.467 Standard | Plus | Premium [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120581.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120582.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ magnet:?xt=urn:btih:CCE7BFB9B61586AF0B8804EAEEF260CA253EBD77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120583.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:E4B10335A4E31A19D7CCCBE8329ED4425AD42A92
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120584.jpg" />
 </div>
 
 
@@ -490,7 +565,7 @@ magnet:?xt=urn:btih:ADB5A2B6F0852EB8BE402FD287B2EC4D4D897588
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120585.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:DC94399DA16AFC4B499F900CA05664DE1D5A85DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120586.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ Leslie West - 18 Albums, 1 Box Set (1969 - 2021) 24 CD [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120587.jpg" />
 </div>
 
 
@@ -553,78 +628,6 @@ Leslie West - 18 Albums, 1 Box Set (1969 - 2021) 24 CD [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3A7D85C1D885EA2B7769FC7F9ABA054CE1F4CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867042   (120588) от 28.01.2024
-
-Coursera, МФТИ | Электричество и магнетизм - часть 1 (2014) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс лекций от Московского Физико-Технического Института (МФТИ) по элетричеству и магнетизму (1 часть). Также в составе раздачи имеются семинары и демонстрации физических опытов.Жанр: ФизикаПродолжительность: 19:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC0BC8998FDFC76DEB7137D706D453511BC0DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445704   (120589) от 28.01.2024
-
-Звонок из прошлого / Kol / The Call (2020) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120589.jpg" />
-</div>
-
-
-###  Подробнее
-
-2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Yong FilmЖанр: триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ён, Чо Гён-сук, Мун Чхан-гиль и д.р.Перевод: Двуголосый закадровый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, немецкие, французские, испанские, португальские, итальянские (внутри контента)Продолжительность: 01:52:00Реклама: Нет.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5409B7B0723A6B747791BB3C41234656D0C2E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695273   (120590) от 28.01.2024
-
-Догмен / Dogman (2023) BDRip [H.264] [Полная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попавшегося полиции странного мужчину в инвалидной коляске, у которого фургоне обнаружили стаю разнопородных собак, а в месте его проживания — несколько трупов, допрашивает психиатр-криминалист. Тот охотно рассказывает о своём трудном детстве: как жестокий отец посадил его в клетку к псам, из-за чего у мальчика развилась с животными невероятная эмоциональная связь (   Читать дальше...   )Производство: Франция / Luc Besson ProductionЖанр: БоевикРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Джоджо Т. Гиббс, Кристофер Денэм, Клеменс Шик, Джон Чарльз Агилар, Грэйс Пальма, Ирис Бри, Мариза Беренсон, Lincoln Powell, Alexander SettineriПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5B0ABB1DF042F4B06DADFAD63E25F0FC6F979C
 ```
 
 

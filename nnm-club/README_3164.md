@@ -1,3 +1,80 @@
+###  Публикация: 1765763   (101372) от 14.12.2024
+
+В поисках мистера Гудбара / Looking for Mr. Goodbar (1977) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноимённого романа Джудит Росснер, ставшего бестселлером в 1975 году и вдохновлённого убийством школьной учительницы Розанны Куинн в Нью-Йорке в 1973 году... Тереза, молодая учительница глухих детей, недовольна своей скучной обыденной жизнью и отправляется на поиски острых ощущений. В поисках идеального мужчины, которого она называет «мистером (   Читать дальше...   )Производство: США / Freddie Fields ProductionsЖанр: драмаРежиссер: Ричард БруксАктеры: Дайан Китон, Тьюзди Уэлд, Уильям Этертон, Ричард Кайли, Ричард Гир, Алан Файнстайн, Том Беренджер, Присцилла Пойнтер, Лори Прэндж, Джоэл ФабианиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DF25864A9FA760B23BFF55B348CF92CB62F411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765752   (101373) от 14.12.2024
+
+Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект стал возвращением к легендарному звуку Death Row Records и продолжением сотрудничества с продюсером, который дал старт его карьере, — Dr. Dre. Выпуск альбома приурочен к 30-летию дебютного альбома Snoop'а, "Doggystyle", и сочетает классическое звучание 90-х с новой энергетикой.
+На альбоме представлен внушительный список приглашенных артистов, (   Читать дальше...   )01. Fore Play (feat. BJ The Chicago Kid) (1:15)
+02. Shangri-La (1:37)
+03. Outta Da Blue (feat. Alus & Dr. Dre) (2:39)
+04. Hard Knocks (4:13)(   Читать дальше...   )Производство: Death Row/Aftermath/Interscope Records - 602475750024Жанр: Hip-HopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925A6FBB85ED13186436974D3ACCD1243A8935C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765651   (101374) от 14.12.2024
+
+Duck Detective: Secret Salami v1.0.36 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101374.jpg" />
+</div>
+
+
+###  Подробнее
+
+РАСКРЫВАТЬ ПРЕСТУПЛЕНИЯ - НЕ ПРОГУЛКА В ПРУДЕ
+Добро пожаловать в Duck Detective, уютную сюжетную приключенческую игру! Погрузитесь в это забавное, наполненное комедией приключение-головоломку, где вы играете за Юджина МакКваклина, неудавшегося утиного детектива, которому предстоит раскрыть дело. Используйте свое острое мышление, чтобы найти скрытые подсказки, решить (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 13 дек. 2024 г.Разработчик: SnapbreakПоддерживаемая ОС: Android 5.1+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127E1EA4F8D697EA2244BE5C73D17669662A5D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765724   (101375) от 14.12.2024
 
 VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -6,7 +83,7 @@ VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101375.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:BDA5155279D4E697917F128FBCBB884559530612
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101376.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ VA - Beach Grooves Maretimo, Vol.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Beach H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101377.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101378.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101379.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ magnet:?xt=urn:btih:A84E9A17C9C8DA2499E703FF50EA5DF4F063EB63
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101380.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ magnet:?xt=urn:btih:D59CD7E48FED88DE82FEACE91D0E1C983066CC65
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101381.jpg" />
 </div>
 
 
@@ -180,7 +257,7 @@ magnet:?xt=urn:btih:86B6B8A5D6C7850E7BB8DC929EBA89CF69A1091C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101382.jpg" />
 </div>
 
 
@@ -205,7 +282,7 @@ magnet:?xt=urn:btih:9C996A5DA3BEB92AF68513084D124D09FB86F9C1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101383.jpg" />
 </div>
 
 
@@ -229,7 +306,7 @@ magnet:?xt=urn:btih:2A37141D19EEEE865859F8AD7B12CA2D53FF7ECF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101384.jpg" />
 </div>
 
 
@@ -253,7 +330,7 @@ Battery Guru: Monitor & Health v2.3.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101385.jpg" />
 </div>
 
 
@@ -277,7 +354,7 @@ magnet:?xt=urn:btih:C69ADF8DB35BC2A85EDC5D1D5B5C6806D9E6DEBB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101386.jpg" />
 </div>
 
 
@@ -301,7 +378,7 @@ magnet:?xt=urn:btih:2A581B7B76057BC2FC8BF84701BEB6025A971F24
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101387.jpg" />
 </div>
 
 
@@ -325,7 +402,7 @@ magnet:?xt=urn:btih:BE83DD17BFE62A78EC4BAADF80E338D521F77899
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101388.jpg" />
 </div>
 
 
@@ -349,7 +426,7 @@ magnet:?xt=urn:btih:BE83DD17BFE62A78EC4BAADF80E338D521F77899
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101389.jpg" />
 </div>
 
 
@@ -373,7 +450,7 @@ magnet:?xt=urn:btih:267DE270540EDBCDE06541800F086E51EEBC6DB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101390.jpg" />
 </div>
 
 
@@ -397,7 +474,7 @@ magnet:?xt=urn:btih:478D610230BF04035F862BBF7F31AD42FCBCAEE0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101391.jpg" />
 </div>
 
 
@@ -423,7 +500,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101392.jpg" />
 </div>
 
 
@@ -447,7 +524,7 @@ The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101393.jpg" />
 </div>
 
 
@@ -474,7 +551,7 @@ Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101394.jpg" />
 </div>
 
 
@@ -501,7 +578,7 @@ Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101395.jpg" />
 </div>
 
 
@@ -528,7 +605,7 @@ Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101396.jpg" />
 </div>
 
 
@@ -555,7 +632,7 @@ After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101397.jpg" />
 </div>
 
 
@@ -569,87 +646,6 @@ After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A66577F41F8D9A1F7C4495B93C756DC440C88C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765618   (101398) от 13.12.2024
-
-Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Wind of Destiny (0:58)
-02. What's In Thy Command (3:54)
-03. Along the Crusade (3:57)
-04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765524   (101399) от 13.12.2024
-
-Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted (5:14)
-02. Awake (5:02)
-03. Rapturous Me (3:48)
-04. Gotta Try (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F9DDBE871E8B7A64F6F03ADFD0AEE945BA28E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765374   (101400) от 13.12.2024
-
-Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Princess of Evil [3:19]
-02. Slightly Brightly [2:38]
-03. Deep People [3:04]
-04. The Count on Rush Street [3:10](   Читать дальше...   )Жанр: Cool, Bop, West Coast JazzПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
 ```
 
 

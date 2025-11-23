@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5A6F0568EB66A298C597648CFFB6231FC7956AC0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31242.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9C86091581AC31425F9E8D9C49B449B729FC8306
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31243.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sigil 2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31244.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ EF Commander 25.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31245.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ XYplorer 26.70.0600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7565A5400DF2E135A9DBA35381C56656120B753E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31247.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F2F9AB69AA7CB9E386B6B8822BF6837CAE2E34D2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31248.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Music News For Forum vol.055 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31249.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E1A81AAB3E9E9D9A10E27861BDEAF339E4548791
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31250.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31251.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31252.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31253.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31254.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31255.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7EBB5396838387CF75C467D1C8C2A514AE977C09
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31256.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D94BF10ACCA95256E0FBE61F224278F5210A83AE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31257.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:ACA15E6BFAA07F3680C03A7143941BD11951BDB7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31258.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31258.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:8F3EDD784C30A1ED754D873D234211B6681C9F2D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31259.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:342E9E0B525771FCE1B9FA92A1FFC810408D465C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31260.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D77A83D34D94D54AD269043637279EB6D38835E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31261.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6AC62BC3DF31B07ADD348B8F704E42EF49F598EB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31262.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FC592020E247CFBF3077C7063B45A6A847266E99
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31263.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Zucchero - DISCOVER II (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31264.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:1377DDAD430613EF8E48574817315CC7180EB744
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31265.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Cruella (2021) [MP3|320 Kbps] <OST, Unofficial>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31266.jpg" />
 </div>
 
 

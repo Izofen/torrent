@@ -6,7 +6,7 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26167.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26167.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PurpleSchool, Udemy, Антон Ларичев | Next.js 15 - с нуля, React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26217.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26222.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26222.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Color Grading Central | Davinci Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26226.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26264.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2A20945B29E7DE2D40727B606109992C342C1BF0
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26276.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EF74B786A0CCF9A629538BF98CC5A7DA5269B76F
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26290.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:60478AC877A280137955B7DA00D4AB3D853884E0
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26301.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:05999883E13D85344A4BBB3218B3CBFA4637831E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26369.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26369.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26403.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26403.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26425.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26425.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:5BE8FB76C86E072C40A1735744F0A8BCF2904624
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26480.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26550.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26550.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:8CAA8683DC37933F2D935A8C4B3F5A021A27897F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26621.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26623.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26623.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ PlayThis, Артём Мироненко | Набор Профессионала 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26634.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26634.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26653.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:31ED3982F0EA89E941A320CD30BD24EBD07567E5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26665.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26665.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:9A5C30222B3AD9148ECB3F7FA9FC2BF8BA237144
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26674.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:5734849001C599AF4AD8DEB702FE4DEF867E2B64
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26679.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A225A5863E9D1E4C1EF7F55FD53CAD1E3CE3D873
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26688.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:B9BF83F77E9BF3D5F3F90199A6F0EC25B38139AD
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26690.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26698.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26698.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26728.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Serberg | Видеоурок "Восстановление Windows в счита
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26748.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26755.jpg" />
 </div>
 
 

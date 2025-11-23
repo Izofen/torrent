@@ -6,7 +6,7 @@ Dead Mount Death Play | Смертельная игра мёртвой горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Atarashii Joushi wa Do Tennen | My New Boss Is Goofy | Мой новый бос�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126333.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126335.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo / Сто девуш
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126354.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126357.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Potion-danomi de Ikinobimasu! / I Shall Survive Using Potions! / Я выживу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126362.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126365.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126389.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi. | Исто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126670.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126692.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126799.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kizuna no Allele (2023) | Аллели Кидзуны [ТВ-2] [2023, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126803.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126813.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126825.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu / Я под�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126829.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126831.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127006.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127160.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127165.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128451.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128582.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128888.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128932.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129623.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130967.jpg" />
 </div>
 
 

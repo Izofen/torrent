@@ -6,7 +6,7 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45933.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3990155DA2B0BECDEF0D644D9EC7A357FB60087
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CBFBBE7227D46BEE81086200D6DCB121B242D317
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45935.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F1B45CF66EFDAAB341C642E0836D80B412ADA590
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45936.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4BAB5E3E8C2C6CF454522BA165DC776C944F5A57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45937.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4BAB5E3E8C2C6CF454522BA165DC776C944F5A57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45938.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4BAB5E3E8C2C6CF454522BA165DC776C944F5A57
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45939.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:36AAA1D9FC4346C1DFA1891987689901831C09C2
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45940.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 08.2024 by OVGorskiy 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45941.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5AA3BEB73F7F92FE88FDCF0BC5B1B17777E3D60D
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45942.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C38C1BCBFB0463B6130EB6AC1EF453364DF90689
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45943.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3C051C157FB41B21077D2C6A7926E09FD9509D5A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45944.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Microsoft Windows 10 [10.0.19045.4780], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45945.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:324E969E6508538EEBE87E5E9610F87A394ACC9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45946.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:9788FFAA02DF9E3B96A9FF758367D86D0EB97E08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45947.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:D70DB9DAE8072C9D70FD608742996316EF25421C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45948.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45949.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:8063B752341A5CA2F37FFAD0620DC4C991440680
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45950.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A60637F86D440754AB885FFD43B7972421CC072B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45951.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0B25D8D53BAD424CCA6F8FD5BC3EB1F61D837E95
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45952.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:462D9320D9E58E0234BCB51CEA958B580B9CC0E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45953.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A3E452D62A2AC9CBA654C9BB6FEC2EB4EA9F4F28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45954.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45956.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Lossless Scaling 2.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45957.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F2E23DBCD7CD5C753FAAE8BE37F83568BC7AA452
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45958.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Swinsian 3.0 Preview 10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dash 7.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134316.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ JixiPix Artista Impresso Pro 1.8.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134317.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134333.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134333.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134334.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ ESET NOD32 Offline Update 6.x/5.x/4.x/3.x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134336.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134336.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Alarm Clock Pro 15 v.15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134340.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ JaSFTP13 for Mac 13.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134345.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A92E4DFD58A2FF473B15C5F590563F25088023B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134348.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ RightFont 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134349.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Recovery DVD for Acer Aspire V5-531G / Windows 7 Home Basic (х64) SP1 [русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134351.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134351.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ K-Lite Codec Pack 9.6.5 Mega/Full/Basic/Standard/Update + x64 [Английск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134357.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134362.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ AutoKrypt13 for Mac 13.07 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134367.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:126903B29E39A9FBE0B95D7C4847695CB1F29745
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134380.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mp3tag 1.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134381.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ GraphicConverter for Mac 12.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134383.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:9657D258590A8A2A2159DAF603BAE4609C14D98C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134411.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Internet Download Manager 6.42 Build 2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134417.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:5F1AF4208954CFF54E30758587CF7F298B18A293
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134425.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Internet Download Manager 6.14.3 Final RePack by KpoJIuK [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134428.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134428.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NVIDIA Inspector 1.9.6.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134430.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ qBittorrent 4.6.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134442.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ DeaDBeeF for Linux 1.9.6 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134444.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:D9687E03B10B441BE580F0035E5DF001A39ABC3B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134447.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:1A6150AE173398DFB6D1920179CD69B2674B89D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134462.jpg" />
 </div>
 
 

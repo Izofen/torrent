@@ -1,3 +1,75 @@
+###  Публикация: 1518701   (154058) от 20.12.2021
+
+RegCool 1.300 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D16C90868F1B98665A08BA3B3CB1518A0E3E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086083   (154064) от 23.12.2016
+
+Маша и Медведь: С любимыми не расставайтесь (2016) WEB-DLRip (Серия 61)
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, чудеса очень любят Новый год и Рождество — поэтому-то они регулярно в большом количестве происходят в это время. Вот и Маша столкнулась с ними нос к носу, да многое поняла, голубчики. Например, что перед тем, как что-нибудь желать, нужно хорошенько подумать — точно ли оно вам надо. А ещё научилась важному: беречь старых друзей и помнить только хорошее. (   Читать дальше...   )Производство: Россия, Студия "Анимаккорд"Жанр: Детский, Комедия, СемейныйРежиссер: Олег Кузовков, Владислав Байрамгулов, Наталья МальгинаПерсонажи: Алина Кукушкина, Эдуард Назаров, Борис КутневичПродолжительность: 00:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F96EE5F6FD6C4E487F9721E158AFC864AC80B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433572   (154070) от 22.12.2020
+
+AVS Audio Software 10.0.4.13 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154070.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Audio Software представляет собой комплект из двух программ для обработки аудио файлов от AVS4YOU: AVS Audio Editor 10.0.4.553 и AVS Audio Converter 10.0.4.613.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BAC624BC2BD12C0D3591674A49123DB26160E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434003   (154085) от 22.12.2020
 
 AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +78,7 @@ AIMP 4.70.2239 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154085.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ PhotoScape X Pro 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154086.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ ACDSee Photo Studio 8 v8.0.2283 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154091.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:F2E728659FD2515E7EC1004C12BE00BF83A5636D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154096.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ The Bat! Voyager 7.4.0.1 Final Portable by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154102.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Mozilla Thunderbird 91.4.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154105.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Wipr – Ad and Tracker Blocker 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154121.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Google Chrome 119.0.6045.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154125.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Downie 4 v.4.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154131.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Loop Mash Up Pro 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154137.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154144.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:824F16F44B67CDA1116862A4E59CF36E5D86CBDD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154146.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ GhosteMane - Rituals (2016) [FLAC|Lossless|tracks] <Hip-Hop, Underground Rap, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154151.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ AIMP 4.70 Build 2239 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154159.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:75131DC51891D6C7E58B30C374BB33670F8E3B08
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154160.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:24EB17BC42F007DCCF2447C9206D07C767852EBC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154163.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ ONLYOFFICE 7.5.1.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154171.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ Vinegar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154175.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ magnet:?xt=urn:btih:AE3C0F7AA653C2DD2C071C17C1FDF97008EFC8E9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154177.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ AltTab 6.51.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154179.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Wondershare Recoverit Video Repair 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154183.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ VA - 25 Years Bonzai Classics (Remixed) (2017) [MP3|320 Kbps] <Trance, Hard tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154184.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ AIMP 4.12 Build 1877 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154187.jpg" />
 </div>
 
 
@@ -564,78 +636,6 @@ AIMP – проигрыватель, включающий в себя множе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:147EB9B23ED3380E80001D7837EAF018CBAB9849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085989   (154200) от 23.12.2016
-
-ePageCreator 5.9.9.3 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154200.jpg" />
-</div>
-
-
-###  Подробнее
-
-ePageCreator - программа для создания электронных публикаций с эффектом перелистывания страниц, которые можно просматривать на компьютерах под управлением операционных систем Windows и Macintosh, а также на мобильных устройствах IPad / iPhone и Android. Программа позволяет создавать публикации в форматах Flash, HTML5, EPUB, Mobi, в виде автономных исполняемых EXE-файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5F4C9557B1605F5569A1C963698DB8D64E5198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433841   (154206) от 22.12.2020
-
-FreeCommander XE 2021 Build 840 public x32 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154206.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeCommander XE - это довольно-таки удобный в работе файловый менеджер, который поможет значительно упростить повседневную работу с компьютером. Эта программа легка в освоении и использовании, и послужит отличной альтернативой стандартному проводнику Windows и другим менеджерам файлов. Функционал инструмента разнообразен, что даст возможность управлять всеми процессами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7479EBDDF875A841F7B8B57A98A0B6D1F10BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518705   (154207) от 20.12.2021
-
-4K Video Downloader 4.19.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1680EAEF08A26F31023B5EFBE69CF815CA3B93F4
 ```
 
 

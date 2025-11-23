@@ -1,3 +1,81 @@
+###  Публикация: 1693821   (121446) от 22.01.2024
+
+Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling 02:51
+02. In Pieces 04:59
+03. Intruders 05:30
+04. The Children Of Water 05:42(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838D1010A9A2EA740765CAF1F4AC36F67BBFA933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823286   (121447) от 11.10.2025
+
+Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhanced Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя (заново) мрачный сказочный мир Little Nightmares с поддержкой 60 кадров в секунду и разрешением 4K. Little Nightmares Enhanced Edition позволяет увеличить число кадров в секунду или повысить качество изображения. В игре появятся улучшенные визуальные эффекты, включая трассировку лучей, объёмные лучи, эффекты воды и увеличенное количество частиц. (   Читать дальше...   )Тип издания: RepackРазработчик: Engine Software BVЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693781   (121448) от 22.01.2024
+
+Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunter (5:19)
+02. Breed (5:50)
+03. Ji (3:46)
+04. Gently Walking the Himalayas (4:39)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823189   (121449) от 11.10.2025
 
 Легенда о рыцаре / El Cid: La leyenda / El Cid: The Legend (2003) WEBRip [H.265/720p] [10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121449.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121450.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121451.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Haunt - Chariot  Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121452.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ djay - DJ App & AI Mixer 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121453.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ magnet:?xt=urn:btih:C97D2DFB4CDE7AAB19BD167671BD99B7E77BADDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121454.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Stats 2.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121455.jpg" />
 </div>
 
 
@@ -184,7 +262,7 @@ magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121456.jpg" />
 </div>
 
 
@@ -208,7 +286,7 @@ Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121457.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ Smooze Pro 2.0.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121458.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121459.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ Ant Download Manager 2.16.0 Build 91579 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121460.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121461.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ magnet:?xt=urn:btih:652173381B8A3A937D537E243DF58D941F2B11D7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121462.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ magnet:?xt=urn:btih:FB08AAA5A608D40E25B739A1530944C68304E2B5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121464.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121465.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121466.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ DBF Viewer 2000 8.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121467.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121468.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121470.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -578,81 +656,6 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693890   (121472) от 22.01.2024
-
-Джентльмен и петух (1929) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Установленная Рижским договором граница между панской Польшей и Советской Белоруссией прошла через имение польского графа Вадецкого. Лучшая часть имения с дворцом оказалась на советской территории. С этого момента граф потерял покой и сон: в бывшем господском доме поселились новые хозяева — шумный и весёлый пионерский отряд, а через границу постоянно перекликаются (   Читать дальше...   )Производство: СССР, БелгоскиноЖанр: комедия, немое киноРежиссер: Владимир БаллюзекАктеры: Лев Добровольский, В. Баранова, Елена Волынцева, Кирилл Гун, Степан Кузнецов, Дж. Раделин, Валентина БарановаСубтитры: украинские (интертитры), русскиеПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446FCF00C3F1F9C035A48E422EDE73E1F905AC57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823255   (121473) от 10.10.2025
-
-Ищу девушку с голубыми глазами (2025) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121473.jpg" />
-</div>
-
-
-###  Подробнее
-
-После развода Юлия впервые в жизни регистрируется на сайте знакомств. Она хочет как можно быстрее забыть бывшего мужа – а значит, ей срочно нужны новые отношения. Её внимание привлекает профиль симпатичного мужчины, который ищет блондинку с голубыми глазами. Роман с новым знакомым развивается стремительно. Он красив, романтичен, у него золотые руки. Дочь Юли в ужасе: (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: ДетективРежиссер: Владимир КойфманАктеры: Дана Абызова, Михаил Рябов, Михаил Гудошников, Анфиса Харизанова, Николай Смирнов, Павел Литов, Андрей Конев, Сергей Трифонов, Наталья Парашкина, Полина Липай и др.Субтитры: ОтсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D28576DAA7CC64C25EFA92495C649B3EC14324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693830   (121474) от 22.01.2024
-
-VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - One Love (5:24)
-02. Moshang - Recurring Dream (3:59)
-03. Karen Gibson Roc - We Can Shine Together (4:39)
-04. J.a.z.z.matic - Alone Now (4:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 ```
 
 

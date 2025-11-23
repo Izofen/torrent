@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96772.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ C.O.E. - Metal (S.L. Coe - ex Angel Dust,Scanner,Reactor) (2000) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96779.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:A329E4505D3B126C4BF24898A180CFDEF0DEFF74
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96780.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ magnet:?xt=urn:btih:47ABD00ED1E11C5EA0AD13F32B890BE02099E3F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96781.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96785.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96789.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96791.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96792.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96793.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96795.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96795.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96797.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96798.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96798.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96800.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96801.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96804.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:06311FE9C3489238A0A6AD1D926CAF44ADF252E4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96806.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:2D7BE2F08BC1ADC10393322863BD448C51D6B156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96810.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Soulfly - World Scum (2012) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96815.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:67E0CBD3D2EF65AA1FD342289B1AED5BADB48219
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96816.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BA332975A8BB211C5101D3A11C30E98ABA7A74E7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96817.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B2271600727F3E93A05D4DD6850A2D904BF0CCBA
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96818.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:BA9146DB94A18AF015043AB526D066A1FFB4385E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96827.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:080D10C9C3707990C3E16F2809283B1390853103
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96833.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:B33274A3F1A65848F68347667326088757DDE828
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96834.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:C944B5095E3472986449C37A57A7BC5CB6337D22
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96838.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Karl Denson - Dance Lesson #2 (2001) [FLAC|Lossless]<Jazz-Funk, Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96842.jpg" />
 </div>
 
 

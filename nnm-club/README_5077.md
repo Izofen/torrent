@@ -1,3 +1,189 @@
+###  Публикация: 1346825   (157158) от 20.12.2019
+
+Повелители мяча: 9009 / Ballmastrz 9009 (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157158.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — некая странная игра с мячом, которой одержима вселенная. Здесь есть свои суперзвезды, среди них — вконец обнаглевшая тусовщица Гэз Дигзи. В какой-то момент ее лишают всех привилегий и отправляют играть за самую лузерскую команду. Теперь у нее есть только один путь назад к вершине — привести свой новый горе-клуб к победе на чемпионате.Производство: США, Rough Draft Studios, Rough House PicturesЖанр: Мультсериал для взрослых, фантастика, боевик, комедия, спортРежиссер: Кристи КаракасПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952BD87ACAAD5732D355D9BBFFBBF2E2C9C887DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433495   (157159) от 21.12.2020
+
+Corlyx - 2 Albums (2019-2020) [MP3|320 Kbps] <Darkwave, post-punk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Wolf [00:03:22]
+02. We See Red [00:02:51]
+03. Find The Killer [00:04:11]
+04. Porcelain Skin [00:03:42](   Читать дальше...   )Жанр: Darkwave, post-punkПродолжительность: 2 CD, 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770B0B27F91BECF8C37BE3B61324DD68C9A00BF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346792   (157160) от 20.12.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 20.12.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones And I - Dance Monkey 3:30
+02. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+03. Zivert - Credo 3:04
+04. Regard - Ride It 2:38(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529241B352F6DFF9125FB94302231480ED411EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676484   (157161) от 13.11.2023
+
+Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновленное издание начинается с основ веб-разработки и переходит к рассмотрению таких концепций Perl и MySQL, как моделирование сценариев и баз данных, взаимодействие с базами данных на основе сценариев, формирование контента из базы данных, доставка информации от сервера к браузеру и обратно. Для того чтобы получить максимальную пользу от этой книги, необходимы (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194281   (157162) от 24.12.2017
+
+Битва экстрасенсов (2017.12.23) HDTV [H.264/1080i-LQ] (сезон 18, выпуск 14 - Финал)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157162.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6704524817E9DFAA23FDD067C53D33AB2B09ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600467   (157164) от 27.12.2022
+
+VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Weapons (2:31)
+02. M. Pokora - Déjà volé (2:16)
+03. Ed Sheeran - Celestial (3:29)
+04. Soprano - 3615 Bonheur (3:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588714   (157165) от 13.12.2012
+
+Адам Робертс | Соль [2004] [RTF, FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157165.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Научно-фантастическая классика XXI века...»
+
+"Романы поразительной силы и глубины, не уступающие даже "Дюне".
+
+"От произведений этого автора надолго остается приятное послевкусие..."
+
+Все это – и многое другое – сказано о "Соли" и "Стене" – романах, созданных дебютантом британской фантастики Адамом Робертсом и равно вызвавших восторг и у критиков, и у читателей.
+
+Достаточно упомянуть, что "SFX" сравнивал "Стену" со "Страстями по Лейбовицу", a "Locus" писал о "Соли": "Лучший дебют в научной фантастике за десятилетия".
+(   Читать дальше...   )Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E3627407B623C6CFC89AB3C075CBA556EE4F73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346789   (157167) от 20.12.2019
 
 Дорога домой на Рождество / The Road Home for Christmas (2019) WEBRip [MVO] [AD]
@@ -6,7 +192,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157167.jpg" />
 </div>
 
 
@@ -30,7 +216,7 @@ magnet:?xt=urn:btih:2F029CF48763BF7887863AD12A98D01C787BFA12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157168.jpg" />
 </div>
 
 
@@ -54,7 +240,7 @@ magnet:?xt=urn:btih:96E951E35D21C722923725EF80ACEA93EEE61DE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157169.jpg" />
 </div>
 
 
@@ -78,7 +264,7 @@ magnet:?xt=urn:btih:46C2141B19BF8B1A90D59824EC3EAF9BCC4FC60E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157170.jpg" />
 </div>
 
 
@@ -105,7 +291,7 @@ Group | Stand Up Сезон 6 (2017) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157171.jpg" />
 </div>
 
 
@@ -129,7 +315,7 @@ magnet:?xt=urn:btih:5BAE76FDC27F36541FB42503104808E343424CF6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157172.jpg" />
 </div>
 
 
@@ -153,7 +339,7 @@ magnet:?xt=urn:btih:9544ECB65F2210CAC45FE92C4732AFBCD1E74723
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157173.jpg" />
 </div>
 
 
@@ -177,7 +363,7 @@ All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosph
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157174.jpg" />
 </div>
 
 
@@ -204,7 +390,7 @@ TG Pro (Temperature Gauge Pro) 2.54 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157175.jpg" />
 </div>
 
 
@@ -229,7 +415,7 @@ EssentialPIM Pro Business Edition 8.63 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157176.jpg" />
 </div>
 
 
@@ -253,7 +439,7 @@ magnet:?xt=urn:btih:78940A7BC6C18D0CAD88693E7DFD0E11445F2916
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157180.jpg" />
 </div>
 
 
@@ -279,7 +465,7 @@ magnet:?xt=urn:btih:236695E43D0DAC87CAB290E5468F3DF6695ADB17
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157181.jpg" />
 </div>
 
 
@@ -303,7 +489,7 @@ magnet:?xt=urn:btih:41C369C4A526FB7FECC74D52E3CB44E27AA05062
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157182.jpg" />
 </div>
 
 
@@ -327,7 +513,7 @@ Imagine 1.3.5 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157185.jpg" />
 </div>
 
 
@@ -351,7 +537,7 @@ magnet:?xt=urn:btih:A0FE45D4DD80B852F1760CD0A0591EEF7B520BA8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157186.jpg" />
 </div>
 
 
@@ -375,7 +561,7 @@ magnet:?xt=urn:btih:D73EBE1D5C3A63AD0354F160FD1302D32685362D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157187.jpg" />
 </div>
 
 
@@ -399,7 +585,7 @@ IceCream Ebook Reader Pro 6.21 RePack by OctaneS [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157188.jpg" />
 </div>
 
 
@@ -423,7 +609,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/upd21) Rip R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157189.jpg" />
 </div>
 
 
@@ -447,7 +633,7 @@ magnet:?xt=urn:btih:2C0757E7C567FA0E85F2D77399039398A118D837
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157190.jpg" />
 </div>
 
 
@@ -458,183 +644,6 @@ magnet:?xt=urn:btih:2C0757E7C567FA0E85F2D77399039398A118D837
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2E473E0D1F805BEFD1AC7993AD34F9D2AEF19E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194262   (157192) от 24.12.2017
-
-Растровый клипарт - Dreamstime - New Years makeup manicure mouth costume decoration gift cilia [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник растрового новогоднего клипарта, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3580x3350-6976x4696
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044A10E275E0AD454374091AE27291EFB08E353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433707   (157193) от 21.12.2020
-
-Шейла Хети | Материнство (2020) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157193.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «Материнство» канадская писательница Шейла Хети неторопливо, пронзительно, искренне раскрывает перед читателем внутренний мир современной женщины.
-Что есть материнство – долг, призвание, необходимость? В какой момент приходит осознание, что ты готова стать матерью?
-Подобные вопросы вот уже не первый год одолевают героиню Шейлы Хети. Страх, неуверенность, (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Сергей СамуйловФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5FDF64BF934ED91DA29E80583EC2358485266C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968418   (157194) от 23.12.2015
-
-Журнал | Вооруженные силы стран мира №119 (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E7564D8CD4D35AC09B123BF4F557F7E6841CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345233   (157195) от 20.12.2019
-
-Дуэль на Силвер-Крик / The Duel at Silver Creek (1952) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стефен МакНалли в роли Лайтнинга, энергичного начальника полицейского участка в Силвер Сити. Главная цель Лайтнинга — задержать банду безжалостных преступников, терроризирующих и убивающих местных шахтеров, среди которых его лучший друг.
-В одной из перестрелок Лайтнинг теряет способность пользоваться указательным пальцем и, соответственно, свое блестящее умение владеть (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Дон СигелАктеры: Оди Мерфи, Фэйт Домерг, Стефен МакНалли, Сюзан Кэбот, Джералд Мор, Юджин Иглесиас, Джеймс Андерсон, Уолтер Сэнд, Ли Марвин, Джордж ЭлдриджПеревод: Двуголосый профессиональныйСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F8393C7E815BCEC1B21E361E53A03CDDF6DF32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270513   (157196) от 19.12.2018
-
-Павло Загребельный | Роксолана (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видный украинский романист Павло Загребельный, лауреат Государственной премии СССР и Государственной премии УССР имени Т. Г. Шевченко, в своем новом романе "Роксолана" повествует об удивительной судьбе украинской девушки Настасьи Лисовской, угнанной в XVI веке с Украины и проданной на стамбульском невольничьем рынке в рабство.
-Обладая блестящим умом, необыкновенной (   Читать дальше...   )Жанр: Исторический романПродолжительность: 40:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73140A6EEB6A386A37998E6A3103054140AA34D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600440   (157197) от 27.12.2022
-
-Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition [FLAC|192/24|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Could Go Travelling Again
-02. Bonita
-03. Craigie Burn
-04. Les Voyages(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194411   (157198) от 24.12.2017
-
-Александр Прозоров | Люди меча (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война за прибалтийские земли набирает силу. Вспомнили и про группу ролевиков, захвативших ливонский замок. Передали им денег, для чего убедили Костю Росина оставить свою мануфактуру и отправиться в поход. И попросили занять ещё один замок, помочь русским войскам. Ну, захватили. А что делать дальше? Долго ломали головы ребята, и придумали!
-
-Шестой роман цикла «Сотник» (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 11:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE689F14CE3DC1F59D5129E1772B0F11AA5FDFE
 ```
 
 

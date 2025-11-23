@@ -1,3 +1,183 @@
+###  Публикация: 1086889   (147998) от 26.12.2016
+
+Леонид Филатов | Дилижанс (2005) [MP3, Лев Дуров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентиментальный фарс в 2 частях по мотивам новеллы Ги де Мопассана "Пышка". Хроники времен франко-прусской войны 1870-х годов.Жанр: комедия, юмор, сатираПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175F9395AAF2BC186D356114AEA2A54B82A1D120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271680   (147999) от 24.12.2018
+
+Мистер 365 / Mr. 365 (2018) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147999.jpg" />
+</div>
+
+
+###  Подробнее
+
+София, продюсер реалити-шоу, начинает работать над праздничным шоу о Уилле, сексуальном парне, который празднует Рождество каждый день в году. Она влюбляется в свою таинственную, маловероятную новую звезду, тем самым возрождая свою давно потерянную любовь к Рождеству.Производство: СШАЖанр: МелодрамаРежиссер: Кристи УиллАктеры: Челси Хоббс, Кристофер Расселл, Джилл Моррисон, Мэтт Андерсон, Джеффри Уоллес, Донна Бенедикто, Гиджет, Люсия УолтерсПеревод: Многоголосый закадровый "Синема УС"Субтитры: ОтсутствуютПродолжительность: 01:31:30Реклама: Присутствуют вставки видео, голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579FC457353A3B2D724099D5517729ADE8637261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434943   (148000) от 26.12.2020
+
+В.И. Водопьянов и др. | Курс сопротивления материалов с примерами и задачами (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит основной теоретический материал и примеры практической реализации теоретических положений.В частности, в основные разделы курса включены примеры, позволяющие от задач простейших переходить к более сложным параллельно с изучением теоретического материала. Составлены контрольные задания, позволяющие студентам приобрести навыки первых самостоятельных расчётов (   Читать дальше...   )Жанр: Сопротивление материаловФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C311B06134F3E5B3D09BCAA0F2B33BEBC37CB8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589446   (148001) от 15.12.2012
+
+Porcupine Tree - Octane Twisted (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это специальное издание1. Occam's Razor
+2. The Blind House
+3. Great Expectations
+4. Kneel And Disconnect
+5. Drawing The Line
+6. The Incident
+7. Your Unpleasant Family
+8. The Yellow Windows Of The Evening Train
+9. Time Flies
+10. Degree Zero Of Liberty(   Читать дальше...   )Жанр: Прогрессивный РокРежиссер: KscopeПеревод: ОтсутствуетПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519452   (148002) от 24.12.2021
+
+Бывших не бывает (2021) WEBRip (сезон 1, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Дементьев — спасатель на дорогом кипрском курорте, но 20 лет назад он вёл совсем другую жизнь. Вместе с друзьями мужчина мечтал очистить родной город от наркомафии и принимал участие в спецоперации, выжить после которой можно было только одним способом — инсценировав свою смерть. Илья перебрался за границу, неплохо устроился…Производство: Россия / «Киностудия КИТ»Жанр: криминал, драма, детективРежиссер: Артём Мазунов, Улдис ЦипстсАктеры: Сергей Маховиков, Лянка Грыу, Сергей Астахов, Нина Гогаева, Александр Тютин, Александр Дьяченко, Анастасия Чепелюк, Эдуард Флёров, Арсений Робак, Александр СоколовскийПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4242F717D4A0F24F3EEF4EF4163F86BCB0F59BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678069   (148003) от 20.11.2023
+
+Deliver Express 2.7.9 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver Express - это автоматическое решение для быстрой отправки и обмена файлами через Интернет и локальные сети. Deliver Express обрабатывает файлы автоматически из горячих папок и предлагает автоматические уведомления по электронной почте, многоцелевой трансфер, подробную историю доставки и многое другое. Deliver Express подходит как для корпоративного решения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2023Разработчик: © 2010-2022 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A23AFAD73FF0A107D2B7245E49478727E2B8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147889   (148004) от 24.12.2019
+
+communication Tube - Discography 10 Releases (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Glitch, Ambient, Psybient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время рек (07:16)
+ 02. Караван (07:51)
+ 03. Трасса (07:18)
+ 04. Над (08:28)(   Читать дальше...   )Тип издания: WebЖанр: Psybient/Ambient/Downtempo/PsychillПродолжительность: 11:37:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9202B1899788683D138BBB90A26F4F73375A6B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263680   (148005) от 24.12.2018
 
 Титаны / Titans (2018) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-11 из 11) LostFilm
@@ -6,7 +186,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148005.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ ImperiHome Pro 2.8.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148006.jpg" />
 </div>
 
 
@@ -56,7 +236,7 @@ magnet:?xt=urn:btih:F96D835212737E96F20F0B1E0B2F6A25C81A6701
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148007.jpg" />
 </div>
 
 
@@ -80,7 +260,7 @@ Tipard FixMP4 for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148008.jpg" />
 </div>
 
 
@@ -104,7 +284,7 @@ magnet:?xt=urn:btih:F79FEC30930EB69EC18F3EF394540A3C4996A3E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148009.jpg" />
 </div>
 
 
@@ -128,7 +308,7 @@ magnet:?xt=urn:btih:48D9EC7F7AFBCDBA9EA99734F07CC9E0EEDDD26B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148010.jpg" />
 </div>
 
 
@@ -152,7 +332,7 @@ magnet:?xt=urn:btih:08DAD6D70D266A5849B70FC409530555F858E57D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148011.jpg" />
 </div>
 
 
@@ -176,7 +356,7 @@ magnet:?xt=urn:btih:AA37FB86B8B3D1967F8130104325F2DAE1C89CFD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148012.jpg" />
 </div>
 
 
@@ -200,7 +380,7 @@ magnet:?xt=urn:btih:6D0AD389B6C34D3549F87797CC2A7B8CCB70EDCB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148014.jpg" />
 </div>
 
 
@@ -225,7 +405,7 @@ VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148015.jpg" />
 </div>
 
 
@@ -252,7 +432,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148016.jpg" />
 </div>
 
 
@@ -276,7 +456,7 @@ magnet:?xt=urn:btih:B53186E60BD1583298927A973BD274F2ADC7C314
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148017.jpg" />
 </div>
 
 
@@ -300,7 +480,7 @@ magnet:?xt=urn:btih:5A9B364FDABA473FC78040C44272A0542ECF188D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148019.jpg" />
 </div>
 
 
@@ -327,7 +507,7 @@ magnet:?xt=urn:btih:504B3725CD249BE0D392F1133965FD8A870C8BA6
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148020.jpg" />
 </div>
 
 
@@ -351,7 +531,7 @@ magnet:?xt=urn:btih:3D794CBF33F0F81AC0444A515A933D52FE794E88
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148021.jpg" />
 </div>
 
 
@@ -375,7 +555,7 @@ magnet:?xt=urn:btih:0351D14923EFAFE6CB094B4A031CF558C20C76EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148022.jpg" />
 </div>
 
 
@@ -399,7 +579,7 @@ magnet:?xt=urn:btih:4C0CCA64019D9F80DA267DC13E9C4B647E676CA2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148023.jpg" />
 </div>
 
 
@@ -423,7 +603,7 @@ Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.3.1/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148024.jpg" />
 </div>
 
 
@@ -447,7 +627,7 @@ magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148025.jpg" />
 </div>
 
 
@@ -458,180 +638,6 @@ magnet:?xt=urn:btih:32F6551C4766D4352C140FC90C4C8BD4B32D8E41
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:787D1E67EEE3EEBBCD7D2384231C1BA7A088FCFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678061   (148026) от 20.11.2023
-
-Hyperdontia - Nexus of Teeth (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purging Through Flesh
-02. Of Spire And Thorn
-03. Teeth And Nails
-04. Aura Of Flies(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB619B4E317D1647A0F2DDC16D2B1F9D53D37439
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086998   (148027) от 26.12.2016
-
-Cabela's Big Game Hunter 6: The Next Adventure (2002) [En] (1.00.0000) Unofficial
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестая часть Cabela's Big Game Hunter перенесет игроков в четыре огромные охотничьи зоны, такие как Колорадо, Нью-Мексико, Миссисипи и Канада. Для разнообразности геймплея, в Cabela's Big Game Hunter 6 было добавлено 6 различных персонажей, каждый со своим набором параметров и умений. Также здесь представлено 14 видов огнестрельного оружия, 3 типа луков, два десятка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elsinore MultimediaЖанр: Sport (Hunt, Fish), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35C54573B7F7218E0D59BCE6910042C4413A329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434916   (148029) от 26.12.2020
-
-Журнал | Сделай сам №2 (апрель-июнь 2020) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной номер журнала предназначенного для людей, стремящихся овладеть различными ремеслами и умениями. Подробно и доходчиво описано о строительстве и ремонте, дачном хозяйстве и кулинарии, народных промыслах и многом другом. Прочитав этот журнал, Вы научитесь многому. А так же сможете научить этому и других. Издание выходит с 1989 года (было 13 выпусков), а с (   Читать дальше...   )Жанр: ХоббиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C518D5A91FF1DB8D68FA725DDD1DF3BE0593A79B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677982   (148030) от 20.11.2023
-
-Corroded - Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard-Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lesser Of Two Evils [00:03:47]
-02. Monster [00:03:32]
-03. Beaten [00:03:52]
-04. Dead Rest (Tears) [00:03:34](   Читать дальше...   )Жанр: Alt.Metal, Hard-Rock, Post-GrungeПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40375641EFA918DE75CCF5C3D667786B59606366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589951   (148031) от 15.12.2012
-
-сНежное шоу 3D (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная сказка, рассказанная знаменитым русским клоуном Славой Полуниным, теперь на большом экране в объемном 3D-формате. Для кого-то это шоу покажется лирическим воспоминанием о детстве, для кого-то станет пронзительным рассказом об одиночестве. Кто-то будет от души смеяться над желтым клоуном в лохматых красных тапочках и повторять вслед за ним: «Асисяй…» А у (   Читать дальше...   )Жанр: Документальный, семейныйПродолжительность: ~ 01:00:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086949   (148032) от 26.12.2016
-
-Джеймс Хедли Чейз | Сатана в сатине. Не мое дело. Дьявольский мотель. Охота на блондинок (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведения Джеймса Хэдли Чейза, известного английского писателя, признанного мастера детективного жанра, отличают острое детективное повествование, тонкие психологические наблюдения. В настоящее издание входят четыре остросюжетных романа: «Сатана в сатине», «Не моё дело», «Дьявольский мотель» и «Охота на блондинок». В них читатель найдет "страшные события", (   Читать дальше...   )Жанр: Детективный романПродолжительность: 22:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7997B3C120F7BC34A2AE6C26E694FC72307CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514040   (148033) от 24.12.2021
-
-Элизиум: Рай не на Земле / Elysium (2013) WEB-DL [H.264/1080p] [16:9] [Локализованная версия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148033.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2154 году существует два класса людей: очень богатые, живущие на чистой, созданной руками человека, космической станции под названием Элизиум и остальные, живущие на перенаселённой разрушенной Земле. Безжалостный правительственный чиновник Министр Роудс не остановится ни перед чем для применения анти-иммиграционных законов и сохранения роскошного образа жизни граждан (   Читать дальше...   )Производство: США, Мексика, Канада / TriStar Pictures, Media Rights Capital (MRC), QED InternationalЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Мэтт Дэймон, Алиси Брага, Шарлто Копли, Джоди Фостер, Вагнер Моура, Эмма Тремблей, Диего Луна, Уильям Фихтнер, Фаран Таир, Максвелл Перри КоттонПеревод: ДублированныйСубтитры: русские (forced на непереведенные фрагменты)Продолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DEC185F9F00EF7CE9D3D33AE33A6DDF613FE52
 ```
 
 

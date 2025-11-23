@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25067.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FAA9FFD0C2A1D15CB941934CE0CE730C053A5795
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25068.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8211A34267DE822F2B315A966980FD231A711249
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25069.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25070.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C91AA77AB72D184C971CB40AC23A76FA8E67AE53
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25071.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 15245523/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25072.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:820583EF04D94FBE7D1F471B23A8C6704CDB8BB6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25073.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B3B8C6C4C145673CBC1CF245F5F2159669C4CFD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25074.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3614F205EDEB697534247E73B142D3C3B7097870
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25075.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25075.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ IT-эксперт Андрей Иванов  рассказал о методе 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25076.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ IT-эксперт Андрей Иванов  рассказал о методе 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25077.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CrystalDiskInfo 9.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25078.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A22BF0C897F90AFBFE391891AE32A6545FB3B276
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25079.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe InDesign 2025 20.2.0.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25080.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25081.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A972A0C361E4F1EA8C3D8AA98B6263A6B9CB385C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25082.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:49EDDB8D80144AE5601BCAF4B3BFE4E664B0865A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25083.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:F724A4ACB55A157722315C118FC7211EFC8F5503
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25084.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:067326B1379A76646EB6C5AAAE0B14E2C593C004
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25085.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:27EA4DEEAE93F8D77416CDC818F3F9B9DA4FCC2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25086.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1673D103BAE1021CECADBB1ACC9233399EE4F0B8
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25087.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:3B8E55E73C3ABC215830046F8DB64F22B23BA63D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25088.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25088.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25089.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:2132B165CD8FA138F1AEA1718A0678DF715DB571
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25090.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ EAS Audio - TapeStop 1.0.2 VST 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25091.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25091.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:789B771D4EE3E252CB027BA338CA30515884FB83
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25092.jpg" />
 </div>
 
 

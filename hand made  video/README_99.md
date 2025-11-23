@@ -1,3 +1,76 @@
+###  Публикация: 1662020   (187904) от 17.09.2023
+
+Васаби / Wasabi (2001) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский полицейский Юбер Фиорентини, исполняя последнюю волю когда-то любимой им женщины, вынужден отправиться в далекую Японию, где ему приходится встретиться со старым другом и дочерью, о существовании которой он даже не подозревал. А также получить наследство в 200 млн. долларов и познакомиться с якудза, которые охотятся за этими деньгами.Производство: Франция, Япония / Canal+Жанр: боевик, триллер, драма, комедия, криминалРежиссер: Жерар КравчикАктеры: Жан Рено, Рёко Хиросуэ, Мишель Мюллер, Ёси Оида, Кароль Буке, Кристиан Синниже, Александр Брик, Жан-Марк Монтальто, Вероник Бальм, Фабио ДзенониПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9578947AC8B54D4088F385BF9F5D8C1BD95D585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662019   (187906) от 17.09.2023
+
+Эйс Вентура: Розыск домашних животных / Ace Ventura: Pet Detective (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — лучший в своем деле, единственный и неповторимый! Он — Эйс Вентура, детектив по розыску домашних любимцев. Когда таинственные злоумышленники похищают дельфина по кличке «Снежинка», талисман местной футбольной команды «Дельфины», Эйс тут же приступает к работе, проявляя чудеса изобретательности.
+История принимает странный оборот, когда похищают еще и ведущего (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: комедия, детектив, приключенияРежиссер: Том ШэдьякАктеры: Джим Керри, Кортни Кокс, Шон Янг, Тоун Лок, Дэн Марино, Ноубл Уиллингэм, Трой Эванс, Рейнор Шайни, Удо Кир, Фрэнк АдонисПеревод: Дублированный (Мост-Видео, Варус-Видео), двухголосый профессиональный (НТВ, ТV1000)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C73B153A775D3A2DF4FB2954FDFAD1CB9648C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662315   (187909) от 17.09.2023
+
+Солярис (1972) BDRip [H.265/2160p] [4K, 10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187909.jpg" />
+</div>
+
+
+###  Подробнее
+
+На космическую станцию, сотрудники которой давно и тщетно пытаются сладить с загадкой планеты Солярис, полностью покрытой Океаном, прибывает новый учёный, психолог Крис Кельвин. Его задача - разобраться в странных сообщениях, поступающих со станции и закрыть её вместе со всей бесплодной «соляристикой». Поначалу ему кажется, что немногие уцелевшие на станции ученые (   Читать дальше...   )Производство: СССР, Мосфильм, Творческое объединение писателей и киноработниковЖанр: Фантастика, драма, детективРежиссер: Андрей ТарковскийАктеры: Наталья Бондарчук, Донатас Банионис, Юри Ярвет, Владислав Дворжецкий, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхЯзык озвучки: РусскийПродолжительность: 2:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377ECFAB5A5E830B1E52CF73F05C3B6F8CE84FF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662332   (187934) от 17.09.2023
 
 Эйс Вентура 2: Когда зовет природа / Ace Ventura: When Nature Calls (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +79,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187934.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187934.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:66B8CB1CE8596D4938C7778ABF8ACE024BE5890D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187996.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187996.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:0FA7C1A82DB1279476ED891E1A80BE7621349C51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188010.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188010.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:32F22EF6EBB7CEB28992723B504BE05F56CD69D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188161.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:2B6C23CCC5716B27D8DC180B5B9C72AB7201E7E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188163.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188163.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:6A1EF2E44BB67DA3AE3C4F4DB8B74743E46C55F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188166.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188166.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:8543A0586F8F6C7307250B932FD151C5FF4668E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188176.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188176.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:27F39D8143340F12051BC9B4F2EE586513533716
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188179.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188179.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:DD2F181BDAAE93796A4087A2A3C35EB135E34521
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188189.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:576B6F573400E6E8EEF283C37164CBB3C6C922DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188335.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188335.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:894557D92BC2A362F2CF6E68B80A039A0B67C9E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188394.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188394.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:67EA86FC8A09E2FF436BDC958EB27FE8A5A64905
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188404.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188404.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ magnet:?xt=urn:btih:A6AD464ADC72125FEE79A6D61AB05965964D4CEA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188696.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188696.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:93396907910534BACF050D9868079240B312CD88
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188756.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188756.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ magnet:?xt=urn:btih:EEC9E373ADA4ABFC7376A73D6279F35156DBE858
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188957.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188957.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ magnet:?xt=urn:btih:592D47BDF7CAE64A70FBE5A9C7F758929EEE6317
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189137.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189137.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ magnet:?xt=urn:btih:CE165E3F361EB6371CCA63D86C136111B09D8896
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189275.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189275.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ magnet:?xt=urn:btih:F585430EF1006B78D00F57A363D5B195AF8D0D2E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189504.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189504.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ magnet:?xt=urn:btih:EC43F4C441E348609F52756F719431D16645BE97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189520.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189520.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ magnet:?xt=urn:btih:2916035EFFE2095DC3A7CB09EBE8D45917F5F10E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189541.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189541.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:4B9B05713CF7C09DA1FE59278D49B9E86B664FFE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189551.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189551.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ magnet:?xt=urn:btih:56910A38A20CD02CA9E744D19423F6285961C990
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189560.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189560.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:C4DB31240579A24B53EA9812279C4D8703B883C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189619.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189619.jpg" />
 </div>
 
 
@@ -549,78 +622,6 @@ magnet:?xt=urn:btih:C4DB31240579A24B53EA9812279C4D8703B883C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348731E39D51190370425CF7CB3EE6CA0452D624
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659459   (189935) от 11.09.2023
-
-Время / In Time (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир, где время стало единственной и самой твердой валютой, где люди генетически запрограммированы так, что в 25 лет перестают стареть. Правда, последующие годы стоят денег. И вот богатые становятся практически бессмертными, а бедные обречены сражаться за жизнь. Уилл, бунтарь из гетто, несправедливо обвинен в убийстве с целью грабежа времени и теперь (   Читать дальше...   )Производство: США / New Regency Productions, New Regency ProductionsЖанр: фантастика, мелодрама, боевикРежиссер: Эндрю НикколАктеры: Джастин Тимберлейк, Аманда Сайфред, Киллиан Мёрфи, Алекс Петтифер, Винсент Картайзер, Оливия Уайлд, Мэтт Бомер, Джонни Галэки, Коллинз Пенни Итан ПекПеревод: Дублированный (Blu-ray CEE) CPIGЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA347CFF5144D9AAF9806D54B3D111029DC87D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659190   (189951) от 11.09.2023
-
-Кобра / Cobra (1986) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он - «Кобра» - штурмовой отряд полиции из одного человека, ему достаётся кровавая работёнка, за которую никто не хочет (или не осмеливается) взяться. Он выходит на след убийцы, за которым целая армия преступников-маньяков, стремящихся уничтожить свидетельницу их кровавой вакханалии. Но, к счастью, она попадает под защиту «Кобры»Производство: США, Израиль / The Cannon Group, Warner Bros.Жанр: боевик, криминал, приключенияРежиссер: Джордж П. КосматосАктеры: Сильвестр Сталлоне, Бриджит Нильсен, Рени Сантони, Эндрю Робинсон, Брайан Томпсон, Джон Херцфелд, Ли Гарлингтон, Арт ЛаФлёр, Марко Родригес, Росс Ст. ФиллипПеревод: Дублированный (Blu-ray CEE, Варус-Видео)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3602A042277C76603DE9B087F06279C45249DB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659211   (189991) от 11.09.2023
-
-Честная куртизанка / Dangerous Beauty (1998) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венеция, 1583 год. Юная, красивая, умная, но бедная Вероника Франко влюбляется в аристократа Марко, брата своей подруги, только что вернувшегося из Рима. Он тоже неравнодушен к девушке, но его отец считает, что их брак невозможен, так как у Вероники нет приданого. Мать Вероники, бывшая куртизанкa, пытается убедить дочь в необходимости обратиться к древнейшей профессии, (   Читать дальше...   )Производство: США / Regency Enterprises, Arnon Milchan Productions, The Bedford Falls CompanyЖанр: драма, мелодрама, биографияРежиссер: Маршалл ХерсковицАктеры: Катрин МакКормак, Руфус Сьюэлл, Оливер Платт, Жаклин Биссет, Фред Уорд, Наоми Уоттс, Мойра Келли, Джоанна Кэссиди, Дэниэл Лапэйн, Ерун КраббеПеревод: Дублированный, двухголосый, одноголосыйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиeПродолжительность: 01:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9253DFD000C814D844274BE77706A7FBDA4846C
 ```
 
 

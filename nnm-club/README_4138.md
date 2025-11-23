@@ -1,3 +1,75 @@
+###  Публикация: 1685391   (127275) от 18.12.2023
+
+RS Explorer / RS Проводник 2.0.8 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127275.jpg" />
+</div>
+
+
+###  Подробнее
+
+RS Проводник - запросто поможет вам в управлении вашими файлами и пространством на вашем смартфоне. При помощи этого приложения, вы сможете запросто управлять всеми файлами, что находятся на вашем смартфоне. Кроме функции управления файлами, приложение поможет вам освободить дополнительное пространство на смартфоне. С этим приложениям вы, также, сможете разархивировать (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.12.2023Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685433   (127276) от 18.12.2023
+
+Баранова И.В. и др. | Объектно-ориентированное программирование на C++ (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные концепции объектно-ориентированного, обобщенного и событийного программирования. В качестве языка программирования выбран язык С++. Подробно изложены принципы и механизмы работы с классами и объектами, в том числе наследование, перегрузка функций и операций, виртуальные функции, шаблоны функций и классов. Большое внимание уделено работе со стандартной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СибФУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEE8EA74F3AFD61E982C066843DB79A48AF86ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681462   (127277) от 18.12.2023
+
+Photo Lab PRO v3.12.83 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 17.12.2023Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1BE3E43B12FEC676B4B7A3BA9AF71C4BFF097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591209   (127278) от 18.12.2023
 
 Антонина Брагина (1978) WEBRip
@@ -6,7 +78,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127278.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:87460A56EC527DD50CFAFD8EDEEB6722CFD52690
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127279.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127280.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127281.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Van Roy Asylum - Т​р​е​в​о​ж​н​ы​е м​ы​с​л​
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127282.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:4F2EC33A6CB34057707241F1B865A313E371C2E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127283.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:4F2EC33A6CB34057707241F1B865A313E371C2E6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127284.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ HopToDesk 1.40.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127285.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:E855707B435961E0D5DB56A57D6E5246623CFD51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127286.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:E35C33D2A9CDBDA7AC482063B5E354B82DAC03E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127287.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127288.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:D6DD8355A704C6A549ECF057551A2735CC0F8790
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127289.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:554FBD55D587270F651203762F84337F7232BE63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127290.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:2AEC160D9C99AB9F9B767404302D540DF0359BCB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127291.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:AEA9AE6A78F48B408CF0AFD4D15201AFC6E44753
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127292.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:AF39C858403FBDD35C1A4B1FBE8EB5A71A64DB59
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127293.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:15D08BCC5FD7609D792FF1CCAD953FF981F79245
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127294.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:7DA157A4BBB15147B15912D158DF72EF486C0010
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127295.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:ED6456053F28D04527A543722577B1C46F325489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127296.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ TikTok 32.6.4 Lite-Mod by Dmitry Nechiporenko [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127297.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:88284B3FE6D0937C4E3A16522193C4272582A901
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127298.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:C4590F094ED9CC159F783285C5D436D82B3A6635
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127299.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:BA730738C13FB29A2BFD6A6462179FC8268164D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127300.jpg" />
 </div>
 
 
@@ -557,79 +629,6 @@ magnet:?xt=urn:btih:BA730738C13FB29A2BFD6A6462179FC8268164D0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6DA88E35AE74137C13D697AFE10A3F383B5CF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685019   (127301) от 18.12.2023
-
-Скольжение (2013) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой с необычным именем-прозвищем Пепл – оперативный сотрудник, однако и он, и вся группа, к которой он принадлежит, типичные, погрязшие в криминальной деятельности, «оборотни в погонах». В отлаженной преступной схеме этой сработавшейся команды начинают возникать сбои, и становится очевидным, что в их рядах есть осведомитель. Обозначенная сюжетная канва (   Читать дальше...   )Производство: Россия / Blackbriar production, MultilandЖанр: триллер, криминалРежиссер: Антон РозенбергАктеры: Владислав Абашин, Алексей Игнатов, Михаил Солодко, Владимир Лукьянчиков, Наталья Швец, Ольга Смирнова, Александр Борисов, Николай Козак, Мария Слидовкер, Алексей ШкатовСубтитры: отсутствуютПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570D38FECA742A8D437F74DFD4AA3444FC2C6452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685389   (127302) от 18.12.2023
-
-Multi Commander Full Edition 13.3 Build 2969 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Multi Commander - мощный многооконный менеджер файлов, являющийся отличной альтернативой стандартному проводнику Windows. При работе с файлами используется удобный двухпанельный вид, что обеспечивает простоту и доступность эффективного и быстрого управления файлами в повседневной деятельности.
-Кроме стандартного набора функциональных возможностей файлового менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AE23031A7DFF5760A3275ABA979592D0CC77D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672050   (127303) от 18.12.2023
-
-В фокусе воробьи (2023) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этих птичек мы наблюдаем практически везде и всюду. Они бывают самых разных расцветок - серые и жёлтые, белые и чёрные. Грачи, сойки, синицы, вороны - это тоже воробьиное семейство. При этом самих воробьёв из 6 тысяч видов всего два.Производство: Беларусь, ГПЦЖанр: документальный, познавательный, орнитологияРежиссер: Александр МышаловЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC1552F5DF3A1E62C62DE2F3F075101DD1B26B1
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1758094   (103427) от 01.11.2024
+
+Various Artists - ANA - Metal for Charity Project (2017) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103427.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ana - Ana 07:28
+2. Ana - Holy Diver 04:39
+3. Darkest Sins - Domineer 04:12
+4. Marius Danielsen - Lost in a Dream 04:57(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FF40270256DC8EA9B8C6D510E96E8673CE25D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758218   (103428) от 01.11.2024
+
+Сливки - Заморочки  (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Летняя Москва (саундтрек у к/ф Жара)
+03. Заморочки
+04. Хватит(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E45724493F57B6FA4D657D1D125124144211389
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758264   (103429) от 01.11.2024
+
+Евгений Замятин | Русь (2013) [MP3, Дмитрий Савин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+В сборник включены лучшие произведения Евгения Замятина (1884–1937) – сочный, зримый, кустодиевски живописный рассказ «Русь», произведения о русском Севере («Север», «Африка», «Ёла»). На этом же диске – потрясающая, «надрывная» любовная драма «Наводнение», рассказ о первой, осуждаемой взрослыми юношеской любви «Апрель», притча (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 09:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E1ED97FB038323BAECEF9F8A87DA1EBC516873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758261   (103430) от 01.11.2024
 
 Евгений Замятин | Один (2021) [MP3, Пётр Таганов]
@@ -6,7 +85,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103430.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:BF8472EC24986BA3321194C370550AA34C9B28D6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103431.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ magnet:?xt=urn:btih:AF42ABC65A5965C76C38354D643196B8F101DA07
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103432.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103433.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:7245C911916AB87097B19F0D964A90EB1F23C4B7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103434.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ magnet:?xt=urn:btih:1F994D6D08BD9D89B5FB97FE4CEFAA4D6D10EB7E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103435.jpg" />
 </div>
 
 
@@ -161,7 +240,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103436.jpg" />
 </div>
 
 
@@ -185,7 +264,7 @@ magnet:?xt=urn:btih:583416CEE56183B6631D3CDDF064C5A93F8A5D33
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103437.jpg" />
 </div>
 
 
@@ -210,7 +289,7 @@ Danger Zone - Shut Up! (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103438.jpg" />
 </div>
 
 
@@ -237,7 +316,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Гонка (27.10
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103439.jpg" />
 </div>
 
 
@@ -261,7 +340,7 @@ Heartwind - Heartwind III (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103440.jpg" />
 </div>
 
 
@@ -288,7 +367,7 @@ Unwanted Guest - Bonedead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103441.jpg" />
 </div>
 
 
@@ -315,7 +394,7 @@ magnet:?xt=urn:btih:BB8E442DF3E1D1410E7FC865C02C10194A1308A2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103442.jpg" />
 </div>
 
 
@@ -341,7 +420,7 @@ magnet:?xt=urn:btih:844AD852B766AC9FF0873770A4C600E161994A22
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103443.jpg" />
 </div>
 
 
@@ -365,7 +444,7 @@ VA - Halloween Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103444.jpg" />
 </div>
 
 
@@ -392,7 +471,7 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103445.jpg" />
 </div>
 
 
@@ -419,7 +498,7 @@ VA - Nothing But... Trancetopia Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103446.jpg" />
 </div>
 
 
@@ -446,7 +525,7 @@ magnet:?xt=urn:btih:EEDFD53DA36FB1E95E3D36F0A732FEF1509385D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103447.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ magnet:?xt=urn:btih:423FB78BCE761793B12473B3687B72ECCAE98EF9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103448.jpg" />
 </div>
 
 
@@ -499,7 +578,7 @@ Winding Road - Fill My Sails (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103449.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ magnet:?xt=urn:btih:45DA726CC86E79E269EC8BE8348560639805F93F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103450.jpg" />
 </div>
 
 
@@ -550,7 +629,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Спринт (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103451.jpg" />
 </div>
 
 
@@ -574,7 +653,7 @@ Pinnacle Point - Winds Of Change (2017) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103452.jpg" />
 </div>
 
 
@@ -588,84 +667,6 @@ Pinnacle Point - Winds Of Change (2017) [FLAC|Lossless|image + .cue] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F5118A03D8230CE3D4B9EF3B036121E5A4ED9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757278   (103453) от 26.10.2024
-
-Miki Yamanaka - Chance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Side, Light Side (9:05)
-02. Trinkle Tinkle (6:41)
-03. I Wish I Knew (4:03)
-04. Herzog (5:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C638187635E77AF494A53D192DC37800AE65152D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757195   (103454) от 26.10.2024
-
-Пятеро на одного (26.10.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572164FB068F3991C7D12D66E044F55C8F2EB274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757277   (103455) от 26.10.2024
-
-Melinda Sullivan and Larry Goldings - Big Foot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloom (4:18)
-02. Sin Zapatos (3:10)
-03. Do You Like (2:52)
-04. Clear Day (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89755AFA59E4A063B8711796330F308655D049E4
 ```
 
 

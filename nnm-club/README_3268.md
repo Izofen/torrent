@@ -1,3 +1,79 @@
+###  Публикация: 1747988   (104650) от 07.09.2024
+
+Leathers - Ultraviolet (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave / Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultraviolet [00:03:05]
+02. Highrise [00:03:27]
+03. Crash [00:03:25]
+04. Fascination [00:03:33](   Читать дальше...   )Жанр: Darkwave / SynthpopПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0E25080A0DE1522B6D0B10E821152A98DE524B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747890   (104651) от 07.09.2024
+
+Маленький лес / Liteul poreseuteu (2018) HDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104651.jpg" />
+</div>
+
+
+###  Подробнее
+
+История молодой девушки, вернувшейся в дом своего детства, в традиционную корейскую деревню, после отъезда в большой город в погоне за тем, что оказалось неуловимой мечтой... "Маленький лес" её матери, множество способов, с помощью которых мать-одиночка успешно обустроила дом для своего горячо любимого ребёнка, раскрываются длинной чередой любовно набросанных (   Читать дальше...   )Производство: Южная Корея / Megabox Plus M, Watermelon Pictures Co., Ltd.Жанр: драма, комедияРежиссер: Сун Ре ИмАктеры: Тэ Ри Ким, Чжун Ёль Рю, Со Ри Мун, Ки Чжу Чжин, Вон Сан Пак, Чжун Вон Чон (II), Сан Чжин Чжон, Сон Док ХонПеревод: любительский многоголосый, любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (по переводу ФСГ 'Зиппер), английскиеПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2327DE5776ED59B063B16E5ECEA2146CB3B1092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747835   (104652) от 07.09.2024
+
+XYplorer 26.40.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104652.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer - продвинутый файловый менеджер, который внешне напоминает стандартный Проводник Windows, но имеет множество дополнительных функций и инструментов для удобной работы с файлами. Особенностью этого менеджера является поддержка мультивкладок - откройте столько окошек, сколько Вам нужно, и быстро переключайтесь между ними.
+Приложение имеет гибкие настройки и (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978D5BE9E56684025660660D06BBC76C042AE48F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747796   (104653) от 07.09.2024
 
 Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Tribal>
@@ -6,7 +82,7 @@ Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Am
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104653.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:91C5DE1CDB02DDBABD7B446996925F88C5B2D233
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104654.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ magnet:?xt=urn:btih:03062C29A763355363A3DCE5E236DC285022D67B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104655.jpg" />
 </div>
 
 
@@ -85,7 +161,7 @@ Miseria Ultima - Arctic Esotericism (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM / 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104656.jpg" />
 </div>
 
 
@@ -112,7 +188,7 @@ The Dead Daisies - Light 'Em Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104657.jpg" />
 </div>
 
 
@@ -139,7 +215,7 @@ VA - Kazal Records Present - Trance Legends Vol. 1 (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104658.jpg" />
 </div>
 
 
@@ -166,7 +242,7 @@ magnet:?xt=urn:btih:CADAD131CB2FDF39EDBF1997D4C825A8053D7AD0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104659.jpg" />
 </div>
 
 
@@ -192,7 +268,7 @@ Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104660.jpg" />
 </div>
 
 
@@ -219,7 +295,7 @@ magnet:?xt=urn:btih:D37BB554110EDC1C83AE5DA1AB7B395D44C71EAE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104661.jpg" />
 </div>
 
 
@@ -243,7 +319,7 @@ magnet:?xt=urn:btih:4BE146145D8AA2C1947229EC67DE42D529616182
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104662.jpg" />
 </div>
 
 
@@ -267,7 +343,7 @@ Telegram Desktop 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104663.jpg" />
 </div>
 
 
@@ -293,7 +369,7 @@ Audacity 3.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104664.jpg" />
 </div>
 
 
@@ -317,7 +393,7 @@ magnet:?xt=urn:btih:905CA4A82E256AE87089BF5E93B79B57639AC9A0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104665.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ magnet:?xt=urn:btih:46B2C8F0DD17DBD8359A1188A916A6F69697A605
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104666.jpg" />
 </div>
 
 
@@ -365,7 +441,7 @@ Sigil 2.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104667.jpg" />
 </div>
 
 
@@ -389,7 +465,7 @@ PageEdit 2.3.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104668.jpg" />
 </div>
 
 
@@ -415,7 +491,7 @@ USB Device Tree Viewer 4.4.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104669.jpg" />
 </div>
 
 
@@ -439,7 +515,7 @@ GetPixelColor 3.36 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104670.jpg" />
 </div>
 
 
@@ -463,7 +539,7 @@ magnet:?xt=urn:btih:C5050591CCCC71527B34B618AD4AF16EBDC2E996
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104671.jpg" />
 </div>
 
 
@@ -487,7 +563,7 @@ magnet:?xt=urn:btih:7D65D2AAA8023FDA4FF63F176F93C059FA93D5CB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104672.jpg" />
 </div>
 
 
@@ -511,7 +587,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104673.jpg" />
 </div>
 
 
@@ -535,7 +611,7 @@ Process Lasso Pro 15.0.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104674.jpg" />
 </div>
 
 
@@ -559,7 +635,7 @@ magnet:?xt=urn:btih:7E57205DD5A1D45C2D4B39BFEF9BADAF9A4352C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104675.jpg" />
 </div>
 
 
@@ -570,79 +646,6 @@ magnet:?xt=urn:btih:7E57205DD5A1D45C2D4B39BFEF9BADAF9A4352C1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747812   (104676) от 07.09.2024
-
-XMedia Recode 3.6.0.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104676.jpg" />
-</div>
-
-
-###  Подробнее
-
-XMedia Recode - отличная утилита, цель которой - помочь Вам преобразовать видео почти любого формата в видео, совместимое с мобильными телефонами, плеерами, портативными носителями, игровыми приставками. Дружественный интерфейс позволит Вам сориентироваться в функционале и возможностях программы. XMedia Recode способна производить изменение размеров кадра видео, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3933FFB4816E08319C7E23BB9FAD96AED5FDDDDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747875   (104677) от 07.09.2024
-
-Журнал | Render Magazine №9 (сентябрь 2024) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104677.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3D4836EBE247549664FE66FC81AD1772952959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747819   (104678) от 07.09.2024
-
-А.П. Крешков | Основы аналитической химии (1976 - 1977) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является руководством по курсу "Основы аналитической химии" и предназначена в качестве учебника для студентов химико-технологических специальностей высших учебных заведений.
-В первом томе изложены общие теоретические основы аналитической химии, теория, методы и техника качественного анализа неорганических веществ, содержащих наряду с обычными химическими (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEF5EE548C4112850B32CA87E7F9D7C0D288C7E
 ```
 
 

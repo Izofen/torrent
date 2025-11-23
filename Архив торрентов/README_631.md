@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134598.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:73E94FF69ACD3028105EB452B99D38A85E3317C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134600.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Dropover for Mac 4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134608.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8E1EF9A07BC0ACCB5CC6E9C55A1E53D304CC72AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134620.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:574CBA6ADF989686FAC4C9F540846380827A7DB0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134624.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Bike Outliner for Mac 1.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134625.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:80F1F7227177BC328FEF66C14161D372173AA67D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134630.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ BatchOutput PDF 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134647.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Dropzone 4 Pro v.4.80.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134648.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F4C2CCA17BBECA641EA50DAC6B5CD5B24589E567
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134653.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PGWare Throttle 6.12.24.2012 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134669.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134669.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Throttle - утилита предназначена для настройки �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134671.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ PGWare PCBoost 4.12.24.2012 [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134674.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134674.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PGWare PcBoost — это продвинутое программное сред
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134680.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:1FEF738E7593EF1A711BCFA06A04466630B48CFD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134699.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ C.W. Stoneking - 2 Albums (2006, 2008) [MP3|320 kbps]<Blues, Ragtime, Calypso, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134704.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:95FE6D3585337504CC6AE60354819CEBB3E425A1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134712.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Tiesto - Club Life 299 Podcast (22.12.2012) [MP3|320 кб/с]<House / Electro Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134716.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ WinRAR 7.00 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134717.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Save.Me Portable 2.0.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134718.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134718.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Defender Remover Portable 12.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134723.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ SoftMaker Office Professional 2024 rev. S1206.1118 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134730.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:70D57175A8B75D980B607FF6F1708F48B7666441
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134731.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Scribus 1.4.2 SVN build 121217 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134733.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Scribus – бесплатная издательская программа с 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134738.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:E77FA194D31617E28E184B0134DEFB861E885D8E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134739.jpg" />
 </div>
 
 

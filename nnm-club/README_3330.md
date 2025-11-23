@@ -1,3 +1,80 @@
+###  Публикация: 1738767   (106262) от 24.07.2024
+
+Сельма Лагерлёф | Чудесное путешествие Нильса с дикими гусями (1996) [MP3, Клара Румянова, и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир детства.
+Сельма Лагерлёф (1858–1940) – шведская писательница, лауреат Нобелевской премии по литературе – известна в нашей стране как автор сказки «Чудесное путешествие Нильса с дикими гусями».
+Радиопостановка по страницам романа шведской писательницы Сельмы Оттилия Ловиза Лагерлёф – «Удивительное путешествие Нильса Хольгерссона с дикими гусями по (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Rec RecordsПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226320DABCA22DCC2624A0CCA762E9E22B8523EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738765   (106263) от 24.07.2024
+
+Сельма Лагерлёф | Чудесное путешествие Нильса с дикими гусями (2006) [MP3, Маргарита Корабельникова, Валентина Сперантова и  др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+«Чудесное путешествие Нильса с дикими гусями» – самая знаменитая и популярная повесть-сказка Сельмы Лагерлёф (1858–1940), признанная одним из классических произведений мировой детской литературы и переведенная на многие языки. Удивительные приключения главного героя – мальчика Нильса, превращенного гномом в крошечного человечка, опасности (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3890C8501533469C5C28E6AB6DB989BA9A449E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738764   (106264) от 24.07.2024
+
+Сельма Лагерлёф | Путешествие Нильса с дикими гусями (2006) [MP3, Александр Белявский, Наталия Крачковская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Живая сказка.
+Сельма Лагерлёф (1858–1940) – шведская писательница, лауреат Нобелевской премии по литературе – известна в нашей стране как автор сказки «Чудесное путешествие Нильса с дикими гусями».
+Эта сказка об удивительном превращении мальчика Нильса в крошечного человечка. Путешествуя с дикими гусями по Швеции, с ним происходят различные захватывающие (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Два Жирафа, Мост-ВПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7771CB25493B320B41BA81DF32F99380A5FC2DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738630   (106265) от 24.07.2024
 
 Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +83,7 @@ Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106265.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Chris Boudreaux - Beside Myself (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106266.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ Photo Supreme 2024.2.2.6593 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106267.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ Ron Beer - Best Beer Ever (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106268.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ Lara Price - Half & Half (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106269.jpg" />
 </div>
 
 
@@ -138,7 +215,7 @@ BuddyRo and the 'Lanes - I'm Through with Trouble (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106270.jpg" />
 </div>
 
 
@@ -165,7 +242,7 @@ The Bad Day - The Irish Goodbye (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106271.jpg" />
 </div>
 
 
@@ -192,7 +269,7 @@ Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106272.jpg" />
 </div>
 
 
@@ -219,7 +296,7 @@ Soulseller - Witching Hour (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106273.jpg" />
 </div>
 
 
@@ -246,7 +323,7 @@ Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106274.jpg" />
 </div>
 
 
@@ -273,7 +350,7 @@ Sage Perez - Sage & The Imaginaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106275.jpg" />
 </div>
 
 
@@ -300,7 +377,7 @@ Curtis Waters - Bad Son (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106276.jpg" />
 </div>
 
 
@@ -327,7 +404,7 @@ Dickey Betts & Great Southern - Atlanta's Burning Down (1978) Remaster, 2024, Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106277.jpg" />
 </div>
 
 
@@ -354,7 +431,7 @@ Dickey Betts & Great Southern - Dickey Betts & Great Southern (1977) Remaster, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106278.jpg" />
 </div>
 
 
@@ -381,7 +458,7 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106279.jpg" />
 </div>
 
 
@@ -408,7 +485,7 @@ InnoExtractor Ultra 8.0.0.603 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106280.jpg" />
 </div>
 
 
@@ -433,7 +510,7 @@ FontLab 8.3.0.8898 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106281.jpg" />
 </div>
 
 
@@ -458,7 +535,7 @@ magnet:?xt=urn:btih:55923A1C90599FC72E38DB19C4E23ACB18C7E9C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106282.jpg" />
 </div>
 
 
@@ -482,7 +559,7 @@ magnet:?xt=urn:btih:0F8E6109FDB6B2B8EBEE5638E534EF397E1A530B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106283.jpg" />
 </div>
 
 
@@ -506,7 +583,7 @@ magnet:?xt=urn:btih:B0B7A421516A8E95DB8B17CF90D96E24CD21FC0D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106284.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ John Lennon - Mind Games (1973) 2xCD, Reissue, 2024, Lenono Music, Universal Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106285.jpg" />
 </div>
 
 
@@ -557,7 +634,7 @@ Babbba - Extended Cabaret (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106286.jpg" />
 </div>
 
 
@@ -584,7 +661,7 @@ Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106287.jpg" />
 </div>
 
 
@@ -598,84 +675,6 @@ Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025FE3F87401E3D650B968A5B37F40BA976FA13D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738606   (106288) от 23.07.2024
-
-RJ TextEd 16.26 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106288.jpg" />
-</div>
-
-
-###  Подробнее
-
-RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D738772E421FDD787261D00AD4E1A110907A60DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738331   (106289) от 23.07.2024
-
-Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovin' for Mr. G [4:14]
-02. Theme from Love Story [3:38]
-03. Mr. Clean [5:04]
-04. Down Home Funk [5:22](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5348EC73AB864D8459A2645F7585B3EE6AFDEA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738532   (106290) от 23.07.2024
-
-The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna MMM (Electro Swing Bot Mix) (3:44)
-02. Doin' the Jive (Electro Swing Bot Mix) (3:25)
-03. Tropical Jive (3:18)
-04. St. James Infirmary (3:15)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B874759BF1E000B0374333B91FF83A86CD6DC766
 ```
 
 

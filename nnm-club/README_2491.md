@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65514.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65516.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ganesa - Пробуждение силы (2025) [MP3|320 Kbps] <Гранж>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65517.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Cold Stares - The Southern, Pt. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65518.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Seyminhol - Northern Recital (2002) Reissue, 2004, CD-Maximum [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65519.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sugar Blue - Cross Roads (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65520.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Nastyville - Rebirth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65521.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Gina Coleman - Unequivocally Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65522.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mick Simpson - Changing Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65523.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tim O'Brien, Jan Fabricius - Paper Flowers (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65524.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Alexis P. Suter Band - Just Stay High (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65525.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Wrath Of Belial - Embers Of Dead Empires (2025) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65526.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ One Rusty Band - Line After Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65527.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Third Party - Live @ Party People (The Dome at Grand Central Hall Liverpool) (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65528.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65529.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bo Diddley, Ron Terry - Have A Good Time Tonight (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65530.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:1211DBD8F45BB834195AD9EA3E4D64FDF05EA7FE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65531.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Chrissie Pavlovic - Heartland (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65532.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Zero Mindset - Nightdive (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65533.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ KORG - multi/poly native 1.0.4 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65534.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Heathen's Eye - Port Inspiro (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65535.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:71FFD170ABB15561D1890D831732292D3AAF9519
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65536.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:B5F6E2922E5B289D52771E0FD07EF158DE172A64
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65537.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:C852FA3C32395C3036EA00DBD94AC917894540BF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65538.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65539.jpg" />
 </div>
 
 

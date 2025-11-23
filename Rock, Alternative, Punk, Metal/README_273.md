@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166723.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D1D39D81CF01B1D350563636C9E98D462E1003D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166766.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Porcupine Tree - Closure / Continuation (2022) 2xCD, Deluxe Edition, Limited Edi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166771.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Soilwork - A Whisp of the Atlantic (2021) EP [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166799.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166812.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Buffy 85 - Машина смерти (2022) [MP3|320 Kbps] <Hard Rock, Punk Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166824.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:F8F96A265D5938940A8BFE7B6758933C580E1A7A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166836.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Crystal Viper - The Last Axeman (2022) Japanese Edition, Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166837.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Jesse Harms - All Sides - Songwriter Demos Collection (2022) 6xCD [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166840.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Dream Theater - Distant Memories - Live In London (2020) 3xCD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166847.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:0E379809CE63CE11F0BAA7EFE56DF311D2481A59
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166864.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:DFECD4B2492DCDCA6234F765264227C04824E26D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166877.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:6A723172F41349533A5DA717AB17C0D75532B9B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166883.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Hellraiser - Dream of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166886.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Rising Faith - The Arrival (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166889.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166893.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166908.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166914.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Loud Solution - Throwback (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166916.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Fuzzerati - Zwo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psych, Stoner, Spac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166920.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Komunist - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hardcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166923.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Andra - Circle Of Fire (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166926.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Lordi - Lordiversity: Abracadaver (2021) [MP3|320 Kbps] <Heavy Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166929.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166932.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166935.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166939.jpg" />
 </div>
 
 

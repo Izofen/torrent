@@ -1,3 +1,78 @@
+###  Публикация: 477414   (86206) от 03.04.2012
+
+Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любителелям бренда Nvidia представляю сборку Roketdock в стиле Nvidia инсталируется в два клика.
+
+После установки, путь к папкам указываем самостоятельно, по желанию пользователя!Название программы: Nvidia-Roketdock v1.3.5 by kubinesЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477586   (86207) от 03.04.2012
+
+Uniblue PowerSuite 2012 3.0.6.6 Final [Мульти, есть русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uniblue PowerSuite - комплект программ для ускорения работы системы, очистки и оптимизации реестра, моментального обновления драйверов, для более эффективной работы вашего компьютера. Каждая из них программ приспособлена для оптимизации определенного участка операционной системы, а вместе они составляют полный комплекс инструментов от всех системных проблем Вашего компьютера.Название программы: Uniblue PowerSuite 2012Язык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477517   (86208) от 03.04.2012
+
+Последний подарок / The Ultimate Gift (2006) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейсон, избалованный плейбой, купается в деньгах своего супербогатого дедушки Говарда Стивенса. что не мешает ему ненавидеть своего благодетеля. Молодой кутила не сомневается, что со смертью Говарда все состояние моментально перейдет в его карман, но, покинув этот мир, старик оставляет Джейсону неожиданный подарок.
+Юноша получит наследство, только если справится (   Читать дальше...   )Производство: США,  The Ultimate Gift LLC, Dean River Productions, LIFE(n)Жанр: драма, мелодрама, семейныйРежиссер: Майкл О. СаджбелАктеры: Дрю Фуллер, Джеймс Гарнер, Билл Коббс, Ли Меривезер, Эбигейл Бреслин, Брайан Деннехи, Джордж Ли, Бретт Райс, Д. Дэвид Морин, Али ХиллисПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476812   (86212) от 03.04.2012
 
 Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingham, LG Arena, England - 25.02.2012 [FLAC|Lossless]<Industrial Metal>
@@ -6,7 +81,7 @@ Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86212.jpg" />
 </div>
 
 
@@ -39,7 +114,7 @@ magnet:?xt=urn:btih:184203F6350C760F05A5D22CBD64BDDB47BBD442
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ magnet:?xt=urn:btih:97A6CD6FFC8BFD79ACC5BE1A2CAFDFCBFC74FCB4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86214.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ magnet:?xt=urn:btih:4D6A90663DC1D89D286576419EFB32AE33A627A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86217.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86219.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:F105D9DAD9BD4DB2473B49D0109E634396FDF4B0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86220.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ magnet:?xt=urn:btih:F105D9DAD9BD4DB2473B49D0109E634396FDF4B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86221.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ magnet:?xt=urn:btih:F105D9DAD9BD4DB2473B49D0109E634396FDF4B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86222.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:F105D9DAD9BD4DB2473B49D0109E634396FDF4B0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86223.jpg" />
 </div>
 
 
@@ -235,7 +310,7 @@ Painkiller: Абсолютное зло / Painkiller: Recurring Evil [Ru] 2012 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86226.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ magnet:?xt=urn:btih:68A44286A92A6490B58040B109C2702443E849CD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86228.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ magnet:?xt=urn:btih:017311B581618BAC66FE03133CDEE7FAD49A5C31
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86229.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ magnet:?xt=urn:btih:017311B581618BAC66FE03133CDEE7FAD49A5C31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86230.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ Kuba Windows 7 themepack + Rocketdock by kubines 1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86233.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ Defenders of Ardania [En] (RePack/1.2) 2012 | Daytone
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86234.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86236.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ magnet:?xt=urn:btih:00EFD21B08BF5669E9A31462FBED35C8539FD0A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86237.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ Point Blank / Выстрел в упор 2010 {ver. от 18.07.2011} (L) [Ru] 20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86239.jpg" />
 </div>
 
 
@@ -462,7 +537,7 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86240.jpg" />
 </div>
 
 
@@ -486,7 +561,7 @@ Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86241.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86242.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86244.jpg" />
 </div>
 
 
@@ -562,7 +637,7 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86246.jpg" />
 </div>
 
 
@@ -573,78 +648,6 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477772   (86247) от 03.04.2012
-
-Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) DVD9
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, триллер, приключенияРежиссер: Брэд БёрдАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Пола Пэттон, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477455   (86249) от 03.04.2012
-
-Назначение бикини: Фантазия / Bikini Destinations: Fantasy (2006) [1080i] Blu-Ray [ENG]
-
->>Остальное
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ЭротикаРежиссер: Кэйси БеннеттПеревод: ОтсутствуетЯзык субтитров: английскиеПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7FD4BB2E5F28D1E050D9A1F03EC05ADD25C7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477428   (86250) от 03.04.2012
-
-WRC: FIA World Rally Championship Дилогия [Ru] (Lossless Repack) 2010-2011 |R.G. UniGamers
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86250.jpg" />
-</div>
-
-
-###  Подробнее
-
-WRC 2: FIA World Rally Championship – новая часть в серии официальных игр Чемпионата мира по раллийным гонкам. Она включает в себя все заезды Чемпионата мира по ралли 2011 года, а также все команды и пилотов. Всего в игре представлено 15 различных локаций, 25 местностей в разных погодных условиях, 9 категорий автомобилей и множество новых режимов.Тип издания: Lossless RepackЖанр: Racing (Cars) / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский (AnTuxPucT)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 ```
 
 

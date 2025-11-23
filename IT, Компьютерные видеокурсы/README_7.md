@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32070.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32246.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ OTUS, Андрей Буранов | Administrator Linux. Basic (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32267.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E675A2F6A6CA9727648F056C0811A43AAFD651EA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32272.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32277.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32278.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6D11D53A5A4828A2974F1C7D61650C1862BA1C5E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32280.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:A67DE51351F11E955DB009F8CB65F4ABC268BA6C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32375.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:FDE62AB16845F15EB878ABACEDFF886E177FF10F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32586.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:BB5DAA6DE488218FD3B9497C656C0A3DC13E31E8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33221.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ HTML Academy | PHP. Профессиональная веб-разработка
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35390.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ JustDjango | Basic & Advanced Django Roadmap (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36021.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39127.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39128.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39129.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Pete Jepson | Make a Multiplayer Game in Unity 2024-1 (2024) WEBRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41092.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Linkedin.com, Brenda Romero | Основы игрового дизайна, ча
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41096.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger  | The Complete Unity C# Game Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41211.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Udemy, GameDevHQ Team, Jonathan Weinberger | The Complete Unity C# Game Develope
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41219.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41234.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:CEDAC75223E2F6AD1A1727CCA290D98AE4CC3CF2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42912.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43400.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44792.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:88CEEC11E0215F85A2582643C88EC7D5AA7972CC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44891.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Codeby | Тестирование Веб-Приложений на проник�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45817.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:F08B85EF117389709A69BE175A4C4145C304D6B8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45849.jpg" />
 </div>
 
 

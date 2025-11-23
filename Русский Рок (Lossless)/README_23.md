@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160672.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9ABBDF48FF82F012311436694A5F1BD038A9A7CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160703.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8C118599783302BA49335809E537D1B4A07E1AEC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160704.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0A3C5A4C4308EDC1F399E17517474EAEBABEF396
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160708.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:44C25B6413D6B4B3940480068BC50B695FC4AB73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160716.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:083760FAB2B55CF41254B28E8C344F81A7C26016
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160733.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F0D2F9A98052B4F68F543B6D9EC21706008DFDE8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161140.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:51D9A6BED0340ED7FA7E7242B91E62A740EE1A26
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161233.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Light? - Standard of Ridiculous Accident (2022) [FLAC|Lossless|image + .cue] <In
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161327.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161436.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:DC714C14F710888CC847446195BF1E37BF249212
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161802.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162177.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:D4E80F5DD989E2C00716863263047C0710AB9660
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162431.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:845BC0D27B4AE6338F414AC285A5B4D9F90F51D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162566.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:84F78BC2BCD7FB7B57D3DB0F2B31E95CC1E50D27
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162608.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:9ADF2A63A3DB72F6887C39FB99C2BCBE65D041BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162901.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8FA7AF2FF3D49E355E83E78945359298093C8072
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163353.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163377.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163451.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163452.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163477.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:230D26CE9CEBFCEF05EB78F2E2BE0800EDA3CF5F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163500.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164326.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBoy Звезда - Удар по невежеству (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164347.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:107DC09FACEC5EE143E0407F5227730D3C51EEFF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164351.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164390.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 Pro 22H2 19045.5608 x64 by SanLex [Lightweight] [Ru/En] (2025.04.04)
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22437.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22437.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A3BDFB8BEA0EA3347D1F106015F11702523DF21F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22438.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22438.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CDB851BD91D52DD173BA493E5E18B16143B1CE08
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22439.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22439.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22440.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ War for the Overworld (2015) [Ru/Multi] (2.1.3/dlc) License GOG [Underlord Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22441.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F376A99123EA2C6B892C6D64A3FE28786CEBE200
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22442.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Werewolf: The Apocalypse (2020-2024) [En] (1.0.13.2010191537/1.1.13.2504011817) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22443.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22444.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22445.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8454ED02C5EF0D52D3B565D51E14EA8859967D50
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22446.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:67AB5F994547C2CD4970EC43B9B5C3E5430620C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22447.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.401.1.0/dlc) Repack seleZen [Digital 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22448.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22448.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D8480BC4C0320FB8BBBA81409BBD0E5722923855
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22449.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22449.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Zorin OS 17.3 Pro & Pro Lite 17.3 [X86_64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22450.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22450.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:7F7A51AA7D666BEF6A425B05BE930DB090D3E0A5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22451.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22452.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22453.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Activation Program 1.09 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22454.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Dudley Taft - 10 альбомов (2011 - 2025) [FLAC|Lossless|image + .cue, tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22455.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:565581ACCC385B0124BD6B77030D7D2D6369BF36
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22456.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:3A107B8BF2BD52BFBC58C4CFE4F9E64231A637ED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22457.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Г
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22458.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:25462E739AD02ECD2142D6C627499B6E96CE535B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22459.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22460.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22461.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22462.jpg" />
 </div>
 
 

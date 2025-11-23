@@ -1,3 +1,79 @@
+###  Публикация: 1525301   (129560) от 20.01.2022
+
+Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Could You Want Him (When You Know You Could Have Me) (03:48)
+ 02. Deja Vu I Love You (03:08)
+ 03. Caught up in a Moment (03:36)
+ 04. Satellite (04:02)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82E10CB8667FAE1C0191DE5FC5A56C28E868286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683329   (129561) от 10.12.2023
+
+DefenderKiller 11.0.7 Portable [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129561.jpg" />
+</div>
+
+
+###  Подробнее
+
+DefenderKiller - удаление Windows Defender (Защитник Windows)
+Удаление защитника безвозвратное.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F555C9E0C384F2CC624C2E6C3688906F34BB7684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682691   (129562) от 10.12.2023
+
+Минтранс доработал проект изменений в ПДД для борьбы с «эффектом кенгуру»
+
+>>След.
+>>Автомобилисты здесь!
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минтранс доработал и, как выяснил “Ъ”, готовит к межведомственному согласованию проект изменений в Правила дорожного движения (ПДД), запрещающих превышать среднюю скорость движения между несколькими камерами. Ведомство предлагает ввести в действие поправки не 1 марта, как планировалось изначально, а полугодом позже — 1 сентября 2024 года. Проект уже поддержали регионы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683187   (129564) от 10.12.2023
 
 Леди Баг и Супер-Кот: Пробуждение силы / Ladybug & Cat Noir: Awakening (2023) BDRip [H.264/1080p-LQ]
@@ -6,7 +82,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129564.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:85DD1C4EDAF83B4C606E5A58ACD0E87A4936C71F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129565.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:DF1DDDA35FFFCEF3028566965C5AB0272DC6E180
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129567.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:BD55D8D8909D715F30A0F5C6A62DB7D1762A6E8D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129568.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:20841E5956317B07A46887FC307BEBA7E486A9BD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129570.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ magnet:?xt=urn:btih:88AA305C36A1978FDB0928BC61DC5CA1CDF3B44F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129571.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ magnet:?xt=urn:btih:7699FCF55EC37ABB434F2C6D673619CAF93D9835
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129573.jpg" />
 </div>
 
 
@@ -175,7 +251,7 @@ magnet:?xt=urn:btih:4D6586746BCE4F7D7B886660DDE174A24ADA8F71
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129575.jpg" />
 </div>
 
 
@@ -199,7 +275,7 @@ VA - Dance Rising (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129576.jpg" />
 </div>
 
 
@@ -226,7 +302,7 @@ magnet:?xt=urn:btih:0D647F6C20A37245768D1A537745618FE99E6EB6
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129577.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ Cryptic Wintermoon - The Age Of Cataclysm (1999) (Reissue 2004) [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129579.jpg" />
 </div>
 
 
@@ -277,7 +353,7 @@ magnet:?xt=urn:btih:6D6F8C6CF3524EB4079696474F32E0F1580B0C73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129580.jpg" />
 </div>
 
 
@@ -301,7 +377,7 @@ magnet:?xt=urn:btih:B1EE96F6A2BC92A964B05357A4FA519948C0EB4F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129582.jpg" />
 </div>
 
 
@@ -325,7 +401,7 @@ Planet VPN 2.3.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129584.jpg" />
 </div>
 
 
@@ -349,7 +425,7 @@ SRWare Iron 97.0.4950.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129585.jpg" />
 </div>
 
 
@@ -373,7 +449,7 @@ magnet:?xt=urn:btih:12FACC099E032C295F32B26B3F165359CB9B3598
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129586.jpg" />
 </div>
 
 
@@ -397,7 +473,7 @@ magnet:?xt=urn:btih:FB0DEF7DA1C09AC3BC3CF1EF3027C962B7324EEE
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129588.jpg" />
 </div>
 
 
@@ -421,7 +497,7 @@ magnet:?xt=urn:btih:BBDA94FD6D781633213EC185D6006A1E3E6CD5A1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129589.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ App Cleaner & Uninstaller Pro 7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129591.jpg" />
 </div>
 
 
@@ -473,7 +549,7 @@ IPTV Pro v7.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129592.jpg" />
 </div>
 
 
@@ -497,7 +573,7 @@ magnet:?xt=urn:btih:6792BC1DFEB29050883B0786410A7412FE0B9CC6
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129593.jpg" />
 </div>
 
 
@@ -521,7 +597,7 @@ Java SE Development Kit 11.0.14 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129595.jpg" />
 </div>
 
 
@@ -546,7 +622,7 @@ Ozo - 4 Albums (1976-1982) LP Collection [MP3|320 Kbps] <Electronic, Reggae, Dub
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129598.jpg" />
 </div>
 
 
@@ -560,78 +636,6 @@ Ozo были уникальной многонациональной групп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE150D5200A540DCE6678C4ED38FC3CEEC62FDDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525361   (129600) от 20.01.2022
-
-Покажи мне отца / Show Me the Father (2021) WEBRip [H.264/1080p] [EN]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об отцовстве от создателей «Огнеупорного» и «Отважных». Этот фильм — свежий взгляд на роль отцовства в современном обществе и разговор о том, как фигура отца влияет на нашу дальнейшую жизнь...Производство: СШАЖанр: Документальный, драмаРежиссер: Rick AltizerПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: РусскиеПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BCDD1DFCBF4465A7F9314A935DFFC44930758D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490313   (129601) от 30.04.2012
-
-Владимир Аврорский | Бразилия для любознательных [2006] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вглядываясь в бразильскую жизнь изнутри, автор ведет непринужденный рассказ обо всем увиденном от имени литературного персонажа - европейца, возможно, даже человека русских корней, решившего отправиться в Бразилию и остаться там жить. У читателя возникает естественное желание самому оказаться в этой удивительной стране.2006Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2435E940F305F71A37ED1DE219E1846C5ABB14ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525475   (129602) от 20.01.2022
-
-PDF Reader Pro Edition 2.8.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129602.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC4424C95083BBEF2E7AFEE6D22D5921EE48FB2
 ```
 
 

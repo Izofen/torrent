@@ -1,3 +1,77 @@
+###  Публикация: 1626921   (199415) от 24.04.2023
+
+Последний из могикан / Last of the Mohicans (1992) BDRip [MPEG-2/1080p] [Hand made Color correction]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого произведения Джеймса Фенимора Купера (1826).
+Действие происходит в 1757 году в британской колонии Нью Йорк в разгар англо-французской колониальной войны в Северной Америке. В фильме поднимаются различные противоречивые темы касающиеся страниц истории британской империи включая сложные отношения с колонистами и индейцами. В основном же фильм (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: история, драма, приключения, военныйРежиссер: Майкл МаннАктеры: Дэниел Дэй-Льюис, Маделейн Стоу, Расселл Минз, Эрик Швайг, Джоди Мэй, Стивен Уоддингтон, Уэс Стьюди, Морис Роевз, Патрис Шеро, Эдвард БлэтчфордПеревод: Дублированный (со вставками MVO), многоголосый, двухголосыйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, Full), английскиеПродолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8212CA782FA2F98C772B72FF1371D792D18592DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627751   (199418) от 22.04.2023
+
+Хищник / Predator (1987) BDRip [H.264/1080p] [hand made remastered AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский вертолет был сбит партизанами в Южной Америке. Оставшийся в живых экипаж находится в плену. Центральное разведывательное управление США бросает свои лучшие силы для освобождения американских граждан.
+Элитная группа спецназа заброшена в южноамериканские джунгли, где внезапно сталкивается с агрессивным представителем внеземной цивилизации...Производство: США, Мексика / Twentieth Century Fox, Lawrence Gordon ProductionsЖанр: ужасы, фантастика, боевик, приключенияРежиссер: Джон МакТирнанАктеры: Арнольд Шварценеггер, Карл Уэзерс, Эльпидия Каррильо, Билл Дьюк, Джесси Вентура, Сонни Лэндэм, Ричард Чавес, Р.Г. Армстронг, Шейн Блэк, Кевин Питер ХоллПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4451DB741DEC2A01FA85D9AB8050A922B877A16D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628304   (199424) от 22.04.2023
+
+Укротительница тигров (1954) HDTVRip [H.264/1080p-LQ] [handmade Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Своей беззаветной влюбленностью в цирковое искусство Леночка Воронцова смогла «заразить» спортсмена-мотогонщика Федора Ермолаева. Они создают новаторский номер «мотогонки под куполом цирка». Федор Ермолаев полюбил Леночку. Она, готова ответить ему взаимностью, но в последний момент отказывается от интересных гастролей, потому что руководство предложило ей стать дрессировщицей (   Читать дальше...   )Производство: СССР / МосфильмЖанр: мелодрама, комедияРежиссер: Александр Ивановский, Надежда КошевероваАктеры: Людмила Касаткина, Павел Кадочников, Леонид Быков, Павел Суханов, Сергей Филиппов, Татьяна Пельтцер, Александр Орлов, Константин Сорокин, Гликерия Богданова-Чеснокова, Нина УргантСубтитры: ОтсутствуютПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F276A74015A9EB47907B873F670EDF668E7EEB93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369566   (199476) от 20.04.2023
 
 Прометей / Prometheus (2012) Hybrid [H.264/1080p]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199476.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199476.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:DC0E428A556A08F1BC563151C0C8FF27338208AA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199555.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199555.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:97098423778931A713CCA46BA3AAD4002DF73E7F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199570.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:2BA199EFFA9708EE4F10662DB87AB1160CBA6BFA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199646.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:5C281DCF7A108972B7C874976603FE62924E8220
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199676.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:3AB519D18D6DEA1462491D43CB7A618DC259DC0A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199827.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:9E55AFDEAEE64BC789C2E0E77B74464F3B22E58F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199856.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199856.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:8150534AFE6FD56422761A7572237B9C447B5F6F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199881.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199881.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:40D503C3F1F96BD85B2DBCBB627602AD8014C20D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200100.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200100.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:6E5DA6E18145CDEE9AC899FD70F814D280E39364
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200166.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200166.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:83BCBD09E5D888C019CFEB536FB662D63BD0D799
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200167.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200167.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:C45B7C53ABE1BFE97FEEB161EAD8EADC0409FFA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200215.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200215.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:73A0F338558FB3FC96822F1B54FA1272AA175468
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200391.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200391.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:F7407798A6BA0A9F549D708607D31F47F2BC96B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200538.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200538.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ magnet:?xt=urn:btih:7D42E8A1F29561972CEE5A3FB2016E541825188D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200861.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200861.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:81775F9D1848DC54940187E1F77FC44DA81C1CC4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200938.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200938.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ magnet:?xt=urn:btih:436B6A70D820B59FD47F3AC7912447F56AA8943F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200969.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_200969.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ magnet:?xt=urn:btih:99A40326763BFBEA464B6229FCD0900658701EAD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201030.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201030.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ magnet:?xt=urn:btih:9810525AF349BBBF3CF9770279A54553B12C467A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201133.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201133.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:914B6C71EAA789BD4F1A84893EFB06E77187B492
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201205.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201205.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ magnet:?xt=urn:btih:C338AD48DC7426388620BE52C2D00B84A0C356B4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201543.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201543.jpg" />
 </div>
 
 
@@ -513,7 +587,7 @@ magnet:?xt=urn:btih:DB36711798F351A405322231D2BD3DE9362C15C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201637.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201637.jpg" />
 </div>
 
 
@@ -537,7 +611,7 @@ magnet:?xt=urn:btih:5C7B67CF1C93BA8132D57891544E5055294F85C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201726.jpg" />
 </div>
 
 
@@ -548,79 +622,6 @@ magnet:?xt=urn:btih:5C7B67CF1C93BA8132D57891544E5055294F85C2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A3FEB57B9BC1BA0EA89132D1AF2B3EE8A09A537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829653   (201942) от 25.10.2025
-
-Назад в будущее 2 / Back to the Future Part II (1989) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической истории о приключениях американского подростка во времени. На этот раз с помощью модернизированной Доком машины времени Марти из 80-х попадает в будущее.
-Дети Марти в беде, и их надо выручать. Приходится повозиться со злодеем...Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, приключения, боевик, комедия, семейныРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Томас Ф. Уилсон, Элизабет Шу, Джеймс Толкан, Джеффри Вайсман, Кейси Семашко, Билли Зейн, Дж.Дж. Коэн и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E74A5C998458D848971FDBC15EB50A1A91896C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654902   (201943) от 28.08.2023
-
-Страсть к Джулии / Desiderando Giulia (1986) DVDRip [H.264/1080p] [AVO] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Эмилио влюбляется в раскрепощенную Джулию. Их отношения становятся очень страстными, но у Джулии нет никаких пределов в ее сексуальных фантазиях и играх. Бедный парень, скоро обнаружит, что он должен будет заплатить за это немалую цену.Производство: Италия, Medusa Distribuzione, National CinematograficaЖанр: драма, мелодрама, эротикаРежиссер: Андреа БарзиниАктеры: Серена Гранди, Йохан Лейзен, Валерия Д’Обичи, Серджо Рубини, Карло Маэстро, Карло Коломбо, Алессандра Иззо, Массимо Саркьелли, Доменико Валенте, Джулиана КаландраПеревод: Авторский (Леонид Володарский)Язык озвучки: русский, итальянскийСубтитры: отсутствуютПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B331BABEEDFE29AF1E0CA39CD6DBCA36E17AEDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616179   (201992) от 01.03.2023
-
-Специалист / The Specialist (1994) BDRip [H.265/2160p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шэрон Стоун - в роли сексапильной красотки Мэй с роковым прошлым. Она поклялась отомстить гангстерам, убившим её родителей, и уже выбрала способ, как с ними расправиться, и нашла человека, который это сделает: внешне невозмутимый бывший эксперт - подрывник ЦРУ Рэй. Майами, курорт для сверхбогачей, превращается в охотничью территорию, где Мэй заманивает и соблазняет (   Читать дальше...   )Производство: США / Iguana Producciones, Jerry Weintraub Productions, Warner Bros.Жанр: боевик, триллер, драмаРежиссер: Луис ЛьосаАктеры: Сильвестр Сталлоне, Шэрон Стоун, Джеймс Вудс, Род Стайгер, Эрик Робертс, Марио Эрнесто Санчес, Серхио Доре мл., Чейз Рэндольф, Жанна Белл, Бриттани Пейдж БоакПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021CF44A1A86B22A2F0BF639C7E964305DD16B52
 ```
 
 

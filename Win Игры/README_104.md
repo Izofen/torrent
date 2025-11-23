@@ -6,7 +6,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adore (2023) [Ru/Multi] (1.0.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29618.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29622.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29625.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Project Wingman (2020) [Ru/Multi] (2.1.1.A.24.1208.9439/dlc) Repack Let'sРlay [
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29643.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29646.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29651.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29683.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29700.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29700.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29714.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.21/dlc) Repack seleZen [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29718.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Primeval (2020) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29725.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29730.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29743.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29784.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29803.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29809.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29821.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29821.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29825.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29825.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.488) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29828.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29828.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29831.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29833.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29833.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Persona 4 Golden (2020) [Ru/En] (build 5111251) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29837.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29852.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29856.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29856.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29868.jpg" />
 </div>
 
 

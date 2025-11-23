@@ -6,7 +6,7 @@ Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159948.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159950.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159952.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159954.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159958.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159962.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159965.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159968.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159971.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159972.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4D54F72B19B485EA5798DF6B1AA28FE2BDB26189
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160003.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:A7765A792E9A1BF799F05DF3C22E7EBC965CA765
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160023.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Frank Zappa - Waka/Wazoo (2022) 4 x CD, Box Set, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160085.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Status Quo - Heavy Traffic (2022) 3xCD, Deluxe Edition, Remastered, Universal Mu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160118.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Autumn's Child - Starflower (2022) Japanese Edition [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160124.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lacuna Coil - Comalies XX (2002) 2xCD, Reissue, 2022, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160128.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160162.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sula Bassana - Nostalgia (2022) [MP3|320 Kbps] <Heavy Psych, Space, Kraut>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160171.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BLOF - 30 (We Doen Wat We Kunnen) (2022) 3xCD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160178.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gothic Sky - П​о​с​л​е​д​н​и​е С​л​о​в​а �
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160179.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:344FC7B8756F835F4A789BB3508F66721E6ACC1A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160183.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160212.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160216.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:C42CF8266A94FBB4C33C1512CF82BB5189F49DA7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160219.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160225.jpg" />
 </div>
 
 

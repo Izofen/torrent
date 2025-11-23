@@ -6,7 +6,7 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PurpleSchool, Антон Ларичев | Основы тестирования 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27072.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27072.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JUG Ru Group | Flow 2024 Autumn. Конференция по системном�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27077.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27103.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27103.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27117.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27117.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27122.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27122.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D01F4F1A53F308E937BAEA3F36997475DBC0F80A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27126.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27126.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:CCB00C1CDC8AE210B76B5F11B8599E80F8CCAAC4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27128.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27137.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27139.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27158.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ GetAnalyst | Проектирование БД - подходы к решени�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27179.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27209.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ JUG Ru Group | GoFunc 2024 Autumn. Конференция по разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27224.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27224.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27261.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:7FEA0447825C14E506E678795270407C1E7D16A7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27264.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27270.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:11DEE239D94014BACF89BA90CA3037736D2AEB2E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27372.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27377.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ David East | Getting Started With React.js (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27382.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27549.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27581.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27581.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27598.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27647.jpg" />
 </div>
 
 

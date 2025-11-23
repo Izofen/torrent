@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 5.3.1 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44868.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 3.2.0 (x64) + All Models Portable by FC Portables [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44869.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bandicam 7.1.4.2458 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44870.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2B75025132898B9B054948777C451D57D5F6AEBF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9D43D72053981A4BF3B6E2F583D3A615406E86E6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44872.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1BFCFF38CA2C2C3129914CECA4AC8F6CCFF05CD2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44873.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:DC190E08B793DEFB927D0EAAC67FF207E37E51A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44874.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FDA872800E9BB25C45F0FB8D3F57BEB70C44BDB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44875.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ IObit Smart Defrag Pro 10.0.0.399 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44876.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Scene FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44877.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ LiteManager 5.2 (5200) Free/Pro [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44878.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44879.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ IPTV Pro v8.1.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44880.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B14C5FD6DEDA78901DB20BE250F26DCEF85082E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44881.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D957F6BB3DF0D2111F2AD5BFE5F3DD3A5AD53967
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44882.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:221FBFEFF6B064781CF72583611E8A42B513B2FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44883.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F92E3493E79C7A0965843AA60E280257DA6B06D8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44884.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44885.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44886.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:7B6F42BF95B7FEE8207EAADAC73F4B004F0F59A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44887.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:141B32E932A5A99F51B5DC471B44D732FFC4A634
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44888.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1B2587AE89E0050F39BD04948BE97A71A65BD85D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44889.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:84A8CAC28315A0982DE17B7B28B0C5B429FD8BAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44890.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:979608E90455E063B2C4799D0F3703F45A078F0A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44891.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:42C59588556713BA8320E360691285A4E254EEB1
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44892.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Baxter Robertson - Patchwork Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Drew Neirin - A Star Shaped Pegs Experience (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35946.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36146.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36486.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36556.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36574.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.3 (1953, 1954) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36661.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ V.A. - Bossa Nova & Latin Vibes Italian Songs Hits (Bossanova Covers of Popular 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36758.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Most Relaxing Jazz Piano Music in the Universe (2005) 2CD [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36766.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Joe Bonamassa - Lonely Christmas Eve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37082.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lilah Blackwood - White Lines (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37286.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Melody Gardot - The Essential (2024) 2 x CD, Compilation [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37359.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Simone Kopmajer - Home for Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37368.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lilah Blackwood - Dancing on His Grave (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37369.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rob Moore the Wild Boar - Chicago Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37375.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Michigan Mick - Big Leg Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37376.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Mysterious Wheels - Bare Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37377.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Paul McNeill - Don't Drink the Cool Aid (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37378.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Joe's Basement - First Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37379.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kacee Clanton - Ashes to Eden (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37380.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Julia Vo - Rebound Roulette (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37381.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Caity Gyorgy - Hello! How Are You (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37578.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Sunday At The Riverside: The Best Time Of Jazz Piano I (1955 - 1962) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37579.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ian Siegal & Johnny Mastro - Easy Tiger (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37580.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dane Applin - Dane Applin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37581.jpg" />
 </div>
 
 

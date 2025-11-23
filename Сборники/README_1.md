@@ -6,7 +6,7 @@
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215438.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E51E475B2BD0DEC44BC5B75F09A02424A234495A
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F6408673791BF77B26BD4E0FE2D736AF4A62C41B
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218782.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8DADA5B16D512559285FBC6C7E6E7C2D644B5D4A
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219985.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219985.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223578.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223578.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3EA7EC61233ED3C75C8DD66641B9CA1E9BC7E962
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246076.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246076.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:37D2CC223D12F6F3DFDA5CC765587F9B9D3C7745
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250610.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250610.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:03A44AC044192CFFA0CCDE790429F39B3F77F78B
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251679.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251679.jpg" />
 </div>
 
 

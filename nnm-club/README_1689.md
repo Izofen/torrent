@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44269.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:9A58F8037446321466FDAEF801C1412189BB5BB1
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44270.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6A150581A9EBF9BF1BD4C93E12AEE4E788D093E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44271.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44272.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44273.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9596DAE0F0F985E87DED119ADF579F8F7A3C46D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44274.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ NASA готовит к тестам лунную связь 4G от Nokia для
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44275.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ NASA готовит к тестам лунную связь 4G от Nokia для
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44276.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Office Tool Plus 10.14.21.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44277.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B4CFE0048C5034EDB5E12708DA1FD7896A07F461
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44278.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:AA7F0A8F737E4B40C5BCFF8925EBD3D43AA20D52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44279.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44280.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:134BB93F604DF16ACDCEB2A89CDE93CE400B60B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44281.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0609) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44282.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A1EAFA6FE8E49E3D91761E3A7460A740F7A0AC2C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44283.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ David Gilmour - Luck and Strange (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44284.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44285.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Colors Pro 3.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44286.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Alfa eBooks Manager 8.6.37.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44287.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4F4B887C2C5266F4B874C19E1E94BDAA7156388F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44288.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44289.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:23AB8664CCCB5D347C56604204A80F2707663E0C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44290.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ HyperSnap 9.5.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44291.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:070BDF15227A551F37B059CDEC06F6E0B2130154
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44292.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Serif Affinity Designer 2.5.5.2636 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44293.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blackmagic Design Fusion Studio 19.0.1 Build 5 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44294.jpg" />
 </div>
 
 

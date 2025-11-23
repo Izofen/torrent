@@ -1,3 +1,79 @@
+###  Публикация: 1681668   (132273) от 04.12.2023
+
+Прямой эфир (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блогер-миллионник Егор в погоне за контентом отправляется на съемки тест-драйва автомобиля в Кавказские горы. Все выходит из-под контроля в тот момент, когда сотрудник автокомпании Александр, помогающий Егору, случайно наступает на боевую мину, а Егор решает на этом хайпануть. Теперь, когда один борется за собственную жизнь, а второй за миллионные просмотры — каждый (   Читать дальше...   )Производство: Россия / Мовсес Фильм, Ирсна Медиа, Карго ФильмЖанр: триллер, драмаРежиссер: Карен ОганесянАктеры: Кирилл Кяро, Павел Чернышёв, Ирина Воронова, Ангелина Стречина, Сослан Фидаров, Ульяна Пилипенко, Анастасия Тодореску, Ксения Шундрина, Аслан Цаллати, Станислав ТкаченкоСубтитры: отсутствуютПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33E59325E1BB6528A10EE7D1F0DC8C7A746AF45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595942   (132274) от 29.12.2012
+
+[Wallpapers] A selection of weapons (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132274.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of weapons (29.12.12)
+Название: A selection of weapons (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D505F2225ED967CB690FF7092A8CCF3947B237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681669   (132275) от 04.12.2023
+
+Большее зло / Худшее из зол / Choeakui ak / The Worst of Evil (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) TVShows
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каннам, 1995 год. Один из членов криминальной группировки Чон Ги-чхоль недоволен, что ему запрещают торговать наркотиками, поэтому захватывает власть и убивает босса, но в процессе погибает его лучший друг Тхэ-хо. Теперь бизнес Ги-чхоля процветает — организовано наркопроизводство, идут отгрузки в Японию — что привлекает внимание полиции. Под видом кузена Тхэ-хо в (   Читать дальше...   )Производство: Южная Корея / Baram PicturesЖанр: криминал, драма, боевикРежиссер: Хан Дон-укАктеры: Чи Чхан-ук, Ви Ха-джун, Лим Сэ-ми, Биби, Ли Джон-хон, Чи Сын-хён, Лим Сон-джэ, Чха Рэ-хён, Ли Щин-ги, Юн Гён-хоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (SDH), корейские (SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D74A654492ED6346DEC105E8AAA6A835FE68A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595906   (132276) от 29.12.2012
 
 Sexy Girls Pack Wallpapers (28.12.12) [Wallpapers 16+]
@@ -6,7 +82,7 @@ Sexy Girls Pack Wallpapers (28.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132276.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:C2F297A38390F3E6141B3D3BD9D807D44A172ED4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132277.jpg" />
 </div>
 
 
@@ -58,7 +134,7 @@ magnet:?xt=urn:btih:9956E3E37F21F967A2F9BEA41ED4115D7F770C40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132278.jpg" />
 </div>
 
 
@@ -86,7 +162,7 @@ magnet:?xt=urn:btih:30254144CB0DFB69616819B06E6EC6A269E4A9DE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132279.jpg" />
 </div>
 
 
@@ -114,7 +190,7 @@ magnet:?xt=urn:btih:704B7A768AE774CAC4E8C800EC98C8D2DFA8853E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132281.jpg" />
 </div>
 
 
@@ -139,7 +215,7 @@ magnet:?xt=urn:btih:5C65D54BDEDD32563D1D75632B01E6D921B3D01F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132282.jpg" />
 </div>
 
 
@@ -163,7 +239,7 @@ magnet:?xt=urn:btih:BF6DEE6A7C5EB7F41FE574EA721406997F236156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132283.jpg" />
 </div>
 
 
@@ -191,7 +267,7 @@ magnet:?xt=urn:btih:E2691C26237287D60B46B52C63B8C15223ACB377
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132284.jpg" />
 </div>
 
 
@@ -218,7 +294,7 @@ magnet:?xt=urn:btih:6B58E08E20B2F9B514041D2965BB09985E6070E9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132285.jpg" />
 </div>
 
 
@@ -246,7 +322,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132286.jpg" />
 </div>
 
 
@@ -270,7 +346,7 @@ magnet:?xt=urn:btih:AB536BA68F30581F6B6EDF7B03FD6D2710000FE7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132287.jpg" />
 </div>
 
 
@@ -298,7 +374,7 @@ magnet:?xt=urn:btih:A1205885E9FC8323A946620C940509D90FA08329
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132288.jpg" />
 </div>
 
 
@@ -322,7 +398,7 @@ Interior Wallpapers (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132289.jpg" />
 </div>
 
 
@@ -346,7 +422,7 @@ magnet:?xt=urn:btih:84CB4EF90A67DBD65126AFE2BC03FEA7E300F48E
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132290.jpg" />
 </div>
 
 
@@ -370,7 +446,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132291.jpg" />
 </div>
 
 
@@ -403,7 +479,7 @@ The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132292.jpg" />
 </div>
 
 
@@ -427,7 +503,7 @@ VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132293.jpg" />
 </div>
 
 
@@ -460,7 +536,7 @@ magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132294.jpg" />
 </div>
 
 
@@ -484,7 +560,7 @@ magnet:?xt=urn:btih:164F922FF65A33489B64029673730EBBECA9CE66
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132296.jpg" />
 </div>
 
 
@@ -508,7 +584,7 @@ magnet:?xt=urn:btih:BC90387B02C0AA4FEF261A068E16EE6761147F41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132297.jpg" />
 </div>
 
 
@@ -532,7 +608,7 @@ magnet:?xt=urn:btih:F9AD3930A91B34D48318C9A99D02F0E9E785A046
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132298.jpg" />
 </div>
 
 
@@ -556,7 +632,7 @@ magnet:?xt=urn:btih:FF68908EC922DDE5B068F6A769B09186261BF9F8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132299.jpg" />
 </div>
 
 
@@ -580,7 +656,7 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132300.jpg" />
 </div>
 
 
@@ -593,82 +669,6 @@ Udemy, Manas Roy | ChatGPT and Adobe Firefly AI Course: Beginner to Pro Level (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0641E0D6A1064A114B04DDF3A03B4F6ED4837A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681851   (132301) от 04.12.2023
-
-Грязные фото для дамы вне всяких подозрений / Le foto proibite di una signora per bene (1970) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая жена бизнесмена по имени Мину во время прогулки по ночному городу подвергается нападению со стороны какого-то странного человека, который говорит, что знает об убийстве, которое совершил её муж. После этого он исчезает. Через несколько дней ночью в квартире Мину раздается звонок, это звонит маньяк, который представляет доказательство виновности её мужа – (   Читать дальше...   )Производство: Италия, Испания, Produzioni Cinematografiche Mediterranee (PCM), Trébol Films C.C.Жанр: детектив, триллерРежиссер: Лучиано ЭрколиАктеры: Дагмар Лассандер, Пьер Паоло Каппони, Симон Андреу, Освальдо Дженаццани, Сальвадор Хьюгет, Нивз НаварроПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, итальянский, английскийСубтитры: русские, английские (2 варианта)Продолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AFE2D3FD4AED4EE4C5DD0AA2E8C8CCC414258D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595845   (132302) от 29.12.2012
-
-[Wallpapers] Selection of Wallpapers (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132302.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Selection of Wallpapers (29.12.12)
-Название: Selection of Wallpapers (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CBC2360E97082CE0BEC590AE27F759446C0650
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681485   (132303) от 04.12.2023
-
-The Land of Miracles / Shen Lan Qi Yu Wushuang Zhu / The Magic Kingdom of the Gods | Страна чудес: Бесподобная жемчужина [2022-2023, Web, 1-3 сезон, серии 01-45 из 45] WEBRip 720p HS+rus
-
->>Аниме разное
->>Аниме хардсаб
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история вращается вокруг двух подростков разной идентичности и разного культурного происхождения, Фа Хуа и Лан Ге, которые благодаря волшебному оружию под названием «Бесподобная Жемчужина» объединились вместе, чтобы спасти человечество.Производство: Китай / Beijing 72 Creative Culture MediaЖанр: мультфильм, приключения, фэнтезиРежиссер: Чжэн СюйЯзык озвучки: Русский, любительский многоголосый (ПВА Шоу)Субтитры: китайские  (неотключаемые), русские, английские (отдельной папкой)Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46CE59D034B8DA89CA838106B2915A9415F1568
 ```
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1694925   (120666) от 27.01.2024
+
+Ночные Снайперы - сет-лист юбилейного тура 2022-2023 (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120666.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. интро
+2. цой
+3. самый красивый гопник
+4. неторопливая любовь(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A0AE24621FB5131998F7D05F395ED2B45C4278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694903   (120667) от 27.01.2024
+
+Журнал | Химия и жизнь №1 (январь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120667.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналИздательство: АНО Центр "НаукаПресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C7BBF0F063C641C70C81CA4BFE5F1DA6A9823B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694874   (120668) от 27.01.2024
+
+Операция в Красном море / Hong hai xing dong / Operation Red Sea (2018) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120668.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 год, гражданская война в Йемене. Правительство Китая издаёт приказ о немедленной эвакуации своих граждан. Опасное задание поручают штурмовой группе Цзяолун, известной своей слаженной работой даже в экстремальных ситуациях. Недавно отряд смог обезвредить сомалийских пиратов, напавших на китайское грузовое судно ещё до прибытия основных сил флота.
+Восемь бойцов (   Читать дальше...   )Производство: Гонконг, Китай / Bona Film Group, Emperor Film Production, Film Fireworks Production, P.L.A Navy Government TV Art Central of China, The, Star Dream Studio Media, Zak ProductionsЖанр: боевикРежиссер: Данте ЛамАктеры: Чжан И, Джонни Хуан, Хай Цин, Ду Цзян, Цзян Луся, Санаа Алауи, Инь Фан, Ван Юйтянь, Го Цзяхао, Генри МакПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: русский, китайскийСубтитры: Русские, английские, китайскиеПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38307472CC51EDA74CF8E3F5F8035D16CD8ACB5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694877   (120669) от 27.01.2024
 
 Мертвая подружка / Graverobbers / Dead Mate (1988) BDRip [H.264/720p] [VO]
@@ -6,7 +82,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120669.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Second Shooter - Fury Made Flesh (2024) [MP3|320 Kbps] <Groove Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120670.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Paul Van Dyk - Volume - The best of Paul Van Dyk (2009) DVDRip [H.264/1080p-LQ] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120671.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:74A9A33FFA212D694AEEC0327F07040499642226
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120672.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:BC94752FF540682B4F2DB0F5E585199817B9479D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120673.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120674.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ Paul Van Dyk - Music Discovery Project (The Planets Reloaded) (2009) WEBRip [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120675.jpg" />
 </div>
 
 
@@ -186,7 +262,7 @@ magnet:?xt=urn:btih:2F2284DC17AF3798628AD359C7795E8EC319C0E8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120676.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ magnet:?xt=urn:btih:EE102C14087DC4202186D73675D514E3B749CFFD
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120677.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ magnet:?xt=urn:btih:8C3ED54F8F2565DB0C7857C5B564669D700E9247
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120678.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ magnet:?xt=urn:btih:3EF1ADB958C6541974B8411E4A6D5C7757D7E496
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120679.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ magnet:?xt=urn:btih:F73242EBB557FA3D67C936221098B58E8138DE4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120680.jpg" />
 </div>
 
 
@@ -310,7 +386,7 @@ magnet:?xt=urn:btih:B2AA7F77C4E3157FC6953C9E08F69F11A5CE2F91
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120681.jpg" />
 </div>
 
 
@@ -334,7 +410,7 @@ magnet:?xt=urn:btih:5154C3D60B526DB398BB8E22B7AEAD2E5A273348
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120682.jpg" />
 </div>
 
 
@@ -358,7 +434,7 @@ VA - Шансон премьера 2024 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120683.jpg" />
 </div>
 
 
@@ -385,7 +461,7 @@ magnet:?xt=urn:btih:6718C06B3E0A44323A4F202E3796D5BA9164734A
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120684.jpg" />
 </div>
 
 
@@ -410,7 +486,7 @@ magnet:?xt=urn:btih:C2EC6FFB345CFB38E88926C7B17C3953D90BA7F6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120685.jpg" />
 </div>
 
 
@@ -434,7 +510,7 @@ magnet:?xt=urn:btih:60CCA889698E1CE107F1A91662D82A5316A7F5EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120686.jpg" />
 </div>
 
 
@@ -458,7 +534,7 @@ magnet:?xt=urn:btih:F0E293E287E571F09E426563675BB59C62452A42
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120687.jpg" />
 </div>
 
 
@@ -484,7 +560,7 @@ magnet:?xt=urn:btih:10DF248FB2C534325C9CF2C2669B94EA340F938D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120688.jpg" />
 </div>
 
 
@@ -508,7 +584,7 @@ magnet:?xt=urn:btih:4E1260CB52E3D5EA875099B019CE78199AF21540
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120689.jpg" />
 </div>
 
 
@@ -532,7 +608,7 @@ magnet:?xt=urn:btih:215C14076A456433169B75A7ECD9BA521E6E9F2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120690.jpg" />
 </div>
 
 
@@ -556,7 +632,7 @@ magnet:?xt=urn:btih:6BCEB630E0C2C2B5D1BA0FB91AFC206A5F12E7BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120691.jpg" />
 </div>
 
 
@@ -569,81 +645,6 @@ magnet:?xt=urn:btih:6BCEB630E0C2C2B5D1BA0FB91AFC206A5F12E7BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0876D4756748BDF6641FFA6482F7144F91513044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694978   (120692) от 27.01.2024
-
-Sucker Punch Productions | Артбук по игре Ghost of Tsushima / The Art of Ghost of Tsushima (2020) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Ghost of Tsushima".Жанр: АртбукЯзык: АнглийскийИздательство: Dark HorseФормат: CBRКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27AAD68EA877D76F6A1C962CFA19CA6A6F53F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694968   (120693) от 27.01.2024
-
-Константин Семенов | Диверсанты СС (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120693.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы войны диверсанты СС выполняли самые важные задания рейхсфюрера СС, а иногда и самого Гитлера — провокации, похищения, убийства, рейд в глубь вражеской территории. Не все знают, что именно диверсанты СС в 1939 г. устроили провокацию в Глейвице, ставшую поводом к началу Второй мировой войны. Громкие операции диверсантов СС проводились не только на всех фронтах, (   Читать дальше...   )Жанр: Военная история, Документальная литератураИздательство: Яуза-пресс, М.Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2DF55B1DB00C686410FDF603F7CBD3302F8724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695094   (120694) от 27.01.2024
-
-Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity (2020) WEB-DL [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс научит вас использовать Affinity Photo в полной мере.
-
-Пройдя этот курс, вы сможете редактировать свои фотографии в Affinity Photo как профессионал. Вы сможете настроить Affinity Photo так, чтобы он работал максимально эффективно, сэкономив вам часы разочарования и будьте уверены, что не потеряете свои изображения.
-(   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 18:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2025399EA573742183ED7362FF2F9F30B480995
 ```
 
 

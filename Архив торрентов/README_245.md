@@ -6,7 +6,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CPU Temp 1.6.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56162.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Office Tool Plus 10.11.5.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56174.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows Manager 2.0.0 (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56177.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Microsoft .Net Packages AIO 14.05.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56186.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Atlantis Word Processor 4.3.9.5 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56229.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Spotify Web-Portable by DVLZ 2.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56231.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Aiseesoft Video Converter Ultimate 10.8.32 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56244.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Sumatra PDF 3.6.16144 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56250.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ RAR for Linux 7.01 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56254.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ LibreOffice 24.2.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56255.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FileMenu Tools 8.4.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56258.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Brave Browser 1.66.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56259.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Windows Manager 2.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56261.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0414759C3BDC4ECACB6FABFFD2A415B4C5EA2975
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56262.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Foxit PDF Editor Pro 2024.2.1.25153 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56266.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.1 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56267.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56272.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Total Commander 11.03 (15.05.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56285.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Wondershare PDFelement 10.4.1.2755 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56286.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ AlmaLinux 9.4 [x86_64] 8xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56288.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ WSCC (Windows System Control Center) 7.0.9.02 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56289.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ WinRAR 7.01 RePack (& Portable) by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56297.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WinRAR 7.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56301.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ vpnify - Безлимитный VPN 2.1.9.4 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56305.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4412 (Updated May 2024) by FaTaL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56310.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9473.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9903.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10322.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10423.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Balun.Courses, Виталий Лихачев | Observability, как в BigTech 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10526.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kobezzza, Андрей Кобец | IndexedDB в действии (2025) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10703.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Purpleschool, Андрей Соколов | Bash скрипты (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11017.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Balun.Courses, Владимир Балун | Подготовка к Golang со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11021.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NeuralGo | Полный курс по языку Golang. С нуля до REST A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11041.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A0B5FFB1B48BEADA13D86FF8020096254843DCEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11049.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Balun.Courses, Владимир Балун | Дженерики в Golang (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11110.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ GeekBrains | Блокчейн-разработка (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11146.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:3FB65568AC8A5E1D78B32808E566D516F91BB4F1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11161.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Balun.Courses, Игорь Панасюк | Оптимизация Go, как в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11246.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11247.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:B4B43F399A869DB3577F69DD6C837913E2EA4599
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12485.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ dometrain, Nick Chapsas | From Zero to Hero: Dependency Injection in .NET (2024)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12579.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12833.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13822.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13839.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lynda.com | CSS с LESS и SASS (2012) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14375.jpg" />
 </div>
 
 

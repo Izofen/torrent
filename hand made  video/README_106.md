@@ -1,3 +1,75 @@
+###  Публикация: 1642114   (196495) от 26.06.2023
+
+Время / In Time (2011) BDRip [H.265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир, где время стало единственной и самой твердой валютой, где люди генетически запрограммированы так, что в 25 лет перестают стареть. Правда, последующие годы стоят денег. И вот богатые становятся практически бессмертными, а бедные обречены сражаться за жизнь. Уилл, бунтарь из гетто, несправедливо обвинен в убийстве с целью грабежа времени и теперь (   Читать дальше...   )Производство: США / New Regency Productions, New Regency ProductionsЖанр: фантастика, мелодрама, боевикРежиссер: Эндрю НикколАктеры: Джастин Тимберлейк, Аманда Сайфред, Киллиан Мёрфи, Алекс Петтифер, Винсент Картайзер, Оливия Уайлд, Мэтт Бомер, Джонни Галэки, Коллинз Пенни Итан ПекПеревод: Дублированный (Blu-ray CEE) CPIGЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AF952257D02C96A8714C200B2391DC448361BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641728   (196540) от 25.06.2023
+
+Вам и не снилось... (1980) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196540.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести Галины Щербаковой. Знаменитый фильм 80-х гг. с изумительной музыкой Алексея Рыбникова о первой любви, не понятой и не оцененной взрослыми. История Ромео и Джульетты, снова вернувшихся в этот мир. Между девятиклассниками Романом и Катей возникает нежное и светлое чувство. Мать юноши, не желающая понять юных влюбленных, обманом разлучает их. (   Читать дальше...   )Производство: СССР, киностудия им. М.ГорькогоЖанр: драма, мелодрамаРежиссер: Илья ФрэзАктеры: Татьяна Аксюта, Никита Михайловский, Леонид Филатов, Елена Соловей, Ирина Мирошниченко, Лидия Федосеева-Шукшина, Альберт Филозов, Татьяна Пельтцер, Руфина Нифонтова, Евгений Герасимов, Екатерина ВасильеваПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2478401F72FE85185352EC179FF93CB3C121331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638283   (196605) от 25.06.2023
+
+Плохой хороший человек (1973) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196605.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести А.П.Чехова "Дуэль". В маленьком городке на берегу Черного моря живут два приятеля - Иван Андреевич Лаевский и доктор Самойленко. Два года назад Лаевский сошелся с замужней женщиной, они бежали из Петербурга на Кавказ, говоря себе, что начнут там новую трудовую жизнь. Но городок оказался скучным, люди неинтересными, трудиться на земле в поте лица (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Иосиф ХейфицАктеры: Олег Даль, Владимир Высоцкий, Людмила Максакова, Анатолий Папанов, Георгий Корольчук (озвучание - Гелий Сысоев), Анатолий Азо, Ашот Меликджанян, Любовь Малиновская, Юрий Медведев, Андрей Апсолон, Анхель Гутьерес, Игорь Ефимов, Таня Иванова, Дима Игнатьев, Павел Кашлаков, Герман Лупекин, Ашот Нерсесян, Гелий Сысоев, Любовь Тищенко, Олег ХроменковПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02052EAD83E59800C691E6FA761645A1A18E7BFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641789   (196650) от 24.06.2023
 
 Затащи меня в Ад / Drag Me to Hell (2009) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [Theatrical Cut] [handmade Remastered AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196650.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:AC85F2058687065C89F91BE399262E0B66C36A5D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196664.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196664.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:857114FBFBBE68F34082F2609F0D497C8B73CF6C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196689.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196689.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:6AC25443B47640FC9121DEB4EC45821214D2DF95
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196697.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196697.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:5D737E7210097A958BAB0C8B961C1B2CB61DA51E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196748.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196748.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:41DF200424B82FC64BF20E9D0D479EEA8C7E796C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196762.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196762.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:681A36B6CDA70AD9FD03855AA444A319066465B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196767.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196767.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:BE846591BA393A223D923A40E70C44A23397FCA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196780.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196780.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:DC1D92CCAD8F0F919F2380D62D1526B9F29CD7A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196808.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196808.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:438EA5BA51C30527FDC8D6B962C9953CED877346
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196809.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196809.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:08558EA25E81F1970D33ED805C8CAED31DADC9E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196811.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196811.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:7CA44AC76ACDDFFD318C150B1607245C0B636B1B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196828.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196828.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:E1C69CEB68542066D1643EDDA1E5D2CD59F7CBB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196843.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196843.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:C97242BC04FB6129E8501A485B9D02369F7F965F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196860.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196860.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:04D5BF0A7566B21E8F0A84BF4380B03B2B21E415
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196901.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196901.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:87F7A806688D88848546A14D6076434792574628
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196922.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196922.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:933FCFF974672F9FE45FCAAC5BDEA160FD858CEE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196947.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196947.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:212AC99EA800D52C453922A49D0BBD3E303B8603
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197022.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197022.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:B4B8E889FDE2B5C416EDCB39324F0628BDEADDE2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197069.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197069.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:B50EB9518D48B6E01FC5085C15243B0D8F9956CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197086.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197086.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:38CB8CCF2AA663915D567E469C0578F32705B164
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197090.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197090.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:EAF8E2EA2DABC873AB48E5E85EAB87CF0105FFDC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197105.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197105.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:7FEB105E8679FB8D2E41734827FA2CC31B810A58
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197128.jpg" />
 </div>
 
 
@@ -549,78 +621,6 @@ magnet:?xt=urn:btih:7FEB105E8679FB8D2E41734827FA2CC31B810A58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0634AB442A4E42E7FBBD950C2907D8E82838BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639001   (197156) от 11.06.2023
-
-Умри, но не сейчас / Die Another Day (2002) BDRip [H.265/2160p] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197156.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Джеймс Бонд в глубокой конспирации проводит операцию в Северной Корее. Однако его разоблачают, после чего Бонд оказывается за решеткой. Сумев выбраться из плена только через несколько месяцев 007 возвращается к своей привычной жизни, однако вскоре ему вновь приходится вступить в противоборство со своими корейскими «друзьями» - он узнает о плане британского (   Читать дальше...   )Производство: Великобритания, США / Danjaq, Eon Productions, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, триллер, приключенияРежиссер: Ли ТамахориАктеры: Пирс Броснан, Холли Берри, Тоби Стивенс, Розамунд Пайк, Рик Юн, Джуди Денч, Джон Клиз, Майкл Мэдсен, Уилл Юн Ли, Кеннет ЦанПеревод: Дублированный (СЕЕ)Язык озвучки: английский, русскийСубтитры: русские (pgs)Продолжительность: 02:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691633B3CCE17EFB6D0B34FD6C30E739322CF5DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639456   (197163) от 13.06.2023
-
-Квант милосердия / Quantum of Solace (2008) BDRip [H.265/2160p] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197163.jpg" />
-</div>
-
-
-###  Подробнее
-
-После предательства Веспер агент 007 борется с желанием превратить последнее задание в личную вендетту. В поисках истины Бонд и М допрашивают мистера Уайта, от которого узнают, что шантажировавшая Веспер организация намного сложнее и опаснее, чем можно было подумать.Производство: Великобритания, США / Eon Productions, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, триллер, приключенияРежиссер: Марк ФорстерАктеры: Дэниэл Крэйг, Ольга Куриленко, Матьё Амальрик, Джуди Денч, Джанкарло Джаннини, Джемма Артертон, Джеффри Райт, Дэвид Харбор, Еспер Кристенсен, Анатоль ТаубманПеревод: Дублированный (СЕЕ)Язык озвучки: английский, русскийСубтитры: русские, английские (pgs)Продолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8826F9D4EE3EA410CC20CF85FBFB60BB6C0125B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639210   (197216) от 12.06.2023
-
-Казино Рояль / Kasino Royale (2006) BDRip [H.265/2160p] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя богатый шпионский арсенал, Джеймс Бонд вступает в поединок с финансовым гением преступного мира Ле Шиффром. Но генеральное сражение против него можно выиграть лишь силой ума, и не на поле боя, а на зеленом сукне казино «Рояль».Производство: Великобритания, Чехия, США, Германия, Багамы / Columbia Pictures, Eon Productions, Casino Royale ProductionsЖанр: боевик, триллер, приключенияРежиссер: Мартин КэмпбеллАктеры: Дэниэл Крэйг, Ева Грин, Мадс Миккельсен, Джуди Денч, Джеффри Райт, Джанкарло Джаннини, Катерина Мурино, Симон Абкарян, Исаак Де Банколе, Еспер КристенсенПеревод: Дублированный (СЕЕ)Язык озвучки: английский, русскийСубтитры: русские, английские (pgs)Продолжительность: 02:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87DE3580EB7BEE8285B93EB4212261905822965
 ```
 
 

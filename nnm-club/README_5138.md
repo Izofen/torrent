@@ -1,3 +1,182 @@
+###  Публикация: 1600144   (158994) от 26.12.2022
+
+Найти сына / Momo (2017) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь супругов Андре и Лоранс Приу переворачивается с ног на голову, когда в их доме появляется глухонемой молодой человек по имени Патрик, который неожиданно начинает называть их мамой и папой.Производство: Франция / A l'Origine Productions, Canal+Жанр: КомедияРежиссер: Винсент Лобелле, Себастьян ТьериАктеры: Кристиан Клавье, Катрин Фро, Себастьян Тьери, Паскаль Арбийо, Эрве Пьер, Клодин Винсент, Джинн Роза, Мари Колапьетро, Бенуа Ташуар, Эрик ЛарсенПеревод: Многоголосый профессиональный (1 канал)Язык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0EE2EB35B7606379B6EAEA1A3297D2E9843E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676137   (158995) от 12.11.2023
+
+Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evile — британская трэш-метал-группа, сформированная в 1999 году в городе Хаддерсфилд, Уэст-Йоркшир.2007 - Enter the Grave
+2009 - Infected Nations
+2011 - Five Serpent's Teeth
+2013 - SkullЖанр: Thrash MetalПродолжительность: 05:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600277   (158996) от 26.12.2022
+
+Рудольф — красноносый олень / Rudolph the Red-Nosed Reindeer (1964) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он родился красноносым. Но ведь это - не беда. Нос его, при том, светился, будто яркая звезда. Обижали все олени красноносого юнца. И в игру не принимали. И дразнили без конца. Но однажды, на кануне Рождества, чтоб в метель не заплутать, попросил Рудольфа Санта путь упряжке освещать. И отныне скачет первым красноносый молодец. Все олени его любят. Наш Рудольф – он (   Читать дальше...   )Производство: США, Канада, Япония / Rankin/Bass Productions, Videocraft International, National Broadcasting Company (NBC)Жанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Ларри РемерПеревод: многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A953993ADE059D226F30C63224B8C430BCE235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676143   (158997) от 12.11.2023
+
+Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
+2007 - Give 'Em War
+2010 - Clockwork
+2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676327   (158998) от 12.11.2023
+
+Первая передача на НТВ. Автомобильная передача (12.11.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто и почему требует доплату у покупателей автомобилей? И что означают «вешалки» на сленге автоперекупщиков?
+Как оформить ДТП с помощью смартфона?
+ Стоя на месте с ошеломительной скоростью: может ли домосед-геймер крутить руль лучше опытного контраварийщика?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84279ADFD8D750DB841BA77CAA6917A57A1CDF5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600224   (158999) от 26.12.2022
+
+Jonasu - Cutting Through Noise (2022) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don't We
+02. Black Magic
+03. On My Mind
+04. All Night & Every Day(   Читать дальше...   )Жанр: DanceПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFBC8E81C48F66BEBB751FEC36E26CFCF8E683D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600281   (159000) от 26.12.2022
+
+Apeaksoft iPhone Transfer 2.0.60 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676164   (159001) от 12.11.2023
 
 Шарль де Костер | Тиль Уленшпигель (Радиоспектакль) (2012) [MP3, Евгений Матвеев и др.]
@@ -6,7 +185,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159001.jpg" />
 </div>
 
 
@@ -31,7 +210,7 @@ magnet:?xt=urn:btih:C137552753D60BDC62AEEA6D6427240AA45AF136
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159002.jpg" />
 </div>
 
 
@@ -55,7 +234,7 @@ MacCleanse 12 v.12.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159003.jpg" />
 </div>
 
 
@@ -79,7 +258,7 @@ magnet:?xt=urn:btih:A8A897A1350BB0EAF8569326800E3AC2D356F261
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159004.jpg" />
 </div>
 
 
@@ -103,7 +282,7 @@ VA - Space Holidays Vol. 11 (2019) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159005.jpg" />
 </div>
 
 
@@ -130,7 +309,7 @@ Ronnie Atkins - Trinity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159006.jpg" />
 </div>
 
 
@@ -157,7 +336,7 @@ OmniReader Pro for Mac 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159007.jpg" />
 </div>
 
 
@@ -181,7 +360,7 @@ Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159008.jpg" />
 </div>
 
 
@@ -208,7 +387,7 @@ magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159009.jpg" />
 </div>
 
 
@@ -234,7 +413,7 @@ Rainmaker - Rainmaker (2000) Reissue, 2023, Pride & Joy Music [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159010.jpg" />
 </div>
 
 
@@ -261,7 +440,7 @@ Miseria Ultima - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159011.jpg" />
 </div>
 
 
@@ -288,7 +467,7 @@ magnet:?xt=urn:btih:6FD83A3696452767A0FD685C0AE0130E7F4277B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159012.jpg" />
 </div>
 
 
@@ -312,7 +491,7 @@ F. Kroger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия не
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159013.jpg" />
 </div>
 
 
@@ -336,7 +515,7 @@ magnet:?xt=urn:btih:5D99532F91D6C44346FCD96E633D3BFCFCA3F830
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159014.jpg" />
 </div>
 
 
@@ -360,7 +539,7 @@ Mos 3.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159015.jpg" />
 </div>
 
 
@@ -384,7 +563,7 @@ Vellum 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159016.jpg" />
 </div>
 
 
@@ -409,7 +588,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -436,7 +615,7 @@ magnet:?xt=urn:btih:4EBE8A7AF11E0801489AF5959810C2C1803C244A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159018.jpg" />
 </div>
 
 
@@ -460,7 +639,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159019.jpg" />
 </div>
 
 
@@ -474,183 +653,6 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D396354CFF89CAEDFCB70037965776CC11A9F94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676150   (159020) от 12.11.2023
-
-Сибирская Благозвонница | Молитвослов православного воина (2023) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159020.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мемуарах об обороне Севастополя в минувшую войну не раз встречается упоминание о том, как наши моряки перед рукопашной атакой (которую так боялись немцы), прежде чем подняться на бруствере во весь рост, осеняли себя крестным знамением. Недаром говорится: «В окопах неверующих не бывает».
-
-Этот «Молитвослов православного воина» призван помочь солдатам и офицерам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840C5F7D794121135108D877303505049452AD0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600177   (159021) от 26.12.2022
-
-AnyMP4 iPhone Transfer Pro 9.0.58 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159021.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Mac iPhone Transfer Pro — лучшее программное обеспечение для передачи данных iOS для всех пользователей iPhone. Этот iPhone Transfer Pro для Mac может легко передавать все виды данных iOS с iPhone, iPod и iPad на Mac и iTunes.
-Как профессиональное программное обеспечение для передачи данных iPhone, оно может передавать файлы между вашим iPhone/iPad/iPod и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D251CB82D4E7C1798BE9203BC200B4FBD48E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600272   (159022) от 26.12.2022
-
-NEONIC - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifetime Adventure [00:04:31]
-02. Mirage [00:04:13]
-03. Volador [00:03:26]
-04. Rage of Omen [00:03:58](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 2 CD, 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9192173779A91A8392D83F2AB3C5BE053154767A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676189   (159023) от 12.11.2023
-
-Trevor Rabin - Rio (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Mistakes (5:33)
-02. Push (6:49)
-03. Oklahoma (6:52)
-04. Paradise (7:03)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCF9F06FA449FB5FC38AC821A44D9A42C99B217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600211   (159024) от 26.12.2022
-
-Джон МакКрэй | Червь (Книга 29). Яд (2022) [MP3, Adrenalin28]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 07:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DAA22051DCB868AB2062239C5235B05F96622B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676154   (159025) от 12.11.2023
-
-Белый город | Жития святых, написанные святыми (2013) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание представляет собой сборник житий святых, составленных величайшими подвижниками Православной Церкви: свт. Игнатием (Брянчаниновым), свт. Афанасием Александрийским, прп. Ефремом Сириным, прп. Иоанном Дамаскиным и др. Таким образом, о святых пишут люди, которые сами прошли узким путем благочестия, путем исполнения заповедей Божиих и которые сейчас причислены (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE68C4778F318FE601E196FB84818E1E03AD6504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600253   (159026) от 26.12.2022
-
-Оскар Уайльд | Как важно быть серьезным (1997) [MP3, Юлия Борисова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия Оскара Уайльда была задумана как изящная безделица. Название основано на игре слов: английское прилагательное "серьезный", earnest, звучит почти так же, как мужское имя Эрнест. Почему-то именно Эрнестом мечтают видеть своего избранника обе главные героини пьесы – каждая из них вбила в голову не только себе, но и своему воздыхателю, что ее жениха (   Читать дальше...   )Жанр: Комедия, РадиоспектакльПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D31314C6F442B04E4326B05BEC4318DBB6C3CD
 ```
 
 

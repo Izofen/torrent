@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158659.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыка Твоих Крыльев (Special Volume) (2006) [MP3|320 к�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158664.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158682.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158696.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mourning Beloveth - Rust & Bone (2015) [MP3|320 кб/с] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158703.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:6E354E3B1DB74553C16F9FDF9DB9709754157BC9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158728.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Feelingless - Metal Against Animal Cruelty (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158730.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Apex - Hollow (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7A77CA1D0398D7F86479A96A0277BE99FA71C96F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158734.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Heathen - The Evolution Of Chaos (2010) Reissue, 2020, Mascot Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158735.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lawnmower Deth - Blunt Cutters (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158737.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Uhrutau - Memory (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158739.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Arcane Dust - Etched Upon Thee (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158742.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Liquid Gnar - Scrap (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158743.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tetrarch - Unstable (2021) Digipack [APE|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158745.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Assumption - Hadean Tides (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158747.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kamala - Limbo666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158749.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Shallow Black - Maladroit Matter (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158753.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Assumption - The Three Appearances (2014) EP [FLAC|Lossless|image + .cue] <Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158755.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Beatles - The Beatles 1967 – 1970 (Blue Album) (1973) 2CD, 2023 Edition, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158855.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158877.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158891.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:8C53BFCF877CFD940933B3B85B0080661292D04D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158899.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158916.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158945.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158952.jpg" />
 </div>
 
 

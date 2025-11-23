@@ -1,3 +1,80 @@
+###  Публикация: 1743457   (105404) от 16.08.2024
+
+Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коко Хекматияр, непредсказуемый оружейный дилер, все так же кочует со своей командой по белу свету. Водоворот судьбы, что крутится вокруг главной героини, затягивает коллег и конкурентов, бандитов и клиентов, старых кровников и агентов ЦРУ. Но пока простые люди пытаются выжить, кинуть ближнего и заработать денег, другие, более серьезные, понимают, что в деяниях группы (   Читать дальше...   )Производство: Япония, White FoxЖанр: Боевик, приключенияРежиссер: Мотонага КэйтароЯзык озвучки: Японский; Русский (Jam & Eladiel; loster01 & Emeri; Valkrist & KroshkaRu)Субтитры: Русские (GMC & zlobny_sow)Продолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350E2DA34DB50434C50E9AFB9B7E3163DFD5A801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743591   (105405) от 16.08.2024
+
+Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready? (Remastered 2024) [00:04:45]
+02. What If (Remastered 2024) [00:05:18]
+03. Beautiful (Remastered 2024) [00:04:19]
+04. Say I (Remastered 2024) [00:05:15](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3608EB2DFFF0399A0792B20D78C3222FED1BE7D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743516   (105406) от 16.08.2024
+
+Роберт Льюис Стивенсон | Убийца. Джанет продала душу дьяволу (2021) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Английская литература).
+Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Любимый писатель подростков всего мира, автор «Острова сокровищ», кроме увлекательных приключенческих романов, писал и леденящие (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, мистикаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A00435401709F9846EEA662B6B9C45A96E93B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743515   (105407) от 16.08.2024
 
 Роберт Льюис Стивенсон | Сент-Ив (2015) [MP3, Сергей Килессо]
@@ -6,7 +83,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105407.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ Moby - always centered at night (3rd St. DJ Mix) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105408.jpg" />
 </div>
 
 
@@ -59,7 +136,7 @@ Erasure - Chorus  (1991) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105409.jpg" />
 </div>
 
 
@@ -86,7 +163,7 @@ magnet:?xt=urn:btih:247A1C0548FB93A16037FBDE431898EAE634A568
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105410.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ VA - Neon Retro 5Th Anniversary (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105411.jpg" />
 </div>
 
 
@@ -137,7 +214,7 @@ magnet:?xt=urn:btih:89DCB906B4AB4B654209D999A81ED585275CE611
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105412.jpg" />
 </div>
 
 
@@ -161,7 +238,7 @@ magnet:?xt=urn:btih:F13899F0E64944AAE5E4C0B0D485F2F2BABD4A20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105413.jpg" />
 </div>
 
 
@@ -187,7 +264,7 @@ VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105414.jpg" />
 </div>
 
 
@@ -214,7 +291,7 @@ PdfFactory Std & Pro 9.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105415.jpg" />
 </div>
 
 
@@ -238,7 +315,7 @@ magnet:?xt=urn:btih:05C66D8783FD91F830C0D2B745059B3C77A07858
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105416.jpg" />
 </div>
 
 
@@ -262,7 +339,7 @@ magnet:?xt=urn:btih:8268224D64F8D6E630E8592E6101AB5E5D165485
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105417.jpg" />
 </div>
 
 
@@ -287,7 +364,7 @@ magnet:?xt=urn:btih:4EE287F8F5CBE5B69BEEB685E444476BEE4B2BCF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105418.jpg" />
 </div>
 
 
@@ -313,7 +390,7 @@ Junco Shakers - Lace up Ya Boots... It's the Junco Shakers (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105419.jpg" />
 </div>
 
 
@@ -340,7 +417,7 @@ Pentagram - Review Your Choices (1999) Remastered, 2024, Heavy Psych Sounds [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105420.jpg" />
 </div>
 
 
@@ -367,7 +444,7 @@ magnet:?xt=urn:btih:6BBC4A60D928D0DBFC346B7A19072F831D425883
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105421.jpg" />
 </div>
 
 
@@ -392,7 +469,7 @@ Eater - The Album (1977) Deluxe Edition, 2024, Cleopatra Records [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105422.jpg" />
 </div>
 
 
@@ -419,7 +496,7 @@ Voodoo Kiss - Feel The Curse (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105423.jpg" />
 </div>
 
 
@@ -446,7 +523,7 @@ Ticket West - All Is Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105424.jpg" />
 </div>
 
 
@@ -473,7 +550,7 @@ Mangrove - Bridge to Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105425.jpg" />
 </div>
 
 
@@ -500,7 +577,7 @@ Kaliopi & The Blues Messengers - The Devil's Voodoo Curse (Festival Edition) (20
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105426.jpg" />
 </div>
 
 
@@ -527,7 +604,7 @@ Sarah Wright - Drive Outta Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105427.jpg" />
 </div>
 
 
@@ -554,7 +631,7 @@ Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105428.jpg" />
 </div>
 
 
@@ -581,7 +658,7 @@ magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105429.jpg" />
 </div>
 
 
@@ -595,87 +672,6 @@ magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743128   (105430) от 15.08.2024
-
-Doug Duffey and Badd - Ain't Goin' Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whirlpool (5:29)
-02. You Got What It Takes (5:06)
-03. The Wishing Game (6:09)
-04. Rock It All Night (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546DF65A4C587F80F1CE44A27CBAF9DFCC0563DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743124   (105431) от 15.08.2024
-
-Chris Gibbons - Blues On The Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dustbowl (4:37)
-02. Blues On The Road (4:03)
-03. Close Your Eyes (4:28)
-04. Steamy Angels (5:20)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3D2AD3679D2131B2EFA62AE1C68ABFF10880A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743142   (105432) от 15.08.2024
-
-Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Little Girl (3:10)
-02. Crazy Me (3:54)
-03. It's Only A Girl (4:26)
-04. Three Stations East (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3159F199EE8C32F36FF9D60B53AB40699DC76DE9
 ```
 
 

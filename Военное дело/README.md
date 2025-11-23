@@ -6,7 +6,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C82F199905C6181C8DCF3401766C32244B29E03D
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4C8911F6CA680C216934F1D4B2DA7E365216C7EE
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2641.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:25BA5676B732B1A9CFFFBBE72FEEE6F2BA8FEF1F
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3883.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:204921C423233B3E55CFBA0E59D43E02E14DC2CE
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4964.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E3F97A4A4DF42A88D8AFC740E7503F9E30C5F8CC
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6102.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4E164B74760B296D3528C48CAF1058479B23A4F6
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7263.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:403087B5111AF75D6B65BA01E8F658C8157AF2D1
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9319.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7920DA989F4F6028F71ED64C892E6F6BCEA475B2
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9993.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7FF9C3BDF49EB68CB75B037A2AB71251D05D3D8F
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_15971.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5A3F6318B23F7B2E28EE00C70E89862F4F7AD34F
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40652.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3C970142FABCC94C3DC1FCB7CF95146DEA8ABA64
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94505.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1E398B8C8EBFAADBDCD669A0EA6CC9B278AFB1A3
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102424.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:BA6DF47E86B753A29D1330F611376B677B30BD06
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115927.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F383BB285DAFF6D354766535EEEBE078B50F0D6C
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124480.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:967C105FC2D6368EA960F46E128A09C1D827ED01
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130942.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E6F44F9560CB66892ED7A2BA2DBA1FBC9755CA20
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133743.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:EE8598B361D39D8E2994E64BC3F9B7703413A14E
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135906.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:BF52D970E3E627974823442081C443C09998DDF7
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145008.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:91118FDC6EA927F543F569351BF26AFD6B00C112
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145154.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:05B6F9B2CB5BA5D8A5A0DB4598FD956C217A36A5
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145404.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B7682E24F1C52F59B1555EB5793F93542285FCB0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146051.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B7682E24F1C52F59B1555EB5793F93542285FCB0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149992.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FBE7F5B2955639A1426981B3BCE2D5B0A4805DAB
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150932.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:67EEA058414A5BD2413806C805A6217A3D741F1E
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154980.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:745D7B42C7938139AF50EDB9776B6CF8A4641768
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158414.jpg" />
 </div>
 
 

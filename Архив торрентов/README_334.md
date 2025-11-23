@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82235.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82237.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82250.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82253.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82254.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82255.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82260.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:35426510E95E2F83C00115826E5495A07A013B10
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82278.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Defenders of Ardania [En] (Lossless Repack) 2012 | R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82280.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:EDE295BE0E1D4F1214F71A8F2522C3230011970A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82289.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82293.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ SmartSound SonicFire Pro v.5.7.3 Scoring Network Edition [Мультиязычн
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82301.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ SmartSound Sonicfire Pro 5 - самая популярная программа,
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82304.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ SmartSound Sonicfire Pro 5 - самая популярная программа,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82311.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82316.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82329.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F52583084D021EF3FA7FC02AAA6CE7FC2CD9947A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82339.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Brink + 1 DLC [Ru] (RePack/1.0.23653 + Update 1,11) 2011 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82340.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:6582F7EC3F487902B91EF8339B7FDAF77A889B5F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82346.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:562630A6B951B27FB3BDF60704100E4D0D85CF84
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82349.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:562630A6B951B27FB3BDF60704100E4D0D85CF84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82357.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:55FD5F8FBB187E99491A59D32050518B6C1355C2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82358.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SolidWorks – система автоматизированного проек�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82371.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SolidWorks – система автоматизированного проек�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82372.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Just Cause 2 Limited Edition + 9 DLC [Ru] (RePack/1.0.0.2) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82374.jpg" />
 </div>
 
 

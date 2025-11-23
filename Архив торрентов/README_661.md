@@ -1,3 +1,51 @@
+###  Публикация: 1679176   (140290) от 24.11.2023
+
+4K YouTube to MP3 Pro for Mac 5.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140290.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 23.11.2023Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3B0F4A4E7B17803C49F8C539964C9A3783CAAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970545   (140291) от 30.12.2015
+
+Alcohol 120% 2.0.3 Build 8426 Repack D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA70CEBF555F6F1F37456458B26D45F15E255BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272776   (140307) от 29.12.2018
 
 Mirillis Splash Premium v2.2.0.0 [Multi/Ru]
@@ -6,7 +54,7 @@ Mirillis Splash Premium v2.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140307.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Revo Uninstaller Pro 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140312.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ EZ CD Audio Converter 1.0.3 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140315.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140317.jpg" />
 </div>
 
 
@@ -104,7 +152,7 @@ Space Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140321.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ Araxis Merge 2016.4801 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140325.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ Tineidae - Lights (2012) [MP3|320 кб/с]<IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140326.jpg" />
 </div>
 
 
@@ -185,7 +233,7 @@ magnet:?xt=urn:btih:484142BB817E7162C6824EA49BBB8B3C307B4CC8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140339.jpg" />
 </div>
 
 
@@ -209,7 +257,7 @@ magnet:?xt=urn:btih:0DBCB350422C703D5FC5190EECFE1CD04E73E03A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140344.jpg" />
 </div>
 
 
@@ -233,7 +281,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken / Я стал
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140346.jpg" />
 </div>
 
 
@@ -257,7 +305,7 @@ magnet:?xt=urn:btih:59548AB263CB27C2A6D43D15FA6FBC8DC71B8BC4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140356.jpg" />
 </div>
 
 
@@ -281,7 +329,7 @@ Luminar Neo 0.9.1 (Early Access) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140377.jpg" />
 </div>
 
 
@@ -305,7 +353,7 @@ Comedy Woman. 10 лет (2017.12.29) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140384.jpg" />
 </div>
 
 
@@ -329,7 +377,7 @@ magnet:?xt=urn:btih:7A131EB80490B891F43D6E244554F75C1661CE2A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140388.jpg" />
 </div>
 
 
@@ -355,7 +403,7 @@ Kanojo ga Flag o Oraretara / Gaworare / Если бы я сломал её фл�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140390.jpg" />
 </div>
 
 
@@ -379,7 +427,7 @@ DJ Kevlar - Beat Driver: The Best of 2017 [FLAC|Lossless|Web-DL|tracks] <Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140394.jpg" />
 </div>
 
 
@@ -406,7 +454,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140397.jpg" />
 </div>
 
 
@@ -430,7 +478,7 @@ Wondershare Recoverit 10.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140403.jpg" />
 </div>
 
 
@@ -455,7 +503,7 @@ magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140408.jpg" />
 </div>
 
 
@@ -479,7 +527,7 @@ magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140411.jpg" />
 </div>
 
 
@@ -503,7 +551,7 @@ magnet:?xt=urn:btih:56793DA8D91A406466DD8046B435AB3A5DF0E3E1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140414.jpg" />
 </div>
 
 
@@ -529,7 +577,7 @@ magnet:?xt=urn:btih:94FDCB08C000CA340C9239AE8A525BF5A9A7D48B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140424.jpg" />
 </div>
 
 
@@ -553,7 +601,7 @@ magnet:?xt=urn:btih:84EFBAB876ACC7C22324E908D339286A78B0490C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140429.jpg" />
 </div>
 
 
@@ -577,7 +625,7 @@ magnet:?xt=urn:btih:88D4165FC83027B5C80F841D1942407F2C930F0C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140430.jpg" />
 </div>
 
 
@@ -590,54 +638,6 @@ magnet:?xt=urn:btih:88D4165FC83027B5C80F841D1942407F2C930F0C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12FB93D9AA1003F67371ED2779D04AA5BF0CC1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195673   (140435) от 30.12.2017
-
-Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.29) WEB-DLRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140435.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F216DB2DF918D663ED2CBB4F3EA4C88ABA239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679268   (140456) от 24.11.2023
-
-Master of Typing 3 - Practice 15.13.25 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687AC570A5DF9E4C3BDC9F17EA44BC0874BB3E9D
 ```
 
 

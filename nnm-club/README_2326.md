@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60841.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:783A5371E45020F71CC480702A1F8EC4F0A1CFED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60842.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9FC2353F8D5A3364D5E02009895F12E750A4B045
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60844.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:132B6983E8355AE10DACD265866EB211184CD205
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60845.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:25A603323985ABD26F42D400E4DDD6729023DF93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60846.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5339F34156597263E12C8A0F09A5EE1DE7DD4EE7
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60847.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C6EFB5159585C0DAAE2E9C798DCF80E16784CF37
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60848.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C4529D8596690B8739B38835F7E734514420B6D4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60849.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F549CC562B146201FE9282B33FF6ECDD8F6B087B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60850.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:756E1E06A372AA39ECA2EDAE2BED15D529E12A2F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60851.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:CF16F3ED70A755D706DD5793A5FFE0A02059FBCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60852.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5495CE8200614AC55F330049AA0DD869204DA7C8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60853.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5190449DD224D7A2E354F40EAE11D9FD08BC767F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60854.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:E1F39008019590EED2F07A870FD6AA1C53993B13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60855.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:048394547EDA4835D273617CAB43A6F72698FC1A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60856.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Pet Shop Boys - Dancing star (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60857.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Duplicate File Finder Pro 2402 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60858.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:C7833DFA194194005E08C659D73E980E100F8B64
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60859.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A501322F301DDEAC69EA6A4CDF2F2E2DC1BF9D15
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60860.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ProfiCAD 12.4.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60861.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:8469577C6A2B6F3B8954760767E1FD1FBE9B3522
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60862.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MiniTool Power Data Recovery 11.9 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60863.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FBReader Premium v3.6.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60864.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:CD2DA2F7EF66D3BDF3DDEDB94CBA42EA8C9AA075
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60865.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1C3809FC445C3EAE2C781736400B96E4B4A75159
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60866.jpg" />
 </div>
 
 

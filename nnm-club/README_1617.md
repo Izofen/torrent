@@ -6,7 +6,7 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42397.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:09DF48DCFDDC573A71E8B08939D6DF6B50C337B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42398.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:0D75A2D1A6021D7A2FF259075850538E3203327F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42399.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9CBC8A27CE9554A4A22082E2F5E24D0644811ACD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42400.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Siri Umann, Aradia Voice - Arabic Deep House (2024) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42401.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42402.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Best Relaxing Chillout & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42403.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Arabic Ethnic Deep House Mix (2021) [FLAC|Lossless|WEB-DL|tracks] <House, F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42404.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:9202B6E63FF165A981CF7F0E69D42AF261581F24
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42405.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:3BF2FFB569F06A049EC08E9944E97ABFE9D7E7B6
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42406.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42407.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:474717E4019274679E67163B9ED5F7A758FFBD05
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42408.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Galneryus - The Stars Will Light The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42409.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0FE03FF2CC84D34CB5C4A4F18293F3E501A25562
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42410.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6EA664A438F05B10F6C6F3093FF424FC397E715B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42411.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6113F1DECAD890C458EB8248EE60F96EB42B380C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42412.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:C0B707085CE5174C67D798C2CD74175878DE3047
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42413.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42414.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ascension Ritual - Ascension Ritual (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42415.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Eagle Twin & The Otolith - Legends Of The Desert: Vol. 4 (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42416.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42417.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:6938ECD81CE1A5D22E55136B67405B022B0F1A94
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42418.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Opera One 114.0.5282.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42419.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:BDDF01E1FA8744410738407A5603D11CD992240A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42420.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:9418E61220D864C494834086DD84FCCFE9B5C696
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42421.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:6C2DBD11806CC450168E7727700832756ADCD65E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42422.jpg" />
 </div>
 
 

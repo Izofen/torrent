@@ -1,3 +1,182 @@
+###  Публикация: 967231   (158676) от 20.12.2015
+
+MEGA Sync Client 2.5.3 (2bc7f) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158676.jpg" />
+</div>
+
+
+###  Подробнее
+
+MEGA (файлообменник) - безопасный сервис облачного хранения и обмена файлами, который предоставляет 50 ГБ надежного хранилища бесплатно. Вы можете расширить облачное хранилище, используя платный Pro-аккаунт, с 500 ГБ до 4 ТБ.
+В отличие от многих других провайдеров облачных систем хранения данных, с использованием Mega ваши данные шифруются и расшифровываются только (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242074E01AF8BB164AAB17C895DE867CAA833B72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967405   (158677) от 20.12.2015
+
+GiliSoft File Lock Pro 10.1.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158677.jpg" />
+</div>
+
+
+###  Подробнее
+
+GiliSoft File Lock Pro - это утилита с помощью которой можно быстро и безопасно спрятать или закрыть доступ к файлам, папкам или целым дискам на Вашем компьютере. Для защиты файлов программа использует 256-битное AES-шифрование (Encryption Standard Adopted by the US Government). Также поддерживается защита любых портативных носителей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD6D5C675F3AE242FBAF7B89F2E6DDF858B616A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967357   (158678) от 20.12.2015
+
+VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ora And Ventus - Piano Suite (Original Mix) 04:16
+02. DYKANE - Lost Summer (Original Mix) 02:46
+03. Benny Camaro - Something Inside (Original Mix) 04:53
+04. Hugobeat - Disco Night (Original Mix) 06:13(   Читать дальше...   )Жанр: House, ClubПродолжительность: 04:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A3205D28CD549D52B27CC0717402FE4E9E8DC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967265   (158679) от 20.12.2015
+
+VA - Trap Vol.1 (Compiled by Zebyte) (2015) [MP3|160-320 кб/с] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8Ers - Indestructable [03:02]
+02. Jack U - To U (Meaux Green & Magnifico Remix) [03:37]
+03. Sharxpowa - Girl [04:09]
+04. Sia - Chandelier (Levi Niha Remix) [03:38](   Читать дальше...   )Жанр: TrapПродолжительность: 03:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7098EC6BF0994559E0B7E8C950FBBA9A1B9C27AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967374   (158680) от 20.12.2015
+
+Татьяна Форш | Тайна пиковой дамы (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антона считают баловнем судьбы, ему везет буквально во всем, и это связывают с колодой карт, хранящейся в семье. Когда-то дед молодого человека похитил эти карты у таинственного незнакомца, с головы до ног одетого в черное, и семья пребывала в процветании… до тех пор, пока мрачный хозяин колоды не пришел за своим имуществом. Теперь не только счастье, но и сама жизнь (   Читать дальше...   )Жанр: УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03299FA1CB01A455AE6B33DCDBC87393010F6918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967460   (158681) от 20.12.2015
+
+Dash 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2015Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD87777C209A36F8436236CF668BCDAC2B01BFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967394   (158682) от 20.12.2015
+
+Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Like It [03:39]
+02. Who Do You Love [04:16]
+03. The Wind [05:01]
+04. Gotta Go (Can't Wage A War) [04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967406   (158683) от 20.12.2015
 
 Вести недели (20.12.2015) SATRip
@@ -6,7 +185,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158683.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ magnet:?xt=urn:btih:C9AAD4B87F8E26DE9A92AF4D18E419BE5434495F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158684.jpg" />
 </div>
 
 
@@ -57,7 +236,7 @@ magnet:?xt=urn:btih:76552D281DA13BE415B2ED867905DC9D39947380
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158685.jpg" />
 </div>
 
 
@@ -84,7 +263,7 @@ magnet:?xt=urn:btih:A2CF177E8CB19FF9CF8FACFB4811532C99440D58
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158686.jpg" />
 </div>
 
 
@@ -108,7 +287,7 @@ magnet:?xt=urn:btih:BACF02116287542D7AC99E8F73AD217B20B26112
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158687.jpg" />
 </div>
 
 
@@ -133,7 +312,7 @@ magnet:?xt=urn:btih:70E7C1798E375E611C453FEC08B89DBB3FDE96F2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158688.jpg" />
 </div>
 
 
@@ -162,7 +341,7 @@ magnet:?xt=urn:btih:A3137402A1F58C8608A1079AF41FE49EF5CA8912
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158689.jpg" />
 </div>
 
 
@@ -187,7 +366,7 @@ magnet:?xt=urn:btih:E5D9458FA34D57DC061D9FF94CEF18FA623D26B6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158690.jpg" />
 </div>
 
 
@@ -211,7 +390,7 @@ MediaFire 1.8.12.11026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158691.jpg" />
 </div>
 
 
@@ -235,7 +414,7 @@ magnet:?xt=urn:btih:5CDE16327B11AB06E47F5D28690E8C770B85B58C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158692.jpg" />
 </div>
 
 
@@ -259,7 +438,7 @@ iMazing 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158693.jpg" />
 </div>
 
 
@@ -284,7 +463,7 @@ magnet:?xt=urn:btih:11FD43498565BB06DDA5483A09133EC1F4C6AA4A
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_158694.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_158694.jpg" />
 </div>
 
 
@@ -308,7 +487,7 @@ magnet:?xt=urn:btih:11FD43498565BB06DDA5483A09133EC1F4C6AA4A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158695.jpg" />
 </div>
 
 
@@ -332,7 +511,7 @@ magnet:?xt=urn:btih:046D3D172BF8EB6437A5822C3C42AE478C135F03
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158696.jpg" />
 </div>
 
 
@@ -359,7 +538,7 @@ Wise Program Uninstaller 1.83.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158698.jpg" />
 </div>
 
 
@@ -383,7 +562,7 @@ magnet:?xt=urn:btih:3A8FE95791405B9A98CF8CD6751A604A4CAD2087
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158699.jpg" />
 </div>
 
 
@@ -407,7 +586,7 @@ magnet:?xt=urn:btih:8C72536DCB9BCF492D90BF40CD0D0E51CE6787F7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158700.jpg" />
 </div>
 
 
@@ -431,7 +610,7 @@ magnet:?xt=urn:btih:BA9210AE33979A8C40A58349457DB758F4D28875
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158701.jpg" />
 </div>
 
 
@@ -456,7 +635,7 @@ magnet:?xt=urn:btih:B29FCCC10485D2655CC15DD6EA51CF86C043523C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158702.jpg" />
 </div>
 
 
@@ -470,190 +649,6 @@ magnet:?xt=urn:btih:B29FCCC10485D2655CC15DD6EA51CF86C043523C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F54D7DA7C544C5CFAD8F84497509F191B40613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967136   (158703) от 20.12.2015
-
-Mourning Beloveth - Rust & Bone (2015) [MP3|320 кб/с] <Doom-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158703.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Godether
-2. Rust
-3. The Mantle Tomb
-4. Bone(   Читать дальше...   )Жанр: Doom-Death MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E354E3B1DB74553C16F9FDF9DB9709754157BC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967090   (158704) от 20.12.2015
-
-Adam Ben Ezra - Can't Stop Running (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion, World>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Stop Running
-02. Brown Piano
-03. The Busker
-04. Prayer(   Читать дальше...   )Жанр: Contemporary Jazz, Fusion, WorldПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3602B08C75B88AAB9C9838EA94BEB77A480B0B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967075   (158705) от 20.12.2015
-
-Paulo Moura - Quarteto (1969) 2002, Atra[FLAC|tracks+.cue] <Post-Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lamento Do Morro [03:34]
- 02.Eu E A Brisa [04:07]
- 03.Meu Lugar [03:16]
- 04.Aos Pes Da Cruz [03:37](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DE36959D29B40786ECDD527B736929C19051DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966500   (158706) от 20.12.2015
-
-Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Now (3:37)
-02. Follow Me (3:16)
-03. Whole Again (3:05)
-04. Eternal Flame (3:15)(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967243   (158707) от 20.12.2015
-
-Валентина Скляренко и др. | 50 знаменитых чудаков (2013) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена людям, без которых мир был бы скучен и неинтересен, которые привыкли жить по принципу, наиболее точно сформулированному итальянцем Артуро Графо: "Следуй своей дорогой, и пусть люди говорят что угодно". Одним словом, эта книга о чудаках. Речь пойдет о философе Диогене и гениальном Эйнштейне; неутомимом "правдолюбце" бароне Мюнхгаузене (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAA3428D358FB53FD791B984BBDA5180D1ACF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967180   (158708) от 20.12.2015
-
-Главная сцена. Сезон 2. Выпуск 13 (2015.12.19) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158708.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
-В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйПродолжительность: 02:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D0ED0D29F45584189654888443734D70157CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967466   (158709) от 20.12.2015
-
-Карел Яромир Эрбен | Златовласка (1968/2005) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158709.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждой страны, каждого народа есть свой любимый герой. Одни герои – полководцы и короли, другие – простые крестьяне. Чаще всего такой герой – обыкновенный человек, и на первый взгляд ничего особенного в нём не найдёшь. Нередко таких людей считают глупыми или ничтожными, пока не покажет он себя настоящим богатырём, умным, сильным – умнее и сильнее самих царей. У (   Читать дальше...   )01 | Златовласка. Часть 1 | 08:18
-02 | Златовласка. Часть 2 | 09:21
-03 | Златовласка. Часть 3 | 07:45
-04 | Златовласка. Часть 4 | 09:36Жанр: АудиоспектакльПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7A2C33E09757F3112C39DD52DBA6194BCD2185
 ```
 
 

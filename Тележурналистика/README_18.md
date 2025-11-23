@@ -1,3 +1,51 @@
+###  Публикация: 1424310   (229099) от 16.11.2020
+
+Станция смерть. Дело московского отравителя (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Московский маньяк-отравитель. С 2006 по 2008 год — 17 смертей. Чем он угощал своих жертв и почему так долго ему все сходило с рук? — реальная история серийного убийцы.Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33FA156F4CC1F7806E4A33D758330FBAA7021B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424170   (229393) от 16.11.2020
+
+Следствие вели... (15.11.2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_229393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год, Москва. Вернувшись домой с работы, женщина обнаруживает сына в шкафу без сознания. Приехавшие врачи определили: мальчик в глубокой коме. Тогда никто не догадывался, что произошло жестокое и продуманное преступление — первое, но не последнее в этом необычном деле…Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9589FC9B7D144A3202DF2A7C55BCA2A13FB8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268132   (229518) от 09.12.2018
 
 Следствие вели... с Леонидом Каневским.  Я видела дьявола (09.12.2018). SATRip
@@ -6,7 +54,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229518.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229518.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:96A5924B1EE484DB33B12473F8DAA5B4D52BA6C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229719.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229719.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:6693DDB87F8F85CE8347B49ACDFFC40C5985E485
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230494.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230494.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ magnet:?xt=urn:btih:FFF8FCDBECFB8EE51BF9A925C535413C5B3A9C40
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230779.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230779.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:C579E891F2B817A5B81CB0E7C652773E97BC5057
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230805.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_230805.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:CACA0A91ABF2E209081FB165A506EFB41DDB3632
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231739.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ magnet:?xt=urn:btih:BFF1F739EA0F847A2E6CCCE17B1BC22AD24E10B5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232623.jpg" />
 </div>
 
 
@@ -175,7 +223,7 @@ magnet:?xt=urn:btih:807BF90E3E08C1778E4218627CFDF03D8F9BFF7A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232652.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232652.jpg" />
 </div>
 
 
@@ -199,7 +247,7 @@ magnet:?xt=urn:btih:D41EFED3619449D90602BEC2FD7F8F74021C24CE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232982.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232982.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ magnet:?xt=urn:btih:911B37B4E83312F6E064F76A74CF432B9BAF0A47
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233412.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_233412.jpg" />
 </div>
 
 
@@ -252,7 +300,7 @@ magnet:?xt=urn:btih:076988F4C079E11CC2890DA024DB381705BCDA56
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233831.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233831.jpg" />
 </div>
 
 
@@ -278,7 +326,7 @@ magnet:?xt=urn:btih:FE8373BF265F50C8E8C11C3BEA6AAF0C3A26AEA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234330.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234330.jpg" />
 </div>
 
 
@@ -305,7 +353,7 @@ magnet:?xt=urn:btih:4E926F8D19334694C48CF61413EA2D498CF59515
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234594.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234594.jpg" />
 </div>
 
 
@@ -330,7 +378,7 @@ magnet:?xt=urn:btih:C9289510F6089D1A65456377F937EDA2463573DE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234765.jpg" />
 </div>
 
 
@@ -354,7 +402,7 @@ magnet:?xt=urn:btih:865F686A3CC7082F21F164E79087C893E5FEC5ED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234872.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234872.jpg" />
 </div>
 
 
@@ -381,7 +429,7 @@ magnet:?xt=urn:btih:15FD7952D3150461A3236AA44578CD0D7F8CE4DE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235033.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235033.jpg" />
 </div>
 
 
@@ -405,7 +453,7 @@ magnet:?xt=urn:btih:2BF407D852F0D2C77FA8512610EB2E8B535B9A27
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236017.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_236017.jpg" />
 </div>
 
 
@@ -429,7 +477,7 @@ magnet:?xt=urn:btih:BC894AB254228B21EB2EF50B96267256C54F3CA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236306.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236306.jpg" />
 </div>
 
 
@@ -455,7 +503,7 @@ magnet:?xt=urn:btih:D7225B1BD7A67E47CD862037C078BD0BD292ABF9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236732.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236732.jpg" />
 </div>
 
 
@@ -481,7 +529,7 @@ magnet:?xt=urn:btih:257162B8CB10B3BB78925EAA4686E4932E685EB9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237229.jpg" />
 </div>
 
 
@@ -505,7 +553,7 @@ magnet:?xt=urn:btih:6CC5401C237781CB375DD7539D8B8AEF1F2AF356
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237347.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237347.jpg" />
 </div>
 
 
@@ -531,7 +579,7 @@ magnet:?xt=urn:btih:29FC7C9033B1A4632E99A936F7571EEADAB980D9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237485.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237485.jpg" />
 </div>
 
 
@@ -555,7 +603,7 @@ magnet:?xt=urn:btih:426B385EE77E23C692B0C288A20C2D9047DCF419
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237540.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237540.jpg" />
 </div>
 
 
@@ -581,7 +629,7 @@ magnet:?xt=urn:btih:A536560E69DA0175764D239E03560945A9A96290
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237704.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237704.jpg" />
 </div>
 
 
@@ -592,56 +640,6 @@ magnet:?xt=urn:btih:A536560E69DA0175764D239E03560945A9A96290
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C149BFF0F775BE80800581EF22F8E5727998AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447585   (237828) от 14.02.2021
-
-Чудо техники с Сергеем Малозёмовым (14.02.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо ли работают грелки для рук — как дорогие, так и дешевые? И правда ли, что выход на улицу без перчаток может обернуться инфарктом? Швабра для уборки без воды: каков механизм работы устройства? И какие плюсы и минусы у новомодного агрегата? Стол-тренажер для красивой осанки и безопасный инновационный материал для лепки вместо пластилина — что из этого действительно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6445250D106ECEFF866B871D627788C479560F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637272   (238449) от 03.06.2023
-
-Живая еда с Сергеем Малозёмовым (03.06.2023) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрукты: всегда ли они полезны? Что произойдет с организмом, если питаться только фруктами, правда ли они провоцируют брожение и даже гниение в желудке? И стоит ли отказаться от сладких плодов диабетикам?
-Вред не помеха: мужчины готовы есть мясо ради ощущения мужественности.
-Пять групп продуктов, в которых чаще всего встречаются нарушения: какие товары проще всего (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D26EDF740641C09749F7D9CB48B24F01ADBF6B4
 ```
 
 

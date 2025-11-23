@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BAEAFBA531632D8D3D081C31D341083A8854FE8E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14531.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9EEDC1659ED9263EBC8E1BE15381D2E4146A3252
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14533.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:407402163EE2E594E7F426809E3286F44308D9BA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14534.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ iDownerGo Video Downloader 10.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14535.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14536.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Privacy Eraser Free 6.20.0 Build 5265 RePack (& Portable) by elchupacabra [Multi
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14537.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:4EDE17C6D41CB684036A264B256D5B5CE9CBA606
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14538.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Firefox Browser ESR 115.24.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14539.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:865D35C795665002A2FA9212B254B827ACCD3FA1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14540.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14541.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14542.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:948E9B7E64FCD724A9A64614DE2B6F1200770EA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14543.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:948E9B7E64FCD724A9A64614DE2B6F1200770EA8
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14544.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14545.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14546.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:369E4B233045ABC1BEF07D98C29568A7B29C89ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14547.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:53D08215284B7C4D737A25C7B7A15D8AB951A8C4
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14548.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:70D409372C5AA4CE58BBBF6941D22396D7183AAB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14549.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:814B3831D6E2078D094ED763A0EC531D16A28739
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14550.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:5479687CA04545D0686EC71A48951379D3F53FE6
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14551.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14552.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:595DBCEF5ACA1B1927355395EDBE712179CDCADB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14553.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:65AE7EDE6022AFCBD8E1542A60659A69044FE629
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14554.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14555.jpg" />
 </div>
 
 

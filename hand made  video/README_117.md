@@ -1,3 +1,77 @@
+###  Публикация: 1541246   (243645) от 06.04.2022
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) Hybrid [H.264/1080p] [Open Matte] [Локализованная версия]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243645.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей - держать репликантов под контролем в условиях нарастающего напряжения... Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Канада, Венгрия, Испания, Мексика / Alcon Entertainment, Columbia Pictures, SonyЖанр: фантастика, боевик, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D40360E9BB69733C785611EC24BF7B5348DA16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536774   (244309) от 03.04.2022
+
+Знахарь / Znachor (1981) DVDRip [H.264/1080p-LQ] [Handmade upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244309.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Тодеуша Доленга-Мостовича.
+С гениальным хирургом Рафалом Вильчуром происходит трагедия, изменившая всю его жизнь. Уходят жена и дочь, в тот же день он оказывается на улице без денег и документов. Ему приходится пережить несколько лет скитаний и горя.
+И все-таки судьба поворачивается к нему лицом. Найдя приют в семье мельника, он спасает его больного сына (   Читать дальше...   )Производство: Польша, ЗодиакЖанр: драма, мелодрамаРежиссер: Ежи ГоффманАктеры: Ежи Биньчицкий, Анна Дымна, Томаш Стокингер, Бернард Лядыш, Божена Дыкель, Артур БарцисПеревод: Дублированный (Мосфильм 1983 год)Язык озвучки: РусскийСубтитры: русские, польские, английскиеПродолжительность: 02:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F930A9FB274B3F513A1CA3F1E639E5C9FB856A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541466   (244353) от 03.04.2022
+
+Няньки / Twin Sitters (1994) DVDRip [H.264/1080p-LQ] [Handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владелец транспортной компании, замешанный в незаконном сбросе токсичных отходов желает выйти из игры, сдав своего заказчика. Ему угрожают, намекая на двух племянников-близнецов, оставшихся без родителей и живущих у него. Тогда он нанимает бесшабашных братьев качков с интеллектом десятилетних мальчишек в качестве телохранителей. Малолетние племяннички дают прикурить (   Читать дальше...   )Производство: США, Surge Productions Inc.Жанр: комедия, криминал, семейныйРежиссер: Джон ПарагонАктеры: Питер Пол, Дэвид Пол, Кристиан Казинс, Джозеф Казинс, Рена Софер, Джаред Мартин, Бэрри Деннен, Джоэнн Харт, Джордж Лэзенби, Валентина ВаргасПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: РусскиеПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB33812B3A8402BCE5D95CB03CE4E47415549546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833060   (246217) от 31.10.2025
 
 Мир Юрского периода: Возрождение / Jurassic World: Rebirth (2025) BDRip [AV1/2160p] [4K, SDR, 10-bit] [handmade Upscale]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246217.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246217.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:2083DAF6362BEAB7B41381EBA15BA5E703384F5B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247182.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247182.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:0B1AA5520CC1E9C7F62C83FC3E9406CB1135BE65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247312.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247312.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:B5ACC2B5DEB020EBFBAF991BDD28C312D0260CBC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247345.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247345.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:1C22CD8BE3A70FED8BC40CABE4C333CF4C63154D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247476.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247476.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:4309A2B5E12443DD1933BE16E7B4AC0135D070CF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247645.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247645.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ magnet:?xt=urn:btih:6160DEF40E9EF501984FAB1122A2757D65B395CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247650.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247650.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ magnet:?xt=urn:btih:0FE603C0CE5F87BE03252BA413E6516D52AB74F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247656.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247656.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:E1F531C0B500097CD0329F14D65A274655AE0E7F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247742.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ magnet:?xt=urn:btih:6AA386E29C74B1CF99742F041BFE64FB0D9373D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247755.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247755.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:99D1A3AF42E84C9198E8C8B36E566FBDC79494A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247871.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247871.jpg" />
 </div>
 
 
@@ -273,7 +347,7 @@ magnet:?xt=urn:btih:EEE16CB0913064A83ECE6A8BA26F5E6192A112A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248329.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248329.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ magnet:?xt=urn:btih:EEE16CB0913064A83ECE6A8BA26F5E6192A112A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249353.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249353.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249571.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249571.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ magnet:?xt=urn:btih:D659829BBB4A64DAA81F20653617DB3D4E26E727
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249737.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249737.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ magnet:?xt=urn:btih:272389BA3D056EFF4001B3D4680671EA2F24FC7A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249885.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249885.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:E00F974CE0B66521182F125DAEA7E62090A0E452
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250177.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250177.jpg" />
 </div>
 
 
@@ -422,7 +496,7 @@ magnet:?xt=urn:btih:12AD8286006951562EED15C6450584C3DF390CF3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250243.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250243.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ magnet:?xt=urn:btih:AC0991E0FBE29BD0427CEE43E336BE9D47F71209
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250359.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250359.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ magnet:?xt=urn:btih:B2BAB054A483A4C7EA63412244F8D4C8CD241C83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250376.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250376.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ magnet:?xt=urn:btih:C3D4EB87D98E41DDB80DB572C198AAA24218ABBF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250549.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250549.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ magnet:?xt=urn:btih:61F4AE392EEB518D81FAB02F58F784C02408F459
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252215.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252215.jpg" />
 </div>
 
 
@@ -545,7 +619,7 @@ magnet:?xt=urn:btih:4E767B9F07F5CEFF5EA4C98B41683912ADFF3A25
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252365.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252365.jpg" />
 </div>
 
 
@@ -556,80 +630,6 @@ magnet:?xt=urn:btih:4E767B9F07F5CEFF5EA4C98B41683912ADFF3A25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796611E94651A00E8BD38E40759EF0ECB54C844C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836276   (252424) от 
-
-Назад в будущее 3 / Back to the Future Part III (1990) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на просьбы Дока не навещать его в XIX веке, Марти вновь хочет вмешаться в ход событий и на машине времени уносится в 1885 год, навстречу Дикому Западу.
-Это путешествие, как и все прежние, не обходится без опасных приключений, но смелый Марти, рискуя жизнью, предотвращает трагедию в жизни Эммета Брауна. Тот, в свою очередь, без памяти влюбляется в очаровательную (   Читать дальше...   )Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, комедия, приключения, вестерн, семейныйРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Мэри Стинберген, Томас Ф. Уилсон, Лиа Томпсон, Элизабет Шу, Мэтт Кларк, Ричард А. Дайсарт, Пэт Баттрем, Гарри Кэри мл. и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские, английские (PGS)Продолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6723FE15CBCD110DAD7E18B8F73BE8FE74344785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836629   (254334) от 11.11.2025
-
-Между небом и землей / Just Like Heaven (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вселившись в арендованную квартиру в Сан-Франциско и начав наводить там порядок, Дэвид неожиданно встречает в своем новом жилище привлекательную молодую женщину Элизабет, которая уверяет его, что именно она является хозяйкой этих апартаментов.
-Когда же Дэвид начинает склоняться к мысли, что произошло какое-то недоразумение, Элизабет исчезает так же внезапно и загадочно, (   Читать дальше...   )Производство: США / DreamWorks SKG, MacDonald/Parkes ProductionsЖанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк УотерсАктеры: Риз Уизерспун, Марк Руффало, Донал Лог, Дина Спайби, Бен Шенкман, Джон Хидер, Ивана Миличевич, Кэролайн Аарон, Розалинд Чао, Рон Кэнада и др.Перевод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2F6B87725267631D388CC9009BCCB5D3DB9289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632366   (254466) от 10.05.2023
-
-ДМБ (2000) DVDRip [H.264/1080p] [handmade Remastered Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Похождения друзей, разными путями попавших в армию, ставшими "из никем - всем" и о главной военной тайне, комедия, практически вся разобранная на цитаты, с философским подтекстом.Производство: Россия, Киностудия ПолигонЖанр: комедияРежиссер: Роман КачановАктеры: Станислав Дужников, Александр Белявский, Юозас Будрайтис, Виктор Павлов, Иван Охлобыстин, Сергей Габриэлян, Сергей Арцибашев, Роман Качанов, Петр Коршунков, Дмитрий НеживойПродолжительность: 1:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C57E1A85287DFA8413B37C8EB33A555AF458A44
 ```
 
 

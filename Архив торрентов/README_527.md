@@ -6,7 +6,7 @@ Google Earth Pro 7.3.6.9796 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115766.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reg Organizer 9.40 (24.02.2024) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115770.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Video Converter X2 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115801.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Text Workflow 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115819.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ TG Pro (Temperature Gauge Pro) 2.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115829.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ StaxRip 2.36.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115841.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115847.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Emurasoft EmEditor Professional 23.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115853.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Wondershare PDFelement Pro OCR 10.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115863.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FireAlpaca 2.11.17 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115864.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115886.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TreeSize Professional 9.1.2.1873 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115888.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ OneCommander Pro 3.69.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115889.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ KiCad 7.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115890.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ RedNotebook 2.32 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115897.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kid3 3.9.5 Audio Tagger Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115899.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Tablacus Explorer 24.2.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115915.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Google Earth Pro 7.3.6.9796 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115926.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Hiren’s BootCD PE x64 v1.0.6 (22 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115929.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ ZBrush 2024.0.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115953.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CrystalDiskMark 8.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115958.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ CloudMounter 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115982.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115983.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115994.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Emurasoft EmEditor Professional 23.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116004.jpg" />
 </div>
 
 

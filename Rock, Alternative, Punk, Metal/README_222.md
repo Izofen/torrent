@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140138.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scorpions - Gentle Power (Best Of The Ballads) (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140166.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Camel - Moonmadness (1976) Remastered & Expanded Edition, 2023, UMC-Decca [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140225.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yes - Richfield Coliseum 1978 (live) (1978) 2023 The Media Champ [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140254.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Best of 2021: Rock [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nonpoint - Heartless (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140283.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lee Aaron - Metal Queen (1985) [WavPack|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140333.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Kraan - Zoup (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Kra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140371.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Emerald Rage - Valkyrie (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140465.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140527.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140531.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140554.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Dare - 8 Albums (1988 - 2016) 8CD [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140567.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:7713C7796F193170AA8BB469FE187BDDF79E7071
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140590.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Battlemaster - Greedgripped & Spellspoilt (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140612.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Van Morrison - 6 Albums (1978 - 1995) [FLAC|Lossless|tracks + .cue]<Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140675.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Midnight - Sweet Death and Ecstasy (2017) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140700.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ A Sound Of Thunder - Who Do You Think We Are (2016) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140715.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Lindi Ortega (Линди Ортега) - Faded Gloryville (2015) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140796.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Lindi Ortega (Линди Ортега) - Tin Star (2013) Last Gang Records, Q2 0
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140816.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bardo Pond - Volume 8 (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140829.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Bad Montana - Crazy Game (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140873.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Lyzzard - Savage (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140899.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140921.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140927.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140928.jpg" />
 </div>
 
 

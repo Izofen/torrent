@@ -1,3 +1,84 @@
+###  Публикация: 593935   (134120) от 25.12.2012
+
+Magnum - On The 13th Day (2012) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Dreamers
+02. Blood Red Laughter
+03. Didn't Like You Anyway
+04. On The 13th Day
+05. So Let It Rain
+06. Dance Of The Black Tattoo
+07. Shadow Town
+08. Putting Things In Place
+09. Broken Promises
+10. See How They Fall(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680477   (134121) от 29.11.2023
+
+Люди Икс: Начало. Росомаха / X-Men Origins: Wolverine (2009) WEB-DLRip [H.265/1080p-LQ] [10-bit] [Open Matte] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о неистовом и романтичном прошлом Росомахи, его сложных отношениях с Виктором Кридом и о зловещей программе Оружие Х. При этом Росомаха встречается со многими мутантами, уже знакомыми и новыми, и узнает несколько легенд о мире Людей Икс.Производство: США, Великобритания / 20th Century Fox Film Corporation, Dune Entertainment, Marvel EnterprisesЖанр: фантастика, боевик, приключенияРежиссер: Гэвин ХудАктеры: Хью Джекман, Лив Шрайбер, Дэнни Хьюстон, Уилл Ай Эм, Линн Коллинс, Кевин Дюран, Доминик Монахэн, Тейлор Китч, Дэниэл Хэнни, Райан Рейнольдс, Тим Пакок, Джулия Блейк, Макс Каллен, Аарон Джеффри, Майкл-Джеймс Олсен, Питер О’Брайэн, Трой Сиван, Элис Паркинсон, Филип А. Паттерсон, Стефен АндертонПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E934731EE1218DE508937537AAA67ADF1F0CBE92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680275   (134122) от 29.11.2023
+
+Крутые стволы / Mean Guns (1997) BDRip [H.264/1080p] [Director's Cut] [hand made]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боссы преступного Синдиката Нью-Йорка решили одним ударом избавиться от всех, кто так или иначе насолил организации. Устроить все это поручили одному из лучших стрелков — Муну. Тот собрал всех приговоренных отморозков в только что отстроенной тюрьме, бросил им кучу «стволов», и понеслась! Батл-рояль за десять миллионов долларов (приз трем лучшим, которые и уйдут (   Читать дальше...   )Производство: США / FilmwerksЖанр: боевик, триллер, криминалРежиссер: Альберт ПьюнАктеры: Кристофер Ламберт, Айс-Ти, Майкл Халсли, Дебора Ван Валкенберг, Тина Коте, Юдзи Окумото, Том Мэтьюз, Кимберли Уоррен, Хантер Дугти, Джерри РекторПеревод: двуголосый, многоголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F96DAE2A99D8E58721B79911A3276A16F7DBDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594042   (134124) от 25.12.2012
 
 Работы художников - Творчество Короленкова Вячеслава
@@ -6,7 +87,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134124.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Elmedia Player Pro 8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134125.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ magnet:?xt=urn:btih:F2860492D149DAAF7D26CD507056BF0236A58BF6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134126.jpg" />
 </div>
 
 
@@ -79,7 +160,7 @@ magnet:?xt=urn:btih:475F52CEB475AF6A36BF0F57B64953687C5401B4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134127.jpg" />
 </div>
 
 
@@ -103,7 +184,7 @@ magnet:?xt=urn:btih:C0F5BD5D2EFF0A6708DE8FE5CDD7EAC82BE9EEFC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134128.jpg" />
 </div>
 
 
@@ -127,7 +208,7 @@ magnet:?xt=urn:btih:072B3A2F322893F9710B62B88E396E9FB008294B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134129.jpg" />
 </div>
 
 
@@ -151,7 +232,7 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134131.jpg" />
 </div>
 
 
@@ -175,7 +256,7 @@ V Recorder - Запись видео с экрана 7.1.1 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134133.jpg" />
 </div>
 
 
@@ -199,7 +280,7 @@ magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134134.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ magnet:?xt=urn:btih:C1EEDDFF13C54CC53C28DFFE2F6DE68E4EFA1611
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134135.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ magnet:?xt=urn:btih:A2793228732C12D2DAE16F7027B7EF658AD5A7B4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134137.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134139.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ magnet:?xt=urn:btih:B98F1932B01FC427C3B346D833859F1F381CF7F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134140.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ Google Chrome 119.0.6045.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134141.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ magnet:?xt=urn:btih:BD5BB26A755808828417A522953578CC05011278
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134142.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ magnet:?xt=urn:btih:9668E856F806FDB334B20ACAC4BDD6D18C71E90D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134143.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134144.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:5FC1FEFCED6F6478473064CAC00AFC7914AE33AE
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134145.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ Altair HW FEKO 2023.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134146.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ magnet:?xt=urn:btih:7058ECB370709D7730231AD4620813ACF936808B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134147.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ FlashFXP 4.2.5 Build 1813 Stable + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134148.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ FlashFXP - FTP-клиент, поддерживающий любые типы с
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134151.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Chamras Saewataporn - Mother Care Fairly Child (2004) [MP3|320 кб/с]<New age,
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134152.jpg" />
 </div>
 
 
@@ -560,78 +641,6 @@ Chamras Saewataporn - Mother Care Fairly Child (2004) [MP3|320 кб/с]<New age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34716414E2B45A3516C8D5D2E06941D4D3DE8C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680471   (134153) от 29.11.2023
-
-TikTok 32.2.4 Mod by Dmitry Nechiporenko [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134153.jpg" />
-</div>
-
-
-###  Подробнее
-
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, различные эффекты, шрифты, эмодзи, фильтры (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.11.2023Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D77EE82A54C7522AD12B84063E1DD53E38EA23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594310   (134154) от 25.12.2012
-
-В.Д.Никонов, А.В.Протасов | Бронированные колесные машины 1914-1980 гг. Справочник [2007] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134154.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике содержатся сведения о конструкциях бронированных колесных машин России и СССР с самого их зарождения до середины 80-х годов прошлого века.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3921D9435789D01189E1F7590DF62830223760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680556   (134155) от 29.11.2023
-
-izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой телефон в персонального гида и станьте настоящим путешественником. Откройте для себя новые города, живописные маршруты, необычные музеи и колоритные достопримечательности. Аудиогид поможет вам лучше проникнуться местной атмосферой. Поделитесь с друзьями своими впечатлениями о путешествиях и расскажите им свои истории. Превратите свою поездку в настоящее (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 20.08.2023Разработчик: Informap Technology CenterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
 ```
 
 

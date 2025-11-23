@@ -1,3 +1,75 @@
+###  Публикация: 1682021   (132045) от 05.12.2023
+
+Master PDF Editor 5.9.80 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A17CC17951D3E1650EACDC71EBFB5A2A9911AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682067   (132047) от 05.12.2023
+
+Край надломленной луны (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четырнадцатилетняя Соня неожиданно узнает, что мать много лет врала ей о смерти отца, а ему запретила общаться с дочерьми. Не в силах простить такое предательство, она сбегает из дома. Мать и старшая сестра Саша находят Соню на их старой даче, куда уже много лет никто не приезжал. Три женщины вынуждены наконец-то проговорить все проблемы, обиды и страхи, которые (   Читать дальше...   )Производство: Россия / Инвада фильмЖанр: драмаРежиссер: Светлана СамошинаАктеры: Маша Лобанова, Виктория Толстоганова, Анна Шепелева, Артём Быстров, Ростислав Бершауэр, Эра Зиганшина, Надежда Лумпова, Илья Дель, Савелий Кудряшов, Егор МорозовСубтитры: ОтсутствуютПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D35F8269FD7A82D118B1428404A24F0C785C3C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595729   (132048) от 29.12.2012
+
+Журнал | Lingerie insight №1 [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132048.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Lingerie Insight" - ваш путеводитель по рынку нижнего белья и купальников промышленности Великобритании. Этот ежемесячный журнал и веб-сайт отражает последние тенденции этого рынка; является экспертом для продавцов розничной торговли, оптовиков и дизайнеров; предоставляет достоверные факты и цифры о состоянии промышленности нижнего белья.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC593AF2F0359B22335384784CF930DD29C4989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681992   (132049) от 05.12.2023
 
 Венера Хабирова | Подбери себе гОречи (2022) WEB-DL [AD] [RU]
@@ -6,7 +78,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132049.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Soul Browser 1.3.89 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132051.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:CF50F76A41C271D1DEA88AE37A0836CCC4F3E404
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132053.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Revival 69: Возвращение легенды / Revival69: The Concert That 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132057.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ RegCool 1.348 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132059.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132060.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132061.jpg" />
 </div>
 
 
@@ -216,7 +288,7 @@ Cee Cee James - 3 Альбома (2008 - 2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132062.jpg" />
 </div>
 
 
@@ -244,7 +316,7 @@ Cee Cee James - 3 Альбома (2008 - 2012) [MP3|320 кб/с]<Blues>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132063.jpg" />
 </div>
 
 
@@ -269,7 +341,7 @@ magnet:?xt=urn:btih:2766137BFE4AB58A15823C56BD5F066770F0F464
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132064.jpg" />
 </div>
 
 
@@ -293,7 +365,7 @@ magnet:?xt=urn:btih:24CBEFD4A6A732AB8DAC3317AEBDEF3A57B13ED7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132065.jpg" />
 </div>
 
 
@@ -317,7 +389,7 @@ magnet:?xt=urn:btih:C390E6B2219B0FB2C2CDD8865BCB9C29C6A55986
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132066.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ Soul Browser 1.3.89 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132067.jpg" />
 </div>
 
 
@@ -365,7 +437,7 @@ Dropbox 1.6.11 Stable [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132068.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ Dropbox - программа для работы с облачным храни�
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132069.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132071.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132073.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132075.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:CDB65532906CD0E7A524FE9829FC24E64AC32213
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132076.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:F26C98FE704FE20F0759C02C476462528E1CB689
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132077.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:43E082F0BF518DC3F8349E344470FBF0E79DB3D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132079.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132081.jpg" />
 </div>
 
 
@@ -583,81 +655,6 @@ VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843732EE74E799F2A159E54FB09A456D4AA626EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595811   (132082) от 29.12.2012
-
-Рисованная графика - Artworks by Jean-Sebastien Rossbach
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jean-Sebastien Rossbach — французский художник, предпочитает стили фэнтези и мистику. Профессионал очень высокого уровня, создавал книжные иллюстрации, обложки для книг и музыкальных альбомов, концепт-арт, несколько лет проработал главным дизайнером в игровой индустрии, и наверное главной его работой на данный момент является художественный альманах (артбук) «Мерлин».
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCC600E525EE88F5F17464753FA5F148E27BFFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682033   (132083) от 05.12.2023
-
-Александр Беляев | Изобретения профессора Вагнера. Ковер-самолет (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132083.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В рассказе ведется речь сразу о трех изобретениях профессора Вагнера и о его первом знакомстве с рассказчиком." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0049207C03890AE9098B5CF4D92A561689335FC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681644   (132085) от 05.12.2023
-
-VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wanrooy) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Sarah De Warren - Light On (Mixed) [6:29]
-02. Markus Schulz - Summer Of ‘99 (Mixed) [3:35]
-03. Matt Fax - Beyond Belief (Mixed) [4:51]
-04. KhoMha - Ancient Voices (Mixed) [2:55](   Читать дальше...   )Жанр: TranceПродолжительность: 07:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D45ADC5B39039775391CADB4DE21B16AC3C7C6
 ```
 
 

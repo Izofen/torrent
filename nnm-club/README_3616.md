@@ -1,3 +1,76 @@
+###  Публикация: 1706132   (113698) от 11.03.2024
+
+BetterMouse for Mac 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113698.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8B863AD15FD583BD310905547D54C2C53919FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706114   (113699) от 11.03.2024
+
+WiFiSpoof 3.9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113699.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 09.03.2023Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58647B9F7D53A08D4050986A661DA76BF28D2A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706094   (113700) от 11.03.2024
+
+Хоккей. НХЛ 2023-2024. Эдмонтон Ойлерз - Питтсбург Пингвинз (10.03.2024) WEB-DL [H.264/720p-LQ] [hand made 30fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113700.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 марта 2024, воскресенье. 20:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 753 зрителя (95% при вместимости 18 673)
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Эндрю Смит (Китченер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579EC7039717220795B76DF4F05AE19C50451F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706091   (113701) от 11.03.2024
 
 Downie 4 v.4.7.5 [Multi/Ru]
@@ -6,7 +79,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113701.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ Cardhop 2.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113702.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Cookie 7.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113703.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ DaisyDisk 4.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113704.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113705.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ Cocktail Sonoma Edition  17.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113706.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113707.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ PDF Squeezer 4 v.4.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113708.jpg" />
 </div>
 
 
@@ -210,7 +283,7 @@ Folder-Factory 7.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113709.jpg" />
 </div>
 
 
@@ -237,7 +310,7 @@ OmniFocus Pro 3.15.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113710.jpg" />
 </div>
 
 
@@ -262,7 +335,7 @@ El Jadida Milano - Symphony Flavours Lounge (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113711.jpg" />
 </div>
 
 
@@ -289,7 +362,7 @@ magnet:?xt=urn:btih:B1206EC32EE35E566DA176A05DA9022DF4B871DF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113712.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ Airport Passengers - Hangar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113713.jpg" />
 </div>
 
 
@@ -341,7 +414,7 @@ magnet:?xt=urn:btih:0534FFD781004837D02299ED961DBF7A627902C2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113714.jpg" />
 </div>
 
 
@@ -365,7 +438,7 @@ Soulver 3 v.3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113715.jpg" />
 </div>
 
 
@@ -390,7 +463,7 @@ Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113716.jpg" />
 </div>
 
 
@@ -417,7 +490,7 @@ DB-Text 1.12.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113717.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ TG Pro (Temperature Gauge Pro) 2.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113718.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Daes - D1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113719.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ QuickLinks 3.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113720.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ Bookends 15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113721.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113722.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ Rocket Typist Pro 3.0.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113723.jpg" />
 </div>
 
 
@@ -585,79 +658,6 @@ Rocket Typist Pro 3.0.9 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB902DB30CFAB9B7DBA506E7765A30E8AEF9EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706109   (113724) от 11.03.2024
-
-Video Converter X2 for Mac 1.3.1 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
-Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8816BE0E33C587827DBF9113B9B3FDD1F3C718DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705995   (113725) от 11.03.2024
-
-Анатолий Акимов | Облик физики в 21 веке (2014) [MP3, BIGBAG]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра представляет собой изложение с дополнениями и комментариями выступления академика РАЕН, директора Международного института теоретической и прикладной физики РАЕН Анатолия Евгеньевича Акимова на научно-педагогической конференции "Идеи учения Живой Этики и Тайной Доктрины в современной науке и практической педагогике" (Екатеринбург, 08.08.97 (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 03:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58402EAE3DBF27CF1EECAD0B0FD8FA671EDA0D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706130   (113726) от 11.03.2024
-
-Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113726.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB6A6191220820BC2D520E9714F9910D9136CAB
 ```
 
 

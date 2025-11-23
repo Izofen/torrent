@@ -6,7 +6,7 @@ VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89818.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, во
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89820.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89889.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90010.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90016.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90469.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C946968E1A7BCA6594087F635C5C2685D2BF1470
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98543.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:DBB5F319C699A8A84F7E05A9BEAEC12F01451056
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100653.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100697.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:2529EE26B0CE425EDEE54F7032F80CA2BB32101B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100959.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:8C99A6BAE8A78C82CBA3D9232ECA2D300138074B
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101104.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101160.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:9B04CE813BA9ABA4A2B12BFD37D343B70D9B57B4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101170.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101173.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:CF4FF085D5FA76F03114D177821D4137620E8E08
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101231.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:1CD6DACE33CFD0D769A1C45EC136C501C73AFAC0
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F7B10F399BD840A2BF171DB1DBB32E5FBB46DB90
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101430.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:1035C47F7A68C580189025E5B98062D7CD7990DE
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101488.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101778.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101835.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Vive La Chanson BoxSet 10CD (2006) [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101857.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Vive La Chanson BoxSet 10CD (2006) [FLAC|Lossless]<Chanson>
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102407.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:874101BC0600A1F3658132538B85FC65AE6CCC38
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102439.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102439.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102468.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102468.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102469.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ magnet:?xt=urn:btih:22019034E4B3A8367BCBDEAE413011DF8C4A9DC6
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102499.jpg" />
 </div>
 
 

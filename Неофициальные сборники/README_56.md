@@ -6,7 +6,7 @@ VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100193.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100227.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Pop Dance Coctail (2011) [MP3|128-256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100296.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Sense Of Trance #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100392.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Хиты на радио клубнячек и попса vol.10 (2012) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100433.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - На Вершине Музыкальных Чартов 4 (2012) [MP3|256 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100442.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Весенняя Атмосфера Танцевальная (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100462.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100470.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100481.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100483.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100504.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100506.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100515.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100583.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Compilation part 136 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100588.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Compilation part 135 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100599.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100619.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100624.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100635.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100645.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ RetroX - Favorites Collection - Favorites Collection (2025) [MP3|320 Kbps] <Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100721.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Romantic Dreams - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100727.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Musical kaleidoscope part 55 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100891.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Musical kaleidoscope part 56 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100892.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Sardø - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100893.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100901.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E77705504CA50F9EFCE1A626F7B429FC217E955
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15295.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17461.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E82F5FDA23DE26FAC412814DF5169FBB52061A39
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18854.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:76D7996C4A0499358CF309D61E7144209974BEE1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18980.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C1D307011613D2AC0E796E92D8494E97C19CFD20
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20432.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Williams Asiedu | Mastering Python (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20512.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:01061A4C6F339E78548037FCBE292BF620936628
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20545.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20545.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:473EB23F839FD36B7E151F25EE212F55DF15AACD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20870.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9866325E911B8F124A5CAB34408EB07ADF7A4534
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20989.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:88264BF421A3EF0BE09E34698A2D24AB4B9A7BCC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21173.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21173.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:07AFC2BAA5BF69631C350720FB610D529DB4AC32
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21175.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21175.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B023314DAA8C3D64254E11D74979FFD18E8C6F95
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21370.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21370.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:28A6A9B6325890A070E2B34587520392EA151E3C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21376.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C5F172809CCC1A5E801389F0C655195460B33145
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21379.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1D6A048083FCB65B4CD60A459AC183A80B668BDE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21383.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Cuantum Technologies | Алгоритмы и структуры данных н�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21477.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:3B1D9175DF48FFD4064813A5B59B631B4D34B880
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21692.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:34A810B76319616DFF0981B9C130AC524C8744CA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22849.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:7A3088273122F0D7999FCC78FFEDD2F01DB7DAA0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23286.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C53E71F7BB1A0CE33E263E99964943D82A4061A1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24849.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C4FDA063C5A8C7E6658E2E6E8AFAEAE7305A1567
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25159.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25159.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3DDA9FC28EFADE60DBA450B24AC2D3C4976EB6A4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26187.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26187.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:67F9B5A99B648E3602AFC75441840C015F770CF1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26234.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:636B7DBAC51409359018406FE23CDA625A269806
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26839.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26839.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:AA11D0E825BFF197C275A59F1516D00E40BC8C2C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27115.jpg" />
 </div>
 
 

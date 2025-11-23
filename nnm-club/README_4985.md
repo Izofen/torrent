@@ -1,3 +1,177 @@
+###  Публикация: 1600892   (154395) от 29.12.2022
+
+Incinerate - Back to Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to Reality 03:48
+02. Human Demise Ritual 04:19
+03. Internal Distress 03:32
+04. Reprisal 03:27(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27790BAFF4A6CB5E0A473834D6543A73C8036E7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433788   (154396) от 22.12.2020
+
+McAfee Endpoint Security for Mac 10.7.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защитите себя и всю вашу семью от новейших программ-вымогателей, шпионских и вредоносных программ, обеспечивая безопасность вашей конфиденциальности и личных данных.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: McAfee, IncorporatedПоддерживаемая ОС: macOS 10.15.6+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D656F261E48BFD39D0FD3F62638F64FF2F81B0BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194617   (154397) от 26.12.2017
+
+Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Up and Down [04:12]
+02. Strollin' [07:24]
+03. Groovin' High [05:43]
+04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676829   (154398) от 15.11.2023
+
+Маркизские острова. Дикая природа земли мужчин / The Marquesas Islands Wild Geography Of The Land Of Men (2018) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маркизские острова площадью 1049 км² являются крупнейшим архипелагом Французской Полинезии, открытым испанскими мореплавателями на пути в Манилу. Французская Полинезия - само по себе место отдаленное. Его жемчужиной считается остров Таити, там вечное лето. Из-за расположения (почти самый центр Тихого океана) полеты в Полинезию крайне затратны. Именно поэтому (   Читать дальше...   )Производство: EU, TEN, The ExplorersЖанр: документальный, познавательный, путешествияРежиссер: Ив МайлларПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5959A1867F916E450592DC8FCCC4A8C8BEBB4CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270890   (154399) от 21.12.2018
+
+Обои - Wallpapers Кошачьи #39 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835C516289D7027F6863BBB99A1D65B139E47B9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347111   (154400) от 22.12.2019
+
+TCH - Sinflower (1997) Iridium [FLAC|Lossless|tracks+.cue] <Experimental, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dog EmbassyЖанр: Experimental, IDM, AmbientПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6CFBA952F6D36690A3B8DDEF8944E04CF4569C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085927   (154401) от 23.12.2016
+
+Врач  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда.Производство: РоссияЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A4175BABC8AD69E8567C78333886BE8B018F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601039   (154402) от 29.12.2022
 
 Deliver Express 2.7.6 [En]
@@ -6,7 +180,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154402.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ Stats 2.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154403.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:E78BDF36B5EC70D6B2208F0225D5D59F0EB2BA61
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154404.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:AE96C7F87F87CE96A6BC180A551C68B3156A6EDD
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154405.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:6A8D586E654B04B8D124BF6EF4C9E84A34C72B74
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154406.jpg" />
 </div>
 
 
@@ -127,7 +301,7 @@ IObit Uninstaller Pro 13.2.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154407.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154408.jpg" />
 </div>
 
 
@@ -178,7 +352,7 @@ Type Fu 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154409.jpg" />
 </div>
 
 
@@ -202,7 +376,7 @@ UctoX 2 v2.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154410.jpg" />
 </div>
 
 
@@ -228,7 +402,7 @@ Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154411.jpg" />
 </div>
 
 
@@ -255,7 +429,7 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154412.jpg" />
 </div>
 
 
@@ -282,7 +456,7 @@ Wondershare PDFelement with OCR 5.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154413.jpg" />
 </div>
 
 
@@ -306,7 +480,7 @@ Kdenlive 20.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154414.jpg" />
 </div>
 
 
@@ -330,7 +504,7 @@ Microsoft .NET 7.0.14 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154415.jpg" />
 </div>
 
 
@@ -355,7 +529,7 @@ magnet:?xt=urn:btih:AD61FD47FF87D7F4BCBAFF419C5273DFA49EC281
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154416.jpg" />
 </div>
 
 
@@ -379,7 +553,7 @@ VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154417.jpg" />
 </div>
 
 
@@ -406,7 +580,7 @@ magnet:?xt=urn:btih:941D365FFDB5FB2762F8053703F283AEB8A754F9
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154418.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ magnet:?xt=urn:btih:027B3283650026C00E2470ADD50484129614C225
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154419.jpg" />
 </div>
 
 
@@ -456,7 +630,7 @@ magnet:?xt=urn:btih:755A1F470D7E942463035B7B5DF6D6BE155BFB98
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154420.jpg" />
 </div>
 
 
@@ -470,181 +644,6 @@ magnet:?xt=urn:btih:755A1F470D7E942463035B7B5DF6D6BE155BFB98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC789DEF8A705CF43B584DD12DF0EE5A1DD358A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676750   (154421) от 15.11.2023
-
-MailWasher Pro 7.12.188 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154421.jpg" />
-</div>
-
-
-###  Подробнее
-
-MailWasher Pro позволяет пользователям просматривать письма, находящиеся на различных почтовых аккаунтах, перед тем, как скачать их себе на компьютер. Благодаря MailWasher Pro вы сможете удалить или вернуть ненужные письма обратно отправителю с сообщением о том, что адресат неизвестен.
-MailWasher Pro включает антивирусную защиту, обеспечивает доступ по POP3, IMAP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBC235E9BDE7EC5C49257FFACAB6B65BBB2B929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347338   (154422) от 22.12.2019
-
-GroupsPro 4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
-GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2019Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0767F4B6FEA35EECF546C26BAF9BD36F78839A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947925   (154423) от 28.12.2022
-
-Меркулов Алексей | Использование AutoCAD на 100% 2.0 (2015) PCRec [H.264/720p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео курс по практическому применению AutoCAD в любой области. 80% специалистов, даже работающих в AutoCAD несколько лет, не догадываются о том, что можно легко оптимизировать и ускорить свою работу с помощью программы.
-
-Поэтому мы создали видео обучение, которое поможет справиться с задачами современного проектирования в AutoCAD.
-(   Читать дальше...   )Жанр: AutoCADПродолжительность: 19:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127E2C155762EA2A26EF81325E7AD3F0258861BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434021   (154424) от 22.12.2020
-
-Cent Browser 4.3.9.238 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8946B1F2E9B3AB39FE234D2734724D7CD5D2E900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086154   (154425) от 23.12.2016
-
-Пресс-конференция Президента России В. В. Путина (23.12.2016) TVRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин провел 23 декабря 2016 ежегодную Большую пресс-конференцию для российских и зарубежных журналистов. Такого количества представителей СМИ еще не было: почти полторы тысячи человек. Кроме того, впервые в истории пресс конференцию перенесли на один день.Телекомпания: Россия 24Жанр: ДокументальныйПродолжительность: 03:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE4B70B33B51434C800C0D970F82079952B8CA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676785   (154426) от 15.11.2023
-
-Topaz Photo AI 2.1.1 (x64) + All Models Portable by FC Portables [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0E55A1416D03C71C66E113CA33DCB57931BC90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967126   (154427) от 28.12.2022
-
-Сборник инструментов Photoshop - DAZ3D - Ron's Deviney [ASL, ABR, PSD, PNG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ron's Circle Designs предлагает вам различные варианты геометрических рисунков кругов, которые содержат 100 кистей Photoshop с высоким разрешением.
-Уникальные дизайны варьируются от рунных, астрологических, алхимических, киборгских, хэллоуинских, сакральной геометрии, племенных и мистических.
-Вы также найдете пентаграммы, элегантные и простые рисунки и многое другое..Формат: ABRРазрешение файлов: 5500x7200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1C0BA7813A9E031F8A0DD3AC04172A6B3B7E02
 ```
 
 

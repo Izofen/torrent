@@ -6,7 +6,7 @@
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13779.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2BDD8766AE20E46D3F54C53C93108E49C53E3300
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13780.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13781.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13782.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13783.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13784.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Самые лучшие хиты 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13785.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Maxim School, Максим Куксов | Контргамбит Альбина 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13786.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ ExamDiff Pro 16.0.1.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13787.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.4 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13788.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:0F5B13980B13E3393F057D066C916FA1E989CA40
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13789.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13790.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Exiland Backup Professional 6.9 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13791.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:635FD8C8CB60791FA28D9D3586C7E747DEE406C1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13792.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:6CDB3CF168AB40EF3FB2E64A160952F41EC92256
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13793.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:EDFABC1BDB90174EA458CE95AE54282886552AC6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13794.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:862457FFAD2264CFE52892127B8C69C905554F8F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13795.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13796.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13797.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13798.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13799.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:5D14C2BE295BB45DA107310FD6FE648BC7870773
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13800.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:13B915A95F59C761AC413FAF7F3F013718F39CA7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13801.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:40FDBD21B8DBCBBEA19C98B8D6B74709A96BBC2E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13802.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:D85275EEDB3A3D93FC31C50CE44F292173889613
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13803.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Calibre 8.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13804.jpg" />
 </div>
 
 

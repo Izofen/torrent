@@ -6,7 +6,7 @@ LibreOffice 25.2.4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE12E82DB5E9323693890ED027023B46AA6B0109
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4C933DE2C383887FFC58FDD9A431F38C02B40526
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12255.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MD5 Checksum Tool 4.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12256.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:402AD1CA65750CE4409594FE29731F6438C1F9B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12257.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5EFFC7A063BA00A53257130FF64F91E6E9D1BEBF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12258.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TapScanner v3.0.75 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12259.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8B5CDBF6574D3114FC2203D9C2DFF88D06904A1D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12260.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:31F433279BD6D6F3F9607CAF09D0B32DFCFC114B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12261.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ PrivaZer Pro 4.0.108 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12262.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:9FFA8E2B6CF96330B933A38AE44532366AF34BBC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12263.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:AFBC87D673CBFE50FF4F681BAF3916E4F314CA01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12264.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:09484BAA113D0889E9AE98D7C7C24EA1C9923503
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12265.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MediaHuman Audio Converter 2.2.5 (0701) RePack (& Portable) by elchupacabra [Mul
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12266.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12267.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:0AE4B2AB80D831ADF51E63209308C8DEB223EA36
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12268.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Hydra Launcher 3.6.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12269.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E637718FF8DC8A71A81A4AABFFF37EBD64E18F51
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12270.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:AB407BEEA18D9ED213F95D655C2DAD73CB9A9D2F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12271.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:ED8E5090E12F9AF71B693B6F5EE77A232420DFFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12272.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:034890D9DF6BBD65D11996D57D165D4B2CA5C4BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12273.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:2C3ECA1530F19F5787E0484462A9DDCA8B0002A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12274.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Lacey 3.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12275.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C1483073214C7667EBB772BCD4FE0068909ED1FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12276.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Wondershare UniConverter 16.5.6.303 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12277.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:1206E22B7C6AB3C6A7923EC0812EFDC562096143
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12278.jpg" />
 </div>
 
 

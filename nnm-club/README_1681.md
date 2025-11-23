@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44061.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44062.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beyond Hanwell (2024) [En] (0.4.4) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44063.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A15DBB94EE0E1986DF136592B8734DBE138BCCF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44064.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:31C5521E424734517A979AC99428D6EC93D755F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44065.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6FAA78A77E4C9CF17F48BAE99C93A603D591C053
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44066.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:97C9EF061E85EA81EF6EE904D26E584EA419824A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44067.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B135E91EC3EBBDA12FF42BB89001585610814987
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44068.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44069.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ u-he - Diva 1.4.8 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44070.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:55AFD20653A3DB3B73FBC0877C99A5A99317D80B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44071.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:EFDAEB7DC616C5A2FFFC70B7EC3987776E03F084
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44072.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:09B189EB15A7EC387508E65919D7AAF6D3FB43E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44073.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Ibiza Autumn 2024 (Deep-House Smoothies From The Heart) (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44074.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7EA12683901FF893AF3065E0204500B2DC496174
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44075.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:106DA01BBA9CC4934EC60119CAFDBF57411C0DFD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44076.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:82F563FEB1D06BD22DEB44AA9BECEC4EADB184AA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44077.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ u-he - Hive 2.1.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44078.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4252F2ECD74373FEA92E502445275907CD4E4594
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44079.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Kontor Top of the Clubs Vol. 100 (4LP) (2024) [MP3|320 Kbps] <Electronic, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44080.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:1E6077D600574EEE2F5325AA7FEA5E63532654BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44081.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ FanControl V201 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44082.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Ultravox - Lament (1984) Deluxe Edition, 2024, Chrysalis Records [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44083.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Sandboxie plus 1.14.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44084.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:95B6CF42AE3BC4F93282A2548B864292134FB5EE
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44085.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:7688992DD5CA27F44925A5CC138BAA2503D8579E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44086.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138418.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A71154981C00D77112AB627C4E1841F844B95ED7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138438.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FCD86D0F8085CFC8CD50F107180AB62E45D53301
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138471.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9DFEB4993E4498C3711A74D08F2B06A0F45710CA
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138475.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A04E47E3D5C902880C575FEECD64E4E2496B30F1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138476.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ummy Video Downloader 1.5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138483.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ummy Video Downloader 1.8.3.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138488.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A8BE51E53A95BE8341EF3BAC5AA27EF58579DED9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138495.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CheckBook Pro 2.7.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138500.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Aiseesoft DVD Creator 5.2.38 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138502.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Multitouch 1.27.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138506.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VSO ConvertXtoDVD 6.0.0.12 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138536.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Movavi Photo Editor 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138538.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Advanced Renamer 3.87 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138544.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AnyToISO Pro 3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138546.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ummy Video Downloader 1.5.0.5 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138548.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NCH ClickCharts Diagram Pro 8.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138551.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Display Driver Uninstaller 15.7.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138555.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138558.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ EagleGet 2.0.4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138566.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Doppler for Mac 2.1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138572.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Any DVD Converter Professional 5.8.7 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138578.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VSO DVD Converter Ultimate 3.6.0.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138602.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6284D678DE3195FAC23672F957DE86B3180CAE24
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138608.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Bandicam 1.8.5.301 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138616.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Arturia - FX Collection 2020.12 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138618.jpg" />
 </div>
 
 

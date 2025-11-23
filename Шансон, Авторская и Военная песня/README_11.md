@@ -6,7 +6,7 @@ VA - Русский шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Шансон о любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69289.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E014A44CC8E123E0B34BA21D3283143D2DD12FE5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69335.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iSenin (Целыбеев Антон) - 6 Albums (2024-2025) [MP3|320 Kbps] <Chan
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69373.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Шансон для мужчин (2025) [FLAC|Lossless|WEB-DL|tracks] <Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69704.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69726.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69896.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:3FF4015D141BDE0DD5F95DE3639218C60CBC8CAB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69907.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FC29C51428AB5049EED21AB75AAF8490EF7F11C6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69915.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:36137EF2697EAB3B72E7319470138FB7183ADBFC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69919.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B98F75B8F8F0CFE8E158908CAE28381B4160B94D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69925.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ iSenin - Исповедь (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69931.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8760C1E0D01E8A85EFE1C2B73401BBF5E1555EC2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69934.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:CCECDCDECB289D6F28469FDD94058F73E4151258
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69937.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:80CD153C2C60D20312480E5D2F85853492985B7E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69957.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:71DC41E29C7D072B6B3D8B197D3F1E45C818CAA5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70395.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Шансон премьера 2025 февраль (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70472.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:BD888900000E9FCEB9392D7EE0C376D4129970E5
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70772.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0D69C77529219F90724C7259A43F7FF39E8B2BDF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70778.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:EA00EBEA86AF4B0D7BC8A560C412C670B32E02E0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70780.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:191D1912C8F1F971564F2D24D61D9480466C919C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70781.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:26D6AA8A0942CB074AFC4F3F492BC46507F24DDB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70788.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FC33E4FCEB4B46D157704AFE6FA58BEA6653E6E8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70831.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:C1462D60A7250969728DC70EF93D5CC7D9B3302D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71159.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A01DE2970BDE35A8B1B78F5D38B90B7E5FDFAF9A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71176.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:0CE2DCF3CC6E70530B77992A45CF79B918D34CB0
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71209.jpg" />
 </div>
 
 

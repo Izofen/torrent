@@ -6,7 +6,7 @@ Thomas Anders & Florian Silbereisen - Nochmal! (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33548.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Игорь Крутой - 70 (трибьют-альбом) (2024) [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34188.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Ed
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34402.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Roxette - ROX RMX (2024) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34432.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Kylie Minogue - Tension II (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34629.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, Remastered
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34682.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35405.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35411.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35434.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35614.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35622.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35630.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35749.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35962.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36155.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36448.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36596.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36859.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37196.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37596.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37776.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - best music all the time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38129.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38798.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39257.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39402.jpg" />
 </div>
 
 

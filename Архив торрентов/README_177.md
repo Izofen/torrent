@@ -6,7 +6,7 @@ Tor Browser Bundle 13.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DxO PhotoLab Elite 8.0.0 build 417 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43094.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ACDSee Photo Studio Ultimate 2025 18.0.0.3929 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43110.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AnyDesk 8.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43112.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IObit Driver Booster Pro 12.0.0.308 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43115.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Abelssoft SSD Fresh Plus 2025 14.0.56618 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43117.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.1 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43157.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ qBittorrent 4.6.7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43198.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Skype 8.128.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43231.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ocenaudio 3.14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43236.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43255.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Plugin Boutique - Scaler 2 v2.9.1 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43259.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ StartAllBack 3.8.8 build 5155 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43273.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows Manager 2.0.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43275.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ K-Lite Codec Pack Update 18.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43279.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Office Installer & Office Installer+ 1.17 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43296.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ qBittorrent 4.6.7 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43306.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ R-Studio Network 9.4 Build 191359 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43307.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r11 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43325.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:9124CCA24C106FA78705FCDE1E59F096A69C1EB5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43336.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mirillis Action! 4.41.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43343.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ TikTok 36.4.4 Mod by Dmitry Nechiporenko + Plugin 1.52 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43360.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Kdenlive 24.08.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43369.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ ToneBoosters Plugin Bundle 1.8.5 VST / VSTi, VST3 / VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43370.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ OCCT 13.1.7 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43371.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ RedNotebook 2.34.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43379.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1753566   (103817) от 05.10.2024
+
+Andy Peake - Pocket Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Good As It Gets (3:20)
+02. The Scuffle (3:45)
+03. Somebody's Gotta Do It (3:37)
+04. One Fine Day (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FC93C98B5A7311E417A0F3C6D24DF478A57C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753564   (103818) от 05.10.2024
+
+Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Supreme (3:44)
+02. Money On 7 (4:08)
+03. Baby Come Back (3:18)
+04. If I Was King (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA5F3A6430CFA6C671A9AB074A6921160CB5C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753563   (103819) от 05.10.2024
+
+Война в доме / The War at Home (1996) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация пьесы Homefront Джеймса Даффа (1984)... В 1972 году молодой ветеран войны во Вьетнаме возвращается в семью, но не может адаптироваться к мирной жизни и находится в состоянии тяжелейшего психологического кризиса. Его девушка ушла к другому, он в отчаянии и не находит взаимопонимания с родителями и сестрой, направляя на них свою озлобленность... Это не обычная (   Читать дальше...   )Производство: США / Motion Picture Corporation of America (MPCA), Touchstone PicturesЖанр: драмаРежиссер: Эмилио ЭстевесАктеры: Эмилио Эстевес, Кэти Бэйтс, Мартин Шин, Кимберли Уильямс, Корин Немек, Энн Хирн, Карла Гуджино, Маркус Х. Нельсон, Майкл Уайзмен, Джена Краус, Чад Морган, Пенелопа Аллен, Джеффри Блэйк, Рене Эстевез, Туан ТрэнПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8C57E8B040DED48BAB87DB7B522570028B5896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662711   (103820) от 05.10.2024
 
 Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Metalcore>
@@ -6,7 +84,7 @@ Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103820.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103821.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:2411D943077448F13CD40107078D764F883A4F1F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103822.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Twisted Sister - Stay Hungry (40th Anniversary Edition)(2CD) (2024) [FLAC 24/96|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103823.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ magnet:?xt=urn:btih:EDAF133704889C47BCF41C6FCAAB0FB96FD0901E
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103824.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ Tablacus Explorer 24.10.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103825.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:E0AB61E377C848BE1B9EA96493631BEBBC123339
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103826.jpg" />
 </div>
 
 
@@ -185,7 +263,7 @@ The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103827.jpg" />
 </div>
 
 
@@ -212,7 +290,7 @@ Mastodon - Crack the Skye (2009) 15th Anniversary Deluxe Edition, 2024, Reprise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103828.jpg" />
 </div>
 
 
@@ -239,7 +317,7 @@ magnet:?xt=urn:btih:26DC2D71511E865B64ABD78CDF4453976CEE3752
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103829.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ Canned Heat - Dog House Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103830.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ magnet:?xt=urn:btih:F9C230B58ED3181DF4CE8B8B3CF70E7CB66442D3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103831.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ Togu Audio Line - TAL-G-Verb 1.2.6 VST, VST 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103832.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ Alison Moyet (Ex. Yazoo) - Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, SynthP
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103833.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ magnet:?xt=urn:btih:BEA5FC833CD16561FD4836A03AD6FDDF7B27FB87
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103834.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ magnet:?xt=urn:btih:F4EC753BFBAA57A6538ACFC1B8F91E488B865A35
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103835.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ magnet:?xt=urn:btih:294C376474EE80D93F881552F34E2FC94DCAB6E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103836.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:E848E7AE9BF14EF45865D601984279D7B2038E0E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103837.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ magnet:?xt=urn:btih:21210B2900D5B1D691C61702B30536219629226A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103838.jpg" />
 </div>
 
 
@@ -499,7 +577,7 @@ magnet:?xt=urn:btih:3D24AAECCB8D1E0AB3434D6297F80E79BC505567
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103839.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ magnet:?xt=urn:btih:DB58C98CA3ED01F3F67F9A61B0EE7B93504915E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103840.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ Army Of Lovers - Massive Luxury Overdose  (1991) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103841.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ magnet:?xt=urn:btih:2F572ED61374D8F86B2A645ADD22BC4E85C88618
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103842.jpg" />
 </div>
 
 
@@ -589,81 +667,6 @@ magnet:?xt=urn:btih:2F572ED61374D8F86B2A645ADD22BC4E85C88618
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6794B4647FB0336CC537D542F0EBD6D5946FBD06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753204   (103843) от 04.10.2024
-
-Exif Pilot 6.25.1 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD770720024F00618D9DBB89DDD6C561308F658
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753200   (103844) от 04.10.2024
-
-Досье «Чёрная канарейка» / Canary Black (2024) TS [H.264/720p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы спасти похищенного террористами мужа, лучший оперативник ЦРУ Эйвери Грейвс вынуждена поставить на карту все: безупречную репутацию, преданность своему делу, да и саму жизнь. Неожиданно став чужой среди своих, она поднимает связи в преступном мире, чтобы раздобыть секретную информацию, которую требуют похитители. Эйвери теперь может положиться только на свои (   Читать дальше...   )Производство: Великобритания, Anton, MP Film Production, MP ProdukcijaЖанр: боевик, драмаРежиссер: Пьер МорельАктеры: Кейт Бекинсейл, Рэй Стивенсон, Руперт Френд, Саффрон Берроуз, Бен Майлз, Майкл Брэндон, Эмма Гойкович, Андрей Ленарт, Арбен Байрактарай, Масаёси ХанэдаПеревод: Дублированный (Мосфильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:37Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753397   (103845) от 04.10.2024
-
-Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolly Dagger (Mix 2) [04:20]
-02. Night Bird Flying (Alternate Version) [03:54]
-03. Freedom (Alternate Version / August 20, 1970) [03:27]
-04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
 ```
 
 

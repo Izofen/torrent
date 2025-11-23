@@ -1,3 +1,102 @@
+###  Публикация: 450146   (92962) от 10.02.2012
+
+The Magnificent - The Magnificent (2011) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On To Your Love - 5:24
+02. Cheated By Love - 5:31
+03. Memories - 4:56
+04. Angel - 5:05
+05. Satin & Lace - 4:07
+06. Love's On The Line - 4:47
+07. Bullets - 4:48
+08. Smoke & Fire - 4:45
+09. Tired Of Dreaming - 4:50
+10. If It Takes All Night - 4:57(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449294   (92970) от 10.02.2012
+
+VA - FearFM Hardcore Top 100 2011 (2012) [MP3|320 kbps]<Techno, Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Of Fighters - Nirvana Of Noise (Official Dominator 2011 Anthem)
+ 02. Tha Playah - On The Edge
+ 03. Angerfist - Incoming
+ 04. Evil Activities & Endymion Feat. E-Life - Broken
+ 05. The Viper & Neophyte - Coming Home
+ 06. Angerfist & Outblast - Odious
+ 07. Mad Dog & AniMe - Hardcore Machine
+ 08. Mad Dog - A Night Of Madness
+ 09. Mad Dog & Amnesys - Game Over
+ 10. Nosferatu & Evil Activities - Sick Of It All(   Читать дальше...   )2012Жанр: Techno, HardcoreПродолжительность: 08:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450637   (92990) от 11.02.2012
+
+Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interactive Noise - Soundcheck 07:00
+ 02. Interactive Noise - Disco Beat 07:30
+ 03. Day.Din - Zurich (Interactive Noise Rmx) 06:10
+ 04. Interactive Noise - Altered State 07:03
+ 05. Interactive Noise - Synthetik Pleasure 07:11
+ 06. Interactive Noise - Oscillations 06:38
+ 07. Interactive Noise - The Transformers 06:03
+ 08. Interactive Noise - Deep And Pumping Sound 06:26
+ 09. Interactive Noise - Beethoven Album Version 07:42
+ 10. Interactive Noise - Breaktime 04:522012Жанр: Psychedelic / ProgressiveПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D492412342D3767453C92172306CA25DF47F0267
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450628   (93004) от 11.02.2012
 
 Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
@@ -6,7 +105,7 @@ Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93004.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ Sensogram - Parallel Minds (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93012.jpg" />
 </div>
 
 
@@ -68,7 +167,7 @@ magnet:?xt=urn:btih:6650716112DFC8A6E15C8E24D959FAF402ECEB0D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93014.jpg" />
 </div>
 
 
@@ -96,7 +195,7 @@ VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93028.jpg" />
 </div>
 
 
@@ -129,7 +228,7 @@ Despondency - Revelation IV (Rise Of The Nemesis) (2009) [FLAC|Lossless]<Slammin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93040.jpg" />
 </div>
 
 
@@ -161,7 +260,7 @@ Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93042.jpg" />
 </div>
 
 
@@ -194,7 +293,7 @@ magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93065.jpg" />
 </div>
 
 
@@ -218,7 +317,7 @@ Fastway - 14 альбомов (1983 — 2011) Дискография [MP3|192-32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93073.jpg" />
 </div>
 
 
@@ -251,7 +350,7 @@ Crimes Of Passion - To Die For (2012) [MP3|320 kbps]<Heavy Metal / Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93074.jpg" />
 </div>
 
 
@@ -284,7 +383,7 @@ magnet:?xt=urn:btih:2CB4F72477D74D54418F85507770FFF5F8A85550
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93077.jpg" />
 </div>
 
 
@@ -309,7 +408,7 @@ Sub Zero - Bi Polar EP (2012) [MP3|320 kbps]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93095.jpg" />
 </div>
 
 
@@ -336,7 +435,7 @@ magnet:?xt=urn:btih:BD69DD9AE06238EF36A5FB46A940BE5C69F9BFFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93099.jpg" />
 </div>
 
 
@@ -361,7 +460,7 @@ Saltillo - Monocyte (2012) [MP3|320 kbps]<Trip-Hop, Downtempo, Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93107.jpg" />
 </div>
 
 
@@ -394,7 +493,7 @@ magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93138.jpg" />
 </div>
 
 
@@ -418,7 +517,7 @@ WinMend System Doctor 1.6.0.0 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93145.jpg" />
 </div>
 
 
@@ -442,7 +541,7 @@ VA - Le Salon de Sophie (Selected by RoseMary) (2011) [MP3|192-320 kbps]<Vocal J
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93207.jpg" />
 </div>
 
 
@@ -475,7 +574,7 @@ DVDFab Passkey 8.0.5.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93208.jpg" />
 </div>
 
 
@@ -500,7 +599,7 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93228.jpg" />
 </div>
 
 
@@ -533,7 +632,7 @@ PH Electro - Stereo Mexico (2011) [MP3|320 kbps]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93239.jpg" />
 </div>
 
 
@@ -568,7 +667,7 @@ magnet:?xt=urn:btih:AF5D02629A3B05058AC00398E6FC9941879543CA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93272.jpg" />
 </div>
 
 
@@ -601,7 +700,7 @@ magnet:?xt=urn:btih:C461E129AB7B9F46BFC0303DEBD0115F5C0CB0DA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93291.jpg" />
 </div>
 
 
@@ -626,7 +725,7 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93299.jpg" />
 </div>
 
 
@@ -659,7 +758,7 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93304.jpg" />
 </div>
 
 
@@ -679,104 +778,6 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFC0A5A6BDDB756074F5114C62366A801A6201EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450784   (93317) от 13.02.2012
-
-VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sismo - Dooble Trooble 07:43
- 02. Psypheric - Vortex torsion (Psypheric rmx) 08:39
- 03. Spectral Cosmos - Solar Future 07:05
- 04. K.O.T.A - Ingenioren 08:02
- 05. Yum Kaax - Paranormal vision 07:44
- 06. Mind paradise vs. Two faces - 12 08:18
- 07. Luminexia - Jungle Book 07:36
- 08. Universcience - Trance Mission 07:10
- 09. Neon - Complex Transmission Path 06:09
- 10. Cosmic Replicant - Ultraviolet (UV) 07:062012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84956709E6980D8305AA93F3594491B25557D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451696   (93319) от 13.02.2012
-
-Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foolish Prayer (1:59)
-02. Lucille (2:35)
-03. Blues In Trouble (2:51)
-04. Two Little Girls (2:34)
-05. One Fine Gal (2:25)
-06. Don`t Tell Me Now (3:03)
-07. Corn Whiskey (2:14)
-08. The Day Is Dawning (3:01)
-09. Jay`s Blues - Part 1 (2:37)
-10. Jay`s Blues - Part 2 (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451453   (93320) от 13.02.2012
-
-Cyklones - Paris By Night (2011) [MP3|320 kbps]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aerobeat 07:41
- 02. Red Nose (Remix) 06:49
- 03. Early Birds 06:41
- 04. Absolut Exception 06:45
- 05. Paris By Night 07:20
- 06. The Vicious 07:42
- 07. Black Sheep 07:00
- 08. Aristocrat 07:12
- 09. Something Else 07:462011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3DBD0F3867138FC5CAA05F5326F74695E55A97
 ```
 
 

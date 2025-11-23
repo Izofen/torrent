@@ -1,3 +1,30 @@
+###  Публикация: 1425513   (218930) от 22.11.2020
+
+ЗАМАЙ - Андрей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218930.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Черный [03:47]
+02. Одинокое пламя [02:36]
+03. Алкоголь [02:58](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC06DB3ADAF2076BDDCB1659DD1A810B820BE23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343278   (219672) от 05.12.2019
 
 Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -6,7 +33,7 @@ Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps]
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219672.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219860.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219860.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220837.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220837.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221043.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221110.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221110.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221526.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221549.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221864.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221864.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221897.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221897.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ magnet:?xt=urn:btih:19AD290008FA8641B9A85168002C59FC4712E49B
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221918.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221918.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Emil Amos - Zone Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Ambie
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222045.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_222045.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ magnet:?xt=urn:btih:18CD9185DA2B08C0C900893038EF6A92F122DD51
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222618.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Playingtheangel - INFINITY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222804.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ magnet:?xt=urn:btih:745DA81605B7A4925A67DE16705015CDEB21EC21
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222846.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Bob Marley & The Wailers - Africa Unite (2023) [MP3|320 Kbps] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_223005.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Anacondaz - 5 альбомов+Не альбомные записи (2009-2015) 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223023.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ VA - Chillhop Essentials - Winter (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224890.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225258.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225258.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227633.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227633.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227694.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227694.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231463.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231463.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ magnet:?xt=urn:btih:020CCD50D4B3135D57D2F24DF3A20F8033CF796E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232857.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232857.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ Davodka - Accusé De Réflexion (2017) [MP3|320 Kbps] <Rap, Hip-Hop, French Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233467.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233467.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ magnet:?xt=urn:btih:6709400328968E5EE39E6B38BD80CACB42216A14
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233522.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233522.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233523.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_233523.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FC5D9F1C099DF6A524A99248BEEF96E98ADEEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459751   (235307) от 04.04.2021
-
-Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. огонь по своим [03:21]
-02. роскошное захолустье [02:49]
-03. вопрос наизнанку [02:34]
-04. сомнительный опыт [03:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
 ```
 
 

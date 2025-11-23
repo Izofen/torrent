@@ -1,3 +1,76 @@
+###  Публикация: 1669591   (119210) от 05.02.2024
+
+Павел Корнев | Резонанс (Книга 5). Цейтнот (том 2) (2023) [MP3, Алексей Воленко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119210.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где живёт главный герой, юный выпускник гимназии, царит беспощадный капитализм, причём всем управляют аристократы, поэтому у простых людей перспектив немного. Но есть шанс пройти инициацию и получить управление сверхэнергией, что позволит разом достичь невиданных высот и возвеличиться над теми, кто считает себя хозяевами жизни. Но прохождение инициации несёт (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 09:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8289ADEEFDA175FCA0DD1915A2CA63E4371C33E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696982   (119211) от 05.02.2024
+
+Заклятие. Зло внутри / It Lives Inside (2023) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самида, старшеклассница индийского происхождения, не особо интересуется своей национальной культурой и стремится не выделяться среди одноклассников. Её подруга Тамира, наоборот, привлекает всеобщее внимание, когда начинает очень странно себя вести и всюду ходить с какой-то грязной банкой. Не поверив подруге, что там сидит нечто злобное, девушка разбивает банку, и (   Читать дальше...   )Производство: США, Канада / Brightlight Pictures, Neon, QC EntertainmentЖанр: ужасыРежиссер: Бишал ДуттаАктеры: Меган Сури, Ниру Баджва, Мохана Кришнан, Бетти Гэбриел, Вик Сахай, Гейдж Марш, Дженайа Росс, Беатрис Китсос, Сангита Вайли, Джаред Аджер-ФостерПеревод: Дублированный (Paragraph Media)Язык озвучки: русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96282A8FB0746A40F21C7315A448AC7C3C8E71E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697061   (119212) от 05.02.2024
+
+Павел Корнев | Резонанс (Книга 6). Нелегал (Том 1) (2024) [MP3, Алексей Воленко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Павел Корнев – популярный российский писатель-фантаст, автор множества романов самых разных жанров и направлений. Представляем в аудиоформате первый том его книги «Нелегал» – шестой в цикле «Резонанс».
+В мире, где живёт главный герой, царит беспощадный капитализм, причём всем управляют аристократы, поэтому у простых людей перспектив немного. Однако есть шанс пройти (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 13:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7F249BC393730D937334DC691AB7FE3A75A3B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697082   (119213) от 05.02.2024
 
 Проект «Дороти» / Project Dorothy (2024) WEBRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119213.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119214.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:E6179FADF5CDBD35C809C5CE5AE6862F2CF93666
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119215.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ uTorrent Pro 3.6.0 Build 47008 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119216.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ Reg Organizer 9.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119217.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Microsoft Visual Studio 2022 Professional 17.8.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119218.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ magnet:?xt=urn:btih:FCE0C7F5A208796EC89B4AB5B22499C843DDB0CB
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119219.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ NADИ & Юрий Шевчук - М.З.И.В. (2024) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119220.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ KeePass Password Safe 2.56 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119221.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ Windows 10 Debloater 2.6.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119222.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:BAEF8A25783A56BD9D1ABB806724A83C039D2533
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119223.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:0A1DEB168C7ED813F320AB2BE073EBC37BBADBA5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119224.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Psiphon 3 build 181 (05.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119225.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:E7DD51E6DAC084B85A14B7C3E87389F65CBC40F9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119226.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ magnet:?xt=urn:btih:C10CBAEA14B29C767049E12FBE614F12C80A7269
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119227.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ magnet:?xt=urn:btih:5DCF1D778EA197A820630D5EC44ACD0427395468
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119228.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ magnet:?xt=urn:btih:445827BA0D1FFDC89C6D100A016F9058ACA12CFA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119229.jpg" />
 </div>
 
 
@@ -416,7 +489,7 @@ uTorrent Pack 1.2.3.82 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119230.jpg" />
 </div>
 
 
@@ -441,7 +514,7 @@ magnet:?xt=urn:btih:592CA0820C316EE837D7CCA6FFF1DDE9A254351C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119231.jpg" />
 </div>
 
 
@@ -465,7 +538,7 @@ magnet:?xt=urn:btih:3F89856A994670CEE7366CE713B7E203B7136B7A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119232.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ magnet:?xt=urn:btih:959F28B27C444C7563C0D4308ADBF5610DC85186
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119233.jpg" />
 </div>
 
 
@@ -513,7 +586,7 @@ magnet:?xt=urn:btih:AF03C882FA809392A981E32FB96C913148F621A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119234.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119235.jpg" />
 </div>
 
 
@@ -551,78 +624,6 @@ magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58FADBBEDC515270BF241F29BA75656FA789B2EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686665   (119236) от 05.02.2024
-
-Пантеон / Pantheon (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка начинает получать сообщения от неизвестного номера, который утверждает, что это ее умерший отец. Пытаясь выяснить правду, она натыкается на большой заговор, связанный с сингулярностью.Производство: США, AMC StudiosЖанр: мультфильм, фантастика, драмаРежиссер: Крейг СилверстайнАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ КимПеревод: Многоголосый профессиональный (NewStation)Субтитры: английскиеПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EA636C0CDF38A388D98CC6936AC79B85854A7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696926   (119237) от 05.02.2024
-
-Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое clean master? Эта программа – очиститель приложений, которую должен иметь каждый пользователь андроид. Она содержит в себе всеобъемлющие методы для очистки: кэша, неиспользуемых файлов, личной истории и пакетов приложений на андроид телефонах. Она так же завершает приложения и освобождает память для ускорения телефона и продлевает время работы аккумулятора. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 17.01.2024Разработчик: KS MobileПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697197   (119238) от 05.02.2024
-
-Банши / Banshee (2014) BDRip [H.265/1080p] [10-bit] (сезон 2, серии 1-10 из 10) Пифагор, TVShows, NewStudio, 2x2
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лукас Худ — отбывший наказание в тюрьме вор, который некогда предал своих подельников. После отсидки он приезжает в небольшой городок в Пенсильвании, носящий название Банши, где обманом получает пост местного шерифа. Но это не значит, что он забыл своё криминальное прошлое и теперь служит закону. Гангстеры, которых он когда-то предал, всё еще помнят про него и стремятся (   Читать дальше...   )Производство: США / Cinemax, Your Face Goes Here EntertainmentЖанр: боевик, триллер, драма, криминал, детективРежиссер: Оле Кристиан Мадсен, Грег Яйтанс, Лони ПеристерАктеры: Энтони Старр, Ивана Миличевич, Ульрих Томсен, Хун Ли, Фрэнки Фэйзон, Лили Симмонс, Триесте Келли Данн, Рас Блэквелл, Мэтт Сервитто, Деметриус ГроссПеревод: Многоголосый профессиональный (Пифагор, TVShows, NewStudio, 2x2)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442A0A15F514E42C37A87951328258A4586FBE27
 ```
 
 

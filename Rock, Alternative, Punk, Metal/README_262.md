@@ -6,7 +6,7 @@ Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162907.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ADX - Etranges Visions (2021) [WavPack|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162981.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163025.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:84E8804374FD5C9144C00F2257B0296659E39F80
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163051.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163059.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, n
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163064.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ A Sound of Thunder - Parallel Eternity (2020) [MP3|320 Kbps] <Symphonic-Power-He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163120.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Majestica - A Christmas Carol (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163130.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:FD2B7BA59D5E94FCE611FC068516F04BF953647D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163132.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cancer Bats - You'll Never Break Us (2020) Separation Sessions, Vol. 1 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163138.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:CC959A362C56C01F4F3D2E1B381D05C452BA254D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163150.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163175.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163178.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:38DE3A9AFE2A6815CF8581418A6DE3AB256FEFEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163209.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F92C9D7E9DC0F3279DD98EE5502AB3FB14CEA438
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163210.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Iced Earth - Iced Earth (1990) 30th Anniversary Edition, 2020 [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163211.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ George Lynch and Jeff Pilson - Heavy Hitters (2020) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163220.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Big J - Above (2020) [MP3|320 Kbps] <Atmospheric Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163244.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Seether - Disclaimer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163245.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Savatage / Trans-Siberian Orchestra - 30 albums, 2 Box-sets, 71CD (1983-2016) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163248.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Kansas - Another Fork in the Road: 50 Years of Kansas (2022) 3xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163250.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Return To Void - Infinite Silence (2020) [MP3|320 Kbps] <Heavy-Metal, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163275.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Shattered Hope - Vespers (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163279.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ SaviorSkin - Omnipotence of the Absolute (2020) [FLAC|Lossless|tracks + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163286.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Def Leppard - High ’n’ Dry (1981) Japanese Edition, Reissue, Remastered, 202
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163287.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Theragon - Where the Stories Begin (2020) [MP3|320 Kbps] <Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163290.jpg" />
 </div>
 
 

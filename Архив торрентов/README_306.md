@@ -6,7 +6,7 @@ PilotEdit Lite & Pro 19.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71645.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.43 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71647.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Free Download Manager 6.25.1.6042 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71648.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Periodic Table / Таблица Менделеева 2025 PRO v3.5.8 Mod by Bala
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71649.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Advanced Renamer 4.08 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71650.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Photo Lab PRO v3.13.45 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71651.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Photo Studio PRO v2.7.12.3627 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71748.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Telegram Desktop 5.10.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71850.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ CudaText 1.220.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71853.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:1F3DB36A2F5ED5AB59052C05D61094CB8A82A1A4
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71897.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ QOwnNotes 25.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71903.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EBB22F37E07A45E7443D5F4BFF625E17560C1B36
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71994.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VKMusic 4.29.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72009.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VKMusic 4.29.1 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72020.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Red Hot + Blue: A Tribute to Cole Porter (1990) [MP3|320 kbps]<Pop, Rock, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72188.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F324884EBA72D172D23C0D0D4A37DE26C9D1CE8F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72237.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:995A3CC1BBAB60D5B72E08D748134A90A5A5B51D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72257.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:3DBE2C1433518A49676C83EF93810557B1B2EC18
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72264.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Stolen Moments: Red Hot + Cool (1994) [MP3|320 kbps]<Hip-Hop, Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72283.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3D245F064F3AD12F8AF59FBF54A435436B595D09
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72359.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:BA9D8000DD4BD4BA666B99D68E1A5870C981FE0C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72373.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VKMusic 4.33 + RePack + Portable by nkn0w [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72379.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Primal Fear - Unbreakable (2012) (Digipak) [FLAC|Lossless]<Speed, Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72391.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Primal Fear - Unbreakable (2012) (Digipak) [FLAC|Lossless]<Speed, Power Metal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72491.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Primal Fear - Unbreakable (2012) (Digipak) [FLAC|Lossless]<Speed, Power Metal>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72566.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:024C0B36EE6DE44BAA65249C9AD7361571A9544C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72591.jpg" />
 </div>
 
 

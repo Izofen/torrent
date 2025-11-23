@@ -1,3 +1,75 @@
+###  Публикация: 1691282   (123448) от 11.01.2024
+
+Приключeния Буратино (1959) DVDRip [H.264/1080p-LQ] [Handmade Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый мастер Джузеппе вырезал из дерева забавного мальчика и назвал его Буратино. Деревянный мальчик ожил, но прежде чем он станет настоящим человеком, ему предстоит пройти через множество испытаний и приключений. Доброта, смелость и находчивость помогут Буратино победить жестокость и алчность, найти бескорыстных и верных друзей…Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Дмитрий Бабиченко, Иван Иванов-ВаноАктеры: Нина Гуляева, Евгений Весник, Георгий Вицин, Тамара Дмитриева, Маргарита Корабельникова, Елена Понсова, Владимир Лепко, Александр Баранов, Татьяна Струкова, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8280B334B12C8332B5F615611A00D4066D3026A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691244   (123449) от 11.01.2024
+
+GFI Kerio Control 9.4.3 build 8353 [x64] 4xCD
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрацию приложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677240273E2DEA4E3C4F20871C20E22570B3E0EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690560   (123450) от 11.01.2024
+
+Кэрол и конец света / Carol & The End of the World (2023) WEBRip [H.265/1080p] (1-10 серии из 10) NewStudio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как бы отреагировало человечество, столкнувшись с неизбежным вымиранием? Где бы мы нашли смысл? Какое утешение мы могли бы искать? Это важные вопросы, поднятые маленькой жемчужиной мультсериала «Кэрол и конец света». Для такого человека, как Кэрол, мир перевернулся с ног на голову, поскольку осталось чуть больше полгода до того, как планета-изгой врежется в Землю. (   Читать дальше...   )Производство: Канада, США / Bardel EntertainmentЖанр: компьютерная анимация, для взрослых, минисериал, комедияРежиссер: Дэн ГутерманАктеры: Бет Грант, Майкл Чернус, Марта Келли, Бриджет Эверетт, Мэл Родригес, Лоуренс Прессман, Кимберли Хеберт Грегори, Делберт ХантПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, английскийСубтитры: Русские (full, forced), английскиеПродолжительность: ~ 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E604D0BE4CA9301D7379677A7BD364E8472754D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691320   (123451) от 11.01.2024
 
 Еще один удар / One More Shot (2024) WEBRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123451.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123452.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Windows 10 Manager 3.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123453.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Soft Organizer Pro 9.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123454.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:19F0EABAE2724CFA7ACF4E5420D5A998B7972DDD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123455.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Microsoft .NET 8.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123456.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Chromium-Gost 120.0.6099.216 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123457.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:2A845BD8A9DFC3826FFDF708702A6DFCFC4A4564
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123458.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:EA235739AE4A957C5A450B9E76F3C0F1B9E45F4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123459.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123460.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:92D913B314EDB15E0E8B7C34A32A36B992DD8B18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123461.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:6EDBA70C390B35A18875C66D4F1D8E32E70A677D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123462.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:3621479E421EE5320455A92946A2890DED4CCCB9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123463.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ Adobe Acrobat Pro 2023.008.20458 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123464.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:E132128011D3E669041857037EEAB493C79EFB6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123465.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:58367A7FCF8B54E9B050EED89C0E68F3CB3D63CA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123466.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123466.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ IObit Smart Defrag Pro 9.3.0.341 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123467.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:09BE251950BB2A86DA37734887E701EB237D5BFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123468.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123468.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ magnet:?xt=urn:btih:09BE251950BB2A86DA37734887E701EB237D5BFA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123469.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ Total Commander 11.02 Final - Titan v33 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123470.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Total Commander Ultima Prime 8.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123471.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:D1E4C56E0EDBDEA3D0FEA469EB71B02A50FAD5D8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123472.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123473.jpg" />
 </div>
 
 
@@ -557,80 +629,6 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691293   (123474) от 11.01.2024
-
-Единожды солгав / Fool Me Once (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) NewStudio
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья потрясена двумя убийствами. Убитая горем Майя Стерн смирилась с убийством своего мужа Джо. Но вскоре её печаль сменяется смятением после того, как Джо обнаруживают на видеозаписи с камеры, установленной в детской. Тем временем её племянники, Эбби и Дэниел, пытаются найти правду об убийстве своей матери и видят возможную связь между обоими делами. В основу сценария (   Читать дальше...   )Производство: Великобритания, США / Quay Street ProductionsЖанр: триллер, драма, криминал, детективРежиссер: Дэйв Мур, Nimer RashedАктеры: Мишель Кигэн, Адиль Ахтар, Ричард Армитедж, Эммет Джей Скэнлэн, Thea Taylor-Morgan, Маркус Гарви, Дино Фечер, Джоанна Ламли, Danya Griver, Дэниэл БертПеревод: Многоголосый профессиональный (NewStudio)
-Присутствует нецензурная браньЯзык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A753AD5FE6506CCEBEE9DDC53E4FBA2505207E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691050   (123475) от 11.01.2024
-
-Авантюра (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокие подруги ищут романтические приключения в новогоднюю ночь и приглашают в гости незнакомцев. Аптекаршу Симу три года назад перед самой свадьбой бросил жених, и она так и не смогла найти свое счастье. Чтобы не скучать в грядущую новогоднюю ночь, Сима приглашает к себе одиноких подруг, печатает приглашения со своим домашним адресом и бросает их в пакеты с лекарствами (   Читать дальше...   )Производство: Россия / ТВ3Жанр: комедияРежиссер: Гарик ПетросянАктеры: Надежда Лумпова, Ирина Темичева, Екатерина Кабак, Евгения Романова, Кирилл Жандаров, Максим Костромыкин, Артём ЦукановСубтитры: ОтсутствуютПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9329D3CFEE23FDDBFD0270D5992C354BC62A500B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375416   (123476) от 11.01.2024
-
-М.А. Гершензон | Робин Гуд (2010) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская литература.
-Вот уже более шести столетий живет легенда о благородном предводителе лесных разбойников Робин Гуде. Но до сих пор ученым и историкам так и не удалось установить личность прототипа героя этих преданий. По одной из версий Робин был свободным ремесленником или крестьянином, по другой – несправедливо обездоленным дворянином. И все же, (   Читать дальше...   )Жанр: Детская литература, приключения, историческая повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241196D28784CCD9EA1EAE4628F1F0B1E9817E45
 ```
 
 

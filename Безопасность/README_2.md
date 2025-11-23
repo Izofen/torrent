@@ -6,7 +6,7 @@ Microsoft Safety Scanner 1.375.1031.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233004.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233004.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MinerSearch 1.4.8.2 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250924.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250924.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adguard 7.22.1 (7.22.5226.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_251741.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Loaris Trojan Remover 3.2.49.1814 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254625.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Malwarebytes Windows Firewall Control 6.23.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255893.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255893.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adguard 7.22.2 (7.22.5228.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256623.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Antivirus Removal Tool 2025.11 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257490.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257490.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9546293DB746C226B86BD666B0636A98F0D5CEC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66685.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:38DAA13989E80897434B8E2B68E4C68A646C2D7F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FF1B9B1687707ABEC74DFF1E71389C0076F63303
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66687.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D88BEB560D944A3430DAA6D3F74200FBA2012363
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66688.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0C85CCEA531715A77A537960C0390887C4A2CDC7
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66689.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:029FAAB1D7DA92C9E5BB61D9AEDD3339222699B5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66690.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:98329A4D4E007B855F4154C4DC5C476C93745CB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66691.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8700A70FE27BBCC2E02AE28DB27C76FA7FBC9A95
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66692.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Coven (2022-2025) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, Deep house, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66693.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:19DDB9948CCC911137823C96E399F37945F82132
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66694.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:165EC97842BC43E594858D2398588DFE739332BF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66695.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Nomy - Dreams And Lies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66696.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:1EEFED1606413FACC7A25977B6A7A293671B2BD2
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66697.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Andy B. AND SoulFolk - Tellin' Myself Weird Li'l Stories (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66698.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Frode Wassvik - Sense Of Spring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66699.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:22048ED4A3A7B45D8F174EF0A9CF02DE1566738A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66700.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mama Lucky - Linda Sue and Dorothy Jean (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66701.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66702.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66703.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Heitor Neves - Bandoo Blues (Live at ForestLab) (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66704.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mark Morton - Without The Pain (2025) [MP3|320 Kbps] <Groove Metal, Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66705.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:973DBE4749D5CA2DA40ADC890F614E7941373DC1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66706.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Kenny Dorham - Four Classic Albums: Second Set (1955 - 1961) 2CD, 2018, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66707.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66708.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Smart AudioBook Player Pro v11.3.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66709.jpg" />
 </div>
 
 

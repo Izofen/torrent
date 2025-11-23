@@ -6,7 +6,7 @@ Timer by WolfEywa 1.1 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21564.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rainmeter 4.5.23.3836 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21575.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21575.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FolderSizes 9.7.522 Enterprise [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21620.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ISO Workshop Pro 13.4  [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21867.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:992D210C19EA91BC5FA2E373CE26393251DA4996
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21873.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ WinCatalog 2024.10.1.410 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21885.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ XtraTools Professional 25.4.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21960.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21960.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.65.7400 + Portable [Multi
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22107.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Attribute Changer 11.40a + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22146.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Red Button 6.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22195.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Hosts File Editor+ 1.5.16 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22430.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ OpenVPN 2.6.14 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22523.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CopyQ 10.0.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22537.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22537.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ HopToDesk 1.43.1.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22701.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22701.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Duplicate Cleaner Pro 5.25.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22744.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ IObit Uninstaller Pro 14.2.1.7 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22788.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ KStars 3.7.6 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22813.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Start Everywhere 1.4.2.42 (x64) Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22852.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Duplicate Cleaner Pro 5.25.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22903.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Resource Hacker 5.2.8.448 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23045.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Exact Audio Copy 1.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23254.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:418DAC6461338F1FCE500D8CA85F6CC73C11E6E9
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23276.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Brave Browser 1.76.82 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23373.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ RedNotebook 2.39.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23441.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ John’s Background Switcher 6.0.0.6  + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23442.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Disk Drill 5.7.917 Enterprise (x64) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23503.jpg" />
 </div>
 
 

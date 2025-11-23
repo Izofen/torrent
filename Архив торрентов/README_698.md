@@ -1,3 +1,75 @@
+###  Публикация: 1519692   (146736) от 25.12.2021
+
+SamDrivers 21.12 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4CFE9598C9E382B910FECBC56585A0804169F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590017   (146740) от 16.12.2012
+
+Sexy Girls Wallpapers (14.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D257969FB6B6B27D144BA8DF5E907ECF559B93A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590020   (146746) от 16.12.2012
+
+Gilrs Wallpaper (14.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DB4CE79F85FE26021A99E709444575608F83B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969033   (146762) от 27.12.2015
 
 Aiseesoft Video Converter Ultimate 9.0.16 Portable by poni-koni [Ru/En]
@@ -6,7 +78,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 Portable by poni-koni [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146762.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ ProfiMail Go Full 4.19.24 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146768.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146769.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Wondershare UniConverter 15.0.6.19 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146770.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Sexy Girls Pack Wallpapers (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146784.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Ashampoo Burning Studio 23.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146788.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ TechSmith Camtasia 23.3.3 build 49804 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146789.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Andrew Lu - Club Universe Radioshow 052 (13.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146791.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ JRiver Media Center 31.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146800.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:FD1C6C5C7715377795CB2F0DB2E44AC577F44C1B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146805.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Fast Video Cutter Joiner 3.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146809.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Rencontre Nocturne - Recap 2020 (2020) [MP3|320 Kbps] <Electro House, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146811.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ John Aise - House Energy 11 (2012) [MP3|320 кб/с]<Club \ Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146818.jpg" />
 </div>
 
 
@@ -340,7 +412,7 @@ Kryder - Kryteria Radio 270 (2020 Label Showcase) (2020-12-23) [MP3|192 Kbps] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146819.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ Telegram Desktop 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146822.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:33C1EC36A95462E72F8AB575C28D99AB023973FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146825.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ Werner Laemmerhirt - SaitenZauber (1999) [MP3|320 кб/с]<Folk, Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146827.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Smooze 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146829.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Hetman Photo Recovery 4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146831.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146832.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Multitouch 1.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146835.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ VA - Vocal Trance 2016 New York (2016) [MP3|320 Kbps] <Uplifting Trance, Vocal T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146836.jpg" />
 </div>
 
 
@@ -572,7 +644,7 @@ VA - Reload #6 (2012) [MP3|320 кб/с]<House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146837.jpg" />
 </div>
 
 
@@ -592,81 +664,6 @@ VA - Reload #6 (2012) [MP3|320 кб/с]<House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38F6B88D746AC3C99E9C3EAEEBDCB70A83851FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969666   (146839) от 27.12.2015
-
-NewWeather 2.3 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146839.jpg" />
-</div>
-
-
-###  Подробнее
-
-New Weather - это погодный информер с перекидными часами и различной графикой для отображения текущего состояния погоды. Данные о прогнозе погоды предоставляются FORECA с помощью сервиса Яндекс.Погода.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7853E6F49389C62FF893A8D17B40AA6F6D58EBF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519812   (146845) от 25.12.2021
-
-Comodo Dragon 96.0.4664.110 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Dragon - быстрый универсальный браузер на базе технологии Chromium (на основе которой создан, в том числе и браузер Google Chrome) с дополнительными функциями, повышающими безопасность и конфиденциальность. Обеспечивает повышенную конфиденциальность, превосходящую технологии Chromium, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C184DDBD0011808BFDA2E33090B8D27DDCF05986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087437   (146860) от 27.12.2016
-
-URL Manager Pro 4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146860.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 декабря 2016Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.6.9 +Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0B606EE8B57553EF27D23285AA24F8B71CC070
 ```
 
 

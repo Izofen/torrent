@@ -6,7 +6,7 @@ Adobe Photoshop 2025 26.9.0.15 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ My TTS: Text-to-Speech v1.5.3 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9891.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F848990BB179E5DC98DC72DFB4BE3898785F7310
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9892.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2DD605583E1711DCBC29B9E4C0BEE8766ADAD0CA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9923.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9930.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ XMedia Recode 3.6.1.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9970.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Auslogics BoostSpeed 14.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9980.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PictureThis - Plant Identification v5.9.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9983.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ TechSmith Camtasia  25.2.0 Build 10983 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9984.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PotPlayer 250724 (1.7.22582) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10004.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wondershare UniConverter 16.5.8.318 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10008.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ EZ CD Audio Converter 12.1.0.1 RePack (& Portable) by elchupacabra (DC 06.07.202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10013.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10027.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A3C33B817582D90B7B9098FB84B55359FAF75ADA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10034.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adobe Photoshop 2025 26.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10036.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ XRecode 3 1.169 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10066.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PrivaZer Pro 4.0.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10070.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Shotcut 25.07.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10100.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C0D18A3CBDF5BA8EA57E8E8DE29073B59465C9A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10104.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Flyoobe 0.30.38 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10112.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Firefox Browser ESR 140.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10148.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10168.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ StartAllBack 3.9.13 build 5291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10169.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Flyoobe 0.23.28 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10184.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7A13C94008E1BE6E773DCC3525B426C9A262E37E
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10192.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:0EC0F85E8F989D7DB3E71A0AB10BCA4761DC43A1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10196.jpg" />
 </div>
 
 

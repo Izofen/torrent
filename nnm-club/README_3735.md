@@ -1,3 +1,78 @@
+###  Публикация: 1701003   (116792) от 19.02.2024
+
+Инфостарт | Комплект 1С Специалист (2023) [unpacked] [AD]
+
+>>Мультимедийные материалы
+>>Компьютеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1)Решения всех основных билетов для подготовки к Специалист ЗУП
+2)1С: Специалист ЗУП 8. Решение 6 билетов экзамена по 1С: Зарплата и Управление Персоналом 3.1
+3)Экзамен 1С:Специалист-Консультант УНФ. Полные и правильные решения билетов из сборника
+4)Решения билетов для подготовки к экзамену 1С: Специалист по Управлению торговлей 11.5(   Читать дальше...   )Жанр: 1СФормат: unpackedРеклама: Вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CB8D40A70E455B72659BA2CEFF6E88484F7254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700927   (116793) от 19.02.2024
+
+Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skibidi Toilets: Invasion бросает вас в вихрь хаоса киборгов-туалетов. Сыграйте за секретного агента, вооруженного арсеналом оружия, которому поручено подавить восстание унитазов. Обнажите свою ярость в семи разнообразных локациях, от пустынных городских пейзажей до леденящих душу кладбищ, каждая из которых ставит перед вами уникальные стратегические задачи. Добро (   Читать дальше...   )Тип издания: RepackРазработчик: Quad LabsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701125   (116794) от 19.02.2024
+
+Охота на русского гения (2024) WEBRip [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116794.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из обычных московских школ честно трудится одаренный учитель химии Игорь Сарочкин. В результате нескольких лет напряженной работы ему удается изобрести уникальное вещество, благодаря которому можно определить судьбу человека и его врожденные наклонности к благородным поступкам или преступным действиям. Американские спецслужбы подсылают к ученому его бывшего (   Читать дальше...   )Производство: Россия / Северное сияниеЖанр: приключения, детективРежиссер: Мария ЕфремоваАктеры: Владимир Цупка, Мария Ефремова, Александр Удалов, Антон Лебедев, Наталья Муравьевская, Екатерина Бизяева, Евгений Дорогань, Борис ДомнинСубтитры: ОтсутствуютПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A4BCCF41418EDA646EACC2F0BC7254D52626C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701039   (116795) от 19.02.2024
 
 Из глубины / No Way Up (2024) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116795.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ MSI Afterburner 4.6.6.16831 Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116796.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:B0230441DD0ACFE4D8DFFB7C93841B3ED0674AC3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116797.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ elementary OS 7.1 Horus [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116798.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116799.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Far Cry 6 (2021) [Ru/En] (1.5.0/dlc) Rip R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116800.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:D3E88099EB4D620060C86A3A3308CAC9F41C6CC8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116801.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:A2A71D965BE6CF43E0F6741AF726856CD2ABD163
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116802.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:47B01DACABE3AB1BA3C1EFEB073FDA400083F8BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116803.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:F04A818D521FE4B8F699A015A534A9F98526E5B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116804.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ Windows 11 23H2 Professional [22631.3155] (14.02.2024) by bulygin-dima [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116805.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ magnet:?xt=urn:btih:A2FAE76562AC30227143371E4AAC081EFE27C958
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116806.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116807.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116808.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116809.jpg" />
 </div>
 
 
@@ -368,7 +443,7 @@ Kerish PC Doctor 4.95 (Акция COMSS от 2024-02-19) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116810.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ magnet:?xt=urn:btih:DF0361AF43FDCE71E798E704FD8B53B9ED781533
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116811.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ magnet:?xt=urn:btih:48AC517DE5E0E980458461A0BDAFA0E7F6A714F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116812.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116813.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116814.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ magnet:?xt=urn:btih:AAD36E69691F88389B07A6FD35C94E835C49AA03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116815.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ magnet:?xt=urn:btih:D6DFC4C127324EEC6A63A90EFC39C5EAB44885F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116816.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Adobe InDesign 2024 19.2.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116817.jpg" />
 </div>
 
 
@@ -547,78 +622,6 @@ Adobe InDesign — профессиональный продукт для про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B3FA16B46D3B1BAE55CB35E051093DA7A606F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701085   (116818) от 19.02.2024
-
-Из глубины / No Way Up (2024) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious MediaЖанр: боевик, триллер, драма, приключенияРежиссер: Клаудио ФахАктеры: Софи Макинтош, Колм Мини, Филлис Логан, Дэвид Самартин, Скотт Кокер, Джеремия Амур, Уильям Аттенборо, Джеймс Кэрролл ДжорданПеревод: Профессиональный двухголосый (ViruseProject | 18+)Язык озвучки: РусскийСубтитры: английские (full, SDH)Продолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AD8777CA59D97F701E868BDAA4876030CFA935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701121   (116819) от 19.02.2024
-
-Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam: Siberian Mayhem – это возможность погрузиться в долгое и опасное путешествие по российским пустошам, где получится сразиться против сил Ментала. Игра является дополняющей частью к оригинальной серии, в которой получится взять под управление "Крутого" Сэма Стоуна. Придется столкнуться с полчищами тварей, что выползают на поверхность планеты (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Action (Shooter), Add-On, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700835   (116820) от 18.02.2024
-
-SnippetsLab 2.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116820.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 18.02.2024Разработчик: © 2015-2024 Renfei SongПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A274111E4DAECF1DF4CDE508D2B35404132B5EDC
 ```
 
 

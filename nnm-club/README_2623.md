@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68946.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E7AC6AC099E8E66052F297A05C89BE5385865E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68947.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EE51798AE1CE9F504808D68B508392DEA31F078A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68948.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:ED7434B82C09D0E160D743A1295D7292442FC490
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68949.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:049F53E8E75382B98CE14C79DCF50B330CA98990
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68950.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3F0F4D5E9C4ACEFAF481985CB1017AC312D3D05D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68951.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C3C599681B90C9FC0ED2DA09FDCC2123906ADCBE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68952.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:462DBEBF7893987AC45DC76E299498BEDFA0D573
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68953.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Lordi - Limited Deadition (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68954.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Exx Chill Miami 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68955.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5C972828BA90EA4B25757D6ED5567CC120E58F85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68956.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Wheels Of Fire - All In (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68957.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Occult Witches - Sorrow's Pyre (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68958.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68959.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Ori Uplift - Uplifting Only Episode 632 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68960.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:B9865ECF195C50909C919F2F5736AB46973F1A19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68961.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ IOTUNN - The Wizard Falls (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68962.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68963.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Bestial Warlust - Storming Bestial Legions Live 1996 (2017) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68964.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ IOTUNN - Access All Worlds (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progres
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68965.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ IOTUNN - Kinship (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68966.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:097DB65ED56C2309978FEABC525F4254368513FF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68967.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:CC12288598BA614A2AEE7CFDE5C669108BC8EF5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68968.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:42483F90670F5C5CF8F88A55C7EC6534F05A74C0
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68969.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Calibre 8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68970.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Various - Only UFO Can Rock Me - A Tribute To UFO (2001) Compilation [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68971.jpg" />
 </div>
 
 

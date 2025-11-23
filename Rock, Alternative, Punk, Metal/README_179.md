@@ -6,7 +6,7 @@ Grey Wolf - The Icy Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120414.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120415.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Krooked Step - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120422.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Grey Wolf - Glorious Death (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120424.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Grey Wolf - We Are Metalheads (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120428.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ In Flames - 2 Albums Singles Collection (2003-2004) 2xCD, EP [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120429.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Helgrindur - Helgrindur (2023) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120431.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Savaged - Night Stealer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120452.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120453.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Slower - Slower (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal, Heavy P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120595.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Maze Of Sothoth - Extirpated Light (2023) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120596.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sentencia - Tronos de Maldad (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120597.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fast Aggressive - Волюнтаризм (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120600.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:19738D8376FEA8A392E1AF9465391DB2C77CD9AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120603.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120615.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120618.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120619.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120620.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120630.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120633.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ China - China (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120635.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120666.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Second Shooter - Fury Made Flesh (2024) [MP3|320 Kbps] <Groove Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120670.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:B2BB2055DE03EE4C8121AAAF5CB1098CD65AFD2F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120703.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Any Given Day - Limitless (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120760.jpg" />
 </div>
 
 

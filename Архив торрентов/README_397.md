@@ -6,7 +6,7 @@ Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94768.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94773.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - Dance Жара. Зарубежный (2012) [MP3|256 кб/с]<Рор>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94782.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Fadios - Paradiso (2012) [MP3|320 кб/с]<Trance, Uplift, Progressive, Tech, Dr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94783.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94786.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:9A23608B2EA128E203C9AE04CAE1B5E349518982
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94799.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94803.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94816.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94816.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dir en Grey - The Rose Trims Again (2008) DVD9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94827.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94841.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94845.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94863.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94867.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Meat-Grinder - Воскрешение из пепла (2004) [MP3|320 кб/с]<S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94872.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Mysteries Of Psytrance vol. 2 (Compiled by Ovnimoon) (2012) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94880.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94884.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:995A870984AA3024492941A2D5CBF9C2F07B3C62
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94893.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94894.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94906.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94913.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94914.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94916.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Flowjob - Support Normality (2006) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94921.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94930.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94943.jpg" />
 </div>
 
 
@@ -768,7 +768,7 @@ Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94946.jpg" />
 </div>
 
 

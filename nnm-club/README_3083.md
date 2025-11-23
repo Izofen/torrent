@@ -1,3 +1,90 @@
+###  Публикация: 474771   (98012) от 29.03.2012
+
+[Wallpapers] Black Girls Desktop Wallpapers Pack 31
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98012.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Black Girls Desktop Wallpapers Pack 31 
+Название:  Black Girls Desktop Wallpapers Pack 31 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4368х2912
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A5420A6A7D888FB3FBAABAB9A49053AE0004E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475047   (98013) от 29.03.2012
+
+VA - Самые Взрывные Хиты в Авто (2012) [MP3|256-320 кб/с]<Dance, Club, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 50 Cent vs Magic Waves - DISCO INFERNO 2011 ( Dj Najim Hassas Chillout Remix )
+002 Ase Of Base – All that she want's (DJ Max Payne remix 2012)
+ 003 Yves Larock, Tony Sylla - Viva Las Vegas (Bisbetic Remix)
+ 004 Акула - Кислотный DJ (DJ Aleshkin Mash Up)
+ 005 Виктор Павлик - Город зеленого цвета (DJ Nikita Noskow & DJ Gordienko remix)
+ 006 Иван Дорн - Стыцамэн (Ivan Frost Remix)
+ 007 Иракли – Ты одна (Dj Aleksey Rubcoff Remix)
+ 008 Катя Чехова - Я тебя люблю (DJ AnD remix)
+ 009 Р.Набиев feat A-Sen - По ресторанам ( DJ NAJIM HASSAS REMIX 2012 EXCLUSIVE )
+ 010 Русский День Св. Валентина 2012 St. Valentine's Day ( Russian Vocal Edit '12 ) CD #22012Жанр: Dance, Club, Pop, HouseПродолжительность: 07:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D24CBF874E3655D750B04E700F834908390C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474829   (98014) от 29.03.2012
+
+Александр Сивинских | Проходящий сквозь стены (2 Книги) [2004,2010] [FB2, RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проходящий сквозь стены
+Перед Россией открылась дверь в мир высокотехнологического будущего: именно здесь будет производиться новейший суперпроцессор. Однако никому не известно, что за корпорация намерена вложить миллиарды в проект, а главное, каково его истинное назначение. Детективу Павлу Дезире поставлена задача: приоткрыть хотя бы краешек тайны. Задание может показаться невыполнимым, но только не для Павла. Ведь он — комбинатор, человек, способный проникать сквозь любые стены. Да и помощник у него подходящий — мелкий пронырливый бес. В прямом смысле слова.
+Тайные общества и мифические чудовища, безжалостные опричники и прекрасные весталки, оборотни на службе китайской разведки и байкеры с неустойчивой психикой на службе у собственных комплексов — вот лишь малая часть элементов головоломки, которую предстоит сложить напарникам. И не ясно, обрадует ли их полученная картина. Может статься, она спасёт земную цивилизацию. А возможно — подтолкнёт к гибели.2004, 2010Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474935   (98016) от 29.03.2012
 
 Джон Ле Карре | Убийство по-джентльменски [2009] [MP3]
@@ -6,7 +93,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98016.jpg" />
 </div>
 
 
@@ -31,7 +118,7 @@ VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98017.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Хиты Радио Record 20 50/50 (2012) [MP3|160-320 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98018.jpg" />
 </div>
 
 
@@ -97,7 +184,7 @@ magnet:?xt=urn:btih:9883889610884C7331ED6EB6955FE669AD8D9F13
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98021.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ magnet:?xt=urn:btih:9883889610884C7331ED6EB6955FE669AD8D9F13
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98022.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98024.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98025.jpg" />
 </div>
 
 
@@ -211,7 +298,7 @@ Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98032.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98032.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98033.jpg" />
 </div>
 
 
@@ -277,7 +364,7 @@ magnet:?xt=urn:btih:392EBDA41A9CAF8AB9AFD329E3F1DC98034F132F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98034.jpg" />
 </div>
 
 
@@ -301,7 +388,7 @@ VA - Самый, Самый! Зарубежный (2012) [MP3|256 kbps]<Pop | Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98035.jpg" />
 </div>
 
 
@@ -334,7 +421,7 @@ VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98038.jpg" />
 </div>
 
 
@@ -367,7 +454,7 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98039.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98039.jpg" />
 </div>
 
 
@@ -398,7 +485,7 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98040.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98043.jpg" />
 </div>
 
 
@@ -464,7 +551,7 @@ VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98044.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Mozilla SeaMonkey 2.9 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98047.jpg" />
 </div>
 
 
@@ -521,7 +608,7 @@ VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98048.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98049.jpg" />
 </div>
 
 
@@ -578,7 +665,7 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98050.jpg" />
 </div>
 
 
@@ -605,7 +692,7 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98052.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98053.jpg" />
 </div>
 
 
@@ -662,7 +749,7 @@ magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98056.jpg" />
 </div>
 
 
@@ -676,87 +763,6 @@ magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9FE193805C00ACDD0AC35E507D770792FB1F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475032   (98057) от 30.03.2012
-
-Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Start  (3:34)
-02. One Last Time  (4:55)
-03. Love Sweet Love  (3:30)
-04. Fly Away  (3:40)
-05. Darkest Before The Dawn  (3:53)
-06. Room 414  (2:47)
-07. Voodoo Moon  (4:16)
-08. Anywhere You Run  (3:57)
-09. Last Bluesman Gone  (2:10)
-10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475364   (98058) от 30.03.2012
-
-Роберт Пайк | Жертва [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из тюрьмы Синг-Синг сбежали четверо заключенных, которых ничто никогда не связывало, ни в тюрьме, ни до нее. Причем один из них имел возможность через несколько месяцев досрочно освободиться. Что толкнуло его связаться с этой компанией и пойти на побег? Не оправдались и расчеты преследователей на то, что неожиданный беглец постарается спрятаться где-нибудь подальше. Он отправился в Нью-Йорк. Что задумал преступник и какие события последуют за этим?2011Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475504   (98059) от 30.03.2012
-
-Родители / Parenthood (1989) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть главой большой семьи — задача не из легких. Тем более, если ты, как любой уважающий себя родитель, хочешь, чтобы твои дети выросли приличными людьми. Вот Гилу Бакмену и приходится «крутиться», чтобы делать успешную карьеру, и одновременно быть любящим мужем и заботливым отцом.Жанр: КомедияРежиссер: Рон ХовардАктеры: Стив Мартин, Рик Моранис, Киану Ривз, Мэри Стинберджен,Том Халс, Джейсон Робардс-Младший, Дайэн УистПеревод: Одноголосый закадровый (А. Михалев)Язык субтитров: английские, испанскиеПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 

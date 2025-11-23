@@ -6,7 +6,7 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2455.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E17FC1E010EA56D46CEBF16A132F4E1CC9C4C0BB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2457.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:AAA8E17865239A9F82BF5766F2BDBD43E61D5257
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2458.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DBC179D5FE8442225B4B3F04F320398AB83FC848
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2459.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:2C3E6AD7C8085B7B695DC1D215AB10A3F71B49C6
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2460.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2461.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Airborn - Lizard Secrets: Part 3 - Utopia (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2462.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:EB231CBDC14CB67275A1F1314239A0178F8E6694
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2463.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:DF5E94BCE5C8481C596BF678F1BC4269430AC71A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2464.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2465.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:BD8AC88DC51FE998A790162FD0FC5E1C12709882
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2466.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2467.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:35523487BB28D4FA3CBF8E84E9BB23658E8080EC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2468.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2469.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2470.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Helstar - The Devil's Masquerade (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2471.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B9A96FC53F3B07E3C9737501B4D1B073D759E2E7
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2472.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A5E66BCFC2690F016B11BEF632669A086CC55EF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2473.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D2ACD4FC1D294DA0408969234806EEB1917AB035
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2474.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6486D63EBE71C1181E578DAD5C7D3759EB3C979E
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2475.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:66FB09E401279A1CA6A4CAF5C868AD4C438279B9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2476.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Windows Server [10.0.25398.1849], version 23H2 (Updated September 2025) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2477.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ DVDFab 13.0.4.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2478.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.15 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2479.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2480.jpg" />
 </div>
 
 

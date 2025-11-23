@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Winxvideo AI 3.9 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33271.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:398BD87B767E598A0964D16089B61EFDF2B9868B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33272.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:23FD7329C95382BE7F768198588B1F95A15ECD4C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33273.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BesTW на днях перешел рубеж 2000 релизов. Он - гла
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33274.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:196ACD1077515C56B583B3D30BBE873A9BEB1AB4
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33275.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3D3933AA52AF953B733522FA51C8876334CE707B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33276.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ RadioMaximus 2.33.00 (23.12.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33277.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Thehousefx, Will Wallace |  Destruction Training with Thinking Particles (2014) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33278.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4A9A777032129C21E972A4EC1AC1C97D084B7B0D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33279.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33280.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Hannah (2024) [En] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33281.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Stellarium 24.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33282.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:093A81DA4A366159116B1336BF7B968376AB9196
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33283.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33284.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Aiseesoft Screen Recorder 3.1.6 RePack (& Portable) by elchupacabra (x64) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33285.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:64346D3AFC1AC60317BDF153E4147837D203D32E
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33286.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:010B417B58109647D97FF1BB037116C6EFD55689
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33287.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ StartAllBack 3.9.0 build 5220 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33288.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9D08C93709D89D8870D7B295F42FB8C7D7EED477
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33289.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:75C901993782613BC1618894E1B9A8B1BF173491
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33290.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ StartAllBack 3.9.0 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33291.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:57E9467232EA536925CEF9D1382C6DAE97641778
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33292.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33293.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3F18CAE8F929BB17BF6B438B4930B8B6E1C8A0BA
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33294.jpg" />
 </div>
 
 

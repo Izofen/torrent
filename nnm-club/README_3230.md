@@ -1,3 +1,82 @@
+###  Публикация: 1754748   (103661) от 12.10.2024
+
+VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alixia Mistral - Run Away Or Face The Day (2:45)
+02. The Smoke Orchestra - Henrietta Leavitt and the cepheids variables (3:23)
+03. Anna Fondi - Nothing Better Than You (4:49)
+04. Giulio Campagnolo & The Jazz Funkers - Groove Giallo (5:17)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AABBD1CD7FD34A1933F67BCE0AEF1F4E5D43A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754823   (103662) от 12.10.2024
+
+Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus 1 [2:50]
+02. East of the Sun [3:23]
+03. Bakerloo Non-Stop [2:48]
+04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754791   (103663) от 12.10.2024
+
+Хоккей. НХЛ 2024-2025. Питтсбург Пингвинз - Детройт Ред Уингз (10.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103663.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 октября 2024, пятница. 03:00 МСК. Стадион: Литтл Сизарс-арена (Детройт, США), 17 916 зрителей (92% при вместимости 19 515)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Пьер Ламберт (Сен-Юбер, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Томми Хьюз (Лондон, Канада)Телекомпания: SN-PITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE813C7C2D7C74CA500B1E911FA00C2260641BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754796   (103664) от 12.10.2024
 
 НХЛ 2024/2025. Регулярный чемпионат. Питтсбург Пингвинз - Детройт Ред Уингз (10.10.2024) WEB-DL [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103664.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:41A5BFBDE6569715E57F79F5A28EF09C0AE87829
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103665.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ PhotoDirector v19.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103666.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:AF8782C2376401E7BCA69A49D21C2F63BE7259DE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103667.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ VA - Black Hole Trance Music 10-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103668.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ VA - You Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103669.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ VA - Rockklassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103670.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Joe Bonamassa - Different Shades Of Blue (Overdrive) (2014) 2024 Reissue, 10th A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103671.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ magnet:?xt=urn:btih:E8C8829A41B7FBEBB84EAB8D8AF9C54D170852BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103672.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ magnet:?xt=urn:btih:407D1083BB1F8727DE52A71928237A8703E6800F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103673.jpg" />
 </div>
 
 
@@ -264,7 +343,7 @@ VA - Armin van Buuren - A State Of Trance 1194 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103674.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ VA - Black Hole House Music 10-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103675.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ magnet:?xt=urn:btih:5542424EB95A4F21EC6FB1603AFF0FFB461E1240
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103676.jpg" />
 </div>
 
 
@@ -343,7 +422,7 @@ magnet:?xt=urn:btih:4E444C8E0DF13D01511A111DD082F4AA3342F66C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103677.jpg" />
 </div>
 
 
@@ -367,7 +446,7 @@ VA - XX. Трибьют группе Артерия (2024) [MP3|320 Kbps] <Heavy
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103678.jpg" />
 </div>
 
 
@@ -394,7 +473,7 @@ VA - Summer Fresh 002 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103679.jpg" />
 </div>
 
 
@@ -421,7 +500,7 @@ VA - Jem Records Celebrates Jagger/Richards (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103680.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103681.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ magnet:?xt=urn:btih:84CA2B295B578E9C028535C75C4277E8F94CC7D3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103682.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ Iron Echo - Forged In Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103683.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103684.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ VA - timeless rock & new cuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103685.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ magnet:?xt=urn:btih:9C944CEEDB271FD4A15B3C878B012476DC23E576
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103686.jpg" />
 </div>
 
 
@@ -596,81 +675,6 @@ magnet:?xt=urn:btih:9C944CEEDB271FD4A15B3C878B012476DC23E576
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9CA50D900152883DA357A5BFDCE598C4FBCD15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754841   (103687) от 12.10.2024
-
-Кто может убить ребёнка? / Quien puede matar a un nino? / Who Can Kill a Child? / (1976) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация романа Хуана Хосе Плана «El juego de los niños» («Детская игра»)... Молодая пара английских туристов нанимает лодку, чтобы отдохнуть на острове Альманзора недалеко от южного побережья Испании. Когда они прибывают, то находят его пустынным: нет ни одного взрослого, только дети. Дети ведут себя странно. Они молчат и только хихикают. Вскоре англичане (   Читать дальше...   )Производство: Испания / Penta FilmsЖанр: ужасы, детектив, триллерРежиссер: Нарцисо Ибаньес СеррадорАктеры: Льюис Фаэндер, Прунелла Рэнсом, Антонио Иранцо, Мигуэль Наррос, Мария Луиса АриасПеревод: авторскийЯзык озвучки: русский, испанскийСубтитры: английскиеПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED642F60AE584B21A5730A50898EF648EA9D7A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754820   (103688) от 12.10.2024
-
-Моя девушка - спецагент / Chilgeup gongmuwon (2009) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет агент по туризму Ан Су Джи является правительственным шпионом. Она не может раскрыть правду своему парню Ли Джэ Джуну. После её очередной лжи, парень уходит от неё, оставляя страдать в одиночестве. Через три года они сталкиваются, когда Ан Су Джи выслеживает промышленного шпиона, скрываясь в должности уборщицы. Он не ожидал встретить её уборщицей в отеле, (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Harimao PicturesЖанр: комедия, мелодрама, боевикРежиссер: Щин Тхэ-раАктеры: Ха Ныль Ким, Чжи Хван Кан, Сын Рён Рю, Ён Нам Чан, Хён Бом Ким, Син Иль Кан, Сон Мин Пак, Коди Хантер, Элизабет Суджин Форд, Гутсу ИлианаПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCC29131B40C316824F19DFB70A9E96054E9F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754821   (103689) от 12.10.2024
-
-Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (Remastered 2022) [00:03:45]
-02. If (Remastered 2022) [00:02:26]
-03. Banks Of The Ohio (Remastered 2022) [00:03:15]
-04. In A Station (Remastered 2022) [00:03:07](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FD470819F1D00B56FE8B545B1F7065C5363A6E
 ```
 
 

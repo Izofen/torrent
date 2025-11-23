@@ -1,3 +1,174 @@
+###  Публикация: 1600735   (156056) от 28.12.2022
+
+Джон МакКрэй | Червь (Книга 30). Крупица (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 05:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5818E4F0CE16298E68A266BD163DA99904EAC50E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334930   (156057) от 20.12.2019
+
+Бывшие (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня сериала — Яна — пациентка реабилитационной клиники для алкоголиков и наркозависимых. Перед ней стоит нелегкий путь к выздоровлению. Но однажды в жизни Яны все меняется. Она встречает Илью — нового психолога-консультанта. Поначалу девушка для него — очередная сложная пациентка, но постепенно Илья начинает видеть таланты Яны, раскрывающиеся в процессе (   Читать дальше...   )Производство: Россия / Yellow, Black and WhiteЖанр: драмаРежиссер: Иван КитаевАктеры: Любовь Аксенова, Денис Шведов, Виталий Хаев, Григорий Чабан, Леонид Громов, Даниил Вахрушев, Линда Лапиньш, Анна Глаубэ, Софья Лебедева, Сергей Лобынцев и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9BC47510CF1BD35A758A4C3D56ABBA7AD3F951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085813   (156058) от 22.12.2016
+
+Dschinghis Khan - Greatest Hits (2012) Compilation, 2CD [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocking Son Of Dschinghis Khan (4:22)
+02. Temudschin (3:25)
+03. China Boy (4:07)
+04. Pistolero (4:21)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5C402D5F11487CFE62C7B8D7C774A5C4C365B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676508   (156061) от 13.11.2023
+
+Убийца / The Killer (2023) WEB-DLRip [MVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококлассный наемный убийца, склонный к мизантропическому философствованию, поджидает жертву в Париже. Когда всё идёт не по плану, он сам рискует превратиться в мишень и отправляется разбираться с собственными заказчиками.Производство: США, Archaia Entertainment, Boom! Studios, Panic Pictures (II)Жанр: криминалРежиссер: Дэвид ФинчерАктеры: Майкл Фассбендер, Тильда Суинтон, Чарльз Парнелл, Арлисс Ховард, Керри О’Мэлли, Софи Шарлотт, Emiliano Pernía, Gabriel Polanco, Сала Бэйкер, Эндре ХулсПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: Русские - отдельноПродолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1622D7F8D6EDF98D2928340E737A3471D4D1A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518353   (156062) от 19.12.2021
+
+Сто к одному (19.12.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BFE3A420C5EECCBADEF571D942D85AA3FEF9C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085714   (156063) от 22.12.2016
+
+Журнал | Популярная механика №1 (171) (январь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о том, как устроен наш мир. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, последних разработках в области космоса, авиации, автомобилей, оружия и компьютеров, которые в скором будущем могут усовершенствовать нашу жизнь.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC590F6F84A31DAB6976171139537F554DD638C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600768   (156065) от 28.12.2022
+
+Виктор Драгунский | Расскажите мне про Сингапур (2021) [MP3, Елена Фортушнова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интригующая и смешная история знакомства мальчика Дениски со своим дядей -капитаном дальнего плавания.Жанр: Детская литератураПродолжительность: 00:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18CC3E09F9615E60EC359F4D3F8F4D12B3B71DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737959   (156066) от 24.12.2013
 
 Много шума из ничего / Much Ado About Nothing (2012) HDRip
@@ -6,7 +177,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156066.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:841087D215FC5667C57EA3B56D648C2B2F43A3CF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156067.jpg" />
 </div>
 
 
@@ -56,7 +227,7 @@ magnet:?xt=urn:btih:A1A3831917F2C130C4BC3F67FE6E225D37108A2C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156068.jpg" />
 </div>
 
 
@@ -80,7 +251,7 @@ magnet:?xt=urn:btih:A1A3831917F2C130C4BC3F67FE6E225D37108A2C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156070.jpg" />
 </div>
 
 
@@ -104,7 +275,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156071.jpg" />
 </div>
 
 
@@ -131,7 +302,7 @@ Potliquor - Potliquor (1979) Remaster, Reissue, 2010, O-Music [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156072.jpg" />
 </div>
 
 
@@ -158,7 +329,7 @@ magnet:?xt=urn:btih:758B4BF150E51574B03AD14BC32234F7193E71ED
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156074.jpg" />
 </div>
 
 
@@ -182,7 +353,7 @@ VA - Nu Urban Jazz 3 (2021) [AAC|~319 Kbps] <Jazz, Nu Jazz, Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156076.jpg" />
 </div>
 
 
@@ -209,7 +380,7 @@ magnet:?xt=urn:btih:BC70F8E2FED8C2BE0E9015A56BEDE4D187458704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156077.jpg" />
 </div>
 
 
@@ -233,7 +404,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156078.jpg" />
 </div>
 
 
@@ -257,7 +428,7 @@ magnet:?xt=urn:btih:9F7AC327062494DCC140504CF779051DDFD36A76
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156079.jpg" />
 </div>
 
 
@@ -284,7 +455,7 @@ Purple Disco Machine - Glitterbox - Discotheque (2019) [AAC|~325 Kbps] <House, N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156080.jpg" />
 </div>
 
 
@@ -311,7 +482,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2017 1 DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156081.jpg" />
 </div>
 
 
@@ -335,7 +506,7 @@ magnet:?xt=urn:btih:FED31F447077BFFA6781FB2564F1DE1666A941B7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156082.jpg" />
 </div>
 
 
@@ -359,7 +530,7 @@ magnet:?xt=urn:btih:C62F34968D6880B97B62F9CBEF0F517E2857CE76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156084.jpg" />
 </div>
 
 
@@ -383,7 +554,7 @@ EdgeView 3 v.3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156085.jpg" />
 </div>
 
 
@@ -407,7 +578,7 @@ magnet:?xt=urn:btih:C400BEAB80AC2C6ED11C48183836032E43FDC006
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156086.jpg" />
 </div>
 
 
@@ -431,7 +602,7 @@ magnet:?xt=urn:btih:4FCF5299657111F1BE76CE801AFBD4D29AC662F8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156087.jpg" />
 </div>
 
 
@@ -455,7 +626,7 @@ Vitreous Humor - Posthumous (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156088.jpg" />
 </div>
 
 
@@ -469,186 +640,6 @@ Vitreous Humor - Posthumous (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B0A1FF10F7F28FEF08220D5932C698D4C7E6B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518277   (156089) от 19.12.2021
-
-VA - Ultimate Christmas Soulful House (2021) [AAC|~335 Kbps] <Soulful House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stalker Studio - The Christmas Song (5:25)
-02. M-Swift, Vanessa Haynes - This Christmas (5:50)
-03. Papik, Dario Daneluz - Last Christmas (Francesco Cofano Remix) (6:12)
-04. Papik, Ely Bruna - All I Want For Christmas Is You (Francesco Cofano Remix) (5:28)(   Читать дальше...   )Жанр: Soulful House, Deep HouseПродолжительность: 01:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DA8425B36CB61B5080A9E8F9F497447E99AAB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433574   (156091) от 21.12.2020
-
-Проекты - Motion Array - Christmas Opener - 877700 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156091.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Christmas Opener» - это уникальный шаблон After Effects со стильным дизайном. Он содержит 9 заполнителей для фото / видео, 8 заполнителей для текста, 24 заполнителя для иконок и 2 заполнителя для логотипов.
-Используйте проект, как краткое вступление к вашим Рождественским и Новогодним видео. Произведите впечатление на свою аудиторию этим потрясающим шаблоном AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93049281B35512E0C853646A9EF55A0E2244A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082378   (156092) от 20.12.2019
-
-Легенды госбезопасности (2016-2019) SATRip (1-4 сезон, 1-34 серия из ??) (Обновляемая)
-
->>След.
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они всегда оставались за кадром, но по их биографиям сняты самые известные шпионские фильмы. О них не писали газеты, но результаты их работы были в центре внимания всех СМИ мира. Их решения влияли на судьбы целых государств. Они останавливали войны и меняли правительства. Защищали секреты своей страны и решали, казалось бы, нерешаемые задачи. Они были людьми без (   Читать дальше...   )Телекомпания: Россия, ООО «ВИАНЖ ПРОДАКШИН», ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, спецслужбы, война, историяРежиссер: Вадим Гасанов, Екатерина Китайцева, Александр Гурешидзе, Алексей КитайцевПродолжительность: 34 x ~ 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAAC90F5FDFD83207F2F61EE198D474CC20A9B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676349   (156093) от 13.11.2023
-
-Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hogwarts Legacy - ролевая игра по мотивам знаменитых книг о мальчике-волшебнике "Гарри Поттер". События Хогвартс: Наследие развиваются задолго до рождения главного героя книг и фильмов. История берет свое начало в XIX веке, а именно в 1800-х годах. Действие игры развивается в той же вселенной и в той же школе, поэтому поклонники оригинальной саги найдут (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0089C0AE8F3E454A3A30726E02D6C1EE25C919E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270799   (156094) от 20.12.2018
-
-Moviola - The Durable Dream (1999) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flag You Down (3:02)
- 02. Waltz on the Railroad (2:38)
- 03. Crowding the Sky (2:48)
- 04. The Durable Dream (3:00)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1CFD5311C7CDAC8E9B81877E68BB550ADBFE78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193369   (156095) от 24.12.2017
-
-Microsoft Windows 10 10.0.16299.125 Version 1709 (Updated Dec. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.125) VLSC/MSDN.
-Зимнее обновление Windows 10 Fall Creators Update (Redstone 3) от 19 декабря 2017 года.
-С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78091D78EE07E914A9529E73FB36B0C15BE4CCB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968394   (156096) от 23.12.2015
-
-VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Согдиана - Эпидемия
-002. Ольга Орлова - Птица
-003. Артем Пивоваров - Хвилини
-004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDD39C1953C1EB8DFFF8FC56265F8791A93449A
 ```
 
 

@@ -1,3 +1,123 @@
+###  Публикация: 1426192   (215358) от 23.11.2020
+
+House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_215358.jpg" />
+</div>
+
+
+###  Подробнее
+
+House on the Hill — это сюжетный хоррор от первого лица, который позволит тебе выбрать собственный кошмар. Вы играете за молодого вора, для семьи которого наступили тяжёлые времена. Напарник убедил вас взять последний заказ и выкрасть из отдалённой усадьбы редкую драгоценность. Пробраться внутрь было не просто, но ещё сложнее будет выбраться. Потому что дом не отпустит. (   Читать дальше...   )Тип издания: RepackРазработчик: Steppe Hare StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6F1C626FB189772729AAABFF840885043931BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269789   (217261) от 16.12.2018
+
+Lure of the Temptress (1992) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_217261.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некогда мирное королевство пришла беда – жестокие и воинственные скорлы (безжалостные наемники под предводительством загадочной Искусительницы). Но кто же такая эта Искусительница и, главное, где ее искать? Создатели цикла Broken Sword, студия Revolution Software, подарили миру первую приключенческую игру серии «Виртуальный театр». Неигровые персонажи занимаются (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution SoftwareЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342911   (217481) от 06.12.2019
+
+Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_217481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в эмоциональное путешествие по горько-сладким жизням двух людей в мире, где воспоминания оживают и время подчиняется вашей воле. Погрузитесь в моменты счастья и преодолевайте все трудности, переживая историю своей жизни. История радости и печали. Простая история. Окунитесь в удивительный мир воспоминаний и переживаний, воплощенный в жизнь талантливыми (   Читать дальше...   )Тип издания: LicenseРазработчик: PiccoloЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E87CF17838ABEF27D1F599233B0DB94BD2EF5CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615477   (217515) от 11.08.2023
+
+The Pale Beyond (2023) [En] (1.5.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_217515.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Pale Beyond – это визуальная новелла с элементами выживания, в которой каждый выбор имеет решение. Арктика сурова и жестока к каждому, кто решит вступить на ее территорию, и исследователи всегда должны быть готовы к непредвиденным обстоятельствам. Но даже их может сломить какое-то несчастье и нахождение на грани смерти от отсутствия продовольствия и жуткого холода.Тип издания: LicenseРазработчик: Bellular StudiosЖанр: Приключение, Визуальные новеллы, МенеджментЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F1935C5FD6D4BCCBDED0B4F615C915DE40C7D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269574   (219121) от 15.12.2018
+
+Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люциус (Lucius) вернулся. В этот раз он прибывает в окрестности Уинтер-Хилл. Проходя испытания и невзгоды, мы наконец увидим, куда ведет его дорога. Это будет непросто. Впервые его выбор поставится под сомнение. Настало ли время положить конец всему этому?Тип издания: RepackРазработчик: Shiver GamesЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078994   (219631) от 18.12.2016
 
 Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
@@ -6,7 +126,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219631.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219988.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219988.jpg" />
 </div>
 
 
@@ -54,7 +174,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220157.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220157.jpg" />
 </div>
 
 
@@ -78,7 +198,7 @@ Lake Ridden (2018) [En] (1.5.1505) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220225.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220225.jpg" />
 </div>
 
 
@@ -102,7 +222,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221509.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221509.jpg" />
 </div>
 
 
@@ -126,7 +246,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221731.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221731.jpg" />
 </div>
 
 
@@ -150,7 +270,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222295.jpg" />
 </div>
 
 
@@ -174,7 +294,7 @@ Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223230.jpg" />
 </div>
 
 
@@ -198,7 +318,7 @@ Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225318.jpg" />
 </div>
 
 
@@ -222,7 +342,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225338.jpg" />
 </div>
 
 
@@ -246,7 +366,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226331.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226331.jpg" />
 </div>
 
 
@@ -270,7 +390,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226363.jpg" />
 </div>
 
 
@@ -294,7 +414,7 @@ Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228191.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228191.jpg" />
 </div>
 
 
@@ -318,7 +438,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228323.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228323.jpg" />
 </div>
 
 
@@ -342,7 +462,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229470.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229470.jpg" />
 </div>
 
 
@@ -366,7 +486,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230562.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230562.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231934.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232168.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232591.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233614.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233614.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233780.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233780.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39CB569FDEA285632684E10397F231B84097CE6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577080   (234577) от 17.09.2022
-
-Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винсент – опытный вор, решивший украсть драгоценное ожерелье из особняка одинокой старушки по имени Беатрис. И все шло по плану, пока она она не поймала его с поличным, оказавшись древней, могущественной ведьмой. В наказание Беатрис отправила Винсента в созданный ею параллельный мир, где ведьма держит тех, кто посмел перейти ей дорогу. Первые обитатели этого причудливого (   Читать дальше...   )Тип издания: LicenseРазработчик: Caligari GamesЖанр: Приключeние, Квeст, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EDFC7C8DD5E537532BB19329DE9C18456BF6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547397   (235338) от 14.05.2022
-
-Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235338.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Сингапуре полночь. Контакт не пришёл на встречу, клиент ждёт новостей, а пустой банковский счёт висит над головой, будто неоновый Дамоклов меч. Добро пожаловать в 2037 год. Добро пожаловать в игру Chinatown Detective Agency. Мир нестабилен, глобальная экономика близится к низшей точке десятилетнего коллапса, Сингапур остался последним оплотом порядка, но даже местное (   Читать дальше...   )Тип издания: LicenseРазработчик: General Interactive Co.Жанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AE279CECDE138F261C1B99BA310D49D5BC348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544249   (236275) от 10.05.2022
-
-Ecstatica: A State of Mind (1997) [En] (1.0) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в северной Европе в 928 году. Путешественник, главный герой игры, заезжает в вымышленный городок Тирих (Tirich), чтобы пополнить запасы питья. Он обнаруживает, что город захвачен демонами. Пообщавшись с местными жителями, герой узнаёт, что демонов вызвала молодая девушка по имени Экстатика (в игре её имя не упоминается - оно есть только в (   Читать дальше...   )Тип издания: LicenseРазработчик: Andrew Spencer StudiosЖанр: Adventure, Survival Horror, 3D, 3rd PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550042   (236481) от 09.05.2022
-
-Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dracula: Origin раскрывает темные начала проклятия Дракулы. Однажды ярый сторонник Христианства, Дракула, теряет свою веру в Бога, когда после свадьбы его покидает единственная настоящая любовь. Дракула заключает договор с Принцем Тьмы и становится вампиром. Со временем, Дракула узнает о существовании манускрипта, который, как утверждают, описывает ритуал, который (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C2D3575A5B97CB3986101AE9848CD26446C76C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574233   (237353) от 04.09.2022
-
-South of the Circle (2022) [Ru/Multi] (23) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237353.jpg" />
-</div>
-
-
-###  Подробнее
-
-South of the Circle - эмоциональная игра с глубоким многослойным кинематографическим сюжетом. Она ставит вопросы о последствиях жизненного выбора, о столкновении карьеры и любви, о попытках лавировать между настоящим и прошлым. Вы будете играть за Питера, ученого из Кембриджа, который терпит крушение в Антарктиде во времена Холодной войны. Пока он ищет помощи, его (   Читать дальше...   )Тип издания: LicenseРазработчик: State of Play GamesЖанр: Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
 ```
 
 

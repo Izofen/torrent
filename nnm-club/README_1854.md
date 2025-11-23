@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Substance 3D Modeler 2024 1.12.0.45 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:06D3E891A67EAA3E955ACDAA8548AD629FB217A3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5B73192A3A18B594AA22ED1DAF0895DC7531C77A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reface: Face Swap AI Generator v4.17.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48563.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B7541D6F917FF000307149D92C78BAD9784DFB6F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48564.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48565.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48566.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Topaz Photo AI 3.1.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48567.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D300B09237482E83CEC8F4CDF60916F159C40F92
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48568.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8D2E308FD9C385B30EB9EF3C6EE9D5626ADB10F5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48569.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:CA95080D672BAF9BE5BF17F01BF366407F2EA308
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48570.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AnyMP4 Blu-ray Player 6.5.62 Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48571.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mailbird Pro 3.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48572.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:B693524D07A865F096FF803CA7183285EF310EF2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48573.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Psiphon 3 build 183 (28.07.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48574.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ v2rayN 6.53 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48575.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48576.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:C6727F6EBC8765380584A824E2D14038A5466377
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48577.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6E11CF556F5410251B035EB4362AA33EB4DA6481
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48578.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E73F6D70855E878D4C92AEFFA4F4E941DDD8E0DE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48579.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ By Click Downloader Premium 2.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48580.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48581.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Undying (2021) [Ru/Multi] (1.0.2.41413/dlc) Repack FitGirl [Premium Edition - Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48582.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7A8B2E8B2985570ABF0905C45CD77F5A57542FC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48583.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:05BBDE84133D632B6264EAED1F08A7E65283DD76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48584.jpg" />
 </div>
 
 

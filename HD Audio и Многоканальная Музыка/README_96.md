@@ -6,7 +6,7 @@ Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101401.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101408.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101412.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Magic Kingdom - Blaze Of Rage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101420.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Volturian - Studio Albums (2 releases) (2020-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101422.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ DeWolff - Muscle Shoals (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psych, South
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101439.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ SOBA, Moussa Koita, Emile Biayenda - Fiman (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101440.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Terry Wilson Slesser feat. Back Street Crawler Band - Forever Blue (2024) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101441.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101442.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Shyfrin Alliance - Upside Down Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101443.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101452.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101472.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Night In Gales - Shadowreaper (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101473.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Lars Jansson - Standards (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101475.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Catherine Russell, Sean Mason - My Ideal (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101476.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Pathen X - Pay (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101477.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Jola Recchioni - Gone To Find My Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101478.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101479.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101480.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101481.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101482.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101490.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Herm Solo and the Prompts - Düsterherz (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101493.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101502.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101509.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101513.jpg" />
 </div>
 
 

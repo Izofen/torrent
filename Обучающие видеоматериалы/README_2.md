@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7491.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7514.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7DF3E2A7493767970375CFEC320AB87F2275E3CB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7526.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:217894C4783B249CF5580F1C1AEBAA4ABB37A955
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7530.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:153CFA237F02C80614AF612476D06E51ECD4EFD0
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7534.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7541.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:FCE79AFD5715904710652B14D43E1F3A60452B8C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7559.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7734.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:D7B4E7EC33F2D8D520960711588D395337E34E86
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7750.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:8886556A93F35CDFBFF2AA2FDC441663118B6691
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7758.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ f5game, Ольга Грищенко | Wow-контент за 1 минуту (20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7760.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:B5E0CE74E8B5164C7D1D73021FDBF7EB9AAA03D4
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7764.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ klerk, Елена Ярушкина | Персональные данные в 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7765.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7775.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7782.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:476F3DE7CE762908CA664D4156ED57B0EE7793FD
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7785.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7802.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7809.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7899.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9CF6B9581FB289E39F4E0282E375F98ECBE3743F
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8186.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F02094E1DDB7A6699F47C7B05076A0FC045EC143
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9298.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9301.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9473.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9903.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10322.jpg" />
 </div>
 
 

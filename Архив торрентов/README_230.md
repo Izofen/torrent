@@ -6,7 +6,7 @@ Soft Organizer Pro 9.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53317.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ kiloHearts Subscription 2.2.4 VST/VSTi, VST3/VSTi3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53321.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Sumatra PDF 3.6.16355 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53324.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ KineMaster - Видеоредактор 7.4.12.33222.GP Mod by youarefinished [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53328.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Icecream Video Converter Pro 1.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53329.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Opera One 111.0.5168.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53332.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:DACB4067CBB6BF7B53E21B2D94225F4533884D7A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53333.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Opera One 111.0.5168.25 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53336.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ AIMP 5.30 Build 2555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53337.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Enigma Virtual Box 10.80 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53343.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Icecream Photo Editor Pro 1.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53352.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Icecream Video Editor Pro 3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53355.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AIMP 5.30 Build 2555 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53363.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ IObit Driver Booster Pro 11.5.0.85 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53383.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8C49BABC3C8B423CA3B7F2540FA75DB15C214623
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53387.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (14.06.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53388.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53391.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NetLimiter 5.3.14.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53427.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ O&O DiskImage Professional 19.1 Build 145 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53435.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ PhotoRoom v5.0.1 b1446 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53436.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Duolingo: изучай языки 5.154.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53440.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:75E150AECC77A5467669E842D26500ECB0BD6C78
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53450.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ IObit Driver Booster Pro 11.5.0.85 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53456.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ WinCatalog 2024.7.5.612 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53459.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ MemTest86 11.0 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53466.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:98E35C9141D6F078B869E8050B8443A498C20141
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53480.jpg" />
 </div>
 
 

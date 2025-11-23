@@ -1,3 +1,77 @@
+###  Публикация: 1704634   (114218) от 05.03.2024
+
+Дина Рубина | Не вычеркивай меня из списка… Повести и рассказы (2024) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114218.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моя личная родня была неистова и разнообразна. Чертовски разнообразна касательно заскоков, фобий, нарушений морали, оголтелых претензий друг к другу. Не то чтобы гроздь скорпионов в банке, но уж и не слёзыньки Господни, ох нет. С каждым из моей родни, говорила моя бабка, „беседовать можно, только наевшись гороху!“».
+
+«Не вычеркивай меня из списка…» – сборник семейных (   Читать дальше...   )Жанр: Современная русская литература, Социальная прозаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D92E2944DC6C4F741E3F2326D64C43ADAD97054
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704770   (114219) от 05.03.2024
+
+Sugar Bytes - Effectrix 2 v2.0.3 Standalone, VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Effectrix2 — это новейшая и лучшая версия нашего любимого инструмента для работы со звуком в реальном времени. Примите на себя роль проводника звука, раскрашивая матрицу с помощью 14 высококачественных эффектов, тщательно разработанных и доведенных до совершенства. От классического растяжения времени и зацикливания до детального синтеза и глючного безумия — возможности (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F07B73D1880DBDC5C0B0A7626B12139458D5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704567   (114220) от 05.03.2024
+
+Иван Исаев | Перестань работать и начни зарабатывать (2024) [MP3, Вадим Чернобельский]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем отличается успешный человек от неудачника? Тем, что он грамотно использует свои ресурсы: окружение, возможности собственного мозга и – самое главное – время. А время, как известно, равно деньги. Его можно потратить на прокрастинацию и пустые разговоры, а можно заставить приносить доход. Десять советов, которые содержатся в этой книге – это стройная система, образ (   Читать дальше...   )Жанр: БизнесИздательство: АльпинаПродолжительность: 02:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC5AC5E9BE7EE27CF5CE135E8785ECCE2256F8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704597   (114221) от 05.03.2024
 
 VA - Music News vol.348 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +80,7 @@ VA - Music News vol.348 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114221.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:9AB4B425A6C0BC69C0135CDCECA592BC74475255
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114222.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:B40947612D501290F4D455CB2DB75E9490AD7886
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114223.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ magnet:?xt=urn:btih:47E6ABE316659180191DC9768ACA9594D29811F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114224.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:CE0500204AD01C397F98B41E58894DB419AC8F7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114225.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ EZ CD Audio Converter 11.5.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114226.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ magnet:?xt=urn:btih:5FFEB4DBE0435A87E98F96A913263B96E5E89357
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114227.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ magnet:?xt=urn:btih:B40D083D86263696D8DBF718150B261893373A1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114228.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ Ableton - Live 12 Suite 12.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114229.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Alan Parsons - From The New World (2022) [WavPack|Lossless|image + .cue] <Sympho
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114230.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ magnet:?xt=urn:btih:A115C75641B796FA2CE016C9D5CE8B5F938D0BB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114231.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114232.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ magnet:?xt=urn:btih:50F5858B3C4CD2E6CE89C410C576A028F85C5136
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114233.jpg" />
 </div>
 
 
@@ -331,7 +405,7 @@ magnet:?xt=urn:btih:CB0FE464E73543A2F8C9F64C43268FF1E9FECEEF
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114234.jpg" />
 </div>
 
 
@@ -355,7 +429,7 @@ AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114235.jpg" />
 </div>
 
 
@@ -382,7 +456,7 @@ magnet:?xt=urn:btih:948933FC27F32699A1A98FAC5D46B3BFFEF95CBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114236.jpg" />
 </div>
 
 
@@ -406,7 +480,7 @@ magnet:?xt=urn:btih:A17E032558ED148DE99B8F58602F4733C394AA4D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114237.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ PotPlayer 240305 (1.7.22124) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114238.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ magnet:?xt=urn:btih:EFB1EC7736F982B801871843B572307E79E8963D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114239.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ Aiseesoft Data Recovery 1.8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114240.jpg" />
 </div>
 
 
@@ -504,7 +578,7 @@ NVIDIA GeForce Desktop Game Ready 551.76 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114241.jpg" />
 </div>
 
 
@@ -528,7 +602,7 @@ magnet:?xt=urn:btih:06DD965742D3BE552F8695E61C49286D70EE4193
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114242.jpg" />
 </div>
 
 
@@ -552,7 +626,7 @@ magnet:?xt=urn:btih:77C03D104D76F62E4A074D2C915E736A9DAC7EA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114243.jpg" />
 </div>
 
 
@@ -563,78 +637,6 @@ magnet:?xt=urn:btih:77C03D104D76F62E4A074D2C915E736A9DAC7EA8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902F057DB2F9F87643C10985F077FEE307CAF6C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704622   (114244) от 05.03.2024
-
-Нефариус / Nefarious (2023) BDRip [H.265/1080p] [10-Bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114244.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день запланированной казни осужденного серийного убийцы к нему в тюрьму приезжает врач, чтобы провести психиатрическую экспертизу. Тот с порога заявляет, что умереть всё равно не сможет, так как является демоном, а психиатр перед уходом совершит три убийства.Производство: США / Believe Entertainment (II)Жанр: ТриллерРежиссер: Чак Конзелман, Кэри СоломонАктеры: Джордан Бэлфи, Шон Патрик Флэнери, Том Омер, Гленн Бек, Дэниэл Мартин Берки, Марк Де Алессандро, Камерон Арнетт, Джеймс Хили мл., Сара Эрнандес, Джаррет ЛеМастерПеревод: Дублированный (Футурум), профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AACE389F7AAD583CBB737243E1575DA9F9E18CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526259   (114245) от 05.03.2024
-
-Необратимость. Полная инверсия / Irreversible - Inversion Integrale (2020) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114245.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как на молодую женщину зверски нападают в переходе, ее бойфренды — нынешний и бывший — не в силах сдержать гнев, отправляются собственноручно восстановить справедливость.Производство: Франция / 120 Films, Eskwad, Les Cinémas de la ZoneЖанр: Триллер, драма, криминал, детективРежиссер: Гаспар НоэАктеры: Моника Беллуччи, Венсан Кассель, Альбер Дюпонтель, Филипп Наон, Джо ПрестиаПеревод: Двухголосый профессиональный (CP Digital)Субтитры: ФранцузскиеПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F91364E2058FD2A13ED45ADEF0AC6E47A829429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572616   (114246) от 05.03.2024
-
-Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Судьба [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка есть свет, что освещает людские сердца… но однажды этот свет украли. Мир изменился, когда на землю упал чёрный метеорит: он принёс с собой ужасных монстров, Д2, которые сразу же принялись захватывать планету и людей. Со временем выяснилось, что этих чудищ привлекает музыка — и её запретили. Но потом появились те, кто смог противостоять захватчикам. Мьюзикарты (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Ито ЮкиЯзык озвучки: Японский, русский (AniLibria, AniPlague)Субтитры: Русские (AniLibria, SovetRomantica)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4D4C2EBA326C8165BB75A2CADDE5D66D96808B
 ```
 
 

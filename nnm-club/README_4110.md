@@ -1,3 +1,78 @@
+###  Публикация: 1686476   (126547) от 23.12.2023
+
+Jetbrains WebStorm 2023.3.2 Repack by Sitego [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126547.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872CA948BF7B25B02059BB9A7992A6011CE75875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686460   (126548) от 23.12.2023
+
+Черепашки-ниндзя: Погром мутантов / Teenage Mutant Ninja Turtles: Mutant Mayhem (2023) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо братьев-черепах, всю жизнь скрывавшихся от мира людей в канализациях Нью-Йорка и обучавшихся ниндзюцу, отправляются на поверхность и пытаются жить как нормальные подростки. С помощью своей новой подруги Эйприл О’Нил они выходят на след печально известного преступного синдиката и армии мутантов.Производство: США / Nickelodeon Animation Studios, Point Grey Pictures, Image ComicsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф Роу, Кайлер СпирсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3846EB930FE8EA93E64B1C37054D10958716F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686688   (126549) от 23.12.2023
+
+Александр Шишонин | Секреты здорового сердца (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по восстановлению и поддержанию здоровья сердца и сосудов в домашних условиях
+Что есть в видеокурсе?
+️Теоретическая часть (потому что теория без практики - уже кое-что, а вот практика без теории - ничто):
+    ✅Введение (как часто и какие сдавать анализы и проходить обследования, чтобы своевременно понять, что настало время серьезно (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 08:15:18Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417CD54A57A74F7D2EA3F5DAA440C9AB19F2FFA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686415   (126550) от 23.12.2023
 
 Tor Browser Bundle 13.0.8 [Ru/En]
@@ -6,7 +81,7 @@ Tor Browser Bundle 13.0.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126550.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:5E3DE7134E3CD13E4F374AA2F952B29F34E4955F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126551.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:B1BDE382BF101E5D1F946D4F75091EEF53FB099B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126552.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:51A4219B4160113A04238939AA72244B4D10757F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126553.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:BCB721F879B379E4767BD9E3746D0A772581421C
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126554.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:B0DA2A9061F9AAEFDE3C07FF8DB4AD2C91D30ABC
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126555.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Udemy, Иван Петриченко | Полный курс по совреме
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126556.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126557.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:5DB4AD1019302903FE052CAE67F2AD7236F86DAE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126558.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ Microsoft® Windows® 10 x86-x64 Ru 22H2 8in2 Upd 12.2023 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126559.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:50D0E86C6EA59D8B817B24BAE97CC85E634EDB03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126560.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ magnet:?xt=urn:btih:33F0CC48D9D08EC15DB858C817A4087645A7866B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126561.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ magnet:?xt=urn:btih:428EB8AE8AEFC7F21119820249D2D93945ECEC5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126562.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126563.jpg" />
 </div>
 
 
@@ -343,7 +418,7 @@ magnet:?xt=urn:btih:085D9142B773BC7513C2174CB469DBBF6A71E5F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126564.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ magnet:?xt=urn:btih:C8A0CF5BB96AED9FC967587086443A70297A0985
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126565.jpg" />
 </div>
 
 
@@ -391,7 +466,7 @@ magnet:?xt=urn:btih:C8A0CF5BB96AED9FC967587086443A70297A0985
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126566.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:48BC9EE28396B46CE7278EAD2DC3456998EB5049
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126567.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:B76E03DCC81CDB815FF022A0D0E834551F2F9438
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126568.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ magnet:?xt=urn:btih:5427E01787DE16E121374B270FAEE9122C8DAA98
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126569.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ Need For Speed: Shift 2 Unleashed (2011) [Ru/En] (1.0.2.2/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126571.jpg" />
 </div>
 
 
@@ -535,7 +610,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126572.jpg" />
 </div>
 
 
@@ -546,78 +621,6 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587942   (126573) от 23.12.2023
-
-Календарь ма(й)я (2022) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126573.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о фантастических приключениях современных подростков, жизнь которых по вине одного из них начинает двигаться в обратном направлении. Им придется не только прожить заново прошедшие дни, но и пережить события, которые в дальнейшем изменят жизнь их близких и их самих. Только поступок главного героя может выключить таинственный механизм, определяющий ход времени.Производство: Россия / Киностудия им. М. Горького, КАРО-ПродакшнЖанр: приключения, фантастика, семейныйРежиссер: Виктория ФанасютинаАктеры: Данила Уютов,  Милана Копничева,  Руслан Паньшин,  Фёдор Добронравов,  Анна Уколова,  Равшана Куркова, Раиса Рязанова, Юрий Батурин, Сергей Горошко, Влад ФельдманПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C069D979F1880DFB74DA39B5309A6160100807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686560   (126574) от 23.12.2023
-
-Анатомия падения / Anatomie d'une chute / Anatomy of a Fall (2023) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь успешной писательницы Сандры Войтер переворачивается после загадочной смерти мужа. Ей предъявляют обвинение в убийстве. Однако чем дальше ведется расследование, тем больше всплывает подозрительных обстоятельств.Производство: Франция / Auvergne Rhône-Alpes Cinéma, Canal+Жанр: триллер, драма, криминалРежиссер: Жюстин ТриеАктеры: Сандра Хюллер, Сванн Арло, Мило Машадо Гранер, Антуан Райнарц, Сэмюэл Тейс, Дженни Бет, Саадиа Бентайеб, Камилль Рутерфорд, Анн Ротгер, Софи ФийерПеревод: Дублированный (СиПиАй Филмз / CPI Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDD9D8A9D06F203180BED8C614438010DB55819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686327   (126575) от 22.12.2023
-
-Чингиз Абдуллаев | Дронго (Книга 71). Взращение грехов (2023) [MP3, Дейв]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный эксперт-аналитик Дронго всегда сомневается в том случае, когда улики, указывающие на подозреваемого, уж слишком явные. Не верит он тому, что сразу бросается в глаза. Так и в этот раз. Все указывает на то, что бизнесмен Тевзадзе убил заместителя начальника уголовного розыска Проталина: он находился в квартире убитого, когда приехала милиция, на пистолете (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC33D81B218C33FD3E80AECCA8C52DBCCF4887F
 ```
 
 

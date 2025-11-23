@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35193.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2A5D352ED8FDE66C7DEFF41C44B33CEDEC0A75E9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A7C7A7FEDC2EC3E7A1B4C7AA4515A2E187A5FD77
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35195.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AB5A93F933B450778075B33F941D9B0288789A6D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35196.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E314568034F8AD9FD32954B029D1E3931F023A3E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35197.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35198.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35199.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35200.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35201.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:11EAF5F90D0E5867EE71FC409F35179AC1470319
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35202.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8CCB828E9011009C716D7705216443287EA06FC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35203.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35204.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35205.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35206.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35207.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35208.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35209.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35210.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35211.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35212.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7390182CEB8F1FE77FE52F9A318CD7DB24E06492
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35213.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35214.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8D9E3F18C40CB12F659424545EF1550B82FBBEB4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35215.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35216.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Draw.io 25.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35217.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:D5D9938B4C33A6227F65E62EC20139B05FB9CBAC
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35218.jpg" />
 </div>
 
 

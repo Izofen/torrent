@@ -6,7 +6,7 @@ VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162597.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162756.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162833.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162908.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162917.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Syn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162934.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Best Of Lounge: Asian Lounge (2001) [FLAC|Lossless|tracks + .cue] <Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162946.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - The Best Of Lounge: Latino Lounge (2001) [FLAC|Lossless|tracks + .cue] <Lat
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162955.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [FLAC|Lossless
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162967.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ David Gainsford - The Best Of Lounge: The Blue Lounge (2001) [FLAC|Lossless|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jean-Michel Jarre - Oxymoreworks (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163012.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163080.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ aname (SE) - Beautiful World (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163252.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Siskin - We Are Siskin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163303.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Pop Vocal Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163346.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hieroglyphic Being - There Is No Acid in This House (2022) [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163373.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163385.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163533.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163548.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163705.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163719.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Spacechillers Vol. 2 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163737.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Koan - Esbat: Exilio (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163839.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - The Best Of Suanda Dark 2022 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164226.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - RAM Drum & Bass Annual 2020 (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164313.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164345.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1434164   (153664) от 23.12.2020
+
+SpeakMe 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите преобразовать текст в аудио на любом языке и поделиться как файлом? SpeakMe - это единственный инструмент, который вам когда-либо понадобится.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: ENSILI.CO.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2FFF85D22F5212E5A51BBF6F2A1FAD3FDF8FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434113   (153668) от 23.12.2020
+
+DropDMG 3.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Голландский, Датский и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BDFA0C0301CBCDFD442FE29964D86B2616B633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434252   (153674) от 23.12.2020
+
+Nisus Writer Pro 3.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nisus Writer Pro Мощный мультиязычный текстовый редактор для Mac OS, предоставляющий пользователям широкий набор возможностей для работы с текстом. Помимо стандартных для текстового редактора функций, Nisus Writer Pro умеет работать с таблицами контента, добавлять закладки, индексировать, показывать номер строки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: NISUSПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2FAA552D2CDDA884FD1079E676251087921337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085979   (153681) от 23.12.2016
 
 Microsoft Windows 10 Insider Preview Build 10.0.14986 - Оригинальные образы [Ru]
@@ -6,7 +79,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14986 - Оригинальные
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153681.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Currency Assistant 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153683.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Total Commander 11.02 Final - Titan v31 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153686.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ InfoClick 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153688.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ MAGIX Vegas Pro 19.0.0.458 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153689.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ MetaImage 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153694.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ Luminar Neo 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153702.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Webcam Surveyor 3.8.7 Build 1183 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153703.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Wondershare PDFelement 9.3.3.2053 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153707.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Smart Launcher 6 Pro 6.1 build 049 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153713.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153722.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ WiFi Explorer 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153723.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ Adobe Premiere Pro 24.0.3.2 (x64) Lite Portable by 7997 [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153724.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ magnet:?xt=urn:btih:90C3A11282D1A9BC6AE9F74B0004DDA2454A2A73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153726.jpg" />
 </div>
 
 
@@ -347,7 +420,7 @@ Microsoft .NET 6.0.12 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153733.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:F4D501D210B62711E97062CBDF2A6496E373774A
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153737.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ PDF-XChange Editor Plus 8.0.335.0 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153741.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ JetBrains Rider 2019.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153748.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ K-Lite Codec Pack Update 17.3.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153750.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v1.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153753.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ PDF Extra - Сканнер и редактор 9.8.1766 Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153762.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ Dynamic Island - dynamicSpot 1.43 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153772.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ Artlantis 2020 9.0.2.21255 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153773.jpg" />
 </div>
 
 
@@ -554,78 +627,6 @@ Artlantis 2020 – профессиональный набор инструме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4728610866B41EB71D729CEEA0AAC46ADE2684
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085977   (153780) от 23.12.2016
-
-Тролли / Trolls (2016) WEB-DLRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь в увлекательное приключение, которое заведет ее далеко от привычного ей мира, Розочка объединяет усилия с самым мрачным троллем на свете по имени Цветан для достижения успеха в своей смелой миссии спасти ее друзей из тисков зловещих бергенов и их лидера, короля Хрящ Старший. Невероятные приключения Розочки проверят ее силу, покажут ее истинную суть и (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Майк МитчеллАктеры: Анна Кендрик, Зои Дешанель, Джастин Тимберлэйк, Кристин Барански, Джеффри Тэмбор, Кристофер Минц-Плассе, Джеймс Корден, Кунал Нэйэр, Гвен Стефани, Расселл БрэндПеревод: Дублированный (iTunes)Продолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE30683ED957827F5DA203223798EE4F47B31FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676899   (153787) от 15.11.2023
-
-Blackmagic Design DaVinci Resolve Studio 18.6.3 Build 19 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153787.jpg" />
-</div>
-
-
-###  Подробнее
-
-DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A5D8ECB610496257A4CDA2865F18A9409BD780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433773   (153791) от 22.12.2020
-
-V-ray 5.00.42 for Cinema 4D R20-R23 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153791.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray для Cinema 4D предоставляет стандарт в отрасли технологии фотореалистичного 3D-рендеринга в руках художников и дизайнеров Cinema 4D. Благодаря интеллектуальным инструментам и мощным возможностям рендеринга сочетание скорости и творческого контроля V-Ray идеально подходит для любого проекта. Единственный на сегодняшний день визуализатор способный рендерить GPU (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D21E9DD4E295CFFA65915547902343B903A4E51
 ```
 
 

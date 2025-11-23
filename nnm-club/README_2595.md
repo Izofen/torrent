@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68218.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:D2FC38EBAC4F1298802F1707F8F0430CE95052AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68219.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sheila - A L’avenir (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Chanson>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68220.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Gaming Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68221.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bleed from Within - Zenith (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68222.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Imperial Triumphant - Goldstar (2025) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68223.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ H.Ruine, Mikhail Kireev - Imagined, Awakenings (2025) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68224.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:D0B40D3CF82FCF64CE78E84B9E9F56E4057D7569
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68225.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Black Dog - Further Vexations (2009) [FLAC|Lossless|WEB-DL|tracks] <IDM, Bra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68226.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Natacha Lycurgue - Falling Petals - The Fearful-Avoidant's Discard (2025) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68227.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ The Devil Makes Three - Spirits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68228.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Jerome Godboo - Deep Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68229.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Alliance - Before Our Eyes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68230.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68231.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Duke Pearson - Mosaic Select (1968 - 1970) 3CD, 2003, Mosaic Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68232.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Mulvey's Medicine - Dopamine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68233.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68234.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:723C2CB16ECB79F71524DE68FEA7C0D665C913E1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68235.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:AD800B4F459428494BC4D07F1CD3AF2DB1133821
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68236.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:140AEC071F79389162A57E05EB471A6EFB6EEFC1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68237.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:EF8DBFB4AE37B9943F16DBD07BDF29815487ACD5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68238.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:9634404EAEA82F58428A5A05651052065C07869C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68239.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Seth Walker - Why The Worry (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68240.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:55CEFE437285E4655DD853B0B3F1611087181D15
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68241.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Night Intruder - Hellbound & Free (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68242.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Amerikan Kaos - All That Jive (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68243.jpg" />
 </div>
 
 

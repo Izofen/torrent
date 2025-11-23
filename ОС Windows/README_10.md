@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161138.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161147.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows 11 [10.0.22000.1335], Version 21H2 (Updated December 2022) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161216.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161271.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162464.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows 10.0.18363.535 Version 1909 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163236.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Windows Server, Version 1909 (10.0.18363.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163281.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Windows Server 2019 LTSC 1809 (build 17763.914) updated_December_2019 - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163284.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163321.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163375.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Windows Server, Version 20H2 (10.0.19042.685) (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163391.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Windows Server, Version 1903 (10.0.18362.535) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163458.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1637 (Updated December 2020) �
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163461.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163485.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163499.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163520.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163558.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163585.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Microsoft Windows 10.0.18362.1256 Version 1903 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163622.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Windows 10.0.17763.1637 Version 1809 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163675.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Microsoft Windows 10.0.17763.1637 Version 1809 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163783.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163798.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163863.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Windows 10.0.18362.1256 Version 1903 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163897.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22631.2428], Version 23H2 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165643.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165808.jpg" />
 </div>
 
 

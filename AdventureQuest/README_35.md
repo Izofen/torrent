@@ -6,7 +6,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.11.4448/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50296.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Whispering Lane: Horror (2024) [Ru/Multi] (1.0) Repack FitGirl [Collector's Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50401.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Murders on the Yangtze River (2024) [Multi] (1.4.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50452.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50518.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50583.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Eyes of Destiny (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50596.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50690.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50730.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.31.23/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50847.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TOEM: A Photo Adventure (2021) [Ru/Multi] (3.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50863.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nancy Drew: Mystery of the Seven Keys (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50925.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Psychopath Massacre (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51002.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CRUELTY (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51106.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:9CDC89DED1CEC56C43457AFEA80F1609E5996CD1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51110.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mountains of Madness (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51112.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51139.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51212.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51327.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51342.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51517.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51526.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51542.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51577.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51676.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51694.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51728.jpg" />
 </div>
 
 

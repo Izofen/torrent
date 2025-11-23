@@ -1,3 +1,81 @@
+###  Публикация: 1715639   (111072) от 22.04.2024
+
+Poisonblack - Studio Albums (6 releases) (2003-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poisonblack — финская метал-группа, возглавляемая бывшем фронтменом Sentenced, певцом и гитаристом Вилле Лайхиала.2003 - Escapexstacy
+2006 - Lust Stained Despair
+2008 - A Dead Heavy Day
+2010 - Of Rust And BonesЖанр: Heavy/Groove/Gothic MetalПродолжительность: 05:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2594363B9035A13F3A27CFCB0A75CF11EE2FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717939   (111073) от 22.04.2024
+
+Кукольная анимация / Тьма играет в куклы / Stopmotion (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливая и замкнутая Элла Блейк занимается анимацией. Изо дня в день она выполняет кропотливую работу, перемещая кукольных персонажей на миллиметры. Девушка работает под контролем своей властной матери, которая подавляет ее стремление к независимости. Но когда мать попадает в больницу, жизнь Эллы радикально меняется. Героиня переезжает в пустующий дом, где приступает (   Читать дальше...   )Производство: Великобритания / Blue Light, British Film Institute (BFI)Жанр: ужасыРежиссер: Роберт МорганАктеры: Эшлинг Франчози, Кэолинн Спринголл, Том Йорк, Стелла Гонет, Терика Уилсон-Рид, Бриджитта Рой, Алекс Фриборн, Джеймс Суонтон, Джеймс Харрис, Джаз Хатчинс и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717818   (111074) от 22.04.2024
+
+Deviated Instinct - Husk (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Crust Punk, Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brave New Herd [4:31]
+02 - We Harvest Just Shadows [4:02]
+03 - None Shall Mourn [6:50]
+04 - Longpig Crawling [6:00]Жанр: Crust Punk, Death Metal, Thrash MetalПродолжительность: 00:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113B274BB2D9AD5B09DAD2A8A4F75BFB6A8B659A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718011   (111075) от 22.04.2024
 
 Журнал | Профиль №15-16 (227) (апрель 2024) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111075.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ Deviated Instinct - Liberty Crawls to the Sanctuary of Slaves (2013) EP [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111076.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tarja Turunen - What Lies Beneath (2010) Special Edition, 2024, earMUSIC [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111077.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111078.jpg" />
 </div>
 
 
@@ -109,7 +187,7 @@ magnet:?xt=urn:btih:4F59D6BF797AC215DA852A19F9B347353B2DB48C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111079.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ magnet:?xt=urn:btih:974E0D9DFCC91BEC4EA1C9952660220CE2C6D1D3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111080.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ magnet:?xt=urn:btih:575708FEAD4D78A5D55089953958E570134865B1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111081.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ QOwnNotes 24.4.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111082.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ PhotoDirector v19.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111083.jpg" />
 </div>
 
 
@@ -229,7 +307,7 @@ L.a. Guns - Black Diamonds (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111084.jpg" />
 </div>
 
 
@@ -256,7 +334,7 @@ John Haydock - Cold Look (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111085.jpg" />
 </div>
 
 
@@ -283,7 +361,7 @@ magnet:?xt=urn:btih:E4FA2357C4E2B8F4CE217516EB89F4FA15F8DA20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111086.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ magnet:?xt=urn:btih:E4FA2357C4E2B8F4CE217516EB89F4FA15F8DA20
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111087.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ magnet:?xt=urn:btih:157F67E0F6164FC82419433DC8D4D4D9B85330C1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111088.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ Process Lasso Pro 14.0.2.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111089.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ magnet:?xt=urn:btih:1A392F18CD069B975ED4A61F313F610180959219
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111090.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ magnet:?xt=urn:btih:2ACF6D50D65824BC099619929C9A78CDD4C61325
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111091.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ Glary Disk Cleaner 6.0.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111092.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ Wise Care 365 Pro 6.6.7.637 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111093.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ OneCommander Pro 3.76.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111094.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ magnet:?xt=urn:btih:0A38E1CEF962A105D338CDA104B2A916929EFB58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111095.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ magnet:?xt=urn:btih:5DA58A3BE1C3CB54BE802EB50DB8900B35EF3DA2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111096.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:2CB0DA6D778B0A496894079B404F4422677595E6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111097.jpg" />
 </div>
 
 
@@ -568,81 +646,6 @@ magnet:?xt=urn:btih:2CB0DA6D778B0A496894079B404F4422677595E6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBD37E7C65F14EED894F1EBAFEA65B502544910B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717965   (111098) от 22.04.2024
-
-Ганс Христиан Андерсен, Виталий Бианки, Всеволод Гаршин, Братья Гримм | Бабушкины сказки 3 (2006) [MP3, Александр Куликов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сказка.
-Перед сном мне бабушка всегда рассказывает сказки. Послушайте и вы наши сказки.
-Сборник включает народные сказки, а также сказки отечественных зарубежных писателей: Виталия Бианки, Вильгельма Гримм, Якоба Гримм, Ганса Христиана Андерсена, Всеволода Гаршина.
-(   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Синтез ПродакшнПродолжительность: 04:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AEE0A2287C3EC389291FCF6EA6B760FA1E2519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718024   (111099) от 22.04.2024
-
-Photo Lab PRO v3.13.7 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 22.04.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB7E66A262CC9F453990641E0A23C8D8333C7B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717940   (111100) от 22.04.2024
-
-Кукольная анимация / Тьма играет в куклы / Stopmotion (2023) WEB-DLRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливая и замкнутая Элла Блейк занимается анимацией. Изо дня в день она выполняет кропотливую работу, перемещая кукольных персонажей на миллиметры. Девушка работает под контролем своей властной матери, которая подавляет ее стремление к независимости. Но когда мать попадает в больницу, жизнь Эллы радикально меняется. Героиня переезжает в пустующий дом, где приступает (   Читать дальше...   )Производство: Великобритания / Blue Light, British Film Institute (BFI)Жанр: ужасыРежиссер: Роберт МорганАктеры: Эшлинг Франчози, Кэолинн Спринголл, Том Йорк, Стелла Гонет, Терика Уилсон-Рид, Бриджитта Рой, Алекс Фриборн, Джеймс Суонтон, Джеймс Харрис, Джаз Хатчинс и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
 ```
 
 

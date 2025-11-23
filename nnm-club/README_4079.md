@@ -1,3 +1,81 @@
+###  Публикация: 1687052   (125736) от 25.12.2023
+
+Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничем непримечательный лысеющий профессор среднего возраста Пол Мэтьюс ведёт обычную профессорскую жизнь, преподаёт в университете и много лет вынашивает идею книги о коллективном разуме муравьёв. Внезапно мужчина становится дико популярным — люди всего мира начинают видеть его во сне. Теперь о Поле трезвонят все СМИ, его хочет рекрутировать агентство талантов, а (   Читать дальше...   )Производство: США / A24, Square PegЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайл и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:00Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687077   (125737) от 25.12.2023
+
+VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janet Jackson - Together Again
+02. Natalie Imbruglia - Torn
+03. Espen Lind - When Susannah Cries
+04. The Kelly Family - One More Song(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687182   (125738) от 25.12.2023
+
+Hekz - Terra Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Terra Nova
+02 - Sabotage
+03 - Horizons
+04 - Mayday(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3473E96457EC7A7021F8047F3E3B83016DBC1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687173   (125739) от 25.12.2023
 
 Владимир Сединкин | Последнее дело Шерлока Холмса (2023) [MP3, Александр Дунин]
@@ -6,7 +84,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125739.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:917523CAA89319EDE147828313735D51D33CCFE4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125740.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:48D4D26FAE39BB09254CAEA2A6FF13CE32C2DB45
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125741.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:53CE4571E1961074D45090A0ED2C83ABA79946EC
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125742.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ magnet:?xt=urn:btih:5EC6FA006953CD1E415BD13100A88BCC5EF30822
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125743.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ Vivaldi 6.5.3206.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125744.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ VA - Music News vol.326 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125745.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:DC304BC1FEA57F11361469BE4DF39E0968AC2E33
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125746.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ magnet:?xt=urn:btih:6B8AE826D1DAC23B43361FB32E78E638382C395A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125747.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:9AC44A5637E830871A893218089E2222576A90D7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125748.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ magnet:?xt=urn:btih:3D36618FF72F1AFD3E52D9333BD55309C4F8863F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125749.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ magnet:?xt=urn:btih:2858F0FAD12700715F1B68C496E517F71E55E64F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125750.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ magnet:?xt=urn:btih:7DC846CBA1422F385074E253CD86BB21C17B325E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125751.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ magnet:?xt=urn:btih:90EDCD01BA066FB356DA9B0826A04C51502B4CAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125752.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ magnet:?xt=urn:btih:33D845EC33EEA1AB23A769601FCFFFBDEB61244A
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125753.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ magnet:?xt=urn:btih:BF83E91DDE96EF35889C495FBE8A53D53489EB29
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125754.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125755.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ magnet:?xt=urn:btih:603BC5B326E7767A1C3C694FAD8F135EECC531AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125756.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:7251AC387063C55315F2099F0C0358F35C15286D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125757.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ magnet:?xt=urn:btih:43EE30AFE26446459E4090C9C396840C49A68F11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125758.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ magnet:?xt=urn:btih:8B18884D08485E204CEC347E4D7F8E864C2A597C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125759.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ Misuria - Saint Thomas Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125760.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_125761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_125761.jpg" />
 </div>
 
 
@@ -563,81 +641,6 @@ magnet:?xt=urn:btih:5AA736FC3242A9CC8C994C0E63F31D390AC51D22
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823427   (125762) от 11.10.2025
-
-Аарон Максвелл | Мощный Python (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как стать экспертом в создании сложных и мощных приложений на Python, не тратя время на повторение уже известных основ или перечисление ненужных функций? Аарон Максвелл фокусируется на первопринципах Python, которые действуют подобно катализаторам для всего остального: достаточно получить 5 % знаний в области программирования, чтобы остальные 95 % подтянулись автоматически.Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: Sprint BookФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823440   (125763) от 11.10.2025
-
-Asya-Design, Александра Бавыкина | Курс по 3D визуализациям в Archicad (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались, сколько вы сможете сделать проектов за месяц? Вы будете делать дизайн-проект в разы быстрее. С курсом по 3D визуализации вы сможете зарабатывать больше.Производство: Asya-DesignЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 13:02:17Реклама: наложение на видео (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823445   (125764) от 11.10.2025
-
-Валентина Паевская | Финансовая грамотность (2025) WEB-DL [RU]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Обучающее Видео для родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша семья нуждается в системе финансовой грамотности, если:
-Вы хотите, чтобы ваш ребёнок вырос не просто потребителем, а человеком, способным строить своё финансовое будущее.
-Вы опасаетесь, что в 25 лет ваш подросток будет полностью зависеть от вас и жить на ваши средства.
-Вы стремитесь быть уверенными, что ваш ребёнок сможет самостоятельно управлять своими расходами, (   Читать дальше...   )Жанр: вебинар, финансы, воспитание детейЯзык озвучки: русскийПродолжительность: 04:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65120F685C9D92CAEAC57CE9FE992D06A5B08EC
 ```
 
 

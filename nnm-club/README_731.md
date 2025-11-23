@@ -6,7 +6,7 @@ Back: Fade (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19330.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB5AF53B5248EA88D36DE103CC9578E797822341
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19331.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0512A585042D1C861AEBE787ADC1DC3D1348C02
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19332.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shazam v15.20.0-250424 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19333.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser ESR 128.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19334.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ FastFlix 5.12.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19335.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Firefox Browser ESR 128.10.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19336.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E9F8A939FE502A7E605212D236847DF0B12B3CF2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19337.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TikTok Private Plus v39.9.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19338.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Firefox Browser 138.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19339.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:722E08D947125263278D0FA71FFCC372ABD87B91
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19340.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:341572D1947853DEF65ED8AE03A90815C4C6271D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19341.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Fan Control V223 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19342.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19343.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:E70BCE8461114681723D6CCCB3E5E2CC69143730
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19344.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Firefox Browser ESR 115.23.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19345.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19346.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:91B8A1D7B4F0B78A91889969D6A946057028B9C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19347.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Sp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19348.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C8CBA012AC1C85043C77D9E7B7F68211E6B57A93
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19349.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E4EEB8CFF95CFAC3595BDD164F724923304AC034
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19350.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Firefox Browser 138.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19351.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Notification Widget v1.5.172 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19352.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:28D788F1795C771793A97E2E502EECF9210DB1B9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19353.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:DD7BD5294478AEDDFA2EC21CAFCACFC12813BD5D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19354.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:172D707BA03DD6CCFA00C61F91F7925E7FD58071
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19355.jpg" />
 </div>
 
 

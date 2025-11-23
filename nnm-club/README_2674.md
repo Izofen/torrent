@@ -6,7 +6,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70272.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6581CD1B9EC986ABC694DFDF09B288C05B998D7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70273.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:654CE11BBBC7181247CE4BF0AF8DFE56827A1C77
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70274.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:487BD7814CF2E6FBC77D659ED5B5B8C7D6E0EB5C
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70275.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:E1B1D633E5698A8420827A6849849186E48CA04E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70276.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:86033B0C977FD157C63BD0337B0B68429FF7C2A1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70277.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A418EA75A23E395E612A88FB7A5682BF17644AC6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70278.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0BF7A750A445B1D136BB901DABF73892EEB94E4F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70279.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ H.E.R.O. - Ghost Of You (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70280.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Firefox Browser 135.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70281.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Beat Find / Распознавание музыки v1.6.55 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70282.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ W.A. Production - Put Me On Drums by K391 1.0.4 VST, VST3, AAX RePack by BUBBiX 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70283.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Firefox Browser 135.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70284.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tablacus Explorer 25.2.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70285.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Electronic Lyrics (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70286.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ NokoPrint v5.20.24 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70287.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ PhotoRoom v2025.08.05 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70288.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70289.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70290.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70291.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70292.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:9BECACBA3857CDF23E1741811934D9AE06E3F3B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70293.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:FF1B73955BA27F87253C74436AB7DAFEA78037C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70294.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:99EB307AA2EB324390FC0CB237F3E5670F1A2468
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70295.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PictureThis - Plant Identification v5.1.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70296.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:130C23F70B7895F81E749E02D043042857044739
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70297.jpg" />
 </div>
 
 

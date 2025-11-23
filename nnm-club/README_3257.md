@@ -1,3 +1,75 @@
+###  Публикация: 1822911   (104363) от 10.10.2025
+
+Охотник за скальпом / Погоня в горах / Hell Bent for Leather (1960) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители небольшого захолустного городка Саттервилль по ошибке принимают обычного торговца Клея Сантелла за беглого убийцу по имени Трэверс. Федеральный маршал Гарри Декетт, единственный, кто знает Треверса в лицо, видит, что Сантелл не тот человек, но решает убить Клея и выдать его за настоящего Трэверса с целью повысить свою служебную репутацию и получить денежное (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: вестернРежиссер: Джордж ШерманАктеры: Оди Мерфи, Фелиция Фарр, Стефен Макнэлли, Роберт Миддлтон, Джеймс Вэстмолэнд, Ян Мерлин, Герберт Радли, Малкольм Аттербери, Джозеф Рускин, Аллан ЛэйнПеревод: Одноголосый любительский (Grampy)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английскиеПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07273C6ADF53AFE891BF000257DE4542120B7CB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822906   (104364) от 09.10.2025
+
+Тот самый / Him (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечта, которая с детства казалась недостижимой, наконец становится реальностью — молодого, амбициозного футболиста приглашают на эксклюзивные тренировки с легендой спорта, загадочным и харизматичным квотербеком. Но вместо триумфа его ждёт изолированный тренировочный центр, и по мере того как обучение Кэма набирает обороты, харизма наставника начинает приобретать (   Читать дальше...   )Производство: США / Monkeypaw Prodctions, Ingenuity EngineЖанр: ужасы, спортРежиссер: Джастин ТиппингАктеры: Тайрик Уизерс, Марлон Уайанс, Джулия Фокс, Jordahn Smith, Тим Хайдекер, Дон Бенжамин, Kiara Gomez Glad Bak, Наоми Гроссман, Габриэла Алисия Ортега, Джим ДжефферисПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D014B96991FA2FD3FE71F081D3D5481DE636F4B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822916   (104365) от 09.10.2025
+
+Tor Browser Bundle 14.5.8 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3915E7DF591D28F7A3E5FF77D6F8F9CA77FDA372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822863   (104366) от 09.10.2025
 
 З/Л/О: Хэллоуин / V/H/S/Halloween (2025) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104366.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ VA - На вершине блюза #3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104367.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ VA - На вершине блюза #2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104368.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ VA - На вершине блюза #1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104369.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Halloween Secrets: The Blood Vow / Секреты Хэллоуина: Клятв
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104370.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ magnet:?xt=urn:btih:BF2FDA5C21414F71303A6F33302BE27AEDAAF37A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104371.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ magnet:?xt=urn:btih:64CC323304EDF3E03C6DA43F41EC8CB6A82048C8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104372.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ magnet:?xt=urn:btih:37A2820464291C3E127A581C3B7949D96BE938A5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104373.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:D85C52E9007D41D20978327E3FE463A84E3B0EA4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104374.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104375.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104376.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:833811E4035275C8185C32922AECFB581123899F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104377.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ magnet:?xt=urn:btih:70B37B772A595DF00DE6982C6CA3F3FC8970EA53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104378.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ VA - Compilation Part 196 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104379.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:59CF3874BFCD5C239AF9AAC3D148EE0CA1549862
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104380.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:AEB679FDC2747728A9696BD406A2D95C148B51C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104381.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ magnet:?xt=urn:btih:709679884436E0A73575F45238D84CBD75F92F4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104382.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ magnet:?xt=urn:btih:0CD141C5A1773EC99A7B48A33F0C7B56B0FB15BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104383.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ magnet:?xt=urn:btih:A6192049A330D0C0618DAB428CEF952DB99DD84D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104384.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:669E616F818B9B934AFCD4DBC465DE9334B03427
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104385.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ SoftPerfect RAM Disk 25.10 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104386.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ magnet:?xt=urn:btih:9E71B83704EE2D575D92F95553DFB9166F9510B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104387.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ magnet:?xt=urn:btih:9A3CA2E5D63FBFEF738EAD7B68BB795837FFD5F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104388.jpg" />
 </div>
 
 
@@ -573,80 +645,6 @@ magnet:?xt=urn:btih:9A3CA2E5D63FBFEF738EAD7B68BB795837FFD5F4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3592C7A36DCE343404D9E01C9405C5A475AC90CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822983   (104389) от 09.10.2025
-
-Не оставляй меня одну (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать родила Ольгу в 19 лет от молодого повесы, который быстро испарился. Когда девочке исполнилось 2 года, она уехала в поисках любви и счастья. Олю воспитывала бабушка, которая стала ее единственным близким человеком. Следуя своей мечте, Ольга становится хирургом. Она выходит замуж за Валентина, но семейная жизнь не складывается: невозможность иметь детей из-за (   Читать дальше...   )Производство: Россия | «Кинокомпания Гамма»Жанр: МелодрамаРежиссер: Руслан ПаушуАктеры: Анна Леванова, Никита Лобанов, Анастасия Рысева, Андрей Аладьин, Антон Кутынов, Полина Русакова, Дарья Белодед, Анастасия Возжаева, Владимир Гененрайх, Михаил Бондарук и др.Субтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3A89DE4DAE19684F4F83FD0F1EDAF097ED529A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822898   (104390) от 09.10.2025
-
-Сергей Карелин, Илья Савич | Инженер магических сетей (Книга 7) (2025) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что у вас в розетку включен левитатор, и мебель парит в воздухе, пока вы пылесосите квартиру. Или в кармане лежит приблуда, с которой вы можете швыряться файерболлами. Прикольно звучит, не так ли? В общем, я оказался в мире, где люди научились пускать магию по проводам и запасать в аккумуляторах. Здесь это главный источник энергии. А я как раз инженер-энергетик, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 10:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF020D1D4F29FA3D7D9C5C201B6EADAE7FE6C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822902   (104391) от 09.10.2025
-
-Джонатан Хайдт | Стакан всегда наполовину полон! 10 великих идей о том, как стать счастливым (2020) [MP3, Максим Суслов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое аргументированное исследование феномена счастья, созданное самым лучшим мыслителем нашего времени.
-Критики называют эту аудиокнигу «самым аргументированным исследованием феномена счастья». Журнал Prospect включил ее автора в список лучших мыслителей нашего времени.
-Джонатан Хайдт изучил трактаты древних мыслителей и философские труды за последние 500 лет. Он (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 11:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB78522F568C0C607EDED18703BBA9610259F51
 ```
 
 

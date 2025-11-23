@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57723.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIMP 5.30 Build 2549 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57725.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TreeSize Professional 9.1.4.1881 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57726.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57731.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ FileMenu Tools 8.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57732.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Visual Studio Code 1.89.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57733.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ DiskDigger 2.0.1.3923 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57735.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ R-Studio Network 9.4 Build 191310 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57738.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57739.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:92C95E60F08BB1E73940A2E7ABD3B5B89A785B2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57741.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topaz Video AI 5.0.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57746.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Foobar2000 2.1.5 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57749.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Topaz Gigapixel AI 7.1.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57753.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Corona Renderer 11 for Cinema 4D R17 - 2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57759.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Nitro Pro 14.24.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57762.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PhotoFiltre Studio X 11.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57763.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Maxon Cinema 4D Studio 2024.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57765.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Disk Drill 5.5.900 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57774.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VirtualBox 7.0.18 Build 162988 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57779.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Adobe Character Animator 2024 24.2.0.80 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57804.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Google Chrome 124.0.6367.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57807.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57809.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57810.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe Audition 2024 24.2.0.83 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57812.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Firefox Browser 125.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57813.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Sandboxie plus 1.13.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57818.jpg" />
 </div>
 
 

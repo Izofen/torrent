@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70792.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70793.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70794.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0B92E020DBC291B3F768F7B8F354D07A76D35FDE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70795.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A34A34996E9E3B9E952F0B774DA580B9B11D4131
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70796.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8C7A1DBA2A4FE10149B3E02EFD5A095B0D05B487
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70797.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:6BC2E7EA91660968316CA4012121627834051FE0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70798.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Electro Swing Back to Old School (Jazzy Electro and Vintage Swing Reloaded)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70799.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:EB0AC97961D020066781E66A1D2A67C42127AAD2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70800.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:7B85BA203EDBB6EB44D42F343D575CFE012BA90F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70801.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:7676670A3A18846C9F45E17DFD0618F0C4955C45
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70802.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70803.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70804.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:332285D177EC2A17D98D26180082EA87C96262A0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70805.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:DED43C780C931D082880AC49D7490BA1E89FEA74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70806.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:69CC5A8077694152DF50379B87DF179955DAF096
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70807.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Redux Selection, Vol. 3 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70808.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautroc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70809.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ebonheart - Face our Fear (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70810.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70811.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8851EEE800D7A1DD021144132F71C5AEE721030E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70812.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Max Greger - Super Tanzmusik (1985) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70813.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Todd Cochran TC3 - Then And Again, Here And Now (2021) Sunnyside [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70814.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:08CCB47C7390E0B370E748066F5A9630B985BEC4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70815.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ PrivaZer Pro 4.0.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70816.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ V.A. - Pop International Hits Vol. 2 (Bossa Nova Lounge Jazz Covers) (2025) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70817.jpg" />
 </div>
 
 

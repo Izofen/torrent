@@ -6,7 +6,7 @@ Zentimo xStorage Manager 1.6.2.1216 RePack by KpoJIuK [Русский, Укра�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129138.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zentimo xStorage Manager 1.6.2.1216 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129144.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zentimo xStorage Manager - (аналог USB Safely Remove) это менедж�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129154.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rectangle Pro 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129155.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129171.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129174.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Firefox Browser 96.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129192.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129195.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sketch 82.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129198.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Клубные Новинки Vol.66 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129200.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Mozilla SeaMonkey 2.9 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129202.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129208.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:FD08EBBEA314F035F35A7961BD53FA235B36CA6B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129215.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:38E4C0ED57BC3F9CA50F679EAF1E6501C758B903
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129220.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0CD11D600CC926EAF6930204ACFB9ED009A2004C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129222.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - 50 Trance Tunes Vol.29 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129232.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Audio Damage - Other Desert Cities 1.0.9 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129233.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ISO Workshop Free 10.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129238.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Dezperadoz - Dead Man's Hand (2012) [MP3|320 кб/с]<Thrash Metal (Western Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129248.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:D74C2279FFBEEC72D694CD581FE006244F8530D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129256.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:83A15EB6699805A7CDADFD6CFF4C38B505EC5920
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129267.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:D0F6F9005649D048B55356A80E59C268E78EF672
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129273.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ISO Workshop 10.8 Pro RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129274.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ UctoX 2 v2.8.15 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129519.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:2BE6F53048A47499B68CBA9A927A6CD1B9F67FA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129521.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ MacCleaner 2 PRO 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129524.jpg" />
 </div>
 
 

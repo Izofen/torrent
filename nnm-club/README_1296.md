@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34049.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Linux Mint Debian Edition 6 Faye (LMDE 6) [32-bit, 64-bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34050.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34051.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:248BB1CCA3D39DE7BDD72137619D6F1151022527
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34052.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Google Play отключает российских разработчиков �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34053.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Google Play отключает российских разработчиков �
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34054.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Google Play отключает российских разработчиков �
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34055.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4A9DFDEF2CB05B30E985B319F0561CE6FCC8DFF9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34056.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:7199AD71A437FAE8279C8762CCE46F250DA05576
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34057.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:57CE82213351E42287A05EF8CF61B82879CD4F13
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34058.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bandicam 8.0.1.2512 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34059.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Carrion 1.0.35 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34060.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34061.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:382CDD720B4401734B1A94F3E4582BC764AB39DC
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34062.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34063.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34064.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34065.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:0BF69CAFB043B7D80CC9B6FE521DF668FF02F21F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34066.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Zero qaryz (2024) WEBRip [H.264/1080p] [KAZ / RU Sub]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34067.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D817207CA94DB07E258D149A18BB39B6B01DCC9F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34068.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C7743D7FBB0DCCBCA6EC7A757E70CD84DA4C3453
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34069.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ ExamDiff Pro 15.0.1.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34070.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Endling *Extinction is Forever 1.3.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34071.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ LANDR - Mastering Plugin Pro 1.1.22 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34072.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:F7D850E0A6025F642464D9181CB2DF893D4E7AAB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34073.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:D8837590F42A9705C39888956F8150569FCF0F53
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34074.jpg" />
 </div>
 
 

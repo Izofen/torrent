@@ -1,3 +1,91 @@
+###  Публикация: 462921   (80313) от 05.03.2012
+
+Windows7 Профессиональная x64x86 AUZsoft v.7.12. [RUS]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80313.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Это совершенно чистая сборка! Ничего не изменено.Интерфейс,папки,иконки,вид файлов-всё стандартное!
+• Установлены обновления по 03.03.2012.
+• Отключен контроль учетных записей.
+• Интегрирован активатор от m0nkrus’a.
+• В начале установки добавлен загрузчикНазвание программы: Windows7 Профессиональная x64x86 AUZsoftЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463020   (80314) от 05.03.2012
+
+Библиотека книг в формате MOBI для Amazon Kindle (Киндл) на русском языке [2007] [FB2]
+
+>>Художественная литература
+>>Библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переконвертированная в MOBI формат библиотека созданная Monokok'ом v 2007 году с его же любезного разрешения.
+
+Конвертация осуществлялась при помощи Calibre for Kindle.
+
+Библиотека переупорядочена (отсортирована) по жанрам и имеет следующую структуру:
+
+Жанр /2007Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A297D0C360A72DFD77AA55510F456D18808B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458887   (80324) от 05.03.2012
+
+Unreal Tournament 2004 [Native] [Eng]
+
+>>Игры для macOS
+>>Action, FPS для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unreal Tournamet 2004 - очень популярный трехмерный шутер от первого лица. Начиная еше с первой версии игры ut он был заточен под сетевую игру, однако и одиночная игра в 2004 версии не оставит геймера равнодушным. По утверждению разработчиков, вас ждет более 100 игровых карт, со своим звуковым сопровождением, текстурами и атмосферностью.
+
+Unreal Tournament очень динамичная игра, настолько динамичная, что иногда происходит только на уровне рефлексов.
+
+По сравнению с 2003 тоурнаментом, значительно увеличилось время прохождения основной кампании, да и вообще похоже увеличилось количество всего. Появилось много новой легкой и тяжелой техники, и соответственно контр-оружия для них. Против быстроходных мангустов и легких джипов подойдет хороший заряд самонаводящийся ракеты, а вот против бронированного танка без огромной статичной плазменной пушки не обойтись.
+
+Количество типов состязания тоже увеличилось, нас ждет и классические штурмы, удержания, захваты флагов, борьба за ядро, а также новые Assault и Onslaught, в (   Читать дальше...   )2004Mac OS XТип издания: NativeЖанр: 3D ActionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB58E0E4F77E0FA74364E6E664C8C2460F00453A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462153   (80325) от 05.03.2012
 
 Freevods. Всё покерное видео (обновления по 01.03.2012)[2010-2012] WEB-DLRip
@@ -6,7 +94,7 @@ Freevods. Всё покерное видео (обновления по 01.03.20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80325.jpg" />
 </div>
 
 
@@ -30,7 +118,7 @@ magnet:?xt=urn:btih:624B51A36929437D197D6F9F3ED4696162142426
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80328.jpg" />
 </div>
 
 
@@ -54,7 +142,7 @@ magnet:?xt=urn:btih:624B51A36929437D197D6F9F3ED4696162142426
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80329.jpg" />
 </div>
 
 
@@ -79,7 +167,7 @@ Adrenaline Mob - Omerta (2012) [FLAC|Lossless]<Heavy Metal / Progressive / Nu-Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80331.jpg" />
 </div>
 
 
@@ -103,7 +191,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80333.jpg" />
 </div>
 
 
@@ -128,7 +216,7 @@ Xilisoft Media Toolkit Ultimate 7.0 [English]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80337.jpg" />
 </div>
 
 
@@ -152,7 +240,7 @@ magnet:?xt=urn:btih:733AB194CB81A1137501702D2DE4E818FAD77A4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80343.jpg" />
 </div>
 
 
@@ -178,7 +266,7 @@ magnet:?xt=urn:btih:85C115E2D3DA2098CB43C82D2C8547415D9D94BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80344.jpg" />
 </div>
 
 
@@ -204,7 +292,7 @@ magnet:?xt=urn:btih:CD2D6B9E86DFCDFF2BE2EC4EDDA9B3B87ED1064D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80355.jpg" />
 </div>
 
 
@@ -228,7 +316,7 @@ magnet:?xt=urn:btih:CD2D6B9E86DFCDFF2BE2EC4EDDA9B3B87ED1064D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80367.jpg" />
 </div>
 
 
@@ -252,7 +340,7 @@ magnet:?xt=urn:btih:9C697F5830E0EFA22124DC0F095591B197F2637B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80372.jpg" />
 </div>
 
 
@@ -278,7 +366,7 @@ magnet:?xt=urn:btih:329D63E9471C2292B2DCB5A017CEC9BE6C38E5AB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80376.jpg" />
 </div>
 
 
@@ -302,7 +390,7 @@ magnet:?xt=urn:btih:83A7EE88FA44CDDA70A5E514DD164FAEEA7B8025
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80377.jpg" />
 </div>
 
 
@@ -326,7 +414,7 @@ VA - DFM - Russian Dance from AGR (2.03.2012) MP3, 320 kbps (2012) [MP3|320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80380.jpg" />
 </div>
 
 
@@ -359,7 +447,7 @@ VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80397.jpg" />
 </div>
 
 
@@ -383,7 +471,7 @@ Epica - Requiem For The Indifferent (2012) [MP3|320 кб/с (Scene)]<Symphonic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80398.jpg" />
 </div>
 
 
@@ -416,7 +504,7 @@ magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80408.jpg" />
 </div>
 
 
@@ -442,7 +530,7 @@ magnet:?xt=urn:btih:D77929D00F36884F7A99178F60C4DA25FD058656
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80413.jpg" />
 </div>
 
 
@@ -466,7 +554,7 @@ magnet:?xt=urn:btih:1BC9F13C5E0B8B966D7BCFAF7F0BD6169CA73444
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80416.jpg" />
 </div>
 
 
@@ -492,7 +580,7 @@ magnet:?xt=urn:btih:1BC9F13C5E0B8B966D7BCFAF7F0BD6169CA73444
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80426.jpg" />
 </div>
 
 
@@ -516,7 +604,7 @@ magnet:?xt=urn:btih:7747B3CE08C57C02536F5EC6E1662CBE4B67E904
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80436.jpg" />
 </div>
 
 
@@ -541,7 +629,7 @@ magnet:?xt=urn:btih:73CE2D413DC9B1750DDCDD82514DA94D8802DB4A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80437.jpg" />
 </div>
 
 
@@ -565,7 +653,7 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80438.jpg" />
 </div>
 
 
@@ -575,80 +663,6 @@ Gens-Rerecording 11b (svn296) [Английский, Русский]
 
 Для запуска эмулятора Sega с русским интерфейсом - запустите файл gens11svn296_ru.exe!
 Для запуска эмулятора Sega с английским интерфейсом - запустите файл gens11svn296_en.exe!Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462982   (80442) от 06.03.2012
-
-Хорошие поступки / Good Deeds (2012) Screener [EN]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80442.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжетной линии фильма ««Хорошие поступки» (Good Deeds) - Уэсли Дидс (Тайлер Перри), успешный, богатый бизнесмен. Он всегда делал в своей жизни то, что от него обычно ожидали, будь то принятие руководства компанией его отца, или же планирование свадьбы с красавицей Натали (Гэбриэл Юнион). Однако, неожиданно для окружающих и себя самого, Уэсли встряхивается от рутины и повседневности после того, как встречает Линдси (Тэнди Ньютон), мать-одиночку, работающую уборщицей в его офисном здании.
-
-Решив помочь женщине вновь встать на ноги после ряда жизненных неудач, герой картины «Хорошие поступки» (Good Deeds) вдруг начинает осознавать, что что-то изменилось внутри него самого. Что-то, что наконец-то даст мужчине сил обменять свою привычную жизнь на ту, что на самом деле всегда была ему нужна.Жанр: Драма, Мелодрама, КомедияРежиссер: Тайлер ПерриПродюсер: Оззи Эрей, Пол Холл, Тайлер ПерриАктеры: Тайлер Перри, Тэнди Ньютон, Гэбриэл Юнион, Эдди Сибриан, Брайан Дж. УайтПеревод: ОтсутствуетПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463651   (80444) от 06.03.2012
-
-Схватка / The Grey (2011) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80444.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Аляске потерпел крушение самолет, и оставшиеся в живых пассажиры оказались в плену безлюдной снежной пустыни, где только стая волков скрашивает пейзаж. Люди хотят выжить любой ценой, и теперь им предстоит смертельная схватка…Производство: США, 1984 Private Defense Contractors, Liddell Entertainment, Scott Free ProductionsЖанр: Боевик, Триллер, Драма, ПриключенияРежиссер: Джо КарнаханАктеры: Лиам Нисон, Дермот Малруни, Фрэнк Грилло, Джеймс Бэдж, Дэйл Джо Андерсон, Нонсо Анози, Даллас Робертс, Лариса Стадничук, Бен Брэй, Джеймс БитонтиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462765   (80450) от 06.03.2012
-
-Мушкетеры / The Three Musketeers (2011) HDRip
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой д’Артаньян покинул родной дом и отправился в Париж, надеясь на место в полку мушкетёров. По случайности в один день он обидел сразу троих мушкетёров — Атоса, Портоса и Арамиса — и получил от всех троих вызовы на дуэль. Но дуэль была прервана появлением гвардейцев кардинала, которые хотели арестовать их за нарушение указа о запрете дуэлей. Д’Артаньян и три мушкетера победили превосходящего противника и стали друзьями. Теперь они должны остановить злобного Кардинала Ришелье и столкнутся с герцогом Бэкингемом, и предательницей Миледи Де Винтер.Жанр: Семейный, Приключения, БоевикРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Орландо Блум, Кристоф Вальц, Логан Лерман, Мэтью Макфейден, Рэй Стивенсон, Люк Эванс, Мадс Миккельсен, Габриэлла Уайлд, Тиль ШвайгерПеревод: ДублированныйПродолжительность: 01:53:13
 
 ## Скачать торент
 ```bash

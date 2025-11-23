@@ -1,3 +1,154 @@
+###  Публикация: 1272290   (143821) от 27.12.2018
+
+Смолфут / Smallfoot (2018) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full, SDH), украинские (forced)Продолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC40D5A8CC9AA582EFD8E6F5D80ABBD7B6046DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435388   (143822) от 28.12.2020
+
+Книжная серия | Геополитика [11 книг] (2017-2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геополитика (географическая политика; греч. γη — земля πολιτική — государственные или общественные дела) — направление политической мысли, концепция, о контроле над территорией, о закономерностях распределения и перераспределения сфер влияния (центров силы) различных государств и межгосударственных объединений.
+8 (   Читать дальше...   )Жанр: Биографии и мемуары, История, Политология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAB7F6BCA188599F488733F1473A56DFF392C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087173   (143823) от 28.12.2016
+
+Обои - Новогодние обои и календари на 2017 год [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых обоев и календарей с датой Нового года 2017 и символом наступающего года – Красного Огненного Петуха.Формат: JPGРазрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3A77DE730FEF48082721E6B478199D85CF7502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970226   (143825) от 29.12.2015
+
+Eyes Of Gaia - The Power Of Existence (2015) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare's Beginning
+02. Heart Never Lies
+03. Untill The Days Go Blind
+04. Hidden From The Light(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D49672778D18B4254BBBC58CC85AEE11AF06F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195303   (143826) от 28.12.2017
+
+Джозеф Дилейни | Я - Грималкин (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятый роман цикла «Ученик Ведьмака».
+
+Она не ведает страха, верит в себя и никогда не сдается. Она ведьма, использующая черную магию, и искусный убийца, но ее поступками руководит кодекс чести… Она Грималкин. Заключив временный союз с Ведьмаком и его учеником Томом Уордом, она помогла им пленить самого дьявола и теперь находится в бегах. Ее миссия смертельно опасна. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Зарубежное фэнтези, Книги про волшебниковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF5EE0CC32C82CB9C84B7905B43982F095CC102
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970325   (143827) от 29.12.2015
+
+Павел Алашкин | Ливергиния (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Павла Алашкина рассказывает о волшебной стране Ливергинии, в которую попадают обычные российские школьники.
+Ребятам предстоит пережить невероятные и захватывающие приключения, которые, как и положено в доброй сказке, заканчиваются хорошо. Необычные жители, говорящие животные, добрые и злые волшебники, духи замков и лесов – все можно найти в этой книжке. (   Читать дальше...   )Жанр: Сказка, Детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2A9D0F7E0F3991858947F59C73C43337B31F2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087427   (143828) от 28.12.2016
 
 Проклятые. Противостояние / Sadako v Kayako (2016) HDRip
@@ -6,7 +157,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143828.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ VA - Shazam Хит-парад World Top 200 Итоговый 2018 [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143829.jpg" />
 </div>
 
 
@@ -57,7 +208,7 @@ magnet:?xt=urn:btih:56804AD967E0E14818ABC25606050DBCF61AAD64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143831.jpg" />
 </div>
 
 
@@ -81,7 +232,7 @@ magnet:?xt=urn:btih:F640D31507516B0B1E148D1BFB541DA734A75C75
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143832.jpg" />
 </div>
 
 
@@ -105,7 +256,7 @@ magnet:?xt=urn:btih:D059B3BBAB0754C6E83A75BE00BFA6B8060DF9B7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143833.jpg" />
 </div>
 
 
@@ -130,7 +281,7 @@ magnet:?xt=urn:btih:BA8D1B5190A29D8CCB431452B359BEA347B4C6CF
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143834.jpg" />
 </div>
 
 
@@ -154,7 +305,7 @@ PhotoBulk: watermark in batch 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143835.jpg" />
 </div>
 
 
@@ -179,7 +330,7 @@ Shadwen (2016) [Ru/Multi] (1.0.0.1356/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143836.jpg" />
 </div>
 
 
@@ -203,7 +354,7 @@ magnet:?xt=urn:btih:99773903FA04D902C843C48D31DFB27A021426EA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143837.jpg" />
 </div>
 
 
@@ -227,7 +378,7 @@ VA - Chillout Power (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143838.jpg" />
 </div>
 
 
@@ -254,7 +405,7 @@ magnet:?xt=urn:btih:B2E3A1A1AD0FB0613F14A27E96339226DFF65BF9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143840.jpg" />
 </div>
 
 
@@ -278,7 +429,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143841.jpg" />
 </div>
 
 
@@ -302,7 +453,7 @@ magnet:?xt=urn:btih:22C51E9A54D33E64FAAEF0878A21D4B75EE2F352
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143842.jpg" />
 </div>
 
 
@@ -329,7 +480,7 @@ Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143843.jpg" />
 </div>
 
 
@@ -356,7 +507,7 @@ magnet:?xt=urn:btih:AB40ECBAF09FE4F58A7405BA0DB90B2962FCCFC9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143844.jpg" />
 </div>
 
 
@@ -380,7 +531,7 @@ magnet:?xt=urn:btih:02F5470EC8C451DD027C0F6D3FC9E834B2BE9CC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143845.jpg" />
 </div>
 
 
@@ -405,7 +556,7 @@ VA - DJ Romantic - Vibrant Voices (1997) [MP3|320 Kbps] <Chillout, Lounge, Sexy>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143846.jpg" />
 </div>
 
 
@@ -432,7 +583,7 @@ Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergole
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143847.jpg" />
 </div>
 
 
@@ -459,7 +610,7 @@ magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143848.jpg" />
 </div>
 
 
@@ -485,7 +636,7 @@ magnet:?xt=urn:btih:A79432448A104F6FE6C4EE1FCAB22AC5664A9A74
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143849.jpg" />
 </div>
 
 
@@ -496,157 +647,6 @@ magnet:?xt=urn:btih:A79432448A104F6FE6C4EE1FCAB22AC5664A9A74
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A08C948D999D938115609E4DC786FCBC419319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590250   (143850) от 16.12.2012
-
-Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 16.12.2012
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970229   (143851) от 29.12.2015
-
-Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mother Television
-2. Rewrite History
-3. Paul Revere's Last Ride
-4. Age Of Kings(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289DD05AADD5620EAD36E205AD1F8CC98DD5D432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520235   (143853) от 27.12.2021
-
-Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days (03:30)
-02. The Universe Can Sing (03:26)
-03. Make You Feel (03:47)
-04. Should Know (03:04)(   Читать дальше...   )Жанр: Melodic Metal, Female VocalПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195215   (143854) от 28.12.2017
-
-Андрей Анатольевич Зализняк | Подборка книг [12 книг] (1967 - 2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Анатольевич Зализняк родился 29 апреля 1935 года в Москве в семье инженера Анатолия Андреевича Зализняка и химика Татьяны Константиновны Крапивиной.
-В 1958 году окончил романо-германское отделение филологического факультета Московского государственного университета им. М. В. Ломоносова. В 1956-1957 годах стажировался в Высшей нормальной школе (Ecole normale (   Читать дальше...   )Жанр: Филология, лингвистика, славистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F556E21D986B474605B74FA791D560DE071F42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272200   (143855) от 27.12.2018
-
-Movavi Video Converter Premium 8.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальное приложение для конвертации видео, фото и аудио на macOS! Movavi Конвертер Видео поможет сохранить ваши медиафайлы в любой формат и экспортировать их для мобильных устройств, чтобы вы могли наслаждаться любимыми фильмами и музыкой, где бы вы ни находились. При этом пользоваться нашим видеоконвертером невероятно просто: загрузите файлы в программу, укажите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D878F89BE7C854807DF3D55E8E4CA1CA312F4BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087616   (143856) от 28.12.2016
-
-The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 ```
 
 

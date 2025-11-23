@@ -6,7 +6,7 @@
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9834BA9CFE61C80478C0DCC41607A0CFE4D9E553
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52521.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52522.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Nucleares (2023) [En] (0.2.16.137) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52523.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:30377AFFA4169CB3951B92832A6E2D804A1801FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52524.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6CCFB619D3577EABC3E9CC36A55D7E45BC849CAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52525.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52526.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7B9E72E0E01E7458D46E0BA5924484E51CA47BBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52527.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B9E1EA7D4D5311CB65FC8C43D4F522FA7CED5CAC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52528.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Intel передаст TSMC выпуск 3-нм процессоров Intel Cor
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52529.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Intel не осилила выпуск новых процессоров Core Ul
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52530.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:A3380F4521F8A66F6D27DB392BC2FEE47339688B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52531.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:33221FEAC9425C336C46AF1E388943FF0621D155
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52532.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:33221FEAC9425C336C46AF1E388943FF0621D155
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52533.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:755C5A2FFE9F34BF4AB902AF380A350D7F095FFB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52534.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:755C5A2FFE9F34BF4AB902AF380A350D7F095FFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52535.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2462BB8A5899905DAFB1742F984A27F2EDB4120B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52536.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ DOOM  (2016) [Ru/En] (1.0/upd2) Repack R.G. Games
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52537.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52538.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52539.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CB8D3C68732ECFCDEE375B34B7A5EC4AABE73C79
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52540.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:5EDE2F993F4067360C43057213564592B42C8175
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52541.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C602EBFB8DF946C93787A0C8DE567424AD7FCD3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52542.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:BFAC581E53F472EF8C102554C7235BEF89F6DDCA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52543.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:8288A9CD27DC010A1802631AAB3367E7A7BC2847
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52544.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:DF743997FE624EC0FF75BF5E22A9D146A0AD800B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52545.jpg" />
 </div>
 
 

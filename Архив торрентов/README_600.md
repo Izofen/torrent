@@ -6,7 +6,7 @@ WonderFox HD Video Converter Factory Pro 24.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pale Moon 29.4.4 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130080.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130084.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1187CF2563CB7BB507F185B4EEABCA998088E5B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130086.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PSPaudioware - PSP Plugins Bundle 01.2022 VST, VST3, AAX (x64) RePack by R2R [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130087.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sketch 82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130091.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Nomad Factory - 80s Spaces 1.0.2 VST, VST3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130092.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130097.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ SUMo Pro 5.14.9.516 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130100.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:F5FD6E6CCE14134AC2168750CB03A6DEE633AAB0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130103.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TreeSize Professional v5.5.5.816 Final Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130106.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TreeSize Professional - данная программа показывает д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130108.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ RadioBOSS Advanced 6.1.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130111.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Windows and Office Genuine ISO Verifier 11.10.24.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sandboxie 5.55.8 / Sandboxie Plus 1.0.8 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130118.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:EEA262A8A4D876E190A79A447C30F7C466EA3D29
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130121.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Smart Disk Image Utilities 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130128.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ CrystalDiskInfo 8.14.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130129.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ MediaHuman YouTube Downloader 3.9.9.66 (1601) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130136.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130137.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Opera 83.0.4254.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130142.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:26B25F5C6E89EE240577E8E70A18BC691A9C06F3
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130154.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ UnHackMe 13.30.2022.0111 RePack by Umbrella Corporation [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130158.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Canon EOS DIGITAL Solution Disk 25.0 [En/Fr/It/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130163.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VMware Workstation Player 16.2.2 build 19200509 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130167.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ashampoo WinOptimizer 19.00.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130170.jpg" />
 </div>
 
 

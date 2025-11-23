@@ -6,7 +6,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7149.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8611.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3BC7B5CC1FE019A6CC28A14A0A70AF336DC06B68
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162269.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230307.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230307.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Roxette - Exclusive collection (2001) [FLAC|Lossless|image + .cue] <Pop Rock, Ba
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tom Jones - Surrounded By Time (The Hourglass Edition) (2021) [FLAC 2.0|96/24|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169725.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169844.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) 4CD Box 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170077.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Ballads for a Broken Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170163.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170264.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ V.A. - NOW 100 Hits: Even More Forgotten 80s (2019) 5CD Box Set [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170319.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170386.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170527.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170753.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170978.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Totally Enormous Extinct Dinosaurs - When the Lights Go (2022) Deluxe Edition, 2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171057.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sandra - Fading Shades (1995) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171165.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172973.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172998.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173200.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173651.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173651.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174707.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175469.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175934.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175934.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176123.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177487.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177487.jpg" />
 </div>
 
 
@@ -619,6 +619,33 @@ magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422057   (177507) от 05.12.2020
+
+Екатерина Бужинская - 4 Альбома (1998 - 2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Як у нас на Україні
+02. Духмяна ніч
+03. Суха тополя ( дует с Олегом Шаком )
+04. Червона ружа(   Читать дальше...   )Жанр: PopПродолжительность: 04:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667207   (177508) от 07.10.2023
 
 Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -627,7 +654,7 @@ Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177508.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177508.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177756.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177756.jpg" />
 </div>
 
 
@@ -668,33 +695,6 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666159   (180161) от 03.10.2023
-
-Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham Rap! (Enjoy What You Do?) (3:32)
-02. Wham Rap! (Enjoy What You Do?) (Club Mix) (4:20)
-03. Wham Rap! (Enjoy What You Do?) (Social Mix) (6:45)
-04. Wham Rap! (Enjoy What You Do?) (Unsocial Mix) (6:38)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
 ```
 
 

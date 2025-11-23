@@ -1,3 +1,161 @@
+###  Публикация: 1520326   (142451) от 28.12.2021
+
+VA - 5 Years of Hoofbeats Music (2021) [AAC|~335 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. QO, Trilo - Push It To The Limit (4:56)
+02. QO, The Clamps - Krieg (5:03)
+03. Computerartist, QO, Rido - Get Down (Rido Remix) (4:17)
+04. Computerartist, QO, Merikan - Blockade (6:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE0F62C090E6657AB0B6AD040D6F39A1DD57537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348564   (142452) от 28.12.2019
+
+CorelDRAW Graphics Suite 2019 21.3.0.755 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет профессиональных инструментов для редактирования фотографий, разработки дизайна и создания макетов страниц и векторных иллюстраций поможет вам существенно повысить вашу продуктивность и обеспечит удаленный доступ ко всем вашим материалам.
+
+Создавайте дизайн-проекты в любой точке мира с CorelDRAW® Graphics Suite 2019! Работайте в удобном для вас формате, в интуитивном (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455F4195DB99B1CE45DC4FBF6777B7AA157742E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087988   (142454) от 29.12.2016
+
+Dism++ 10.1.21.1B Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dism++ - утилита предназначена для продвинутых пользователей, которая поможет осуществить «генеральную уборку» в операционной системе Windows. С ней вы можете очистить систему от временных файлов, удалить логи, кэш и т.д. Интересной особенностью является поддержка сжатия уже установленной системы (% сжатия выбирается в настройках программы). помимо всего прочего (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614A103D8700B5DC0B62192DA096A65E9B8BF250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195471   (142455) от 29.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 36) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Леонид Кострица  -  Вернулся на Родину  3:22
+02.  Владимир Бунчиков и Владимир Нечаев  -  Ты да я  2:48
+03.  Клавдия Шульженко  -  Всё проходит  2:52
+04.  Людмила Гурченко  -  Песенка о хорошем настроении  2:39(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678888   (142456) от 23.11.2023
+
+Медвежонок и бобёр - Перезалив 1-3 (2023) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Перезалив 1
+2023 - Перезалив 2
+2023 - Перезалив 3 (старенькое)Жанр: AlternativeПродолжительность: 3 CD, 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F8A192B476E35CFC75C4BCFA0862A5C0293BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435706   (142457) от 29.12.2020
+
+Сноуборд. Кубок мира 2020-2021. Этап 2. Карецца (Италия). Параллельный гигантский слалом. Финалы (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по сноуборду 2020–2021.
+17 декабря 2020 года
+Этап 2. Карецца (Италия)
+Параллельный гигантский слалом.(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404F1AD9574BFB37C62AF7619AC74C3E883804D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272591   (142459) от 28.12.2018
 
 Александр Донской | Продай себя. В бизнесе, в политике, в личной жизни (2016) [FB2]
@@ -6,7 +164,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142459.jpg" />
 </div>
 
 
@@ -30,7 +188,7 @@ Anitore! EX / Anime de Training! EX / Тренировки с аниме! [2015,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142461.jpg" />
 </div>
 
 
@@ -54,7 +212,7 @@ magnet:?xt=urn:btih:47416C99B43E7A57C41F298B641BA39CA357A26C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142463.jpg" />
 </div>
 
 
@@ -78,7 +236,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -105,7 +263,7 @@ magnet:?xt=urn:btih:1F1830285191AF037FD3DBCB88D0639DF252DB9D
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142465.jpg" />
 </div>
 
 
@@ -132,7 +290,7 @@ VA - Pi V/A (2021) [AAC|~328 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142466.jpg" />
 </div>
 
 
@@ -159,7 +317,7 @@ magnet:?xt=urn:btih:503F0C3EC4846B9E9576257A77B508DC3B0661DE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142469.jpg" />
 </div>
 
 
@@ -185,7 +343,7 @@ magnet:?xt=urn:btih:4FAB71C15E73589535635047FD9AFAB0603EEB01
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142470.jpg" />
 </div>
 
 
@@ -209,7 +367,7 @@ VA - Sensual Winter Chill, Vol. 2 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142471.jpg" />
 </div>
 
 
@@ -236,7 +394,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -260,7 +418,7 @@ Basilisk 2018.12.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142474.jpg" />
 </div>
 
 
@@ -284,7 +442,7 @@ magnet:?xt=urn:btih:806EA8EB795A82CA1281FE8764873BE22C126A67
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142475.jpg" />
 </div>
 
 
@@ -310,7 +468,7 @@ Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142476.jpg" />
 </div>
 
 
@@ -337,7 +495,7 @@ CleanMyMac 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142477.jpg" />
 </div>
 
 
@@ -364,7 +522,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -391,7 +549,7 @@ magnet:?xt=urn:btih:AED8610D4BC63645E0CE188C2522045293D0B553
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142480.jpg" />
 </div>
 
 
@@ -415,7 +573,7 @@ Ray Charles - Mister Genius (1948 - 1960) 3CD, 2011, Le Chant du Monde [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142481.jpg" />
 </div>
 
 
@@ -442,7 +600,7 @@ magnet:?xt=urn:btih:4F277B4E765143D761066C27B920591EA2427EAE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142482.jpg" />
 </div>
 
 
@@ -467,7 +625,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142484.jpg" />
 </div>
 
 
@@ -494,7 +652,7 @@ VA - The Hoofbeats Music Family Album (2021) [AAC|~338 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142486.jpg" />
 </div>
 
 
@@ -508,153 +666,6 @@ VA - The Hoofbeats Music Family Album (2021) [AAC|~338 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9A56EAB4937B1F76E5CD377E41610267DC30A73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272688   (142487) от 28.12.2018
-
-IDAGIO - Classical Music v1.6.8 Premium [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142487.jpg" />
-</div>
-
-
-###  Подробнее
-
-IDAGIO - это первая классическая музыкальная потоковая передача, которая предлагает безупречный поиск, созданный для классической музыки. Наряду с простым в использовании интерфейсом и отличным дизайном пользователи уже подтверждают, что IDAGIO имеет «лучший поиск классической музыки». IDAGIO предлагает кураторские плейлисты, а также обширный каталог записей самого (   Читать дальше...   )Тип издания: Пиратка (Куплена подписка Премиум)Релиз состоялся: 19.12.2018Разработчик: Classical Music Streaming - IDAGIOПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD663C73D1A5A6BA28EC24AA6936168C68DA032E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970221   (142488) от 29.12.2015
-
-Дарья Донцова | Бермудский треугольник черной вдовы (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142488.jpg" />
-</div>
-
-
-###  Подробнее
-
-В бригаду Татьяны Сергеевой обратилась Инна Валерьевна Голикова. Она явно сверх меры любит своего сорокалетнего сыночка и не хочет, чтобы тот женился. Алексей – успешный бизнесмен, владелец сети магазинов. Он прямо заявил матери, что встретил судьбу в лице некой Веры Лазаревой, намерен сочетаться браком и жить отдельно. Его невеста не невинная девочка, в прошлом (   Читать дальше...   )Жанр: Иронические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96DFA0BF740CDA70D19955F0E9BB0F1FD372F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970031   (142490) от 29.12.2015
-
-Линда Бут Свини, Деннис Медоуз | Сборник игр для развития системного мышления (2007) [DJVU]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые в сборнике практические упражнения и игры направлены на развитие системного мышления, обучение работе в команде, формирование творческого подхода к выполнению любых заданий. Книга адресована учителям средних школ, преподавателям вузов, психологам, педагогам дополнительного образования, всем, кто заинтересован в игровых, активных методах обучения и стремится (   Читать дальше...   )Жанр: ПсихологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514AD5B808F39B7AFCE39E449FE4D63B7489370C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195559   (142491) от 29.12.2017
-
-Открытый микрофон (2017.12.29) SATRip (сезон 2, выпуск 20: Дайджест)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142491.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:45:20Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A9DC14C9E8135461B036E0BE5C416842A8252D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520558   (142492) от 28.12.2021
-
-XoBrooklynne - My Crown: The Album (2021) [AAC|~308 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:56)
-02. My Crown (2:50)
-03. My Crown (Jillian's Version) (2:49)
-04. Crying In The Club (2:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35963D59113B5ADCDB83488595A17C82CD3F3332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435840   (142493) от 29.12.2020
-
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №68 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4320x4096-9212x3247
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D79F6E703A4BFDB586005EB596CF9CCA3EA9A3
 ```
 
 

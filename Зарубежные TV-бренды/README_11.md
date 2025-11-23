@@ -6,7 +6,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133691.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:105A050AA6E52A2A285BF486B886F53007946E9A
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F237C7E2A53B173E5C02DBB960469272E969F946
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135026.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7EE7DD3997F3F7BF8E60AB6EC7B5C3B82155617E
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137154.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2378AB720E3A45372F67D0FE00DD15D31FB84E66
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137378.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D545F39FA3AACEE9BD2D11E646543B99A7F88CC2
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137573.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A51FBB1D83F3A07733A691FB76B20E8E039AE638
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138540.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC: Французские сады с Монти Доном / Monty Don's Fren
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138635.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) WEBRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138650.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138825.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:DE643F4E11948F1A735C721B8FF220687072C43B
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139041.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ History Channel: Тайны египетских пирамид / Lost Secrets o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139630.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Нострадамус / Nostradamus (2006) IPTVRip [H.264]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139635.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:17EC1C09FEFEDBF7D19A6B88D4385D70488A6AC7
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140331.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:5B8464922C09324669110C9D59CD48F7463EA97B
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140791.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:5DAF9B72AEA9026006EFE16B742054F1C6A24854
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140947.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ BBC: Итальянские сады с Монти Доном / Monty Don’s It
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141020.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141028.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141574.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142144.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:AD6AD97441FE95E41F48AEB9E9D501BC76E31404
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142202.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142204.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142284.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Animal Planet: Удивительный мир животных (часть 2) /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142392.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Служба безопасности аэропорта: Первый кл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142622.jpg" />
 </div>
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1057408   (184017) от 21.11.2022
+
+Флинтстоуны / The Flintstones (1960-1966) DVDRip [H.264] (5 сезонов, 154 серии из 166) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_184017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите стать свидетелем легенды каменного века? Следите за приключениями самого популярного мультяшного пещерного клана в этой доисторической ретроспективе, представляющей самые первые истории Фреда и Уилмы Флинтстоун и их лучших друзей - Барни и Бетти Раббл!Производство: США, Hanna-Barbera ProductionЖанр: Мультсериал, комедияПеревод: Дублированный (Boomerang) 2013 г., (НТВ) 1993 г., (Нева-1) 1996 г. на VHS / Многоголосый, закадровый (2x2) 2007 г.Субтитры: Английские, РусскиеПродолжительность: 154 серии по ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66310F7DAAD932CE7A9DEAAE54D660D89590C612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579752   (184758) от 20.11.2022
 
 Удивительный мир Гамбола / The Amazing World of Gumball (2011-2017) WEBRip [H.265/1080p-LQ] (сезон 1-5, серии 1-196 из 196)
@@ -6,7 +30,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184758.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184758.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:45FF5A1857245FF4747B456A892282D177F573E4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184963.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184963.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:D7FE1C98E2263DF800D1F944754D4989B4C73AD0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185013.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185013.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:CC546AABCF72732074247EC66556582AC0F7C810
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186158.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186158.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:13CEBAFD1EC04AFDB2F02B3ADEB0918C1C77EF4C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186502.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186502.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:DF23D808AE98A33C8F343D553D410819C687C02E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187650.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:71C18DC2FBB764477A6BA8B2B1DD8FD18800AD71
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187820.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187820.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:FCE824FB140D60E4B4B32CE9E0551D9B8FE86756
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188372.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188372.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:25499F206A899265A9D0E66275BF3859AA7D5FF0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188954.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_188954.jpg" />
 </div>
 
 
@@ -224,7 +248,7 @@ magnet:?xt=urn:btih:CA9F773228C377197BA6A7C0D81EB84E70E46A0D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188987.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188987.jpg" />
 </div>
 
 
@@ -248,7 +272,7 @@ magnet:?xt=urn:btih:DD7F2F7A6E0493CD3171D719AA8B66ACC1E17DE5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189024.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189024.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ magnet:?xt=urn:btih:378DCBA741063400D61940B243B9EE5556AAF850
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189254.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189254.jpg" />
 </div>
 
 
@@ -297,7 +321,7 @@ magnet:?xt=urn:btih:981EAFA7902891731E08C9355B953D49AFBBB6B3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189874.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189874.jpg" />
 </div>
 
 
@@ -321,7 +345,7 @@ magnet:?xt=urn:btih:55585F9553041EB508AA386DA46B5E68FFD9C51B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_189878.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ magnet:?xt=urn:btih:BBED1ADEC1E7222F39829E3CEAA506AF2D6C92AB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189899.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189899.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ magnet:?xt=urn:btih:51DBA866D59B887F56C85ECFB806DA662FC74323
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190776.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190776.jpg" />
 </div>
 
 
@@ -393,7 +417,7 @@ magnet:?xt=urn:btih:E84540FF6013FB4BF8914F98A3CEC3EC5D545240
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191438.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191438.jpg" />
 </div>
 
 
@@ -417,7 +441,7 @@ magnet:?xt=urn:btih:B45C5853550447F6BBF7D636FDC01C198DB955E8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191446.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191446.jpg" />
 </div>
 
 
@@ -441,7 +465,7 @@ magnet:?xt=urn:btih:AE37B6B62A58505D0DCC05F3DF59D0950CADDE11
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191531.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191531.jpg" />
 </div>
 
 
@@ -465,7 +489,7 @@ magnet:?xt=urn:btih:76AA951EBF19F2BD85351BDA2976AE6C1147DA85
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191533.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191533.jpg" />
 </div>
 
 
@@ -489,7 +513,7 @@ magnet:?xt=urn:btih:7F1005CA72613E186E0FADC1EF90A262A1CEC8E8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192020.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192020.jpg" />
 </div>
 
 
@@ -513,7 +537,7 @@ magnet:?xt=urn:btih:55BE0F8ED3DA1C272CB347347CC3B545BA6CA7E3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192064.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192064.jpg" />
 </div>
 
 
@@ -537,7 +561,7 @@ magnet:?xt=urn:btih:D0206F93415C0D1C05E15376DCDF727499583C7B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192408.jpg" />
 </div>
 
 
@@ -561,7 +585,7 @@ magnet:?xt=urn:btih:3C5B8596A168A22CCB5733323B687BB8704ECC08
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192478.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192478.jpg" />
 </div>
 
 
@@ -585,7 +609,7 @@ magnet:?xt=urn:btih:6C961CB83C821809DFAB97ED6177F18933D39808
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192493.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192493.jpg" />
 </div>
 
 
@@ -596,30 +620,6 @@ magnet:?xt=urn:btih:6C961CB83C821809DFAB97ED6177F18933D39808
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85CC7533C52F6317909E707B5938B86DA17653D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574449   (192508) от 31.10.2022
-
-Демонёнок / Little Demon (2022) WEBRip [H.264/720p-LQ]  (сезон 1, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина, которую 13 лет назад оплодотворил Сатана, и её дочка-антихрист пытаются жить обычной жизнью в Америке, но демонический отец и другие чудовищные силы постоянно нарушают их спокойствие.Производство: США, Fox Television Animation, FX Productions, Jersey Films 2nd Avenue, ShadowMachine FilmsЖанр: для взрослых, мультфильм, ужасы, комедияРежиссер: Жанетт Морено, Бен Бьелажак, Саманта АрнеттАктеры: Обри Плаза, Люси ДеВито, Дэнни ДеВито, Леннон Парэм, Дарси Фаулер, Сет Киршнер, Фил ЛаМаррПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Субтитры: русские, английскиеПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD7A2D94C21F453DA02715E6C9A5390A093D135
 ```
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13858.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack Pioneer [Ultimate Bu
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13859.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DARK (2013) [Ru/Multi] (1.1.19.29571/dlc) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13860.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13861.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Masterplan Tycoon (2023) [Ru/Multi] (1.4.200) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13862.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Movavi Video Editor 25.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13863.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:128C8E4C1AA4A3B91F79E210C23C1E244F536EDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13864.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Photoshop 2025 26.8.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13865.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:91DCD796C8D04993C8C297ED4DD83231AE2CA213
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13866.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D50A1FB65B1A0DFCAF93B4836E6BF0E1A346D885
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13867.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:09B192E5BC5846D6118BCFCDF0AF56E722704110
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13868.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:627E0945AE2AFADBA0059D360432539B214C07C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13869.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:BEAFFA432E125033D0E66E62F31750D2CBF7813B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13870.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:773588BA0CC103B494BB7E88EEA84ED06BB892FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13871.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - National Pop Dance Music Vol.111 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13872.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A21C02CFF6CB435FAEF0466E1FD3BD9417E3E992
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13873.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Shazam v15.27.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13875.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:4942B8EFD292AF8A39E6891F878976C430515B3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13876.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13877.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jigsawscapes® - Пазлы v4.1.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13878.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A4FAB0171838113785F7F65CC60E592AC981F184
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13879.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Music News For Forum vol.102 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13880.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13881.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:7BE91537E545B5B28B2A197E56F72C21A5E5F34B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13882.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:8DB4958AB0F42497D4A53C3B297DB518A4D73915
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13883.jpg" />
 </div>
 
 

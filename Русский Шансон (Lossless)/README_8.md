@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E21F5D6D4710143163CD7F18883674346CA67C15
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141782.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:00BE53646BE5C3672330451A8407FC96D6DB46A1
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142943.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Менты-Песни за милицию и за жизнь (1998) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146323.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:FB5D45541E5C9CF9424B01CAC6582E69D755E31A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150138.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Ништяк, браток! Лей и пей (1996) [FLAC|Lossless|tracks +
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151096.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156767.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:A15ED4CD608059F049AB5A0F88F91487C9A64C38
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157413.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C44250AD08C34915E7189FCAE32ED202CA8A3E01
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159268.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:585E7456DA728CB5E4DABCAEB04BA32F3FA63D67
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160238.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 50 песен радио шансон, Часть 7 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161891.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 25 лет радио шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161919.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Новогодняя шансонная-20...06 (2005) [FLAC|Lossless|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162054.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Автоклуб шансона. Хиты в дорогу. 100 (2025) [FLAC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162207.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Новые хитовые песни 2025, Часть 10 (2025) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162210.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:B580EDDCB14541C0CDECD151E2F6EA4420EAA105
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164507.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165132.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Emil Davor -  Une nuit a Moscou (1961) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165956.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:952A2A12ED451D3E4B87DBB0CC1790641E8D0B93
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166023.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Самые новые песни о любви 11 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167396.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Самые новые песни о любви 10 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167414.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B1644E00FD0A94D89CD435D3397D19398FC7853D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167887.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:72B3A21C4A5ABCAB6E8DF4430C1F7EE5C8580CBC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168440.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Пацанам городских окраин (2004) [FLAC|Lossless|tracks
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168833.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:31D1C75F530ACACE0AD75D2C406A347B7C9A48CD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174693.jpg" />
 </div>
 
 
@@ -673,28 +673,28 @@ magnet:?xt=urn:btih:F6D5605AFE87591CC75FD1862C569012E9DFBC09
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427056   (184080) от 27.11.2020
+###  Публикация: 1036243   (180264) от 01.12.2020
 
-Сергей Трофимов (Трофим) - Пересмешник (2020) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+Иван Кучин - 17 Альбомов (1994 - 2018) [FLAC|Lossless|image + .cue]<Шансон, Авторская песня>
 
->>Шансон, Авторская и Военная песня
+>>След.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184080.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_180264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Эврибади
-2. Малибу
-3. На море
-4. Изоляция(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:41:08
+01. Десантура
+02. Дюймовочка
+03. Зеркала
+04. Два ветерана(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 15:45:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C887F40C6DB372B0476DC02F8B772CA663F6B3A
+magnet:?xt=urn:btih:532D90032A4E05AA1A72DE628E0B8D41438E5665
 ```
 
 

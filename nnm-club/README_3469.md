@@ -1,3 +1,82 @@
+###  Публикация: 1721916   (109876) от 09.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 2-й матч) Бостон Брюинз - Флорида Пантерз (08.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109876.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 мая 2024, четверг. 02:30 МСК. 1/2 финала - Восток. 2-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 789 зрителей (102% при вместимости 19 434)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EFBAE906B468DE11D36627883A490C26D1D6F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722002   (109877) от 09.05.2024
+
+Six Feet Under - Killing for Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Death-Groove Metal, Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know-Nothing Ingrate (2:23)
+02. Accomplice to Evil Deeds (2:18)
+03. Ascension (4:31)
+04. When the Moon Goes Down in Blood (3:47)(   Читать дальше...   )Жанр: Death-Groove Metal, Death 'n' RollПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA54728E6E6428FA54D187E07ED3BB2D74ABA4ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721846   (109878) от 09.05.2024
+
+Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortal
+02. Beyond The North Wind
+03. Priest Of Stygia
+04. Island Of The King(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8FC3FFA274EE031D618C7196CC5B92E04D90AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721976   (109879) от 09.05.2024
 
 Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +85,7 @@ Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109879.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109880.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Winterborn - Break Another Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109881.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Brodequin - Instruments of Torture (2000) [FLAC|Lossless|image + .cue] <Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109882.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ Sebastian Bach - Child Within The Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109883.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ Opera One 109.0.5097.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109884.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ FolderSizes 9.6.483 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109885.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Google Chrome 124.0.6367.156 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109886.jpg" />
 </div>
 
 
@@ -213,7 +292,7 @@ VA - Шансон премьера 2023 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109887.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ magnet:?xt=urn:btih:6EE101329FC8E75E865EA9F2A1BEB9D313339066
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109888.jpg" />
 </div>
 
 
@@ -264,7 +343,7 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109889.jpg" />
 </div>
 
 
@@ -291,7 +370,7 @@ magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109890.jpg" />
 </div>
 
 
@@ -315,7 +394,7 @@ Lucky Patcher 11.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109891.jpg" />
 </div>
 
 
@@ -339,7 +418,7 @@ Opera GX 109.0.5097.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109892.jpg" />
 </div>
 
 
@@ -365,7 +444,7 @@ IObit Uninstaller Free 13.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109893.jpg" />
 </div>
 
 
@@ -389,7 +468,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109894.jpg" />
 </div>
 
 
@@ -416,7 +495,7 @@ VA - Шансон премьера 2023 июль (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109895.jpg" />
 </div>
 
 
@@ -443,7 +522,7 @@ George Harrison - Brainwashed (2002) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109896.jpg" />
 </div>
 
 
@@ -470,7 +549,7 @@ magnet:?xt=urn:btih:0FB3BF9FD8601DD638A11326BB99D6981301A84D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109897.jpg" />
 </div>
 
 
@@ -497,7 +576,7 @@ Anette Olzon - Rapture (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109898.jpg" />
 </div>
 
 
@@ -524,7 +603,7 @@ magnet:?xt=urn:btih:5DB9D6A96604164A800EE9BEA1E0DF31AC58962C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109899.jpg" />
 </div>
 
 
@@ -551,7 +630,7 @@ VA - Праздник русской авиации (2001) [FLAC|Lossless|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109900.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ magnet:?xt=urn:btih:65D7FEE9F6C1309E9B1926B55E2594B91D5336CC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109901.jpg" />
 </div>
 
 
@@ -589,83 +668,6 @@ magnet:?xt=urn:btih:65D7FEE9F6C1309E9B1926B55E2594B91D5336CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D61A97F5BF57CCC4FD0A4084FE9FF44E2EE69CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721877   (109902) от 09.05.2024
-
-Nancy Martinez - Not Just The Girl Next Door (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109902.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 For Tonight
-A2 Move Out
-A3 It Happens All The Time
-A4 I'll Be There(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36E5BD2807137261A82BC4E177394887ED4A85D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721906   (109903) от 09.05.2024
-
-Виктория Шиманская, Александра Чканикова | Мама, я боюсь! Как научить ребёнка справляться со страхами (2023) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как отличить страх от тревоги? Что делать, если ребенок боится общаться со сверстниками? Как говорить о войне, смерти и других пугающих вещах? Книга поможет заботливым взрослым найти подход к детским страхам, экологично успокоить напуганного ребенка и научить его извлекать пользу из древней и естественной эмоции.
-
-Познавая мир, ребенок может найти в нем много страшного: (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, ПедагогикаИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAA218FC62B7454ACF7996E2654BEED2AFCCD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721782   (109904) от 09.05.2024
-
-Аллегро с огнем (1979) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109904.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июне 1941 года немцы попытались заблокировать Черноморский флот, забросав фарватер новыми сверхсекретными магнитно-акустическими минами. Для обезвреживания этого грозного оружия была создана особая группа профессионалов-минеров, которые ценой своей жизни выполнили сложнейшее задание командования.Производство: СССР / Одесская киностудияЖанр: военный, драма, боевик, историяРежиссер: Владимир СтрелковАктеры: Владимир Заманский, Валентин Голубенко, Сергей Лосев, Сергей Полежаев, Наум Кавуновский, Людмила Ярошенко, Федор Валиков, Александр Федоров, Василий Векшин, Юрий Богданов и другиеПродолжительность: 01:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BE55A28E5EF75B69A7D9A2418CF514A96FD411
 ```
 
 

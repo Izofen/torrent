@@ -6,7 +6,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65228.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65229.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B426DC7EA00D2D3F6931025DEFDBD010A74188C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65230.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ All-In-One Offline Maps v3.16 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65231.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2352957DD0D2C9C99F1377102C5F00D474F99370
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65232.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:959AF80065811EDAE61C63D12ED66312FA24C4D1
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65233.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:31E85870AD191E53F3E2713E78B62F2CA0BA2176
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65234.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Shazam v16.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65235.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65236.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:AB3095E79EF3F2735B1B82B0FEAEDE5D6D583FB1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65237.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Allavsoft Video Downloader Converter 3.28.1.9305 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65238.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OCCT 14.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65239.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F5166F8334F6016F4096121A15BE2BC559F4B404
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65240.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1D0A456522D4DC4E54665D1337E9484530691003
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65241.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DEF172416749B310260AC9FA83AD79A813982942
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65242.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1EA120BAA63E50FDE90E77C7265F2B348F9D5BD7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65243.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Rock Rarities - Cover Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65244.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:74F773AB16076485A8A60008F438F8CCC29EC269
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65245.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:366E58B97B528AD2AFD15039E2323A707D304583
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65246.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:518C84A3E7799690037DB6FC760054C76257A65E
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65247.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Electrical Calculations Pro / Электрические расчеты v10.5.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65248.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Compilation Part 175 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65249.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Native Instruments - Kontakt 8.5.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65250.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:ABDFE36AF278DB00FABD6D88E8E3EC1052880AE7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65251.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Speedtest от Ookla v6.2.1 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65252.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Calibre 8.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65253.jpg" />
 </div>
 
 

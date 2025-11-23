@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84796.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84797.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A9A831E0AFDDF0E7546B400D74925A3ECED14C8D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84805.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:402A4A0D1B7AD5B07A129A32576CC46EF28CDCAF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84818.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:402A4A0D1B7AD5B07A129A32576CC46EF28CDCAF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84968.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:FFE4AF4154C91817634CAA1BACEDD6C53029CEE4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85006.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85633.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85808.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:1AD54A4C897B03636B68580DC6728BB01D7F7629
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86063.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:3F61744685763E20B031ADC46A57205F3B1ED0C7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86885.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:6BAD55CE19C2175D335B841B953AE01F63663E6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87668.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:6BAD55CE19C2175D335B841B953AE01F63663E6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87678.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:6BAD55CE19C2175D335B841B953AE01F63663E6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87679.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Zолушка (2012) [1080i] Blu-ray
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87842.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87867.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87872.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87901.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87907.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88053.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Zолушка (2012) [1080p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88076.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Zолушка (2012) [1080p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88322.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Zолушка (2012) [1080p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91252.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:20936B4AAA2B9AD3AB3FFFDBFE84A42FE3A92EDD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100872.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B378A72DC183CE84FC1B8821CD436A5910A3BAA7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102150.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:64D76D6B0ACD783DC8E337A4C9F57BCEC49E848A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103235.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:6ECF10D9BF3DDC1ADD1BCBFD41EA56A0C4258F65
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104437.jpg" />
 </div>
 
 

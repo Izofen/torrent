@@ -1,3 +1,75 @@
+###  Публикация: 1680776   (133603) от 30.11.2023
+
+Убить Риту (2023) WEBRip [H.264] (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрупкая с виду учительница химии Рита остается без работы за связи с учеником. Но благодаря своим навыкам ей удается заработать лёгкие деньги уборкой коттеджа. Правда этот коттедж оказывается местом преступления, а сама Рита оказывается в эпицентре криминальных разборок местных бандитов. Однако Рита не так проста — все это время она жила под прикрытием по чужому (   Читать дальше...   )Производство: Россия | «1-2-3 Production»Жанр: Драма, криминалРежиссер: Мария АграновичАктеры: Евгения Борзых, Артём Быстров, Анна Слю, Алексей Агранович, Артём Ткаченко, Александр Мизёв, Алексей Филимонов, Олег Гаас, Игорь Грабузов, Артур БесчастныйПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8EED9219942756056A1ED81DA85441A63EACB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594744   (133604) от 26.12.2012
+
+Photo DataBase 4.0 build 575 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Photo DataBase создавалась для помощи в организации коллекций цифровых фотографий. Вы можете добавлять к фотографиям описания, ключевые слова, включать их в группы, а также отмечать на них людей. Отличительной чертой программы является шифрование фото и изображений с поддержкой современных алгоритмов шифрования с ключом до 4096 бит: AES (Rijndael), Blowfish, Twofish, RC4, RC6, 2DES и другие. Полный список Вы можете найти тут. Кроме шифрования поддерживается скрытие данных в изображениях (PNG, BMP и JPEG) - стеганография.Название программы: Photo DataBaseЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680716   (133605) от 30.11.2023
+
+Ходячие мертвецы: Дэрил Диксон / The Walking Dead: Daryl Dixon (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) Red Head Sound
+
+>>Зарубежные сериалы
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф известного постапокалиптического проекта «Ходячие мертвецы» — это история о приключениях Дэрила Диксона. Действие происходит во Франции. Дэрил Диксон оказался в Европе, чтобы найти ответы на волнующие его вопросы, связанные с возникновением таинственного вируса. Во Франции герой узнает о новом виде зомби, которые способны открывать двери, перемещаются по (   Читать дальше...   )Производство: США / AMC NetworksЖанр: ужасы, фантастика, драмаРежиссер: Дэниэл Персивал, Грег Никотеро, Тим СоутэмАктеры: Норман Ридус, Клеманс Поэзи, Louis Puech Scigliuzzi, Laïka Blanc-Francard, Анн Шаррье, Ромэн Леви, Адам Нагаитис, Франсуа Делев, Лукерья Ильяшенко, Катрин АрдитиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FFFF5E96EF315C5F87628981F78A82F972CC16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680795   (133607) от 30.11.2023
 
 THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
@@ -6,7 +78,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133607.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:952047232357F26E54A0B04F4623742250A082D5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133608.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:AA1F0CF81F57B8CDA43C92FBDC8A075277F3B88B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133609.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:BA6719179BC0E78CFCB7585879708D5D52ECF208
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133610.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:FBE34C10616C6E40B1972E462F6249391D79CF92
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133611.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:778FD3891AEECB16CA11A3CF9CDC35B555439566
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133612.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:F67B610188F5F9F94404936DE13B96B5DE538644
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133613.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Photo Mechanic Plus 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133615.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.4 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133617.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:1423F7A7AD7E38E060D5D7DA9604E0C0925AD3F3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133618.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ uTorrent Pro 3.6.0 Build 46944 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133619.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Macromedia Flash 5.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133621.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ magnet:?xt=urn:btih:A011B3D4CF5E580DBE0ACC63DD0926C3A00478B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133622.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ Udemy, Studio Wander | Complete Guide to Unreal Engine 5 : 3D Architecture & Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133623.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ Microsoft выпустила «уродливый» рождественский
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133624.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ Microsoft выпустила «уродливый» рождественский
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133625.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:9983F102EF1461B811386825FEFC529069538954
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133626.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:D33418FCBC52ACBA3A48C2468EFB4A8AD664FDAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133627.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:FD64D89CA356A1F3B0F72BBCE5230AB444018A9B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133628.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ magnet:?xt=urn:btih:A15B9B7359E735CBB9A2FB3E1311725DF4F4FD29
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133629.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Stevie Ray Vaughan and Double Trouble - The Essential Stevie Ray Vaughan and Dou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133630.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ Stevie Ray Vaughan and Double Trouble - The Essential Stevie Ray Vaughan and Dou
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133631.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.32/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133633.jpg" />
 </div>
 
 
@@ -570,90 +642,6 @@ Car Mechanic Simulator 2021 - симулятор механика, позвол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:773056ABDB85F6DF9D9DD020AD3D22AC3F13CEC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680619   (133635) от 30.11.2023
-
-VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Электроников - Песня о снежинке (04:05)
-002. ABBA - Happy New Year [04:24]
-003. Bee Gees - Thank You For Christmas [01:54]
-004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594742   (133636) от 26.12.2012
-
-VA - New Age Style - Greatest New Age Hits, Vol. 9 (2012) [MP3|320 кб/с]<New age, Enigmatic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messiah Progect - Error Maya.Life Goes On.(21.12) (4:00)
-02. Vasim - Hiking (3:28)
-03. Kokohana - Mononoke Hime (4:56)
-04. Strannik - Terra Incognita (5:00)
-05. Nicholas Gunn - The Swallows Of Na' Lu'um (5:29)
-06. Twins In Mind - Fallacy Of Faith (5:17)
-07. Sergey Sirotin & Golden Light - You're With Me (3:23)
-08. Anthony Island - Fill My Dreams (7:14)
-09. Helen Jane Long - Passes (3:56)
-10. Innerlande - Mystic River (3:15)Жанр: New age, EnigmaticПродолжительность: 02:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC59B22ADC56237BEB359804CDADB30672896336
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594373   (133637) от 26.12.2012
-
-Жозе Сарамаго | Каин [2012] [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жозе Сарамаго, великий португальский писатель и лауреат Нобелевской премии по литературе, в своем творчестве - с одной стороны, убежденный марксист и член коммунистической партии, а с другой — несравненный философ современности - занимался вопросами религии и, можно так сказать, переписывал Библию. Его «Евангелие от Иисуса» предложило непривычный взгляд на сюжет, (   Читать дальше...   )Жанр: современная проза, роман, зарубежная прозаИздательство: Нигде не купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E79322B9FF5DC62099C2330C2538078D089F609
 ```
 
 

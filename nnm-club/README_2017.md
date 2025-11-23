@@ -6,7 +6,7 @@ Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52807.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52809.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Google Chrome 126.0.6478.115 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52810.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52811.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:AF3F70EEB5F9CA2923DF19119B1B72F058507861
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52812.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:C6F46A4C614912B0AB10715B0F1B0C98F0951E9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52813.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Abelssoft Win11PrivacyFix 2025 v4.0.54970 Portable  by FC Portables [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52814.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:90AB60A329D27207A32575800AEEBC0B8526DFEA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52815.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52816.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Memento Database + ключ активации 5.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52817.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:33C6074F44BA365D20E3463789176CA86EF3DD49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52818.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52819.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:8507DE5220A4F6B9824AFFC302B47E51060518BD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52820.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:2172C250AFAC01097D9776C4342B5F97DF8715E6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52821.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52822.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:F89415011638395B8930B865EFBEFF65CE845DDA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52823.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52824.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:C2D2FAA7C08E7C6D801B7ADEB0D7E3567DA57CFC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52825.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:460B3088BBF6B3D3C963560DBCD60FF6A8772454
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52826.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:04B98DE6E178C379B781A4081B12536C9365B876
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52827.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:0C32CD15CB4070CD0AF3C2592285AF5CDDCC9B85
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52828.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Google Chrome 126.0.6478.115 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52829.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ KORG - Gadget 3 Plugins 3.1.1 VSTi, VSTi 3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52830.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:08FF29B867E3A07F917AC52BE8518E9C5BF5D589
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52831.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bartender: Kami no Glass | Bartender: Glass of God | Бармен: Бокал б
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52832.jpg" />
 </div>
 
 

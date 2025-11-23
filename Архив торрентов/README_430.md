@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97980.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A78DFDD898D41A98E74FDEFA9E22D58ADEE1A26
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97981.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97981.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mozilla Thunderbird 11.0.1 Final + Portable 11.0.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97983.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97983.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RarmaRadio 2.68.1 Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97984.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97984.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RarmaRadio - программа для прослушивания и запис�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97986.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E3D9072122A94839AE60D30FA246A41A42AE77FC
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97988.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DDB1D49F8E4BA3A9A7BC45B8F552C67FD620F90B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97989.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6D32C0BA3D2549E3B322B5A9CF77ABA82DFC67CD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97991.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:965A1FE7B533AF1BF059F85470A2DE6C5F84A99F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97999.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D1A7248D1D52F5E75A653F0385ABA4727E4143D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98003.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:49387731DB333996F4983EB6BE2313D8D49BF044
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98008.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98008.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:49387731DB333996F4983EB6BE2313D8D49BF044
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98012.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:F9A5420A6A7D888FB3FBAABAB9A49053AE0004E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98014.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98017.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98021.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98021.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98024.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98025.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98032.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98032.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98034.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98039.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98039.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98043.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mozilla SeaMonkey 2.9 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98047.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98048.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98049.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98050.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98059.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98059.jpg" />
 </div>
 
 

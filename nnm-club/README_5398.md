@@ -1,3 +1,183 @@
+###  Публикация: 1597516   (165851) от 15.12.2022
+
+VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils van Zandt & Pakito - Are You Ready (2:46)
+02. Singa - The Night Train (2:55)
+03. Amari - Bring the Fire (3:23)
+04. Alexander Merlin - Butterfly (2:38)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D869147CF17ADD69E142E5FBA0F6325763FC559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345782   (165852) от 16.12.2019
+
+Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hills
+02 - Colby Park
+03 - Eratik
+04 - Five Minute Flame(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6624FED2E228A35E155016AA6E4E14B55CB91AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673305   (165853) от 31.10.2023
+
+RepairClinic | Как ремонтировать бытовую технику (2018) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробное устройство, как работает та или иная бытовая техника, как разобрать ту или иную бытовую технику, как правильно ремонтировать бытовую технику, лучшие методики и раскрытие всех секретов в ремонте бытовой техники.
+✅Позволит не платить за ремонт приличные деньги.
+✅Позволит не тащить технику в мастерскую.
+✅Позволит планировать Ваше время и (   Читать дальше...   )Производство: RepairClinicЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAC4CA4A4F3357083C0C7AA37B620A462C0D964
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431805   (165854) от 15.12.2020
+
+Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание сложных выделений вручную и их совершенствование почти всегда занимает больше времени, чем ожидалось. Topaz Mask AI позволяет создавать сложные маски в рекордно короткие сроки благодаря нашей интуитивной технологии машинного обучения и технике trimap. Меньше пользовательского ввода для чрезвычайно высококачественной маски всегда было мечтой фотографа, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4C34788F0C0D592D1463A6463A5B35D6EE13E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431520   (165855) от 15.12.2020
+
+Bootstrap Studio 5.5.0 RePack (& Portable) by xetrin [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - мощная программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Bootstrap Studio помогает создавать стильные сайты. Он идет с большим количеством встроенных компонентов, которые вы можете перетаскивать, чтобы собрать удобные по навигации веб-страницы. Он построен на основе чрезвычайно популярной структуры Bootstrap и экспортирует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28B03DCBE3F75E8BA55C58D5DF78A07E54B742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516466   (165856) от 11.12.2021
+
+Камеди Клаб / Комеди Клаб / Comedy Club (10.12.2021) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165856.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин и др.Субтитры: ОтсутствуютПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7328CC251F232246743D60C0A850A1C87ABE0349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345715   (165857) от 16.12.2019
+
+Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm & Blues>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Body Language
+2 Another Nail For My Heart
+3 S.O.S.
+4 We've Got Tonight(   Читать дальше...   )Жанр: Soul, Rhythm & BluesПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BFC2E476219F6959C49BF1CAC5760F775AF0A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597581   (165858) от 15.12.2022
 
 Macrorit Disk Scanner 6.0.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +186,7 @@ Macrorit Disk Scanner 6.0.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165858.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:C8FDDE522367C293F00441CE716F1077CA809D0B
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_165859.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_165859.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ Tap Forms Organizer 5 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165860.jpg" />
 </div>
 
 
@@ -80,7 +260,7 @@ magnet:?xt=urn:btih:B7DD4D4BE537BFDD11D688382E366C80C9EB124B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165861.jpg" />
 </div>
 
 
@@ -104,7 +284,7 @@ magnet:?xt=urn:btih:293B52CDDFEE49E7CF1E2344BDFCB1ABD63FE974
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165862.jpg" />
 </div>
 
 
@@ -131,7 +311,7 @@ magnet:?xt=urn:btih:C88D36701F0D272ABCC6A2C5B342AA99FDA95A8C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165863.jpg" />
 </div>
 
 
@@ -155,7 +335,7 @@ magnet:?xt=urn:btih:0CCE7A4BC8F2AC0539101AF2F1577E83144C7AD3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165864.jpg" />
 </div>
 
 
@@ -179,7 +359,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165865.jpg" />
 </div>
 
 
@@ -203,7 +383,7 @@ magnet:?xt=urn:btih:8B122D33D2292A4A14E5827A35E7518CE943E7E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165866.jpg" />
 </div>
 
 
@@ -227,7 +407,7 @@ magnet:?xt=urn:btih:7676F3ACFF020F6B7D14DFFC95E8E662408042B7
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165867.jpg" />
 </div>
 
 
@@ -254,7 +434,7 @@ magnet:?xt=urn:btih:F825A19A5409B8B5DAAF4C6F4CEC410D45E6140A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165868.jpg" />
 </div>
 
 
@@ -279,7 +459,7 @@ EarthView 7.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165869.jpg" />
 </div>
 
 
@@ -303,7 +483,7 @@ BELOFF [dp] 2021.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165870.jpg" />
 </div>
 
 
@@ -329,7 +509,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165871.jpg" />
 </div>
 
 
@@ -353,7 +533,7 @@ Goodbye June - See Where The Night Goes (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165872.jpg" />
 </div>
 
 
@@ -380,7 +560,7 @@ magnet:?xt=urn:btih:BDB360C5F985F4E5A6C0F481B16C64C3F184BD8D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165873.jpg" />
 </div>
 
 
@@ -405,7 +585,7 @@ magnet:?xt=urn:btih:E2566A8817633A4F55AC620399D604A23BE83857
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165874.jpg" />
 </div>
 
 
@@ -429,7 +609,7 @@ Magnétophone - I Guess Sometimes I Need To Be Reminded Of How Much You Love Me 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165875.jpg" />
 </div>
 
 
@@ -456,7 +636,7 @@ magnet:?xt=urn:btih:39C3252BFF2308E232E0BD5D4664C4C8B794FAAE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165876.jpg" />
 </div>
 
 
@@ -468,178 +648,6 @@ magnet:?xt=urn:btih:39C3252BFF2308E232E0BD5D4664C4C8B794FAAE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14960E6B91F14DBC65A0401BBCE5FACFB8DFB056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431816   (165877) от 15.12.2020
-
-Сергей Панченко | Ветер. За горизонт (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветер, уничтоживший мир, не затронул полярных областей, но и там ощущались его последствия. Огромные массы воды, сгоняемые к полюсам, вызвали страшные ледовые штормы. Последствия стихии испытали на себе команда и гости ледокола «Север». Так же в книге продолжена история Матвея, героя первой книги, и Прометея из второй.Жанр: Боевая фантастика, научная фантастика, постапокалипсисПродолжительность: 17.52.32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9AAE66DE9D1EF6A520B67D5F9304E13A20C192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516400   (165878) от 11.12.2021
-
-Проклятье Эбигейл / The Power (2021) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восточный Лондон, январь 1974 года. Из-за повсеместных забастовок шахтёров по ночам происходит отключение электричества, и страна буквально погружается во тьму. А у молодой медсестры Вэл первый рабочий день в большой городской больнице. Практически сразу девушка чувствует тревогу, будто нечто наблюдает за ней из мрачных углов, а когда строгая главная медсестра оставляет (   Читать дальше...   )Производство: Великобритания / Air Street Films, BFI, Head Gear FilmsЖанр: ужасыРежиссер: Коринна ФэйтАктеры: Роуз Уильямс, Шакира Рахман, Эмма Ригби, Тео Барклем-Биггз, Гбемисола Икумело, Дайвин Хенри, Чарли Каррик, Клара Рид, Марк Смит, Марли ЧишэмПеревод: Дублированный  (iTunes)Субтитры: Английские (вшитые, отключаемые UTF-8)Продолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF986E074C974DE532F01E75F613A43C74AF564E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597590   (165879) от 15.12.2022
-
-Разборки в Милане / Milano Rovente (1973) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сальватор Канджеми по прозвищу Тото, прикрываясь ролью поставщика сельской продукции в Милане, на самом деле контролирует широкую сеть проституток и с неё получает основную прибыль. Однако появление французского гангстера по кличке Капитан угрожает не только процветанию, но и самому существованию Тото. Капитан хочет объединить организованную преступность Милана под (   Читать дальше...   )Производство: Италия, TelemondialЖанр: драма, криминалРежиссер: Умберто ЛенциАктеры: Антонио Сабато, Филипп Леруа, Антонио Касагранде, Карла Романелли, Алессандро Сперли, Франко Фантазия, Тано Чимароза, Мариза Мелл, Витторио Пинелли...Перевод: любительский одноголосый (Сергей Квардаков (CCK+))Субтитры: русские (ССК+), английскиеПродолжительность: 01:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64ABB2478BFCF3CE63A019D8E8D5E1ED5F22663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345761   (165881) от 16.12.2019
-
-Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реализуйте свое видение с помощью Affinity Publisher, самого современного профессионального программного обеспечения для публикации от разработчиков отмеченных наградами приложений Affinity Designer и Affinity Photo.
-Это невероятно плавное, интуитивно понятное приложение дает вам возможность комбинировать изображения, графику и текст, чтобы сделать красивые макеты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E62B2D97ED64EDEDD5836E6BCD202604E6103D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516558   (165882) от 11.12.2021
-
-Великие мифы (Мифы Древней Греции) / Les grands mythes (2020) WEB-DL [H.264/1080p] (сезон 3 "Одиссея", серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мифы и легенды Древней Греции – величайшее культурное наследие человечества, интерес к которым не ослабевает в современном мире. Греческая мифология складывалась веками, передаваясь из уст в уста, из поколения в поколение и оказала серьезное влияние на развитие культуры и искусства всего мира, положила начало бесчисленному количеству религиозных представлений о человеке, (   Читать дальше...   )Производство: Франция, ARTE France, Rosebud Productions, Les MonstresЖанр: Документальный, мультипликация, познавательный, историяРежиссер: Сильвен Бержер, Камиль Дельбера, Себастьен Ранкур, Фред Пажес, Александра Вило-Бофилс, Гаетан Шабаноль, Натали АмселлемПеревод: Дублированный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 10x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7090EFCCFAEB4773FB6F72CBE68F73DB146AD059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431818   (165883) от 15.12.2020
-
-FileMenu Tools 7.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165883.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMenu Tools настраивает пункты контекстного меню проводника Windows, позволяя самостоятельно составить список нужных команд. Одним щелчком мыши можно переименовать, скопировать, переместить, удалить файлы, запустить нужные программы, скопировать выделение в буфер обмена, вызвать антивирусный сканер, открыть интернет-ссылки и многое другое. Программа позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC16D4FC33A1CED80634439598A0A39BD9612F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597558   (165884) от 15.12.2022
-
-Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still
-02. Loving You
-03. I'm Glad
-04. The One(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
 ```
 
 

@@ -6,7 +6,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60462.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60474.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60500.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0.11) Repack Cheshire28 [Multilang
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60732.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60774.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60932.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gore Doctor (2024) [En] (1.05) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60952.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Between Horizons (2024) [Multi] (1.0.4+s) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Distant Bloom (2024) [Multi] (41064.3120) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60997.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61101.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61192.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61203.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61218.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61228.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61236.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61342.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61542.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61544.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Between Horizons (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61610.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61750.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61763.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61784.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61786.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61861.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61897.jpg" />
 </div>
 
 

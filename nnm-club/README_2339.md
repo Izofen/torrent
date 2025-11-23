@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:233F6ACD8E285208FF3CC2E0CCF28BF64D259854
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:233F6ACD8E285208FF3CC2E0CCF28BF64D259854
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61181.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A6F5384B809CC922FC71CB7321C2D4921CA3C9EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61182.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61183.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3CF3C8866A480EC20B2B0FC64F36BB894C9A0D4E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61184.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CD48546820508BE2DED9DD40EAA6502FEEC80E85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61185.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61186.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:524D1EFC80DDD68230DF09D6C1C8598E71A39B10
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61187.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Record Super Chart 30.03.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61188.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7E0CA2294A930754FC90DD586FF3506985E54456
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61189.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2D4388481BCA5F3B6B402666B05879C263FC746D
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61190.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Pepper Grinder (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61191.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61192.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61193.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8AD735A3CF3DA2EAF1DCD4C7A09624E2B43F3F0C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61194.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:302C280FFADA4C57E8A5171669A47990DC3417D2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61195.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A841B8D81A551F62915DC1F59890BC9F6DFD2549
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61196.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0CC41789F53D5433543E20ECBC372447BF2D7EB5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61197.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A278CCF61033E88BAEAB9AEA828F4AF202B051E1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61198.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D1CE05F3FE7B315EA1153DE333DA122FB203424D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61199.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Steve Maxwell | Отделка дерева для начинающих (2023) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61200.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:83EEA1EB520318ACDDE630309142CDEE75EA6F1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61201.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61202.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61203.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61204.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1436476   (136623) от 31.12.2020
+
+Фотографии - PHOTOBASH - SAMURAI ARMOR [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция традиционных японских доспехов, детально снятых с разных ракурсов. Представлены благородные доспехи, шлемы и элементы, демонстрирующие культурные мотивы и дизайн.Формат: JPGРазрешение файлов: 3362x6972-7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3981B13E0F449045BE80ADC8C5DE1692EAED8EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424726   (136624) от 31.12.2020
+
+Бии и ЩеноКот / Bee and PuppyCat  (2013) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-11 из 11) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бии – так сказать, герой поневоле. Однажды, совершенно случайно, она оказывается втянутой в приключения щенка (…или котенка?). Вместе они путешествуют между реальностью и вакуумом Аквариумного пространства.Производство: СШАЖанр: Приключения, ФэнтезиРежиссер: Ларри Лэйчлитер, Кент ОcборнПеревод: Многоголосый профессиональный NewStationСубтитры: русскиеПродолжительность: ~00:10:00 серияРеклама: присутствует видео вставка рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC704A87E8C9FE85021E2B1C016971D52972BFE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436439   (136625) от 31.12.2020
+
+Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136625.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом DVD, Виталий Булгаров проведет вас через процесс создания высокодетализированных органико-механических персонажей с использованием XSI®, ZBrush® и Photoshop®. Виталий объясняет процесс концепции 2D/3D дизайна, а затем показывает процесс создания чистых детализированных сеток в пределах Softimage XSI, а также процесс лепки в ZBrush. Наконец, он показывает, (   Читать дальше...   )Производство: The Gnomon workshopЖанр: Создание видеоПродолжительность: 02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF48391C8C350EAA08B4CBE5BB5324E1CDB0C9A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436298   (136626) от 31.12.2020
 
 Потомство демона / Demon Seed (1977) DVDRip [H.264] [VO]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136626.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:669E9471F0EE372D99EEF042093F1B0A6F3D41E1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136627.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:360E8BA4305A2BEAEBBC574476D8D8E972B5E4FD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136628.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136629.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:44C1F2392E386216696F48C4A504242145B698AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136630.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:CFEE5BB8149B27CEFC4C96E2ADAD0B7DD3FC822F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136631.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:F317B25C46662661936D473D05F6086CF15B95A3
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136632.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:20D59788FA05F617EF9876180DA15DEABB2B541D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136633.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:49CB50609D087ED0E32A5F6746A0743F242750FA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136634.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:D86494EB294E58CE23192818F5AF1193F6A096A1
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136635.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:34C88E1C19C9E4F55B6FDC1283EC762C2DD482EE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136636.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:E601F39C912E364C0E00D8A245BE8F28850A4DB8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136637.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:F651E8CE11B270BD0B7646C6CD83762F0D1A56EE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136638.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:DC3EA34094FDF279DA91E70E2229138635D7024B
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136639.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:DC3EA34094FDF279DA91E70E2229138635D7024B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136640.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:4A816D1F76EA757E16C5A5D3BF56294A95328364
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136641.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:191F79FB42364BBB405B83C5B6BE4F87E55DFEF5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136642.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136643.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ magnet:?xt=urn:btih:150307F39B17A3CDDBB2D2BAB622D181D3AFAEB7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136644.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:E3BDDB89736B7D4B84882A4438D439423EEE3D4E
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136645.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ magnet:?xt=urn:btih:5CCC34A0780F818D913E18ED0DFE15D1F3B11435
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136646.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ magnet:?xt=urn:btih:A740309E3A5B42CA52C66E769A475FE44621D062
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136647.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:322685BAB67000D92022DDAD335E174B704B30E1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136648.jpg" />
 </div>
 
 
@@ -555,80 +627,6 @@ magnet:?xt=urn:btih:322685BAB67000D92022DDAD335E174B704B30E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2366788003B00815BC9E3BF388037FE0F79C4CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436355   (136649) от 31.12.2020
-
-Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector 53 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-19 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C4441D331D12855590604B503F8DA2F35FE137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436408   (136650) от 31.12.2020
-
-Растровый клипарт - Charming female operators in headphones stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательные женщины-операторы, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4673x7000-8000x8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE373FA1CEE607095119CCC4F57E28BFD146C8AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436493   (136651) от 31.12.2020
-
-Растровый клипарт - PHOTOBASH - HANGING CABLES [TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой набор электрических проводов и кабелей. Это отличный комплект для создания ваших собственных подвесных кабельных ресурсов для использования в качестве элементов переднего плана в заброшенных или промышленных условиях.Формат: TIFРазрешение файлов: 2000x1000-7952x3298
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1598455003962997564EAEC6CE83755D111FB0
 ```
 
 

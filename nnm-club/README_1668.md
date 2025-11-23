@@ -6,7 +6,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43723.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:318D94B30D7D8A95E8BF84F0DA6FC43ABCA4C51E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43724.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:47247A200858D721202AD8CD320E3B7807FD7B90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43725.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ XnView Shell Extension 4.1.11  + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43726.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2540977EF54EA55BA709A0D386977294C4A54FCD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43727.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Super S10 Launcher 5.3 Mod by Oflarm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43728.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AE1FC3316DB7EF5D12D39FD1EA92D2DE9782A852
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43729.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:538F8592002242F312BC9995F121DD098EB4FCD3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43730.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:538F8592002242F312BC9995F121DD098EB4FCD3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ O Launcher 12.4 Mod by Oflarm [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43732.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:602AEA5494CD8C200AEBEC7AA5802F6F1C439B78
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43733.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:F69074D8ADF484B3F731B4248865D174EB42E869
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43734.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Planet VPN 2.9.1.2 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43735.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D27998241D223FA5B52D27ED3D1F21304CF5DBEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43736.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Microsoft Activation Scripts (MAS) 2.7 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43737.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:0E61D0144B591C98A6F00BB67BCC84EA6BABD4D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43738.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Astra Linux Special Edition 1.8.1.UU1 [amd64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43739.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:55808EB8C8E61D80B62928716B9B2B83FC678176
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43740.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Spyro the Dragon (1998) [Ru/Multi] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43741.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43742.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:65109BF906404FDFFBED9AD46798D893B23C92DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43743.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:65109BF906404FDFFBED9AD46798D893B23C92DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43744.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:65109BF906404FDFFBED9AD46798D893B23C92DC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43745.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D0A71B13F547655AB77CC1CC76EE6B4DB161BA6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43746.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43747.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D4D606F54BE58C79A8E591C9F694A59FFFC957D1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43748.jpg" />
 </div>
 
 

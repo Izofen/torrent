@@ -1,3 +1,111 @@
+###  Публикация: 1271662   (243948) от 03.08.2022
+
+The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Adolphe Adam - ''Giselle''
+02. Franz Schubert - ''Rosamunde''
+(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536471   (244006) от 12.03.2022
+
+David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lamplight
+A2 Turn Me Loose
+A3 On And On
+A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626259   (244011) от 13.04.2023
+
+Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tell Me Why [5:36]
+2. Pleasure Victim [3:51]
+3. Sex (I'm A...) [5:08]
+4. Masquerade [4:09](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C635D82B613769A21F231D3548F9A3639A4984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626149   (244034) от 13.04.2023
+
+Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_244034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Heavy Entertainment Show
+A2 Party Like A Russian
+A3 Mixed Signals
+A4 Love Of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E487750EE461A5148EE9249CD0161C6EF2210F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626064   (244039) от 13.04.2023
 
 Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
@@ -6,7 +114,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244039.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244039.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244082.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244082.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244688.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244756.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244978.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244997.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245044.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245044.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245169.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245169.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245188.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245188.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245259.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245259.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245485.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245485.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245766.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245766.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245804.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245804.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -408,7 +516,7 @@ magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246749.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246749.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249436.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249436.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249634.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249634.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249796.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249796.jpg" />
 </div>
 
 
@@ -515,7 +623,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249886.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -542,7 +650,7 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250027.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -569,7 +677,7 @@ magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250117.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -583,113 +691,6 @@ A4 Испорченный Телефон(   Читать дальше...   )Жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617214   (250260) от 07.03.2023
-
-Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
-2004 - Since the Day it All Came Down
-2006 - Above the Weeping World
-2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834720   (250468) от 
-
-Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250468.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Boyd Brothers–	Keep It Coming	(7:19)
-A2	Charlene Davis–	Aggression	(4:29)
-A3	Nancy Dean–	Too Many Promises	(5:56)
-A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494949   (251202) от 11.05.2012
-
-Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Hung, Drawn And Quartered[04:35]
- 02. - Stalingrad[05:59]
- 03. - Hellfire[06:08]
- 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836401   (252509) от 10.11.2025
-
-Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
-2020 - Forward We March
-2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
 ```
 
 

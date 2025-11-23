@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:461AE65BDC0FC7761EADD85332CA7B0719AE252A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01EAE9300C8C1F8C8697A71AF14F7905D64A29CA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8338.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:50B39A7E5A3F6107411D59900D16742AA9225D5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8339.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 (v24h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8340.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:718EDE72FFA0483AEEDCB8F676A732AA2FB0EAB8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8341.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:542AD25EA90DCD44C2BA2348FE417E0B1F785BCA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8342.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Animal Planet: Cинее царство (Лазурная страна). Аку�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8343.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F7F1B8647AE9D8A4D9BD4F18EDAB444280D947D9
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8344.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8345.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8346.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8347.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:1C5B63136638B92163A498F3FF6DE799E37B15C0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8348.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:6A77D0F07210B0A1E35BECA6D408E1453431DB7B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8349.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8350.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8351.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:06159A0D6E45D244DD183D13A322CE65731FEC29
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8352.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B91F6F51465D9CAC5A95252EC3B5072CE5054FFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8353.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Exhumed - To The Dead (2022) [APE|Lossless|image + .cue] <Death Metal, Grindcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8354.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:6AFEC4901603B9E3EF7A593045155817DD294270
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8355.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:8BBD026304B7FB3DA66D6C19E2C5DED095827E33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8356.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:2A0A005C7A794F59A0C11CFC035DAF9D7568244E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8357.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E73F7F359E4DE3DB3BFA76769F44B18A3E7CA610
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8358.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:04FBF8A43DF9EC21E0A00A3CA25CD569C39B9F0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8359.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:17F4E3448ED8D5DA1925AFAD7A353FE97DD0C5F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8360.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:8B78D63B3713B21DD841BC963CE1FE4FFD2A3F31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8361.jpg" />
 </div>
 
 

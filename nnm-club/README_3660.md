@@ -1,3 +1,75 @@
+###  Публикация: 1703573   (114842) от 01.03.2024
+
+Журнал | Военно-исторический журнал №3 (767) (март 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114842.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2630965382D16E385976C759559084DD4921EAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703737   (114843) от 01.03.2024
+
+K-Lite Codec Pack Update 18.1.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114843.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC68E93DA6A30446E558FB0F2659C323F6D1849E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703614   (114844) от 01.03.2024
+
+XYplorer 25.60.0000 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114844.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAAEAD1401D81C90962CB4DD2F3C50AED7B56CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703721   (114845) от 01.03.2024
 
 Автограф - 25 лет спустя. Юбилейный концерт (2005) 2 x CD [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Prog>
@@ -6,7 +78,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114845.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ AutoHideDesktopIcons 6.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114846.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:CA4ADFFF7C13496504D10F30ECCF996F11137024
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114847.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ TikTok 33.6.3 Lite-Mod by Dmitry Nechiporenko + Plugin 1.28 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114848.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114849.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ TreeSize Professional 9.1.2.1873 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114850.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:198351D029B341E763E30525A08DC8B80FF4B51B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114851.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ Ashampoo UnInstaller 14.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114852.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ magnet:?xt=urn:btih:43F12C3B3F315FC7A28076BF36EE4A7F313A9266
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:A7B6268EBDE3D165DDC2D0AC858F1DFF4AD4007B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114854.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ Adobe Photoshop Express 12.8.317 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114855.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ Shotcut 24.02.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114856.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0225) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114857.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114858.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114859.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:CCF35D6FFF9694FCBFA680E0FE5538A0508FD942
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114860.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ Topaz Video AI 4.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114861.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Joplin 2.14.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114862.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ DiskDigger 2.0.1.3877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114863.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:F6A5AF63F62D306C8CC545C1E183BA70373F2829
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114864.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:30094831D05BA0149CA7E87A8645EB4102EEDEF0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114865.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:F6118BAB4711ADDF5DD520378725A823F40B7F39
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ EssentialPIM Pro 11.8.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114867.jpg" />
 </div>
 
 
@@ -560,79 +632,6 @@ EssentialPIM - это отмеченное различными наградам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FF78F03387DAC545117B550EDB2EF7854B0C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703761   (114868) от 01.03.2024
-
-Дэдпул / Deadpool (2016) BDRip [H.264/1080p-LQ] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США / Twentieth Century Fox, Marvel Entertainment, Kinberg GenreЖанр: фантастика, боевик, комедияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Аггамс, Джед Риз, Каран СониПеревод: Дублированный (Custom)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B865DCA73D35DC3EC14BE7580FE51C68F44BBE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696836   (114869) от 01.03.2024
-
-Сестра Джеки / Nurse Jackie (2009) HDRip [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) NewStudio
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медсестра Джеки - волевая и талантливая, но очень испорченная и грубая женщина. Она пытается отыскать хоть какой-нибудь баланс между своей тяжелой работой, в центральной нью-йоркской больнице, и сложной личной жизнью. Католичка, отошедшая от своей церкви, которая не может побороть слабость к таким обезболивающим как Аддеролл и Викодин, вершит в госпитале свою справедливость. (   Читать дальше...   )Производство: США / Showtime Networks, Jackson Group Entertainment, Madison Grain ElevatorЖанр: комедия, драмаРежиссер: Пол Фиг, Джесси Перец, Брендан УолшАктеры: Иди Фалько, Мерритт Уивер, Пол Шульц, Доминик Фумуса, Руби Джеринс, Стивен Уоллем, Анна Дивер Смит, Питер Фачинелли, Маккензи Аладжем, Ив Бэст и др.Перевод: Двухголосый профессиональный (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF58B7CBB60D237155511A762737C9FA1A36AC2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703644   (114870) от 01.03.2024
-
-Spotify 1.2.31.1205 (Repack & Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
-Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
 ```
 
 

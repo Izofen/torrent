@@ -6,7 +6,7 @@ VA - Music News For Forum vol.043 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37065.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DF28A299E91FBBA261B4A45CF2324D5AF29DF9CA
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37066.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4550BBBDA44FC65082D2E00A87E8C4B63611DA75
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37067.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Firefox Browser ESR 115.17.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37068.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Firefox Browser ESR 115.17.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37069.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:66878F92DFFB79446D246AEF7E901951D1D29603
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37070.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7B31B09F0913C6F5C89D577AAAFF923D9BDC2384
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37071.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Sante DICOM Editor 10.0.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37072.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37073.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37074.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Keepsafe: Защита Фото и Видео v13.3.1 Premium Mod by DEXUNPACKER
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37075.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Firefox Browser 132.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37076.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:02339A2320722491378D775567486312BD8DE98C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37077.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:822D7A0FCBD6C8D3CCFF9F65B7380446B1FFDED8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37078.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ PictureThis - Plant Identification v5.0.13 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37079.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A3AAAD9D2EF617E1C56E13FF34A747B24C6127E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37080.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37081.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Joe Bonamassa - Lonely Christmas Eve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37082.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Баллады Rap, RnB, Hip-Hop (2008) [WavPack|Lossless|image + .cue] <Po
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37083.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Rosetta Stone: Изучение языков 8.29.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37084.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:EB8D140DB690C0E5D61A9998BBA6CA7DEAA2D274
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37085.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EA8ED07713FDBA7D2437490C122DA3A0BC78B92B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37086.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:D90FB4C451E131270485461E2917A492E5B17A26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37087.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Sante DICOM Viewer Pro 14.0.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37088.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DIGI Clock Widget Plus 3.4.0 (ARM64) Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37089.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37090.jpg" />
 </div>
 
 

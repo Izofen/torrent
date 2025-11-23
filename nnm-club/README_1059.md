@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:170AB73DF5A20596F691BCF64BEA43CA06055430
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27883.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1101D1AAAF073203D6F3451AEC00AB1A0DE596C3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27884.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1101D1AAAF073203D6F3451AEC00AB1A0DE596C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27885.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5C04D5A67026F45C9ED0EE4FA0D7B63A63737C75
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27886.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Macrium Reflect Server Plus v 8.0.7175 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27887.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Movavi Photo Editor 24.3.0 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27888.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0B9C4937C9712FAEDF92440E83FB214EBA63F058
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27889.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Youtube Downloader HD 5.9.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27890.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E4EFF4E66978C175B321D3B96A62B9768B784469
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27891.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C7E5654F3D0FF7317D23D5E5D80A150A6F8D7B1B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27892.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft  Visual C++ Runtimes AIO v0.87.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27893.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:349C15FD7C4B035AEC75A2766962A2AEB71BC999
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27894.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27895.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:3B577E4AF363D953AD7CCD216ABA632180058B4F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27896.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8DB657E8197C758842AFBEE943B0C3F6B01EA2F5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27897.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:606EA6C2451813BC5DD87D2BB5915688E4E8829F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27898.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.02.12 [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27899.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27900.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:030608F723143BE2F31536A2EA3292B630E41AC1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27901.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27902.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27902.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:765FC43A986F0AEBB536B2F0AF01AB373F573642
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27903.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:9C20F8DD00901CD552FE8D4B250C06CB357A3AF4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27904.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27905.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:79468B556F5199A9DF729BD56AF1B04707A786A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27906.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.635.8786/dlc) Repack seleZen [Digit
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27907.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67981.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68012.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68013.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance Fusion, Vol. 09 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68018.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Sound of 2025, Chapter 3: London (Sunset Mix) (2025) [MP3|320 Kbps] <Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68043.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68045.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Top 14 January 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68076.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Tec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68083.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68091.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Erasure - Breathe (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68110.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68123.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68133.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68140.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68141.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68142.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - EDM Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68164.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68169.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68184.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Centhron - Liebe ist Krieg (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68208.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ H.Ruine, Mikhail Kireev - Imagined, Awakenings (2025) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68224.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Black Dog - Further Vexations (2009) [FLAC|Lossless|WEB-DL|tracks] <IDM, Bra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68226.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Black Dog - Live At Festival Of The Mind 2024 (2025) [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68245.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Black Dog - Liber Dogma (2011) [FLAC|Lossless|WEB-DL|tracks] <IDM, Braindanc
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68248.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Miami Dance Vibes 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68296.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Spring Emotions (2025) [MP3|320 Kbps] <Progressive House, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68299.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Armin van Buuren - A State Of Trance 1219 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68300.jpg" />
 </div>
 
 

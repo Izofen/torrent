@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:804E62C43A65B0559A0C19769AF8475A2B4344B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98884.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D8D0568662AA076DF98CB9E43ABEFAFEB32130F4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98889.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0072194D5E7CFDDBEEFB151F7A6FE4FA0C3510D3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98891.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FDFFACCE7306C5E1C04E6931ECCEBCA855DC5A5E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98892.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ OSI - Fire Make Thunder (2012) [FLAC|Lossless]<Progressive Rock,Progressive Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98894.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98894.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ OSI - Fire Make Thunder (2012) [FLAC|Lossless]<Progressive Rock,Progressive Meta
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98895.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:6E7A6EF740426BE07AED1505C5AB6CE9035E29D5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98896.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Data Flow Accelerator 3.4.2.24 Beta [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98904.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Data Flow Accelerator - бесплатный менеджер закачек, с
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98905.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:69AAEDEC1BFA25920021EF776AF9406244DE203F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98906.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:FFC4570E7CDA48CA4C605A51A1D3272EC2D547FF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98908.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:337548FC1723B82E251752746C2CABE26893E800
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98909.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2602C0E6F22F706D602AE1C96A918811E657E4AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98911.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:7BB3429D85238DD8D3EE8FBF9B4ABF0CC02A37EC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98913.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:2BA251A0792602F3C9081BCEFBF5A7F0FEA3D9C9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98917.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B52F85A1D1278F304C8576468E9BB89104321FB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98921.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:565CF216127C4B604A3BDD2737EEA214E308E69C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98928.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:565CF216127C4B604A3BDD2737EEA214E308E69C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98931.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Can - Sacrilege (2CD) (1997)[FLAC|Lossless]<Trip Hop, Abstract, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98934.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98934.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ CD One - 00:49:24
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98936.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ DJ Tiesto - Club Life 258(03.2012) [MP3|320 кб/с]<Trance ,Progressive House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98937.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Data Flow Accelerator 3.4.2.24 Portable [русский, английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98942.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Data Flow Accelerator - бесплатный менеджер закачек, с
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98943.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:A5D1E0098A93EEC9A9EC944CC8C94B9793F25668
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98945.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ WinUtilities Pro 10.5 RePack by от loginvovchyk [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98948.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98948.jpg" />
 </div>
 
 

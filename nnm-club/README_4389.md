@@ -1,3 +1,81 @@
+###  Публикация: 1679746   (135311) от 26.11.2023
+
+Rumpus PRO 9 v.9.0.12 + Tether Client 1.1  [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для macOS.
+Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2023 Maxum DevelopmentПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1C2FBEF0CB8590B64B56529B39DD1B48D3C619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593405   (135312) от 23.12.2012
+
+ObjectRescue Pro 6.9 Build 947 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135312.jpg" />
+</div>
+
+
+###  Подробнее
+
+ObjectRescue Pro - универсальное решение для восстановления данных. Программа восстанавливает не читаемые и удаленные файлы с различных носителей, таких как: жесткие диски, CD/DVD диски, цифровые фотоаппараты, мобильные телефоны, а также все известные типы флэш-карт.
+
+(   Читать дальше...   )Название программы: ObjectRescue ProЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679838   (135313) от 26.11.2023
+
+Fierce Justice - Fireborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call To Arms (02:29)
+02. Doppelganger (05:06)
+03. Spineless (04:35)
+04. Rage (04:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEAAB3EED039673FCB3531590AE1AD7535832D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593306   (135314) от 23.12.2012
 
 Кто хочет стать миллионером (23/12/2012) SATRip
@@ -6,7 +84,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135314.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:19A6276629B597178F362952BCC91967FD1D781B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135315.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Cracklin'Groove - Cracklin'Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135316.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:6C0057F885047CD6ED046AECA5DBD1B0006533C9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135317.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:C32750832AB105E672A861930D61254E1B025DE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135319.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ Dynaper - Dynamic Wallpapers 1.5.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135321.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:4067BEDA5F57F6E7A928D906BBAA609091606C95
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135323.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ Resize Sense - Flexible batch image processing 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135325.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135327.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135328.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135329.jpg" />
 </div>
 
 
@@ -288,7 +366,7 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135331.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:93A047AD106AA08F0F2156DCB685DFE436BF57C3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135332.jpg" />
 </div>
 
 
@@ -343,7 +421,7 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135333.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135334.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135335.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:EB3C703F89EF93AB4AFB6CDEB2D147B78D627A55
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135337.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:F31331BB158CACBEAA7FAC926786BC3453153013
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135338.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135341.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135342.jpg" />
 </div>
 
 
@@ -525,7 +603,7 @@ Aspect Ratio X 2.1.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135343.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ JixiPix Chromatic Edges 1.0.31 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135344.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135345.jpg" />
 </div>
 
 
@@ -588,79 +666,6 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0D3EE5834B26C576FEE16E883A9161051FF291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593116   (135346) от 23.12.2012
-
-Журнал | Photoshop User [январь 2013] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135346.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Photoshop User" - официальный журнал NAPP. Он публикуется 10 раз в год (плюс бонусные выпуски). Photoshop User широко известен, как наиболее надежный ресурс по Adobe Photoshop и Lightroom с уроками, советами и информацией "как сделать" для графических дизайнеров, фотографов и всего мира цифрового искусства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679762   (135347) от 26.11.2023
-
-Борис Житков | Чёрные паруса (2008) [MP3, Алексей Морозов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Степанович Житков (1882–1938), русский советский писатель. Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
-В состав диска вошли: повесть «Чёрные паруса» о приключениях плененного турками и проданного венецианцам в галерники казака, рассказы «Ураган» (о злоключениях (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повесть, рассказИздательство: Вира-МПродолжительность: 04:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679793   (135349) от 26.11.2023
-
-Наша банда. На собственном заднем дворе / Our Gang. Your Own Back Yard (1925) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Была когда-то в ихней Америке песня с таким названием. Общий смысл таков - если не хочешь неприятностей, оставайся на своем дворе. Может и скучновато, но безопасно. По-русски сказать - "сиди дома, не гуляй". И вот главный герой этого ролика, Фарина, иллюстрирует эту здравую мысль. Жаль, что качество фильма ниже всякой критики.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Гарри Бауэн, Уильям Гиллеспи, Charles Oelze, Фэй РэйПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F978749AC62A36FDC14DA7D4231EB3ECE3E7DAA
 ```
 
 

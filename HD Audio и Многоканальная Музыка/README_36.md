@@ -6,7 +6,7 @@ Cats In Space - Time Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39282.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ellen Andrea Wang - Closeness II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39287.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Smoothies - Autumn Nights in Paris (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39351.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Behemoth - XXX Years Ov Blasphemy (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39367.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Queen - Queen 1 (Collector's Edition) (1973) Reissue, Remastered, 2024, Hollywoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39397.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Holitter - The Start (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39411.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39430.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Philhelmon - Into the Mist of Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39454.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39457.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39515.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ New Horizon - Studio Albums (2 releases) (2022-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39551.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sunburst - Studio Albums (2 releases) (2016-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39561.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Beth Hart - You Still Got Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39565.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39654.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Frozen Crown - Studio Albums (5 releases) (2018-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39675.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39864.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Blessed Madonna - Godspeed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <House
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39963.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39975.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kylie Minogue - Tension II (2024) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39984.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:179AB0332A9B29EC0F93BA68CEAD81FA7BC9DDEF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40054.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Lusa - The Colour Of Space (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40055.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40057.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40073.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40116.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40259.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40261.jpg" />
 </div>
 
 

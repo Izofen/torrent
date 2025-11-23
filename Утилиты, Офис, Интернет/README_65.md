@@ -1,3 +1,75 @@
+###  Публикация: 1833195   (246254) от 01.11.2025
+
+Beyond Compare Pro 5.1.6.31527 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond Compare — мощнейшая программа для сравнения файлов и папок. Так же с её помощью можно синхронизировать архивы, сайты FTP, обновлять веб-сайты, управлять исходным кодом, находить отличия между двумя текстовыми файлами и т.д. Beyond Compare может сохранять образцы структуры выбранных папок и в заданное время сравнивать их с теми копиями, которые находятся у (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C5AC927E86EC56910E0D1613D73DDCC818F52A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833193   (246255) от 01.11.2025
+
+Allavsoft Video Downloader Converter 3.28.5.9427 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04007E6629E984FE494DD3AE2AE55690E3F806D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833192   (246256) от 01.11.2025
+
+Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revo Registry Cleaner Pro - это мощное и эффективное программное обеспечение для очистки и оптимизации реестра Windows. Программа разработана для удаления устаревших, поврежденных и ненужных записей реестра, которые могут замедлять работу системы, вызывать ошибки и снижать производительность компьютера. Благодаря интеллектуальному анализу и безопасным методам очистки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85049611BF5AB4123EFA713B0B85CD3E10C6655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833179   (246267) от 01.11.2025
 
 PowerISO 9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ PowerISO 9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246267.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246267.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Directory Opus 13.19 Build 9399 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246358.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by 7997 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246918.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246918.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ UltraISO Premium Edition 9.7.6.3860 Retail [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247051.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247051.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247067.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247067.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by elchupacabra [Multi/R
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247068.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247068.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247103.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247103.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ BitTorrent Pro 7.11.0.46823 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247384.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247384.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Windows Update Blocker 1.8 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247667.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ MyLanViewer 6.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247747.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247747.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Display Driver Uninstaller 18.1.3.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247751.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Any Video Downloader Pro 9.6.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247753.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247753.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ iDownerGo Video Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247769.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247769.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Firefox Browser 144.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247772.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247772.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Firefox Browser 144.0.2 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247773.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247773.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ magnet:?xt=urn:btih:4D588DF1496298D92FAE03FBBB140C8034AE66FB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249034.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ IDPhotoStudio + Portable 2.16.5.75 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249970.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249970.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ MyLanViewer 6.6.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250371.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250371.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Adobe Acrobat Pro 2025.001.20844 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250390.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250390.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ ArrowDL 4.2.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250460.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250460.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ Karing 1.2.5.882 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250473.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250473.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ DLNow Video Downloader 1.54.2025.11.01 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250500.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250500.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ Chromium 142.0.7444.60 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250501.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250501.jpg" />
 </div>
 
 
@@ -549,79 +621,6 @@ Chromium – веб-браузер с открытым исходным кодо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F1697E70ACD96F723AFB3768A15E81577D55E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834706   (250506) от 
-
-OCCT 15.0.7 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B654F30CAB5624BBA0A3ABC44F2C9B5C1483ADBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835197   (250534) от 05.11.2025
-
-O&O Defrag Professional & Server 30.5 Build 1201 [En/De]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250534.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EBACFAB61DAF5A68588614B67EBB7A3C73BA39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835162   (250567) от 05.11.2025
-
-YT Downloader 9.17.17 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250567.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67B633B7A587FACFB64B57EAD7C9F2550F6B2E9
 ```
 
 

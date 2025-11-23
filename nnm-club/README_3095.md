@@ -1,3 +1,93 @@
+###  Публикация: 477231   (98524) от 03.04.2012
+
+Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sidewayz (5:34)
+2.3 A.M. (5:12)
+3.Fallin' in Love with You (5:09)
+4.Back in the Day (4:37)
+5.Charm (3:30)
+6.My Point of View (4:40)
+7.2nd 2 None (3:50)
+8.Emotional (4:03)
+9.How Lovely You Are (5:16)
+10.Miyuki (3:55)2005Жанр: Jazz, Smooth JazzПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477492   (98525) от 03.04.2012
+
+Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477232   (98526) от 03.04.2012
+
+VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youlee - Ohne Dich (Ole van Dansk Remix)
+02. Ole van Dansk - Mary's Prayer
+03. Aboutblank & KLC feat. DJ Bo - Gansehaut (Im 7. Himmel)
+04. EDX feat. Sarah McLeod - Falling Out Of Love (Justin Michael Mix)
+05. Brooklyn Bounce - Canda
+06. Cosmic Gate & Arney - Sometimes They Come Back For More
+07. Michael Mind Project - Rio de Janeiro
+08. Mike Candys & Evelyn - Around The World
+09. ATB with Amurai feat. Melissa Loretta - Heartbeat
+10. Kamil Esten - Sunrise (Reminder Remix )(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EC29A0C47A5B6A1280D5F3E5B045D46627C7FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478138   (98529) от 04.04.2012
 
 VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
@@ -6,7 +96,7 @@ VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98529.jpg" />
 </div>
 
 
@@ -39,7 +129,7 @@ Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98531.jpg" />
 </div>
 
 
@@ -72,7 +162,7 @@ VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98533.jpg" />
 </div>
 
 
@@ -105,7 +195,7 @@ Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98534.jpg" />
 </div>
 
 
@@ -138,7 +228,7 @@ ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98537.jpg" />
 </div>
 
 
@@ -171,7 +261,7 @@ magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98538.jpg" />
 </div>
 
 
@@ -195,7 +285,7 @@ magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98539.jpg" />
 </div>
 
 
@@ -223,7 +313,7 @@ Dylath-Leen - Cabale (2011) [FLAC|Lossless]<Death Metal/Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98541.jpg" />
 </div>
 
 
@@ -256,7 +346,7 @@ VA - Танцевальный клубный поп хит vol.4 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98542.jpg" />
 </div>
 
 
@@ -289,7 +379,7 @@ magnet:?xt=urn:btih:BC710A27C492C98385F7ECCA02D3B79034476180
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98543.jpg" />
 </div>
 
 
@@ -316,7 +406,7 @@ VA - Nothing But... Trancetopia, Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98545.jpg" />
 </div>
 
 
@@ -343,7 +433,7 @@ VA - XXXL зарубежный (2012) [MP3|192-256 кб/с]<Pop ,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98546.jpg" />
 </div>
 
 
@@ -376,7 +466,7 @@ Lane 8 - Fall 2025 Mixtape (2025-09-24) [MP3|320 Kbps] <Progressive House, Melod
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98547.jpg" />
 </div>
 
 
@@ -403,7 +493,7 @@ Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98548.jpg" />
 </div>
 
 
@@ -432,7 +522,7 @@ Markus Schulz - Global DJ Broadcast World Tour: In Search Of Sunrise, Eden Ibiza
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98549.jpg" />
 </div>
 
 
@@ -459,7 +549,7 @@ magnet:?xt=urn:btih:2E3E262FF8E66E4C0E9044555CC4B51BB8192FCF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98551.jpg" />
 </div>
 
 
@@ -485,7 +575,7 @@ VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98552.jpg" />
 </div>
 
 
@@ -518,7 +608,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98553.jpg" />
 </div>
 
 
@@ -542,7 +632,7 @@ War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98554.jpg" />
 </div>
 
 
@@ -568,7 +658,7 @@ magnet:?xt=urn:btih:5D4B6CC517C9B0E4504E8769609F1148F4830FFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98555.jpg" />
 </div>
 
 
@@ -592,7 +682,7 @@ magnet:?xt=urn:btih:356A581A4385E951A28922E87D8871AF87B8AFF6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98557.jpg" />
 </div>
 
 
@@ -616,7 +706,7 @@ Various Artists - Tranceffect 16 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98558.jpg" />
 </div>
 
 
@@ -649,7 +739,7 @@ magnet:?xt=urn:btih:D0FD76DB0DE8EDAC9A63AD71B383062BA25C0C1C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98559.jpg" />
 </div>
 
 
@@ -660,91 +750,6 @@ magnet:?xt=urn:btih:D0FD76DB0DE8EDAC9A63AD71B383062BA25C0C1C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CC5277E1DB12683F378741EAB962E2CE6D6DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477823   (98560) от 04.04.2012
-
-VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98560.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1. Время звучания 01:18:10
------------------------------
-01.Coldplay - Every Teardrop Is A Waterfall.mp3audio9.17 MB.mp3
-02.Sak Noel - Loca People.mp3audio8.20 MB.mp3
-03.Adele - Someone Like You.mp3audio10.98 MB.mp3
-04.Pitbull Ft. Neyo, Nayer & Afrojack - Give Me Everything Tonight (Radio Edit).mp3audio9.28 MB.mp3
-05.Racoon - No Mercy.mp3audio6.33 MB.mp3
-06.Caro Emerald - Riviera Life.mp3audio8.00 MB.mp3
-07.Blof - Hou Vol Hou Vast.mp3
-08.Anouk - Down and Dirty.mp3audio7.33 MB.mp3(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F7BDFE2C4F5736D8A7BDF3461493236755534E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822179   (98561) от 05.10.2025
-
-NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98561.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смертельной авиакатастрофы, в результате которой четверо юных братьев и сестер оказываются запертыми в глубине колумбийских тропических лесов, разворачивается драматическая спасательная операция, объединяющая следопытов-аборигенов и военных в гонке со временем. Впервые создатели фильма предлагают нам эксклюзивный рассказ об этой невероятной реальной истории (   Читать дальше...   )Производство: США, Великобритания, Перу, Колумбия / Demolition Films, Lightbox, Little Monster Films, National Geographic Documentary Films, Lightbox, Pacha Films, Senal ColombiaЖанр: документальный, катастрофа, спасение, расследованиеРежиссер: Джимми Чин, Хуан Камило Крус, Элизабет Чай ВасархелиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478245   (98562) от 04.04.2012
-
-[Wallpapers] Desktop Wallpapers №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98562.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №1
-Название: Desktop Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE679129D4BDAFFF7FE74C7E10E19B0A1355AAE
 ```
 
 

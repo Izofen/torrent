@@ -1,3 +1,75 @@
+###  Публикация: 1822208   (99929) от 05.10.2025
+
+UltraUXThemePatcher 4.5.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие знают из опыта, что дизайн Windows рано или поздно надоедает и вам хочется его как то изменить. И это проблема, потому что для использования сторонних тем вам придется изменять системные файлы, или покупать дорогое программное обеспечение. Теперь этому конец, потому что UltraUXThemePatcher может делать это автоматически. Быстро и бесплатно, потому что если (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150C2257E6ED0C16E5A4C39F7DAE2D1DA6867878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822200   (99930) от 05.10.2025
+
+Растровый клипарт - Adobe Stock - Old Time, Vintage Desks & Boards [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99930.jpg" />
+</div>
+
+
+###  Подробнее
+
+32 стоковых изображений старинных, винтажных столов и досок из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 4098x2306 - 12544x4704
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EDD1F2C792CF6EDAA79900AE80534A2BADA99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822205   (99931) от 05.10.2025
+
+M.A.S.S. Builder (2019) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99931.jpg" />
+</div>
+
+
+###  Подробнее
+
+M.A.S.S. Builder - это ролевая игра, в которой игроки управляют механическим штурмовым скелетным костюмом (M.A.S.S.) в качестве командира частной военной компании, отправляясь на борьбу с угрозой Кварков. Вы будете создавать, модифицировать и сражаться, чтобы спасти мир, или, по крайней мере, получать удовольствие от создания и настройки своих идеальных механических (   Читать дальше...   )Тип издания: SceneРазработчик: Vermillion DigitalЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822204   (99932) от 05.10.2025
 
 T-FLEX CAD 16.0.88.0 [Ru]
@@ -6,7 +78,7 @@ T-FLEX CAD 16.0.88.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99932.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:A526CA41450C7A1525C553842E9D6FCCB5BC84D4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99933.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:9A8FD9FECE50823FE44454A270EDF0198A0B3009
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99934.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:CBE311CC5523753315C13EEC9799EA283E76E5EF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99935.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99937.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99937.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99940.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ VA - MAXI. Русские новинки MTV (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99941.jpg" />
 </div>
 
 
@@ -191,7 +263,7 @@ magnet:?xt=urn:btih:203C4FB9B7F6DEB73797292C0E54D74D81F84634
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99943.jpg" />
 </div>
 
 
@@ -215,7 +287,7 @@ magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99944.jpg" />
 </div>
 
 
@@ -239,7 +311,7 @@ magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99949.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99950.jpg" />
 </div>
 
 
@@ -287,7 +359,7 @@ magnet:?xt=urn:btih:4115A14186D31D2E9A8F59E408CFE2CB2FC9F47C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99951.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ magnet:?xt=urn:btih:F898163FF83BDC099453AF9BB1FEA58F3A71E88F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99954.jpg" />
 </div>
 
 
@@ -335,7 +407,7 @@ magnet:?xt=urn:btih:2E6C27810D8A7F7BB05DC00FF03A63FCE723FBF7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99955.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ magnet:?xt=urn:btih:B1B5B74645798D3D477FDB53B2D48B929934C9C8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99956.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:7B8D6807E34471ED13E88072F2D843A9BBF2E9B3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99957.jpg" />
 </div>
 
 
@@ -411,7 +483,7 @@ magnet:?xt=urn:btih:1308EB9AF5DFF8430C562080EC5C705DF9556E1C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99958.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ VA - Trance Parade Vol.2 (17.04.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99960.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:4D64CFC25903F489C7DD8BD0D244642BF5519D86
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99964.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ VA - Freedom Festival 2011 Back To The Roots (2012) [MP3|~245 кб/с (V0)]<Psyc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99966.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ magnet:?xt=urn:btih:F295BCA861384B0F5352AC4351A5813E393B59E8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99968.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ magnet:?xt=urn:btih:92518BE3490619F9A535D333980A1F5F89E640D3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99970.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99973.jpg" />
 </div>
 
 
@@ -586,87 +658,6 @@ magnet:?xt=urn:btih:417F324EEA7F72B3D8A8655B8083C7A79165FBBB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC3851C8BD6C571706D28464FA47AF9050CFAA7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485212   (99974) от 19.04.2012
-
-[Wallpapers] Girls Wallpapers Mix (20.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1440х900 - 3145х2040
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12994C838F98ECDAE5AC6B9633F4ABC581B4DF07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484981   (99976) от 19.04.2012
-
-Величайшие автомобили: Jaguar / Great Cars: Jaguar (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jaguar - одна из знаменитых марок в мире, которая известна своими стильными, быстрыми и грациозными автомобилями. Она гремела по всему миру благодаря гоночным успехам 50-тых годов и машинам, сочетавшим уникальные технологии и выдающуюся скорость. Jaguar оставил неизгладимый след на автомобильном ландшафте.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FC8CC5D9143C75061778EB824EE9FBA945CE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484792   (99979) от 19.04.2012
-
-Bobina - Russia Goes Clubbing #188 (2012) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1:
-01. Daniel Wanrooy feat. Blake Lewis - Stay In The Moment
-02. Ex-Driver & Satelite - See The Light (D-Mad remix)
-03. The Blizzard - Piercing the Fog
-04. Tomas Heredia - Silent Nights
-05. Chris Schweizer - Xeon
-06. Bobina - Diamond Hell (Wezz Devall remix)
-07. Sied van Riel - Tunnel Vision
-08. Andrew Rayel - Exponential
-09. RAM - RAMplify(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4792333634E693AF7863D00AB0299E15E412D737
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1697589   (118716) от 08.02.2024
+
+Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия популярного загрузочного диска Hiren’s BootCD на базе Windows PE, содержащий большой набор программ для восстановления работоспособности компьютера и операционной системы. Включает антивирусные сканеры ESET и Malwarebytes Anti-Malware. Основа Hiren’s BootCD PE теперь обновлена до Windows 11 Pro версии 22H2 10.0.22621.2428, что обеспечивает более современную (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C87A9773A52C74179DB9E4901A8223EE344614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667516   (118717) от 08.02.2024
+
+Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить | Разогревай свиную печень [2023, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съев сырую свиную печень, главный герой потерял сознание, а когда пришёл в себя, оказалось, что он переродился в другом мире в теле свиньи! Джесс — невинная девушкой, которая может читать мысли. Они со Свином становятся друзьями, несмотря на его похабные мысли и свои изначальные планы съесть его. Когда тьма сгущается и Джесс угрожает гибель, сможет ли Свин спасти (   Читать дальше...   )Производство: Япония, студия Project No.9Жанр: комедия, фэнтези, исекайРежиссер: Такахаси МасаюкиЯзык озвучки: Русский закадровый (Dream Cast), (КОМНАТА ДИДИ), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7E3D5D655E53AEDD8B0AC26CD9228EF34507C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697875   (118718) от 08.02.2024
+
+Форрест Гамп / Forrest Gump (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сидя на автобусной остановке, Форрест Гамп — не очень умный, но добрый и открытый парень — рассказывает случайным встречным, историю своей необыкновенной жизни.
+С самого малолетства, парень страдал от заболевания ног, соседские мальчишки дразнили его, но в один прекрасный день, Форрест открыл в себе невероятные способности к бегу. Подруга детства Дженни, всегда его (   Читать дальше...   )Производство: США, Великобритания, Канада /Alcon Entertainment, Columbia PicturesЖанр: драма, комедия, мелодрамаРежиссер: Роберт ЗемекисАктеры: Том Хэнкс, Робин Райт, Гэри Синиз, Майкелти Уильямсон, Салли Филд, Ребекка Уильямс, Майкл Коннер Хэмпфри, Хейли Джоэл ОсментПеревод: Дублированный (VOIZE по заказу IVI), многоголосый (Карусель)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018BEA9437331A8845074F63B830C38D934A5602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693719   (118719) от 08.02.2024
 
 Мальчик поглощает Вселенную (Мальчик глотает Вселенную) / Boy Swallows Universe (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) LostFilm
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118719.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:D968044ACB6C7CB26FF46FA3C13792FA41D0ED36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118720.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:25F928A09F842FC28475EF01E2993BBC2B41D19F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118721.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ GFI Kerio Control 9.4.4 build 8365 [x64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118722.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:3436C4B487F1BE242B961FFA12ED66355630F69B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118723.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:3436C4B487F1BE242B961FFA12ED66355630F69B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118724.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:B35425A7E6D37BB8E5C714FE64A16C32A3753E45
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118725.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ The Pneumatic Transit - Forbidden Trinkets (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118726.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:0E567A8B63519EE1ECA427D333C7AF77617CB347
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118727.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Alternative Jazz Lounge, Everyday Jazz Academy - Aperitif Jazz Delights Smooth S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118728.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:7D691F3EB2FE192D4811AF68297AB10131997F33
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118729.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:914B1BAB2DE2F81844D8AAE3AE976A592F5BE79F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118730.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ magnet:?xt=urn:btih:6BEB5B1C08C010E90FB8FE264B08CBE8CD8FA0B7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118731.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:D24CBF1F6260B51D1B0CDEC6C78237306CB0FD0E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118732.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ Grant Geissman - Bop! Bang! Boom! (2012) Futurism Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118733.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ Eric Dolphy - Muses (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118734.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:E986F4FE9EED5177617B4C940BEDCBB252734B5F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118735.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ Sinistrum - Infernal Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118736.jpg" />
 </div>
 
 
@@ -456,7 +529,7 @@ magnet:?xt=urn:btih:AD4B93A2C49E48244B3FEDB11271CD5D8E57D96B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118737.jpg" />
 </div>
 
 
@@ -480,7 +553,7 @@ Pain - Coming Home (2016) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118738.jpg" />
 </div>
 
 
@@ -507,7 +580,7 @@ Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118739.jpg" />
 </div>
 
 
@@ -534,7 +607,7 @@ magnet:?xt=urn:btih:E2CE0468EDA280C6E5A63DD518DD4DD14B863133
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118740.jpg" />
 </div>
 
 
@@ -558,7 +631,7 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118741.jpg" />
 </div>
 
 
@@ -572,80 +645,6 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528073A525DD5CFE8924790E9605861785794498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697591   (118742) от 07.02.2024
-
-Sante DICOM Viewer Pro 14.0.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
-Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2609643B3C7BA79E9BD37DDCEED8504859D82839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697715   (118743) от 07.02.2024
-
-Ю.И. Якимов,  А.В. Осадчий и др. | Практикум по эксплуатации машинно-тракторного парка (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118743.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии дана общая характеристика машинно-тракторных агрегатов, рассмотрены вопросы их комплектования и кинематики, приведены технико-экономические показатели работы машинно-тракторных агрегатов, описаны основные операционные технологии механизированных работ в полеводстве, овощеводстве, садоводстве, виноградарстве и др. вопросы.
-Для предоставления возможности (   Читать дальше...   )Жанр: Учебное пособиеИздательство: КраснодарФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8665945452D5B39172F6AC72242B1709433012A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697547   (118744) от 07.02.2024
-
-Журнал | Садовод и огородник №3 (518) (февраль 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118744.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76684D450351CF72456174EB1BCB5CCA33F9E70C
 ```
 
 

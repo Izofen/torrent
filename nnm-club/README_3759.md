@@ -1,3 +1,78 @@
+###  Публикация: 1700110   (117416) от 15.02.2024
+
+Honeymoon Suite - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (2:42)
+02. Find What You're Looking For (3:15)
+03. Done Doin Me (2:53)
+04. Not Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC08A391AD787E32235AFE7965550361D0F28BDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699996   (117417) от 15.02.2024
+
+Fort Firewall 3.11.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B93F124914DB1CC50B6764C9428E882E2C28A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700080   (117418) от 15.02.2024
+
+Эрл Виккерс | Доллар за душу (2024) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117418.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Актуальный курс обмена человеческой души на деньги - 1 доллар за душу. Предприимчивый Джордж, уверен, что сможет скупить все души до последней на своем курсе просто ради спора с товарищем. Такому успешному ведению дел позавидовали бы в самой загробной канцелярии..." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C60F4BE5A251A17DDD06C8D5A62E0A52B4E04D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699890   (117419) от 15.02.2024
 
 Steve Hunter - The Deacon Speaks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +81,7 @@ Steve Hunter - The Deacon Speaks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117419.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:B5C2612AB34E32C0B3FA461C1F5B29C53FBE4BB7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117420.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:800E4F809313761E5F7F513B27D13AF5CF251B1C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117421.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ magnet:?xt=urn:btih:3B475BAA3F40965E90C56A3EDC8106F48E44CF06
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117422.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ Michael W. Lucas | Absolute FreeBSD, 3rd Edition: The Complete Guide to FreeBSD 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117423.jpg" />
 </div>
 
 
@@ -133,7 +208,7 @@ magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117424.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Jennifer Lopez - This Is Me...Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117425.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ WinTools.net Premium 24.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117426.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ magnet:?xt=urn:btih:957FECA6C235EEBD13E9D2708E483282BEB4B5A3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117427.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ KMPlayer 4.2.3.9 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117428.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ magnet:?xt=urn:btih:53BACD4A4173C5E34F62CBB0254DE9673C9E3653
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117429.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:1E3B76CB4758E10AC11854C162CD3EC669373CCE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117430.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ magnet:?xt=urn:btih:C2C2FCBA0F3BBBEE0276828617B58B942A151365
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117431.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:C7E59DAAFA9FA956B1317F1360060ED2412DD65A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117432.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117433.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117434.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:3E5C9B1EEB6E55F938FF680B0EAB2DEB3B5C6C67
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117435.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:A1E6461CF6DDD1D4B5255D238BF03D54912A6AE5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117436.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ magnet:?xt=urn:btih:87981F031378C1CA09AE4B0EC55B8D9CCB355BE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117437.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ Chris Shooter - Big Fat Bloke With A Hat (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117438.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117439.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:930FDB971E764B220732B022BAED6CA09E20A835
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117440.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.34 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117441.jpg" />
 </div>
 
 
@@ -566,78 +641,6 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EBBBBD41FB7BCAF089ACA864F7E15BF1AAB235E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700078   (117442) от 15.02.2024
-
-Microsoft Visual Studio 2022 Enterprise 17.9.0 (Offline Cache) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E34E83728F0CC33A174526C6C807DA9619253B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700003   (117443) от 15.02.2024
-
-Wondershare PDFelement 10.2.8.2643 RePack by elchupacabra + OCR Plugin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51134B4E08F1F73CEEEED832E624E9EB4B4818B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700081   (117444) от 15.02.2024
-
-Topaz Gigapixel AI 7.1.0 + models Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BFA3EF8C94DB67A924D57A8775A5D732E7B003
 ```
 
 

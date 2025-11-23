@@ -1,3 +1,80 @@
+###  Публикация: 1680370   (134019) от 29.11.2023
+
+Телохранитель на фрилансе / Freelance (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший оперативник спецназа променял полную экшна жизнь на серые будни в офисе. С неохотой он все-таки соглашается на простую, но высокооплачиваемую подработку — сопровождать журналистку в командировке, пока та берет интервью у обаятельного диктатора. Однако на месте они внезапно попадают в эпицентр полномасштабного переворота. Теперь, чтобы спасти всех, телохранителю (   Читать дальше...   )Производство: США, AGC Studios, Endurance Media, Sentient Pictures, Signature Films, Wideangle FilmsЖанр: боевик, комедияРежиссер: Пьер МорельАктеры: Джон Сина, Элисон Бри, Элис Ив, Кристиан Слэйтер, Мартон Чокаш, Хуан Пабло Раба, Фиона Хорси, Молли Макканн, Джулианна Александр, Дэниэл ТороПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: Русские (hardsub, Full)Продолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7595968AA19387B2DBE82986FB536C5944505DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593927   (134020) от 25.12.2012
+
+VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 2004-200401. Звери & Татьяна Буланова - Дожди-пистолеты (03:19)
+02. Михаил Башаков & Александр Жигалкин - Не парься (03:27)
+03. Би-2 & ЧайФ - Достучаться до небес (04:34)
+04. СерьГа & Гуарана - Как прекрасен этот мир (03:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423703   (134021) от 29.11.2023
+
+Габриэль Гарсиа Маркес | Осень патриарха (2011) [MP3, Олег Табаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Коллекция радиоспектаклей. Из архива «Гостелерадиофонда».
+Габриэль Гарсиа Маркес – прославленный колумбийский литератор, лауреат Нобелевской премии (1982), один из самых знаменитых писателей ХХ века.
+Произведения, подобные этому, освобождают читателя от шор повседневности, помогают увидеть мир целиком, во всем его многообразии, дают представление о жизни не (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, драмаИздательство: Звуковая книгаПродолжительность: 03:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1C83FD8267867B428BCD966C54F8BC7832DE2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680218   (134022) от 29.11.2023
 
 Телекинез (2022) WEBRip [H.264]
@@ -6,7 +83,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134022.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:19AD99872E2D422A183CD197ED451182F1D850E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134023.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ magnet:?xt=urn:btih:D77F8D9E62EAED661B50E219E1F4F1B241D96536
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134024.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:853DBCA8B7C62877286BBAC6C75146A66DE34CD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134025.jpg" />
 </div>
 
 
@@ -102,7 +179,7 @@ magnet:?xt=urn:btih:8BDBDEC153E012202048C4902CF5E84D0D2048BD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134026.jpg" />
 </div>
 
 
@@ -126,7 +203,7 @@ magnet:?xt=urn:btih:87B845A22F44A755613F9A6BB8FEEBF490E816FA
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134029.jpg" />
 </div>
 
 
@@ -150,7 +227,7 @@ magnet:?xt=urn:btih:774DC6F0425137EC8D2AE14720E90EE1F5AD2633
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134031.jpg" />
 </div>
 
 
@@ -174,7 +251,7 @@ magnet:?xt=urn:btih:F60932BAB3FED2A176E03D73CE1302B6E3EC68F1
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134033.jpg" />
 </div>
 
 
@@ -198,7 +275,7 @@ Mylene Farmer - Live A Bercy (1997) DVDRip [H.264/1080p] [Handmade Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134035.jpg" />
 </div>
 
 
@@ -225,7 +302,7 @@ magnet:?xt=urn:btih:A3267FFED79A37FBE7063A1A9DFCA9469D684C88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134036.jpg" />
 </div>
 
 
@@ -249,7 +326,7 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134037.jpg" />
 </div>
 
 
@@ -273,7 +350,7 @@ magnet:?xt=urn:btih:0C90F9333F06DF98F9085AB43829E04B541D4891
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134039.jpg" />
 </div>
 
 
@@ -298,7 +375,7 @@ magnet:?xt=urn:btih:6B66B45C9CBB27F3CE6D82A9C9CD1B83735350CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134040.jpg" />
 </div>
 
 
@@ -322,7 +399,7 @@ magnet:?xt=urn:btih:E1622A3151B41B8EDD3C90C4BAAD754581A1417B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134041.jpg" />
 </div>
 
 
@@ -347,7 +424,7 @@ magnet:?xt=urn:btih:4203425C575825C03879082C6B3A5F87C931F242
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134042.jpg" />
 </div>
 
 
@@ -371,7 +448,7 @@ magnet:?xt=urn:btih:56DD763A606F5B706BC2FFFFF76C52158432215D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134043.jpg" />
 </div>
 
 
@@ -398,7 +475,7 @@ magnet:?xt=urn:btih:5C99B7F3FA64BB5C6A166A70807CA6156C9E8719
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134045.jpg" />
 </div>
 
 
@@ -422,7 +499,7 @@ magnet:?xt=urn:btih:79DC2C284AEAFF0F5C8DE42FAD03D18016BBF63C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134046.jpg" />
 </div>
 
 
@@ -447,7 +524,7 @@ magnet:?xt=urn:btih:7AFAE4EAD511D39CCCB95FE7777D9CA8EB1ED60B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134047.jpg" />
 </div>
 
 
@@ -471,7 +548,7 @@ Nitro PDF Pro 14.18.1.41 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134049.jpg" />
 </div>
 
 
@@ -495,7 +572,7 @@ magnet:?xt=urn:btih:37EA1C139ABD155546EEF70AF54D5DB37D870E01
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134050.jpg" />
 </div>
 
 
@@ -519,7 +596,7 @@ magnet:?xt=urn:btih:D8B5864A6C004B3C44FF255E7BFEC9ED9DFC8E95
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134051.jpg" />
 </div>
 
 
@@ -544,7 +621,7 @@ Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134053.jpg" />
 </div>
 
 
@@ -555,82 +632,6 @@ Slender: The Arrival возвращается с долгожданным обн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594188   (134054) от 25.12.2012
-
-Windows 8 Codecs 1.35 + x64 Components [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8 Codecs - Набор кодеков от разработчиков Win7codecs, предназначенный для установки в новой операционной системе Windows 8. Он необходим для просмотра видео. Пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. В отличие от своего старшего собрата он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалит уже установленные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
-
-(   Читать дальше...   )Название программы: Windows 8 CodecsЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680372   (134055) от 29.11.2023
-
-Отчаянный / Desperado (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — бесстрашный герой, ведущий охоту на короля преступного мира. Но — исполнить приговор невозможно. Но — вновь на карту поставлена жизнь любимой, и начинается жестокое противостояние одиночки и армии вооруженных до зубов головорезов.Производство: США, Мексика / Columbia Pictures, Los Hooligans ProductionsЖанр: боевик, триллер, криминал, вестернРежиссер: Роберт РодригесАктеры: Антонио Бандерас, Сальма Хайек, Жоаким ди Алмейда, Чич Марин, Стив Бушеми, Карлос Гомес, Квентин Тарантино, Тито Ларрива, Энджел Авилес, Дэнни ТрехоПеревод: Многоголосый профессиональный (Blu-ray CEE/R5, FDV)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6361BEB973E54D54AADBB7D907E78CB45DAEB43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594201   (134056) от 25.12.2012
-
-Владислав Морозов| Принуждение к войне. Победа будет за нами! [2012] [FB2][TXT][JAVA (jar+jad)]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если тебе выпала судьба «попаданца», раз ты решился ломать ход истории – знай, что выбирать придется из двух зол, и ПРИНУЖДАТЬ НЕ К МИРУ, А К ВОЙНЕ… И от этого выбора зависит, в каком будущем нам жить – в том, где Россия оккупирована войсками НАТО, а в небе темно от «летающих дисков» Четвертого Рейха со свастикой на борту, – или там, где монументы Сталину не снесены даже в XXI веке, а на Памятнике Победам вместо привычной «тридцатьчетверки» высится послевоенный Т-54…
-
-Новый военно-фантастический боевик от автора бестселлера «Бронемашина времени»! Когда полем битвы становится не только прошлое, но и будущее, когда танковые армии идут на прорыв Вечности – на войне как на войне!Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A134209FE2A531F5BB1F24B6807B9AD261E132
 ```
 
 

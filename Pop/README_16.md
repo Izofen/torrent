@@ -6,7 +6,7 @@ Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45264.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46067.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46088.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:624E5D42DCE94B917363639F8C395762C7D01ABE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46118.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:D08F6439A799551C08F168147AD7302BD2021E94
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46145.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46167.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46300.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46389.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ L'Imperatrice - Pulsar (2024) [FLAC|Lossless|WEB-DL|tracks] <French-Disco, Indie
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46597.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Loni Cash - The Album (2013) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46807.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Loni Cash - The Album (2013) [MP3|320 Kbps] <Euro-Disco, Synthpop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46814.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D7ABFBC9228AE91E51B21C3CB12A329EDB14F261
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46827.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0CEA7890747A8C2FCEC06F8858C65C613C429D12
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46919.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47023.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Top 100 Songs of 2024 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47148.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47210.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Gazebo - From Pasha with Love (Vinyl Release) (2024) Maxi Single [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47214.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E681AB613545AC7B57DFB7FFBEC34B099A115D65
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47316.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47326.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Revoльvers - Целуешь меня (2007) [WavPack|Lossless|image + .cue] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47328.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Italo Disco Hits Vol. 1-2 Collectors Edition (2010) [MP3|320 Kbps] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47337.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Reflex - Blondes 126 (2008) [WavPack|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47354.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47433.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - 90s Music - Greatest Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47523.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - 90s Radio Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47536.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47657.jpg" />
 </div>
 
 

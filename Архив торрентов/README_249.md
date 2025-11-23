@@ -6,7 +6,7 @@ WinTools.net 24.5.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56691.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Video Converter Pro 1.43 RePack (& Portable) by elchupacabra Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56692.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 126.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56693.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GIMP 2.10.38 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GOYO 0.9.4 Beta VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56699.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Photo AI 3.0.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56700.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PotPlayer 240510 (1.7.22227) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56704.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ eM Client Pro 9.2.2258.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56706.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E116DADE0B34653FC2A526E09522AEED2FB3888F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56711.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Notepad++ 8.6.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56713.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ GoodSync Enterprise 12.6.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56723.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ uTorrent Pro 3.6.0 Build 47084 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56725.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56728.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:AB941A759665112C3FEDEB40A34CDFE3FD14D641
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56729.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ ZBrush 2024.0.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56745.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ HDCleaner 2.072 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56758.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ FreeFileSync 13.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56759.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ PeaZip 9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56764.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Vivaldi 6.7.3329.27 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56765.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Privacy Eraser Free 6.7.0 Build 4921 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56766.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ PrivaZer 4.0.85 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56777.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ FileMenu Tools 8.4.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56783.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ OneCommander Pro 3.79.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56787.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PrivaZer Pro 4.0.85 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56798.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Blender K-Cycles RTX 2024 4.1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56801.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Psiphon 3 build 183 (08.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56805.jpg" />
 </div>
 
 

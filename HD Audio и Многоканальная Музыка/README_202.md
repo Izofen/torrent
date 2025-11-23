@@ -1,3 +1,111 @@
+###  Публикация: 1665430   (182519) от 30.09.2023
+
+Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (4:19)
+02. Monoton (5:46)
+03. Übermensch (3:22)
+04. Stumme Schreie (4:07)(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAFB081372D2F073B90DFBE29C2AF71E0CB0B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665191   (182527) от 30.09.2023
+
+Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outta Sync [00:04:31]
+02. Something Coming Off (feat. Hollie Cook) [00:04:01]
+03. The Universe Knows What You've Done (feat. John Cusack) [00:04:14]
+04. Touch (feat. Gaudi) [00:04:03](   Читать дальше...   )Жанр: punk reggaeПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3B1127776711B473887F1E4EF03D849614D0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665401   (182548) от 30.09.2023
+
+Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Ambition (3:23)
+02. Suffocare (3:40)
+03. Ungrateful (3:06)
+04. Seed Of Death (4:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0796BAF4C15E5ABA337A250CD5307BD3A712AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665432   (182578) от 30.09.2023
+
+Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <proto-punk, psychedelic rock, rock and roll, shock rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fade Away (2:45)
+02. Settle Down (2:12)
+03. Scream for Death (1:50)
+04. The Game (3:23)(   Читать дальше...   )Жанр: proto-punk, psychedelic rock, rock and roll, shock rockПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665514   (182583) от 30.09.2023
 
 Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +114,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182583.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182583.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183071.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183071.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183178.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183253.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183253.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183257.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, gr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183300.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183341.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183341.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183669.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183997.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ Cee Muller - Spectrum of Emotions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184006.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184006.jpg" />
 </div>
 
 
@@ -327,7 +435,7 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184759.jpg" />
 </div>
 
 
@@ -354,7 +462,7 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184770.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184770.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -408,7 +516,7 @@ Joel Corry - Another Friday Night (2023) [FLAC 16-24/44.1-48] Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184829.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184829.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_184910.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ The First Gentlemen - Vertices (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184934.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184934.jpg" />
 </div>
 
 
@@ -516,7 +624,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185948.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185948.jpg" />
 </div>
 
 
@@ -570,7 +678,7 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186025.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186025.jpg" />
 </div>
 
 
@@ -584,111 +692,6 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664242   (186044) от 25.09.2023
-
-Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un sueño en la floresta (8:02)
-02. Aire de zamba (2:31)
-03. Mazurka appassionata (5:39)
-04. 24 Preludes, Op. 28: No. 20 in C Minor (Arr. Barrios Mangoré for Guitar) (1:38)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664205   (186055) от 25.09.2023
-
-Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturn's Portal [00:04:18]
-02. Beyond the Pale [00:04:13]
-03. Hatred's Mate [00:02:55]
-04. Monster [00:02:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827377   (186102) от 21.10.2025
-
-Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfheart - метал-группа из Лахти, Финляндия, основанная в 2013 году Туомасом Саукконеном.2013 - Winterborn
-2015 - Shadow World
-2017 - Tyhjyys
-2018 - Constellation Of The Black LightЖанр: Melodic Death MetalПродолжительность: 05:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664049   (186223) от 24.09.2023
-
-Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster Edition, A Steven Wilson stereo remix, 2023, Chrysalis [FLAC 24/96|Lossless|tracks] <hard rock, art rock, folk ro ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Game (demo, instrumental)Жанр: Progressive rock, hard rock, art rock, folk rock, electronic rockПродолжительность: 00:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
 ```
 
 

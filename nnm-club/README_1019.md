@@ -6,7 +6,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26842.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26843.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26844.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26844.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:037A8BD6F0C2CE1C83A988446BC541D96A98E4E3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26845.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26845.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bright Memory: Infinite v1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26846.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26846.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26847.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Launcher for zapret 2.2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26848.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26848.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 02.2025
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26849.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26849.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:7C19B11A17F8C8194A368B46F313B3619167471B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26850.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AEEA7B8B6DF548FF1430F6B47707CFE93A31BAA4
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26851.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26852.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.6.32935/dlc) Repack Let'sРlay [The Ixia
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26853.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe Illustrator 2025 29.3.1.151 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26854.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26854.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:A3666C3E96F00AA864CE8D47C8BAF592CDC629EA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26855.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26855.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26856.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26857.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:95CE60342751AE07607EC37F351063577B201CFD
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26858.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:4BE6E5F8F42397672D9E657055F9F21A8BF7CFF6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26859.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26859.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D72930431D5A81B95962BD68D7CDF0E66C356385
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26860.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26860.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:9FDA4EF1BEB31EC5A73D5CE7517894D885AEC587
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26861.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Advanced SystemCare Pro 18.2.0.222 Portable by zeka.k [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26862.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26862.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8E2465EB595BA0226EA027D505F921FDDCB214C6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26863.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Activation Program 1.05 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26864.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26864.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D4EBCC77AC916EBDBE1715FE5637DAFBC4183460
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26865.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Activation Program 1.06 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26866.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26867.jpg" />
 </div>
 
 

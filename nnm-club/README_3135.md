@@ -1,3 +1,75 @@
+###  Публикация: 1769684   (100613) от 29.12.2024
+
+Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 11 класса (базовый уровень) (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник — основной элемент информационно-образовательной среды учебно-методического комплекта по химии для 11 класса. В учебнике систематизированы сведения по основам общей и неорганической химии, а также химической технологии. Материал учебника организован в соответствии с разными формами учебной деятельности, что даёт возможность отрабатывать широкий спектр (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D285C0D367B73FFBCE87F108159EB3C962FEC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769613   (100614) от 29.12.2024
+
+Экстрасенсы. Реванш (28.12.2024) WEBRip [H.264/1080p] (сезон 2, выпуск 17) (Финал)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96020B2C8FF56C10D8438D0CCB0ABAADC228809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769700   (100615) от 29.12.2024
+
+Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драконы, ведьмы, тролли. Никому не совладать с Анной. Получить свое ей помогают телекинез, нестандартный подход к использованию инструментов для пыток, умение импровизировать и таинственная лиса. Она общается с мертвыми, мешает местной таверне получить партию пива и добивается того, чтобы старушка попала за решетку.Впервые на мониторах - мир Дейна Крамса! Но не обманывайтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793101AB6AE173CC648158F061993982EAA52F33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769514   (100616) от 29.12.2024
 
 Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/Multi]
@@ -6,7 +78,7 @@ Magic Eraser / Магический ластик v2.16.4 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100616.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Teach In - See The Sun (1977) Remastered 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100617.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100618.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100619.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100620.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ STEEZY Studio - Learn To Dance v5.3.0 Mod by youarefinished [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100621.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ magnet:?xt=urn:btih:4C928A631E5AB3CCD6B649B3D87FCF951EA01D3D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100622.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100623.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100624.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100625.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ magnet:?xt=urn:btih:F01F859A9AD551F81F5A2BEB72C2FC5740CC025E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100626.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ magnet:?xt=urn:btih:FD3F8E15622396CD55541AF36015B511788D64A0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100627.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ magnet:?xt=urn:btih:3315BEE34357D57D6D9C566348B999AFF141DA74
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100628.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ Text Editor Pro 31.2.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100629.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:67EB915660EE24237920E42456F86410DCEEC920
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100630.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:BDF941B66D5A3DE72C18452601647AD74ADA2CFA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100631.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:636CBE0431C58F40E87871F8D19153577F085BD3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100632.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:CB4D3B1E253E65C8AE612208547EE3B31AD4DF7A
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100633.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Photo Lab PRO v3.13.44 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100634.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ R. Armando Morabito - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100635.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ magnet:?xt=urn:btih:8164D1A73BA80725CE74F634DD6CED7A59759E37
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100636.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ magnet:?xt=urn:btih:A03675E31C4FD121BB21293C5794E64D11D82321
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100637.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:1802DD03239DCCC757D975C820E62E0D3FB3A5CC
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100638.jpg" />
 </div>
 
 
@@ -563,80 +635,6 @@ magnet:?xt=urn:btih:1802DD03239DCCC757D975C820E62E0D3FB3A5CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1219474D50411BB50D87B2110EABB6DBA1E4DA06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769689   (100639) от 29.12.2024
-
-PhotoRoom v5.7.6 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.12.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CFACF2968BB778A0BD75893C64393702939090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769641   (100640) от 29.12.2024
-
-Олененок Рудольф / Rudolph the Red-Nosed Reindeer: The Movie (1998) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественская сказка про олененка, который при рождении уже обладал важной особенностью — горящим красным носом. Много насмешек пришлось услышать Рудольфу от других обитателей волшебной страны прежде чем он доказал всем, что он такой же как все.Производство: США, Канада / 	Cayre Brothers, Golden Books Family Entertainment, Goodtimes Entertainment, GT Merchandising and Licensing, Rudolph Productions, Tundra Productions Inc.Жанр: мультфильм, мюзикл, мелодрама, приключения, семейныйРежиссер: Уильям Р. Ковальчук мл.Актеры: Эрик Поспишил, Кэтлин Барр, Джон Гудман, Вупи Голдберг, Дебби Рейнолдс, Боб Ньюхарт, Эрик Айдл, Ричард Симмонс, Алек Уиллоуз, Ли Токар и др.Перевод: Дублированный (Мосфильм" по заказу "Каро Премьер")Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F13AF6846F2B3BF516736B9B597ABCD9D14E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769634   (100641) от 29.12.2024
-
-Реми Майснер. Автодюринг. Третья беседа о вреде всяких революций. (2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем прогрессивному человечеству третью беседу о вреде всяких революций — продолжение разбора контрреволюционного ролика за авторством автоблогера Стаса Асафьева.
-На этот раз Автодюринг ведёт речь о российском парламентаризме, Первой Империалистической Волшебной Операции, земельном вопросе в России и первых декретах Советской власти.
-Слушаем, удивляемся, (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, политикаЯзык озвучки: РусскийПродолжительность: 04:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5335008277D5C67CE1E5688EC7DA63146D8F1C2
 ```
 
 

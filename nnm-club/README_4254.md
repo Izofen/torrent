@@ -1,3 +1,84 @@
+###  Публикация: 596678   (130741) от 31.12.2012
+
+the Chemodan - Кроме женщин и детей (2012) [MP3|256-320 кб/с]<Hip-Hop / Underground Rap>
+
+>>След.
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кроме Интро (256 kbps)
+02. За это И За то
+03. Вскрытие Покажет
+04. Это Че
+05. Кома feat Brick Bazuka
+06. G System
+07. Мгла
+08. Весенняя Тема
+09. Поживем Еще
+10. Алиби feat Murovei(   Читать дальше...   )Жанр: Hip-Hop / Underground RapПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0D02CBB277D1918E4D4AE69AD557F5AA510C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682888   (130742) от 09.12.2023
+
+Вонка / Wonka (2023) TS [H.264/1080p] [UKR] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада, Warner Bros.Жанр: мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Оливия Колман, Хью Грант, Салли Хокинс, Пэтерсон Джозеф, Кигэн-Майкл Ки, Роуэн Эткинсон, Саймон Фарнэби, Мэтью Бэйнтон, Мэтт ЛукасПеревод: ДублированныйЯзык озвучки: УкраинскийСубтитры: отсутствуютПродолжительность: 01:52:53Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682094   (130743) от 09.12.2023
+
+Nitro Pro 14.18.1.41 Enterprise RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nitro Pro – программа, которая является альтернативой Adobe Acrobat. При помощи этого решения можно создавать файлы PDF, преобразовывать PDF в файлы Word и RTF, редактировать содержимое документов. Nitro Pro предлагает средства для добавления комментариев, которые могут просматривать в том числе и пользователи Adobe Acrobat и Reader. Программа также содержит средства (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D88515801262DC5B720397B8EB8FB469F52E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596787   (130745) от 31.12.2012
 
 Kameleon [Ru] [WineSkin]
@@ -6,7 +87,7 @@ Kameleon [Ru] [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130745.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Kameleon [Ru] [WineSkin]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130746.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:A2068ADD97C373163BFCECE32B500407C43489E9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130747.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ magnet:?xt=urn:btih:BF8275E9E82A4EE818589EF4B7A2D868E4948C2D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130748.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ magnet:?xt=urn:btih:4AC4CC87F36EF421E05F3F4CD46131B59A53AEC4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130751.jpg" />
 </div>
 
 
@@ -126,7 +207,7 @@ VA - Близко к Диско (2012) 2CD / RG Музыка Ltd. / [MP3|320 к�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130753.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ magnet:?xt=urn:btih:EB6EDB31E4FF5CA289D1CBC2077914464E8FEB5C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130754.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ magnet:?xt=urn:btih:5913519F2BA4D20203DCF887EF065C2368391AC8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130755.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ magnet:?xt=urn:btih:8F60C1DC1ED485C4809CE147270E08715649132F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130757.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.77 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130758.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.77 [Русский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130759.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ magnet:?xt=urn:btih:5C56BF61EB94A0A8C1BA87B6B8C99BB722ED9BA5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130760.jpg" />
 </div>
 
 
@@ -305,7 +386,7 @@ magnet:?xt=urn:btih:679AB5C0436C55404ABAFC32D21A3D24AF3A511F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130761.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ magnet:?xt=urn:btih:CE38B788381DB43CC517EE579049CD4AB55B3803
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130762.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ Digital Tutors, Pluralsight, Paul Conner | Professional Tips for Modeling Comple
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130763.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ magnet:?xt=urn:btih:CFDCBA03F97573CBEF4E96C825FDDDB725DE553B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130764.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:6BBE66514C25FA1025639FBB8462A9605F741C06
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130766.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ magnet:?xt=urn:btih:3042951C3E3187016EBA3D3D925F54984257362C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130767.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ ASAP Utilities for Excel 8.3 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130768.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ magnet:?xt=urn:btih:30DB7F7395213F2137F0F4C0C0EE6338D1868750
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130769.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ magnet:?xt=urn:btih:7399BEB28DD1671F0A06A75B65585644E580713E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130770.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ magnet:?xt=urn:btih:5B6DF94F29ADC92825656C4EEFCD37BD17278003
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130771.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ magnet:?xt=urn:btih:AA40396E9965A08485826DB5D746EC5FE6CA507E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130774.jpg" />
 </div>
 
 
@@ -574,81 +655,6 @@ magnet:?xt=urn:btih:AA40396E9965A08485826DB5D746EC5FE6CA507E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04AE650C0B8F4F6636E865065510EF67EFAB1641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683035   (130775) от 09.12.2023
-
-Капитан Марвел 2 / The Marvels (2023) WEBRip [H.264/1080p] [UKR] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (Line)Язык озвучки: украинскийСубтитры: ОтсутствуютПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED438C7E2DA5924CF77F6324F5FF02759DE5F321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682902   (130778) от 09.12.2023
-
-Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blanc - это атмосферная и трогательная адвенчура для всей семьи. Спрятанный где-то в заснеженных просторах лежит таинственный мир - удивительная вселенная, в которой два малыша - волчонок и олененок, отправятся в путешествие, чтобы найти свои семьи. Это не просто игра, это эмоциональная история о дружбе, доверии и выживании в неизведанных дебрях. В этом невероятном (   Читать дальше...   )Тип издания: RepackРазработчик: Casus LudiЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2498982078F6FD89366A1C8271E3CE2CC83B5D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682142   (130780) от 09.12.2023
-
-VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Buddy Guy feat. Jason Isbell - Gunsmoke Blues [03:09]
-002. Larry Miller - Blues Forever [05:26]
-003. Danielle Nicole - Take It All [02:58]
-004. Kenny Wayne Shepherd - Blue On Black [05:30](   Читать дальше...   )Жанр: Blues-Rock, Country, BalladПродолжительность: 11:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
 ```
 
 

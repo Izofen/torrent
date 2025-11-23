@@ -1,3 +1,75 @@
+###  Публикация: 1738109   (106392) от 21.07.2024
+
+DP Animation Maker 3.5.30 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AEE6DA9EABCF17ED80DCA8CCBDEE2B80F155F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738254   (106393) от 21.07.2024
+
+Александр Грибоедов | Горе от ума. Живая классика (2014) [PDF]
+
+>>Художественная литература
+>>Классическая поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из бессчётного числа написанных книг классикой становятся единицы – именно потому, что проблемы, затрагиваемые в них, универсальны. И книга «Горе от ума» яркий тому пример. Любовь и ревность, честь и предательство, одиночество и непонимание, социальная несправедливость – темы, которые волнуют не только литературных героев, но и сидящих в классе учеников. Нужно лишь (   Читать дальше...   )Жанр: внеклассное чтение, детская проза, книги для детейИздательство: CLEVERФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ABB48EC4447713B8B0337807896215BB1A5A6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738282   (106394) от 21.07.2024
+
+File & Image Uploader Donated 8.4.4 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106394.jpg" />
+</div>
+
+
+###  Подробнее
+
+File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292A180A877CEA8F3817CA0810257EFB6D5FCD1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738031   (106395) от 20.07.2024
 
 VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
@@ -6,7 +78,7 @@ VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106395.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106396.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106397.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Rampant Beast - Into The Infernal Pyre (2024) [MP3|320 Kbps] <Black, Speed, Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106398.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106399.jpg" />
 </div>
 
 
@@ -141,7 +213,7 @@ Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106400.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106401.jpg" />
 </div>
 
 
@@ -195,7 +267,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106402.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Junior Mance - Harlem Lullaby & I Believe To My Soul (1967, 1968) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106403.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106404.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:950CD286E0E1E6664F806E70DD74B1FEBD071FF2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106405.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:33DB5A1C69ECEBBD2B9835E3EBEA730E38D4E3DC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106406.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:9F74B7D75D5AE8E5C189B8F5E5B6A9D8A512976F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106407.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ George Benson & The Robert Farnon Orchestra - Dreams Do Come True: When George B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106408.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:01F1AE8398BEE446123AD48B30E98E43ADEC0C16
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106409.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:2A3FDF9046E91825436843CFBABB3325134A6DB5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106410.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:9C6B66795AB8B674AD851C82D7434C41F9643F49
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106411.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ magnet:?xt=urn:btih:DBD5D651B94E2C555134D0C0FBF477CFD2E5B475
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106412.jpg" />
 </div>
 
 
@@ -482,7 +554,7 @@ Ray Orion - Sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106413.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ Perfectly Clear WorkBench 4.6.1.2675 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106414.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ magnet:?xt=urn:btih:500742570CFBBD43AA0D0263BD24D7DCA23F2089
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106415.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ VA - Reunion in the Black Forest (The Sounds of MPS Vol. II) (2024) [FLAC 24/88.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106416.jpg" />
 </div>
 
 
@@ -588,7 +660,7 @@ XYplorer 26.20.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106417.jpg" />
 </div>
 
 
@@ -600,84 +672,6 @@ XYplorer - продвинутый файловый менеджер, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA70F7B8CFF6A4F784513F22252768AC068E29FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738044   (106418) от 20.07.2024
-
-Falcon Trails - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fastlane (3:32)
-02. Feel (4:16)
-03. The Way We Want (4:28)
-04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B871CCFAC6438DC232C9CF805763851E0B05E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737952   (106419) от 20.07.2024
-
-Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sunshine
-A2 Goodtime Liberator
-A3 Ruben James
-A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737975   (106420) от 20.07.2024
-
-4K YouTube to MP3 5.5.0.0108 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106420.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA12DC1C4453272C6D93DD1ADE86D9B91B0F27D5
 ```
 
 

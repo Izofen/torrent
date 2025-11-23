@@ -1,3 +1,51 @@
+###  Публикация: 1662774   (187425) от 19.09.2023
+
+Элияху Голдратт и др. | Я так и знал! (2019) [MP3, Владимир Левашев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187425.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз речь идет о применении Теории Ограничений не на промышленном предприятии, а в розничной компании. Небольшая семейная торговая сеть Hannah’s Shop испытывает значительные сложности в работе. Управляющий одного из магазинов сети Пол Уайт изо всех сил старается добиться его процветания. Решение внезапно возникших проблем его торговой точки приведет к улучшениям (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ДиджиталПродолжительность: 07:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7571FAD86792D7B0AF467FEC7B2668363A125FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591104   (187477) от 17.11.2022
+
+Эстанислао Бахрах | Гибкий ум (2021) [MP3, Владимир Солдатов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аргентинский нейропсихолог Эстанислао Бахрах просто и увлекательно рассказывает о работе нашего мозга. Множество упражнений и практических заданий помогут вам сделать мышление более творческим и продуктивным, а свою жизнь – радостной и насыщенной.Жанр: ПсихологияПродолжительность: 07:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CB07B55333ABFF48B176BE184A23622E761A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591098   (187553) от 17.11.2022
 
 Оливер Мортон | Луна. История будущего (2020) [MP3, Игорь Пронин]
@@ -6,7 +54,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187553.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187553.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:4536651BF9F7709CE7828F996B4676207FDE45B5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187562.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187562.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:C46131FBD5BEADFA08DD5FC1C29D97E2726C3625
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187724.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187724.jpg" />
 </div>
 
 
@@ -79,7 +127,7 @@ magnet:?xt=urn:btih:A2D660A5B920EDEA3ED7B0766634A4D053E84258
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187739.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:C21789CFCA390D21F71DC3DEA6404C77940973CD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187779.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187779.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:0DBFA044047FCE68B47A221DECA782653A383B28
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187796.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187796.jpg" />
 </div>
 
 
@@ -153,7 +201,7 @@ magnet:?xt=urn:btih:C965EAB551C4331517710ACC0D9B6B33CD112BF8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187975.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ magnet:?xt=urn:btih:F8C3CEC903556A212B3A93866C2B47A1D665C8D8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187977.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187977.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ magnet:?xt=urn:btih:60310B4E411E0F527DB37C7B6CA6D0696E0364FF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188016.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188016.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ magnet:?xt=urn:btih:2553B020C8E20E6AB8F538033C3369A0970AAA4A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188220.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188220.jpg" />
 </div>
 
 
@@ -250,7 +298,7 @@ magnet:?xt=urn:btih:7133B99847988CEF1A43ADBFD5E6D1A4EB26F026
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188235.jpg" />
 </div>
 
 
@@ -275,7 +323,7 @@ magnet:?xt=urn:btih:0BA70E6F687781F435627419D8107140EBF7E8DD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188398.jpg" />
 </div>
 
 
@@ -299,7 +347,7 @@ magnet:?xt=urn:btih:BD7B6DEED6232972B964E980D7A1A703D4E4BEF2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188435.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188435.jpg" />
 </div>
 
 
@@ -323,7 +371,7 @@ magnet:?xt=urn:btih:CC0180643F40B99E83CC1274EEC4EAB8E6F7D9DE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188454.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188454.jpg" />
 </div>
 
 
@@ -348,7 +396,7 @@ magnet:?xt=urn:btih:E55FD17111D6D8A2BB9EA4D572CED1618F9B81F9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188515.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188515.jpg" />
 </div>
 
 
@@ -372,7 +420,7 @@ magnet:?xt=urn:btih:EDFDF10CCEC42C658AF3873B327CDF2070776D1C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188546.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188546.jpg" />
 </div>
 
 
@@ -396,7 +444,7 @@ magnet:?xt=urn:btih:B42D389107AA11225F8F01936B1CDAEE267CC8E3
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188765.jpg" />
 </div>
 
 
@@ -420,7 +468,7 @@ magnet:?xt=urn:btih:4821CC1E43CB73585E5A54CE0F5446F89C69F144
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188770.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188770.jpg" />
 </div>
 
 
@@ -444,7 +492,7 @@ magnet:?xt=urn:btih:2C58342DE4BBD103CE67AFD2F1B2A44A65942D63
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188837.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188837.jpg" />
 </div>
 
 
@@ -469,7 +517,7 @@ magnet:?xt=urn:btih:C97D5BCC76BCC67F4DB160BF5A4FF03ACF98C5EA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189126.jpg" />
 </div>
 
 
@@ -493,7 +541,7 @@ magnet:?xt=urn:btih:68FF10E16E0EC969432438ED4EAA17088C36E75C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189255.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189255.jpg" />
 </div>
 
 
@@ -517,7 +565,7 @@ magnet:?xt=urn:btih:751CD96FF77B23B8DD246639E2FD06BB80DCF044
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189284.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189284.jpg" />
 </div>
 
 
@@ -541,7 +589,7 @@ magnet:?xt=urn:btih:CE2869192545FFF320AEB0757CA1982E13DF9BDC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189332.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189332.jpg" />
 </div>
 
 
@@ -566,7 +614,7 @@ magnet:?xt=urn:btih:B79EFE066AB49D59CC8A9C86646C142A029AA538
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189657.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189657.jpg" />
 </div>
 
 
@@ -577,56 +625,6 @@ magnet:?xt=urn:btih:B79EFE066AB49D59CC8A9C86646C142A029AA538
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7128C5A241B2B7F4E6407C925316216C039CF7DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660200   (189679) от 12.09.2023
-
-Дэн Джонс | Силы и престолы (2023) [MP3, Михаил Росляков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разграбление варварами некогда могущественного, а в 410 году лежавшего в руинах Рима ознаменовало конец прежней эпохи и начало тысячелетней глубокой трансформации. В захватывающем повествовании, изобилующем известными именами – от святого Августина и Аттилы до пророка Мухаммеда и Алиеноры Аквитанской, – Дэн Джонс исследует историю Средневековья и сопровождает читателей (   Читать дальше...   )Жанр: Новая история Средних вековИздательство: Азбука-АттикусПродолжительность: 29:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C8CA9A20C23D10499F5DB1CC1CED5F9F744FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589532   (189731) от 11.11.2022
-
-Макар Бакалай | История на пальцах. Крым (2021) [MP3, Пожилой Ксеноморф]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незаменимая аудиокнига для отпуска в Крыму.
-Увлекательное путешествие сквозь века: самые интересные места и истории, люди и события. Древние цари, средневековые ханы и блеск потемкинских дворцов, Революция и Гражданская война – лица и невероятные, но достоверные факты.
-Своеобразный исторический путеводитель не даст вам заскучать на берегах Тавриды.Жанр: Популярно об историиПродолжительность: 06:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3440AB5A7D0A9B9615E568B11DF46BFD588896D
 ```
 
 

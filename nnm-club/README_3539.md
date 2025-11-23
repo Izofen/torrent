@@ -1,3 +1,75 @@
+###  Публикация: 1714939   (111696) от 10.04.2024
+
+Speedtest от Ookla 5.3.5 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.04.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DD834600A63D12D97BC8065AEBF741F6A479C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714851   (111697) от 10.04.2024
+
+Busuu - изучение языков 31.19.1(984656) Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Busuu - популярный и востребованный проект для всех кто предпочитает получать образование самостоятельно. В данном случае пользователь открывает перед собой набор уроков и методик для достижения впечатляющих результатов в иностранных языках. В проекте содержатся очень сконцентрированные базы данных с несколькими вариантами подачи материала. Это поможет тем кто по-разному (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.04.2024Разработчик: BusuuПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CD0DDE6EE3BEE71A21A849C28AB5E8867BCF43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714604   (111698) от 10.04.2024
+
+Никита Прохоров, Дмитрий Сидорин | 50 ошибок, которые убьют твой стартап (2024) [MP3, Максим Киреев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создать свою корпорацию, собрать лояльную команду, стать медийной личностью – цель всех стартаперов. Как ее достичь? Авторы книги, ведущие российские интернет-эксперты и основатели нескольких компаний, опираясь на свой опыт, помогут будущим предпринимателям избежать многих ошибок на старте. Прочитав книгу, вы рационально оцените ресурсы для запуска, научитесь делегировать (   Читать дальше...   )Жанр: БизнесИздательство: Синергия СторПродолжительность: 05:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9563AD75D984A13033E48650DEAE065C97A5F6EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714690   (111699) от 10.04.2024
 
 Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by Balatan [Ru/Multi]
@@ -6,7 +78,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111699.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Soul Browser 1.4.14 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111700.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:82468CA4166FA0579DD8DCDB364B97BEBC528D2C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111701.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Microsoft .NET 7.0.18 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111702.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:4EA2A06D17069064252DD2E32E073AF9A328016E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111703.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Microsoft .NET 6.0.29 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111704.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:381C43C7F3260F46E0F3F3943A1321B2C0736F17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111705.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:BB6F4E2D4BD127DA124264B71A8AF0E0982B020A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111706.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ QuickTextPaste 8.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111707.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:679C5AF32D519F4891A5D8D249BCBAD169DE41CE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111708.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Viber 22.4.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111709.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:E6DB10C640B441E6773AF8B42EC6295D93C261AC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111710.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:84FA7C60B0B7FFD1C6E4FD2D96C313A46B355A1B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111711.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111712.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Santana - Santana (1969) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111713.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:66C2B7087A9F28F6B8CED20C9E7CFAD582D11C6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111714.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111715.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:427EE668D83D87CA2DF5F1FC96FBA5E24B23E3E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111716.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ White Dog - Double Dog Dare (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111717.jpg" />
 </div>
 
 
@@ -479,7 +551,7 @@ Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111718.jpg" />
 </div>
 
 
@@ -506,7 +578,7 @@ Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111719.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Still Corners - Dream Talk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111720.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111721.jpg" />
 </div>
 
 
@@ -574,87 +646,6 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E36A2CE5F06C3728C4153B96B809FF5E91583D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714507   (111722) от 09.04.2024
-
-Celtian - Secretos de Amor y Muerte (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Lira Encantada [00:01:40]
-02. La Profecía [00:05:17]
-03. Adalina [00:04:47]
-04. Serena [00:04:01](   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931A66C75A53AA7026820B20DCF8CDC2894C8639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714389   (111723) от 09.04.2024
-
-Little Albert - The Road Not Taken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Alive [00:03:58]
-02. Demon Woman [00:05:10]
-03. See My Love Coming Home [00:04:43]
-04. Hiding All My Love Away [00:04:46](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60852FA5FB7A012DC84EAC120DF14FB984CB0063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714384   (111724) от 09.04.2024
-
-The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blood Red Sea [00:04:00]
-02. Road Burn [00:04:00]
-03. Psychocybernation [00:03:44]
-04. Blood Moon [00:03:45](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B05CFD516AA75E11345649447E1F2AC3D96154
 ```
 
 

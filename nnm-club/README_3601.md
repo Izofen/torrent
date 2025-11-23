@@ -1,3 +1,78 @@
+###  Публикация: 1707577   (113308) от 17.03.2024
+
+Emurasoft EmEditor Professional 24.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113308.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9030B11BFC022BC2464324C35D7DF894E2659E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707675   (113309) от 17.03.2024
+
+TuneIn Radio 33.6.1 Paid [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113309.jpg" />
+</div>
+
+
+###  Подробнее
+
+СПОРТ В ПРЯМОМ ЭФИРЕ. МУЗЫКА. НОВОСТИ. ПОДКАСТЫ.
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении.
+Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 13.03.2024Разработчик: TuneIn IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B58834C4C3B2011F63DA950106B7FFBCC240813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707592   (113310) от 17.03.2024
+
+Я слон, мадам / Ich bin ein Elefant, Madame (1969) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бремен, 1968, старшеклассники бунтуют против тоталитарного обучения под музыку Уорхола и Velvet Underground, но проблемы у главного героя начинаются, когда он в полемическом задоре рисует на стене свастику как приглашение к дискуссии.Производство: Германия (ФРГ) / Iduna Film ProduktiongesellschaftЖанр: драма, комедияРежиссер: Петер ЦадекАктеры: Хайнц Бауманн, Вольфганг Шнайдер, Гуидо Бауманн, Марго Троогер, Гюнтер Людерс, Танкред Дорст, Петер Палитцш, Рольф Беккер, Вернер Дамс, Роберт ДитльПеревод: авторский (Юрий Муравский)Язык озвучки: русский, немецкийСубтитры: отсутствуютПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3C9AC66F4599D88A04E88B09705BD72A5361D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707591   (113311) от 17.03.2024
 
 Кирилл Неплюев | Бешенство Z (2023) [MP3, Мухамет Закиров]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113311.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:2B5CD4C40D682C1B5B6F79AF7609984703489E87
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113312.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Wes Montgomery & Wynton Kelly Trio - Maximum Swing: The Unissued Half Note Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113313.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ The Howard Alden Trio - A Good Likeness (1993) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113314.jpg" />
 </div>
 
 
@@ -109,7 +184,7 @@ Howard Alden Trio - Misterioso (1991) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113315.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113316.jpg" />
 </div>
 
 
@@ -163,7 +238,7 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113317.jpg" />
 </div>
 
 
@@ -187,7 +262,7 @@ magnet:?xt=urn:btih:2AB1A6CF172BAEC05D9AB447D4C1404E6D5AC618
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113318.jpg" />
 </div>
 
 
@@ -214,7 +289,7 @@ magnet:?xt=urn:btih:B0A7CBDBF657B4C015D2AFB82F78BE0F0421880A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113319.jpg" />
 </div>
 
 
@@ -238,7 +313,7 @@ magnet:?xt=urn:btih:3271AD8C61FA7C17D3B3848F4E454CF445D33882
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113320.jpg" />
 </div>
 
 
@@ -265,7 +340,7 @@ magnet:?xt=urn:btih:FE5880A75B84B5E387BE53318B729FE92BDB241E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113321.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113322.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113323.jpg" />
 </div>
 
 
@@ -342,7 +417,7 @@ VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113324.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ magnet:?xt=urn:btih:F49676B7614A9D9C6B81DB6B861AF4F557C4C6AC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113325.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113326.jpg" />
 </div>
 
 
@@ -422,7 +497,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113327.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113328.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113329.jpg" />
 </div>
 
 
@@ -503,7 +578,7 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113330.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ Almo - Reconciliation (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113331.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ PowerPhotos 2.5.7 beta3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113332.jpg" />
 </div>
 
 
@@ -579,7 +654,7 @@ magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113333.jpg" />
 </div>
 
 
@@ -592,81 +667,6 @@ magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8631E252F01F5E106AE882B750509613BB82F42E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707291   (113334) от 16.03.2024
-
-John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. PC [8:17]
-02. I Want to Talk About You [13:59]
-03. Bye Bye Blackbird [23:28]
-04. Autumn Leaves [10:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707321   (113335) от 16.03.2024
-
-Пятеро на одного (16.03.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34199DDF158E897BE17BA5BF3704C119F7670A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707522   (113336) от 16.03.2024
-
-Сибирская Благозвонница | Служители темных сил (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Духу злобы – диаволу – недоступен мир небожителей. И все свое внимание он обращает на землю с тем, чтобы между людьми сеять зло. Главный грех падшего духа – исcтупленная ненависть к Богу, и всю свою злобу он обращает на человека, являющегося образом Божиим. Свт. Григорий Богослов писал: «Диавол отовсюду пытает, высматривает, где низложить, где уязвить и найти, что (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6298153021D7B7383F59FD25FFBAE0B8B8DB5922
 ```
 
 

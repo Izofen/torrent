@@ -6,7 +6,7 @@ Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65098.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65099.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65100.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Burzum - Draugen - Rarities (2005) Compilation [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65101.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sweet Talk - Switch On (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65102.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Phil Pilorz and Sarah Ayers - Apocalypse Road (2025) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65103.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:FFAD35D07B0DF11149D3BE02BB41ED74C16E6891
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65104.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65105.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65106.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65107.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Entrails - Grip Of Ancient Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65108.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B3C2BE8FBDC4FC21E0684E07E29D3CB78FB8E161
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65109.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Photo Lab PRO v3.13.67 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65110.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:E9657507FAF82AA19B2A11F84A0EFEFE3D86C3B1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65111.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Milk & Sugar Summer Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65112.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Magic Eraser / Магический ластик v2.23.8 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65113.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:8CEEF0C34E7AD16A417A46DA0B315BF58BDB9179
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65114.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:94A551076BCB72C438A556A44F08A5C2F35C9698
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65115.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8E34C4D9CB5293F47C6691C82116911CDA7376ED
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65116.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D30FFF181F31A526DE18FBE9B829324755D7853C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65117.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:6C609625806F0A846D94DEA6675C703EC38DA4B4
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65118.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:A583BAE9C9F409CDDC3EFCB933D64C38EC204C8F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65119.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D7C64BBA02841E060ED27C1BF00F7ED6B0ECB72E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65120.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2A7D6C875F1B1D9D69A0859305FB3BF365CC2BF1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65121.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65122.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:DC57B6C65C6278922FC27A1B888100F8382128A3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65123.jpg" />
 </div>
 
 

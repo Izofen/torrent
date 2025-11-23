@@ -1,3 +1,75 @@
+###  Публикация: 1697358   (118040) от 12.02.2024
+
+Sword of Moonlight / King's Field (2000) [En] (1.2) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игру разработала японская компания From Software, и впервые выпустила в Японии, 16 декабря 1994 года; это сделало King's Field первой ролевой игрой для PlayStation. Так как игра никогда не выходила за пределами Японии, иногда ее называют King's Field (Japan). Позже фанаты перевели игру на английский. Полноценная переделка, также эксклюзивная для Японии, вышла в 2000 (   Читать дальше...   )Тип издания: LicenseРазработчик: From SoftwareЖанр: RPGЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699337   (118041) от 12.02.2024
+
+Майя / Maya (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда 15-летнюю девочку, пытающуюся сбежать от жестокого бойфренда своей матери-алкоголички, мужчина, с которым она познакомилась онлайн, вовлекает в схему сексуальной торговли, она должна осознать разницу между любовью и манипуляцией, чтобы вернуться к тем, кому не все равно.Производство: США / Artists For Change, Rough Diamond ProductionsЖанр: ТриллерРежиссер: Джулия ВерденАктеры: Патрисия Веласкес, Румер Уиллис, Энтони Монтгомери, Рина Оуэн, Чери Дэйли, Кэтрин Брухайер, Шери ДеЯнг, Туре Рифенштейн, Эдди Перес, Isabella Marquez-JohnsonПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:26Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB05C5DD27B9E86A8A5F2A1A315D8AAC8A53D79D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699352   (118042) от 12.02.2024
+
+Лето во Франции / Zomer in Frankrijk (2023) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две французские семьи, которые дружат уже много лет, запланировали отличный отпуск. Всей большой компанией - Мари и Люк с двумя дочерьми и Уолт и Лике с сыном - они арендуют роскошный дом в живописном месте. Впереди несколько беззаботных недель отдыха на солнце у бассейна с бокалом вина, но неожиданно возникает неловкая ситуация. Постоянно общаясь и гуляя по магазинам, (   Читать дальше...   )Производство: Нидерланды / 2CFilmЖанр: Комедия, мелодрамаРежиссер: Марк Де КлоэАктеры: Вокелин Уверкерк, Тьеббо Герритсма, Ян Койман, Ясмин Сендар, Элийха Альтена, Лоран Кларе, Катрин Джирон, Илья Горт, Маццельпик, Фиона МусареллаПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC8B1AD9C54F8B74652FCD2CB5B60B53A969A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699335   (118043) от 12.02.2024
 
 Майя / Maya (2023) WEBRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +78,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118043.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ CrossOver Linux 23.7.1-1 [x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118044.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:5E1CD9BD53AB0EC31680909F51A95390EF24C765
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118045.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:B7A917EA3BB7C73254C2B602D83BE0EC5BEC8D3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118046.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:7F652AAF51E1BB9537B85BA68420DB62D754C3FA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118047.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:E01860A2577C4B15A04A7C782AB32A5FF9A64ADC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118048.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:0814592BDBA07E2EE62D6267EE6A578EB3AA2420
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118049.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:0814592BDBA07E2EE62D6267EE6A578EB3AA2420
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118050.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:F0D44730F86FCABC9A5F89B89F18FE7516A9C4ED
 >>Новости Клуба
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118051.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:F0D44730F86FCABC9A5F89B89F18FE7516A9C4ED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118052.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ magnet:?xt=urn:btih:5D9A350E9BDF184A59FCC811B06D12A5A3B6FE3E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118053.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Defender Remover Portable 12.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118054.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ Stellaris v.3.10.4 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118055.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:3A3EA53044E9728C886CA823647E1EE0B254EB1B
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118056.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:3A3EA53044E9728C886CA823647E1EE0B254EB1B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118057.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Smart AudioBook Player Pro v10.6.4 Mod by Balatan [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118058.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ GoodbyeDPI 0.2.2 Launcher 6.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118059.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:8F638F22427251387B99729169A077487E78BB9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118060.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ Universe Sandbox v.34.0.4 (2015) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118061.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ magnet:?xt=urn:btih:7554D74E51A80A4821B6318C38E796D1BCADF248
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118062.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:08309B52817CFC654EAE5A800038F0E2C0EAE630
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118063.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ magnet:?xt=urn:btih:C572B1F4EFFBF158379A76F90413B9C057FD66C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118064.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:5A827669C89A436CCDD1D1AE014512322F0CE5B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118065.jpg" />
 </div>
 
 
@@ -560,79 +632,6 @@ magnet:?xt=urn:btih:5A827669C89A436CCDD1D1AE014512322F0CE5B3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1110D4ED5AF8432DED0D2DED60F432F28BBDF736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570627   (118066) от 12.02.2024
-
-Cult of the Lamb v.1.3.5.214 (2022) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118066.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Cult of the Lamb вы окажетесь в роли одержимого ягнёнка, спасённого от гибели жутким незнакомцем. Чтобы вернуть долг своему спасителю, вам придётся найти ему верных последователей. Взращивайте собственный культ в землях лжепророков, совершайте походы по таинственным уголкам леса, объединяйте вокруг себя верных последователей и несите своё слово в массы, чтобы сделать (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2022Разработчик: Massive MonsterПоддерживаемая ОС: 10.9+Жанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык интерфейса: русский, английский, французский +
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD13DC5EA1D199321E0E258B6445E4E22E4F936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699124   (118067) от 12.02.2024
-
-Гнев материнский / The Good Mother (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянная мать и профессиональная журналистка Марисса берётся самостоятельно расследовать дело о жестоком убийстве собственного сына. Пока второй ее сын — полицейский — пытается скрыть детали следствия, девушка погибшего решает вступить в опасное расследование и помочь матери. Вместе они должны докопаться до правды, какой бы страшной она ни была.Производство: США / SSS Entertainment, Artemis, Priority PicturesЖанр: триллер, драма, криминал, детективРежиссер: Майлз Джорис-ПейрафитАктеры: Хилари Суэнк, Оливия Кук, Джек Рейнор, Дилон, Норм Льюис, Мэдисон Харрисон, Хоппер Пенн, Карен Элдридж, Jason Giampietro, Маджестик ТиллманПеревод: Дублированный (Велес)Язык озвучки: Русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA7EFD4C6A51096E86F54788AD8AD4C7BF52A09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699183   (118068) от 12.02.2024
-
-Санктуарий: История ведьмы / Sanctuary: A Witch's Tale (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) TVShows
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной книги В. В. Джеймс.
-Сотни лет ведьмы живут как признанные и священные члены сообщества в маленьком английском городке под названием Санктуарий. Но однажды местный подросток Дэн Уитхолл, капитан команды по регби и хулиган школы, погибает в результате несчастного случая на вечеринке. Его мать Эбигейл из-за своего горя и убеждений начинает современную (   Читать дальше...   )Производство: США / AMC Studios, Monumental Television, Sundance NowЖанр: фэнтези, триллерРежиссер: Лиза Мулкахи, Джастин МолотниковАктеры: Элейн Кэссиди, Хэйзел Дуп, Стефани Леви-Джон, Эми Де Брюн, Стивен Лорд, Adam Isla O'Brien, Барри Джон Кинселла, Darragh Gilhooly, Elish Liburd, Holly SturtonПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED506F70371759FD088B1E407BEDAC467484012F
 ```
 
 

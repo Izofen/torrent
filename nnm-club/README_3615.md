@@ -1,3 +1,82 @@
+###  Публикация: 1706245   (113672) от 12.03.2024
+
+Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preaching To The Choir (3:40)
+02. Dirty Water (5:27)
+03. I Can't Look You In The Eye (Remastered) (3:22)
+04. 5 AM (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326F63D12EEE69619B9F091214315149A5053F18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706402   (113673) от 12.03.2024
+
+Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15A8944494F44786B83B712CB37AE570A290740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706054   (113674) от 12.03.2024
+
+ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
+02 - Когда-нибудь. (М. Минков - А. Макаревич)
+03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706424   (113675) от 12.03.2024
 
 VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +85,7 @@ VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113675.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Soft Cell - Bedsitter E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113676.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ HWiNFO 7.73 Build 5385 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113677.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:C42CA05A3A6025AD8B75F0D4139A6BCD75DCE22C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113678.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ These Wicked Rivers - Force of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113679.jpg" />
 </div>
 
 
@@ -135,7 +214,7 @@ Invoices for Mac 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113680.jpg" />
 </div>
 
 
@@ -160,7 +239,7 @@ magnet:?xt=urn:btih:A26AF16945FEF14AA1CF40C1A3A022BE02CF30BB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113681.jpg" />
 </div>
 
 
@@ -184,7 +263,7 @@ KeyCue 10.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113682.jpg" />
 </div>
 
 
@@ -209,7 +288,7 @@ GeoGebra 6.0.830.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113683.jpg" />
 </div>
 
 
@@ -233,7 +312,7 @@ Discovery Zone - Quantum Web (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113684.jpg" />
 </div>
 
 
@@ -260,7 +339,7 @@ magnet:?xt=urn:btih:40E098552EDBDDE55C626B4AC664A2662953010C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113685.jpg" />
 </div>
 
 
@@ -284,7 +363,7 @@ EditReady 24.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113686.jpg" />
 </div>
 
 
@@ -311,7 +390,7 @@ The Wicked Lo-Down - Out Of Line (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113687.jpg" />
 </div>
 
 
@@ -338,7 +417,7 @@ Whorehouse Love - Whorehouse Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113688.jpg" />
 </div>
 
 
@@ -365,7 +444,7 @@ Pantheist - Kings Must Die (2024) [FLAC 24/48; 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113689.jpg" />
 </div>
 
 
@@ -392,7 +471,7 @@ George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113690.jpg" />
 </div>
 
 
@@ -419,7 +498,7 @@ FSNotes 6.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113691.jpg" />
 </div>
 
 
@@ -443,7 +522,7 @@ Mp3tag 1.8.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113692.jpg" />
 </div>
 
 
@@ -467,7 +546,7 @@ NoteList 4 v.4.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113693.jpg" />
 </div>
 
 
@@ -492,7 +571,7 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113694.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ GarageSale 9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113695.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113696.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ Desktop Stickers 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113697.jpg" />
 </div>
 
 
@@ -579,79 +658,6 @@ Desktop Stickers 2.71 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6243055B601652AA92477B0EEECE8F75C852D2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706132   (113698) от 11.03.2024
-
-BetterMouse for Mac 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113698.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8B863AD15FD583BD310905547D54C2C53919FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706114   (113699) от 11.03.2024
-
-WiFiSpoof 3.9.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113699.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 09.03.2023Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58647B9F7D53A08D4050986A661DA76BF28D2A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706094   (113700) от 11.03.2024
-
-Хоккей. НХЛ 2023-2024. Эдмонтон Ойлерз - Питтсбург Пингвинз (10.03.2024) WEB-DL [H.264/720p-LQ] [hand made 30fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113700.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 марта 2024, воскресенье. 20:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 753 зрителя (95% при вместимости 18 673)
-Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Эндрю Смит (Китченер, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579EC7039717220795B76DF4F05AE19C50451F47
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 589471   (148624) от 15.12.2012
+
+[Wallpapers] Обои для рабочего стола "Авто"
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола "Авто". В архиве.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EAF42059EAF0CBB5E811473653161FD3383CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589626   (148629) от 15.12.2012
+
+Ведьмы четырёх стихий / Switch (2012) HDTVRip [1-6 серии из 6]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история очень современного ковена (магического клана) из четырех лондонских девиц, занимающихся магией. Они могут оживить кота, стереть память зловредного босса и даже приворожить настоящего мачо. В главных ролях заняты Лейси Тернер («Быть человеком», «Бедлам»), Нина Туссен-Уайт («Доктор Кто»), Ханна Тойнтон («Синдбад») и дебютантка Фиби Фокс. Каждая из четырех ведьм обладает силой одной из стихий – земли, воды, воздуха и огня. Switch – это британский ответ на «Тайный круг».Жанр: Драма, мистикаРежиссер: Доминик ЛеклеркАктеры: Лейсли Тернер, Нина Туссен Уайт, Ханна Тойнтон, Фиби ФоксПеревод: Двуголосый закадровый, профессиональныйОзвучка: Виктор Ерёменко и Ольга ГринтиеваПродолжительность: 6 x ~ 00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969308   (148633) от 26.12.2015
+
+Windows System Control Center 2.5.0.4 Portable by Alecs962 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows System Control Center - пожалуй  лучшая оболочка, объединяющая программы двух авторитетных и плодовитых производителей, удобная и красивая замена пакетам Sysinternals Suite и NirLauncher. Представленный набор служит для самых разнообразных целей и не раз пригодится, тем более, что в силу компактности его легко носить с собой на USB или скачать заново. В зависимости (   Читать дальше...   )Язык интерфейса: Русский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA7781DAB4844F14737DF2D756C22447A2CD276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969174   (148635) от 26.12.2015
 
 Шерлох (Шерлок) (2015) WEB-DLRip [H.264/720p-LQ] (Серия 10)
@@ -6,7 +78,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148635.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Any DVD Converter for Android 4.5.8 Portable by PortableAppZ [Multi/Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148638.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ Movist 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148641.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ FileZilla 3.46.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148647.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ WiFi Scanner 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148653.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Topaz Photo AI 2.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148657.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ TunesKit iBook Copy 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148659.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ XYplorer 16.10.0200 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148668.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ VA - The Best Of Pulsar 2016 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148707.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ Vivaldi 2.10.1745.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148715.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ MaxCommander 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148719.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ QuarkXPress 2019 15.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148724.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ Money Pro 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148725.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ Disk Clean Pro 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148726.jpg" />
 </div>
 
 
@@ -357,7 +429,7 @@ magnet:?xt=urn:btih:B764FE6E23AD022E2FDBE5B0B33F8188D5E76847
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148736.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ AnyMP4 Mac Blu-ray Player 6.3.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148737.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:670C5023A4FC13A345E310EB027B92A49002DF1F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148742.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ Nicky Romero & Laidback Luke - Live @ Avicii Tribute Concert, Friends Arena Stoc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148743.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ Opera One 105.0.4970.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148747.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ Battery Indicator for Mac 2.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148753.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ magnet:?xt=urn:btih:4115BAD323473865315735B3DE9F9CED51CD18AD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148758.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ Clean Space 2015.04 Portable by SoftsPortateis [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148763.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ BusyCal 2021.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148775.jpg" />
 </div>
 
 
@@ -567,81 +639,6 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9E4D5DAD22C945F48126EEA77AF9EB1329E455B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347696   (148778) от 24.12.2019
-
-Vivaldi 2.10.1745.23 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1C392B0D067150689BC55EEDCE8816795D5AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347759   (148783) от 24.12.2019
-
-Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Бостон Брюинз (23.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148783.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 декабря 2019 года, вторник 03:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (102 % при вместимости 17 565)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0491C67CD2383E5754F6F2298F70DACBE671E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969281   (148789) от 26.12.2015
-
-Disk Drill Entreprise 2.4.437 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill - восстановление информации без помощи специалистов
-Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 14 декабря 2015Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1A4C58CC8802B516E4D4075C8CED039A3890B8
 ```
 
 

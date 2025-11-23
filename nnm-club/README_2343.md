@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chef Life: A Restaurant Simulator (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61284.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D5935997537691C2EAF71EDAC96D7405D30F57D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61285.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CrystalMark Retro 1.0.0 RC3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61286.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:65BB0724B3F2199B7CB1D937336DF1D5E743A4CF
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61287.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E2523D8C8547961809BDE5AD65089E38C0565163
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61288.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AFF94BA13CFC62E437234C2EDCDB5554E6548F69
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61289.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Studies 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61290.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Голос мой услышь (2024) [FLAC|Lossless|WEB-DL|tracks] <pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61291.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ OwlOCR Pro for Mac 6.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61292.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Kontor Top of the Clubs Vol. 99 (2024) [MP3|320 Kbps] <Electronic, Dance, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61293.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:47D0020264967B352A62CAAC41166371CAA8A99A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61294.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61295.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61296.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C6774AA97A5A9B0AF387A302CD139412AB6A1ADB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61297.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Notepad++ 8.6.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61298.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B139F3CCDA1D80C509846B3F1980BFBBBC951752
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61299.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:85555E51DC32763758093D1205AA6A43831B7D89
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61300.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9F4582ADA8B76169A85F0AA34CF0B06E6146E98C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61301.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:CAF858AE7486D02B95D1330ED378E097FD0E0729
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61302.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:BBE3C923B9DE9D56BB285C80D2964DECD3400151
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61303.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61304.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:039A3CDF410462B4BE6B5B2C98D165295D99128C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61305.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:639ADBF882BEC64494622A12B5B3A2BA872D973F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61306.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Topaz Photo AI 2.4.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61307.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Allavsoft Video Downloader Converter 3.27.0.8852  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61308.jpg" />
 </div>
 
 

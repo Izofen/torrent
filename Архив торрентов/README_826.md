@@ -1,3 +1,77 @@
+###  Публикация: 1345476   (166318) от 15.12.2019
+
+Adobe Character Animator 2020 3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Character Animator позволяет анимировать двухмерных персонажей, созданных в приложениях Photoshop CC и Illustrator CC. Снимайте свои движения и записывайте свой голос с помощью веб-камеры и микрофона. Character Animator отслеживает вашу мимику и движения в режиме реального времени, и ваша улыбка передается персонажу.
+
+Создавайте персонажей с нуля в приложении Illustrator (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новее,Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5645DCD2A3436D04091B5B970AF4053AC79AABD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597358   (166321) от 14.12.2022
+
+CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166321.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803C643BB2D1B05F90592AFE0C45C6C3C69E0C0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345542   (166323) от 15.12.2019
+
+Loaris Trojan Remover 3.1.6.256 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B16B1870AA8F7107E7C213C50C773B7EDF89E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673131   (166324) от 31.10.2023
 
 MacPilot 15 v.15.0.1 [En]
@@ -6,7 +80,7 @@ MacPilot 15 v.15.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166324.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Capture One 20 Pro 13.0.0.186 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166328.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ BELOFF 2021.12 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166344.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ PDF Shaper Professional 9.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166361.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ BELOFF 2021.12 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166364.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Cisdem Video Converter 7.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166370.jpg" />
 </div>
 
 
@@ -154,7 +228,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166392.jpg" />
 </div>
 
 
@@ -178,7 +252,7 @@ AOMEI Backupper Technician Plus 7.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166401.jpg" />
 </div>
 
 
@@ -202,7 +276,7 @@ magnet:?xt=urn:btih:21EE09DD82C5B16CB3E22745F2A9EC38F10E50A4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166407.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ Microsoft .Net Framework 13.12.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166412.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166419.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ Timer RH PRO  2.12.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166425.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ Skype 8.55.0.141 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166426.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ WinToHDD 5.9 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166428.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ PrivaZer 3.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166429.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ JSON Wizard for Mac 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166458.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166462.jpg" />
 </div>
 
 
@@ -419,7 +493,7 @@ Futuremark 3DMark 2.21.7324 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166463.jpg" />
 </div>
 
 
@@ -443,7 +517,7 @@ Skylum Luminar AI 1.0.0.7348 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166464.jpg" />
 </div>
 
 
@@ -467,7 +541,7 @@ magnet:?xt=urn:btih:E24A79118144E9C994BEDE2B76F28061D1DE65DC
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166469.jpg" />
 </div>
 
 
@@ -491,7 +565,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166471.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Zoner Photo Studio X 19.1909.2.198 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166472.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Swift Publisher 5 v5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166488.jpg" />
 </div>
 
 
@@ -550,81 +624,6 @@ Swift Publisher - это пакет графических утилит для m
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DB48A0F34F50FF4BC168FB76DF746A0A3E5090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431517   (166489) от 14.12.2020
-
-Microsoft Windows and Office ISO Download Tool 8.45.0.152 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows and Office ISO Downloader - небольшое бесплатное приложение, которое предлагает легкий и удобный способ для загрузки официальных образов ISO операционных систем Windows и офисных пакетов MS Office непосредственно с серверов Microsoft.
-Не требует установки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA9FFD5F2466D34293502DE332643B7EB59E972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597354   (166490) от 14.12.2022
-
-Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
-
-Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673050   (166495) от 31.10.2023
-
-Privatus 6.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
 ```
 
 

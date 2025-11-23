@@ -1,3 +1,126 @@
+###  Публикация: 1654147   (205966) от 19.08.2023
+
+Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пошаговое руководство для разработчиков, желающих овладеть искусством управления репозиторием Git. Книга охватывает все, начиная с основ работы с Git и заканчивая такими продвинутыми темами, как ветвление, слияние, ребазинг и разрешение конфликтов. Книга поможет вам научиться создавать, управлять и сотрудничать с репозиториями Git. Кроме того, она научит вас (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193ABB54D978D946E2DA5DF713A85C33237659E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654130   (205969) от 19.08.2023
+
+Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой исчерпывающее руководство по TypeScript, языку программирования, расширяющему JavaScript такими мощными возможностями, как статическая типизация, классы и интерфейсы. Книга состоит из тринадцати глав, в которых рассматривается все, начиная с настройки среды разработки и заканчивая созданием приложения на языке Angular с использованием (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Orange Education Pvt Ltd, AVA™Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362DA9D3146E1B8541E836FC96E1C0A13A7BCE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582854   (206125) от 11.10.2022
+
+Martin Joo | Microservices with Laravel (Premium Package) (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное руководство по освоению микросервисов с помощью Laravel. Избавьтесь от монолитного монстра! 151 страница высококачественного контента, который научит вас создавать микросервисы с помощью Laravel.
+
+«Микросервисы с Laravel» — это полное руководство по созданию микросервисов. Книга охватывает такие темы, как:
+Написание небольших сервисов с одной обязанностью(   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615753   (206258) от 27.02.2023
+
+В.П. Дьяконов | MATLAB 6.5 SP1/7 + Simulink 5/6. Обработка сигналов и проектирование фильтров (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья книга в серии работ, посвященных двум последним реализациям мощных матричных систем компьютерной математики MATLAB 6.5 SP1/7 + Simulink 5/6. Впервые дан вводный курс по новейшей версии MATLAB 7 + Simulink 6. Описаны последние версии пакетов расширения по обработке сигналов и проектированию фильтров: Signal Processing Toolbox, Signal Processing Blockset, Digital (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD916E16D85A167737A5BC67403C1E6077E0389
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615448   (206416) от 25.02.2023
+
+Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the web with JavaScript and WebGL, 4th Edition (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_206416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга начинается с основных концепций и строительных блоков, используемых в Three.js, и помогает вам подробно изучить эти важные темы с помощью обширных примеров и образцов кода. Вы узнаете, как создавать реалистично выглядящие 3D-объекты с помощью текстур и материалов и как загружать модели из внешнего источника. Далее вы поймете, как управлять камерой с помощью (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614969   (206500) от 24.02.2023
 
 Бхавик Мерчант | Power BI. Передовые методы оптимизации (2023) [PDF]
@@ -6,7 +129,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206500.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206500.jpg" />
 </div>
 
 
@@ -30,7 +153,7 @@ magnet:?xt=urn:btih:62BE9B84BE38C9058137D9378C005C95135F4A01
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206504.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206504.jpg" />
 </div>
 
 
@@ -54,7 +177,7 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206587.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206587.jpg" />
 </div>
 
 
@@ -78,7 +201,7 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206590.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206590.jpg" />
 </div>
 
 
@@ -104,7 +227,7 @@ magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206624.jpg" />
 </div>
 
 
@@ -128,7 +251,7 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206705.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206705.jpg" />
 </div>
 
 
@@ -152,7 +275,7 @@ magnet:?xt=urn:btih:4661FE4FE085664EDFD48C822B34D9755C88F182
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206778.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206778.jpg" />
 </div>
 
 
@@ -177,7 +300,7 @@ magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206907.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206907.jpg" />
 </div>
 
 
@@ -201,7 +324,7 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206976.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206976.jpg" />
 </div>
 
 
@@ -225,7 +348,7 @@ magnet:?xt=urn:btih:4ACA58333C62681C24D4B96AE4C05F64092DEADC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206988.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206988.jpg" />
 </div>
 
 
@@ -249,7 +372,7 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207002.jpg" />
 </div>
 
 
@@ -273,7 +396,7 @@ Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207299.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207299.jpg" />
 </div>
 
 
@@ -299,7 +422,7 @@ Adam Freeman | Pro ASP.NET Core 6: Develop Cloud-Ready Web Applications Using MV
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207442.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207442.jpg" />
 </div>
 
 
@@ -323,7 +446,7 @@ magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207484.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207484.jpg" />
 </div>
 
 
@@ -347,7 +470,7 @@ magnet:?xt=urn:btih:6C5E14BF65A3BB4CCAAABD37283BCFDD1CA2E108
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207592.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207592.jpg" />
 </div>
 
 
@@ -372,7 +495,7 @@ magnet:?xt=urn:btih:22E2345EB59C2BCD24301280789DF53763375261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207596.jpg" />
 </div>
 
 
@@ -396,7 +519,7 @@ magnet:?xt=urn:btih:F358DFB87A93CAE67E237C782F00497B81B172B1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207724.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207724.jpg" />
 </div>
 
 
@@ -420,7 +543,7 @@ magnet:?xt=urn:btih:21A57A4C180F760F65A3166C156BE19EBE43732F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207728.jpg" />
 </div>
 
 
@@ -444,7 +567,7 @@ John M. Blain | Blender 2D Animation: The Complete Guide to the Grease Pencil (2
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207764.jpg" />
 </div>
 
 
@@ -471,7 +594,7 @@ Benjamin Evans, Jason Clark, Martijn Verburg | The Well-Grounded Java Developer,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207904.jpg" />
 </div>
 
 
@@ -497,7 +620,7 @@ John Canning и др. | Структуры данных и алгоритмы н
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208007.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208007.jpg" />
 </div>
 
 
@@ -508,132 +631,6 @@ This practical introduction to data structures and algorithms can help every pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:986DFD356BD1747E842C0B30213B3D4681D700E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610210   (208080) от 06.02.2023
-
-Maximilian Schwarzmüller | React Key Concepts: Consolidate your knowledge of React’s core features, 1st Edition (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208080.jpg" />
-</div>
-
-
-###  Подробнее
-
-As the most popular JavaScript library for building modern, interactive user interfaces, React is an in-demand framework that'll bring real value to your career or next project. But like any technology, learning React can be tricky, and finding the right teacher can make things a whole lot easier.
-
-Maximilian Schwarzmuller is a bestselling instructor who has helped (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523F05EAEDFDAFCD01716F6D8D6FA1A8C863C7CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610240   (208083) от 06.02.2023
-
-Forrest Brazeal | The Cloud Resume Challenge Guidebook, AWS, GCP & Azure ed. [3 Книги] (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208083.jpg" />
-</div>
-
-
-###  Подробнее
-
-A proven way to advance your cloud career.​
-Since April 2020, the Cloud Resume Challenge has helped thousands of peopleskill up on cloud,
-improve their career prospects,
-and even land cloud jobs from totally non-tech fields like plumbing, professional poker, and HR.Now, I've packed their top tips, strategies, and resources into one e-book, so you too can build (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C385A18DDA5AFD7BC209596F1292CC6F6FEB59ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610057   (208116) от 05.02.2023
-
-И.Б. Аббасов | Основы графического дизайна в Photoshop 2021 (2021) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга предназначена для освоения графического редактора Adobe Photoshop с нуля. Кратко и емко описаны все многочисленные возможности Photoshop. Закрепить изученный материал помогают практические упражнения с пошаговыми инструкциями. Рассматриваемые темы: - интерфейс программы Adobe Photoshop; - особенности растровой графики; - обработка изображений; - использование (   Читать дальше...   )Жанр: Графика, Дизайн, ПроектированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF2E1E87EC822C1907EC4E6888C9A908AE7F6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575640   (208455) от 10.09.2022
-
-Sylvain Kerkour | Black Hat Rust (2022) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будь то в фильмах или в средствах массовой информации, хакеры часто романтизируются: их изображают волшебниками черной магии, мерзкими преступниками или, в худшем случае, ворами с капюшоном и ломом.
-На самом деле спектр злоумышленников чрезвычайно широк: от скучающего подростка, исследующего Интернет, до армии суверенного государства, а также несчастного бывшего (   Читать дальше...   )Жанр: Пентест, OSINTФормат: PDF, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E85CC7A4198F1417A544A65E2BAD5B0A7D7D85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814909   (208743) от 29.01.2023
-
-Д. Н. Тороп, В. В. Терликов | Teamcenter. Начало работы (2011) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой учебное пособие для освоения базовых принципов работы с системой Teamcenter®. В книге приводится общее описание всех модулей, входящих в состав системы Teamcenter, подробно рассмотрены функциональные возможности базовых модулей, предназначенных для управления данными об изделии, которые применяются в повседневной работе пользователей вне (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894D36772008F78F413B3A68D3D4B0D37D2D5AA7
 ```
 
 

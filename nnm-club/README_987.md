@@ -6,7 +6,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26011.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26012.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ventoy 1.1.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26013.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:222EEFBDADBD3242CE306A668E653CDDE66132C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26014.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:53CE682634AE5AC6B4F13E880393A71B6F31C5DF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26015.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D20929F7C89EB3F554900C823A9EDC6F1729BA2F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26016.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C8AA52DAD8A2D5C97DC75008173A6332762FB5D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26017.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26018.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26019.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:F7E271CA28455421DAF3BDF709E75E0F8FBA636B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26020.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4B9A20C5884107FBC584F25930ADB0C0DE341ECB
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26021.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:BEC626B14B2EE714FAB3C801A114F42F65FA057A
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26022.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BEC626B14B2EE714FAB3C801A114F42F65FA057A
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26023.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1AA1C74311FEED601FD553E920B3CCF050D01627
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26024.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8C130CCA4163835F2D71684EA0B993E64681856A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26025.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ SketchUp Pro 2025 25.0.571 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26026.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:EDEF3B55912CD631A1901809F363196AA1FF2CE5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26027.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Music Collection 3.8.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26028.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Musical Kaleidoscope Part 31 Electronc (2025) [MP3|320 Kbps] <Electronic, I
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26029.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9DB67D940834078985616012562098028E1665DC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26030.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Shazam v15.11.0-250220 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26031.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7D13C8A3B8B7ADCB550FDD0773F49D5BC15A98CC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26032.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26033.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Magic Eraser / Магический ластик v2.19.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26034.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:096B66544C173C4FE3D725470F4229E78F151254
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26035.jpg" />
 </div>
 
 

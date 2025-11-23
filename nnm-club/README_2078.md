@@ -6,7 +6,7 @@ Notepad++ 8.6.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54393.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9FDB091A6F07D8429990BDAEF6DB2E88AC70569B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54394.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VideoProc Converter AI 7.0 (x64) RePack (& Portable) by elchupacabra (DC 28.05.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54395.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WonderFox HD Video Converter Factory Pro 27.5 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54396.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wondershare UniConverter 15.5.10.97 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54397.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6BFE1D0C83188AD44E07D3EA1E8FB5E06EE2D7F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54398.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cat Scanner / Сканер породы кошек v17.2.5-G Mod by ModExPro [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54399.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EA80F89080650B6BCD6830CB333730CE6AA373A2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54400.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A8783A9B2127CE97F820BFC437245238CB4264FB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54401.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5F2A30AF944364BF6937528DC19E9EB225F7E6B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54402.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ iZotope - RX 11 Audio Editor Advanced 11.0.1 STANDALONE, VST 3, AAX (x64) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54403.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:C337DFEC25C38C728B234F378EACEED41B7704FF
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54404.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C337DFEC25C38C728B234F378EACEED41B7704FF
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54405.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2D90E4482BA30A0FD61D3402D187E9204DACD1DF
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54406.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:66E03A598235095E9E9E57ADD1DED0E532E2DF97
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54407.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54408.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Die by the Blade (2024) [Multi] (1.0.2) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54409.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:80DD295C51FDECDF63F9C50E6383F9BE4FFB989C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54410.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:091A4C7E588A997DCDBB39FC701D7D91E7014BF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54411.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54412.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:AED4027227063548234CAE5DE3EAF72A781A5F42
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54413.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ FreeBSD 13.3 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54414.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:789738CC91E882606358DDF15C1B77FDFE64970E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54415.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54416.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54417.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54418.jpg" />
 </div>
 
 

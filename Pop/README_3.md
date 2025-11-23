@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16205.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:472008BCBA6628BD2E1EE966FFD6CB683E341A32
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16365.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Craig David - Commitment (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16540.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16540.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Valerie Star - I Can’t Forget You (2025) [MP3|320 Kbps] <Italo Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E561FE19F0E98FA5FBAEC53E62A7D3FADD5EF2C2
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16855.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17058.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17098.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17240.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7F893D28DC9252AE46740A15D58DE32E2FA4DEC3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17243.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17277.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17675.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3C44B75E4FCC8E3DB1191B83F4200BE724928FC5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17796.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17867.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17970.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17989.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eurythmics - The Greatest Hits (1991) CD, Compilation, Club Edition [FLAC|Lossle
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18074.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:9913C8AC8E6F7AC6614978E396F8E508F66F6A22
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18203.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18606.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19162.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Like, Omigod! The '80s Pop Culture Box (Totally) (2002) 7 x CD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19164.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Sp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19348.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C8CBA012AC1C85043C77D9E7B7F68211E6B57A93
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19439.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fol
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19447.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19490.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19577.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - 90s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19681.jpg" />
 </div>
 
 

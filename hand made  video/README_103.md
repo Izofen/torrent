@@ -1,3 +1,77 @@
+###  Публикация: 1655201   (193866) от 25.08.2023
+
+Танцуй, танцуй / Dance Dance (1987) [MV] WEB-DLRip [H.265/2160p] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрывок - музыкальный номер "ФИНАЛ" всего фильма - Dance Dance.
+
+Полная реставрация ЗВУКА и Изображения. Впервые в истории полноценный Стерео-звук и шикарная картинка.Производство: Индия, B. Subhash Movie UnitЖанр: Pop, Dance, DiscoРежиссер: Баббар СубхашАктеры: Митхун Чакраборти, Смита Патиль, Мандакини, Шакти Капур, Амриш Пури, Ом Шивпури, Далип Тахил, Гита Сиддхарт, Юнус Парвез, ЧандрашекхарПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: Индийский (Хинди)Субтитры: отсутствуютПродолжительность: 00:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4674AEBF81CDBEDB8C54340C91BCEA9A6D23BA5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654910   (193886) от 23.08.2023
+
+Человек-амфибия (1961) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды талантливый учёный Сальватор спас жизнь маленькому мальчику, пересадив ему жабры акулы. С этого дня Ихтиандр, так назвал приёмного сына учёный, мог плавать под водой как рыба, нырять на любую глубину, но ему было тяжело подолгу находиться на суше. Годы спустя по тихому морскому городу поползли слухи о странном существе, наводящем ужас на рыбаков, о так называемом (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: фантастика, драма, мелодрамаРежиссер: Владимир Чеботарев, Геннадий КазанскийАктеры: Владимир Коренев, Анастасия Вертинская, Михаил Козаков, Николай Симонов, Анатолий Смиранин, Владлен Давыдов, Николай Кузьмин, Михаил Медведев, Юрий Медведев, Анна НикритинаЯзык озвучки: русскийПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4DFA0751943F75BD83F5572887B87947D597BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654736   (193908) от 22.08.2023
+
+Поездка в Америку / Coming to America (1988) BDRip [H.264/1080p-LQ] [handmade]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследный принц африканского государства хочет сам найти себе жену и едет для этого в Америку в компании своего верного друга. В Штатах принц прикидывается обычным работягой-парнем и поступает работать в закусочную, где ему очень приглянулась дочь хозяина. Девушка и не подозревает, кто в действительности её скромный ухажёр и что она уже потенциальная принцесса!Производство: США / Paramount Pictures, Eddie Murphy ProductionsЖанр: мелодрама, комедияРежиссер: Джон ЛэндисАктеры: Эдди Мёрфи, Арсенио Холл, Джеймс Эрл Джонс, Джон Эймос, Мэдж Синклер, Шари Хэдли, Пол Бейтс, Эрик Ла Салль, Фрэнки Фэйзон, Ванесса Белл КэллоуэйПеревод: Многоголосый, закадровый (Universal Pictures)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1ECB450608B7668C457177750DCE60A525F0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654233   (193910) от 22.08.2023
 
 Нимфа плебеев (Нимфа) / Ninfa plebea (The Nymph) (1996) DVDRip [H.264/1080p] [VO] [Handmade Upscale AI]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193910.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193910.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:ED1919C111CF53D438F395080BBE0D20C245E1D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193918.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193918.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:27CFD62952D0A111FE159C97EB56195B419927F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194013.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:66F4139B81BB90B628B3C4ABDCCC84C8085F2B40
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194109.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194109.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:D9F23EFFEE9DEB375DBF67854F8B870BD661648A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194145.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194145.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:07ABDC8E878161645110E85FA6EC30F5607335CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194186.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194186.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:FA4246AC45ADD7DFEFAAE94969754A78222861BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194214.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194214.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ magnet:?xt=urn:btih:0BE981C3BFF5259FB09EADBDA197D8C91E13E18B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194221.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194221.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:4C826980C485F8ACDF35759FEFA80DFDA4212EB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194266.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194266.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ magnet:?xt=urn:btih:A73232B62EB7A0D0EF23CC6439CEB3B657856AA5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194281.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194281.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ magnet:?xt=urn:btih:9F682B07223D9230169DCE3A0E57E53FE75FC93D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194282.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194282.jpg" />
 </div>
 
 
@@ -270,7 +344,7 @@ magnet:?xt=urn:btih:76F44C0FF24B2B4C5CB115D1DC03D3E28D2C66B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194293.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194293.jpg" />
 </div>
 
 
@@ -294,7 +368,7 @@ magnet:?xt=urn:btih:2283E00634ECE222FD5930274D11D9AEDD48E374
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194294.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ magnet:?xt=urn:btih:D0620A30E54DF8BC4907DA835E64D64D163FA4A5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194302.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194302.jpg" />
 </div>
 
 
@@ -342,7 +416,7 @@ magnet:?xt=urn:btih:9196D0ABB13B7ADC64AAB13E774145D28CFCAA83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194335.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194335.jpg" />
 </div>
 
 
@@ -366,7 +440,7 @@ magnet:?xt=urn:btih:356D71414062C766292CFF82D931A6B59229B8DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194374.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194374.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ magnet:?xt=urn:btih:FE98852EAA19C305C63FDF5FEEF401017460EF10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194378.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ magnet:?xt=urn:btih:3E01222AF97E487BB61711D7FEEB0F2B5BA7768D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194398.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ magnet:?xt=urn:btih:BBCCFED874B1A7713F767E99185C159631A67DDD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194448.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194448.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ magnet:?xt=urn:btih:1F380271CE72F16314EDB0FC15BDA8591A67419C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194518.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194518.jpg" />
 </div>
 
 
@@ -487,7 +561,7 @@ magnet:?xt=urn:btih:2411F612E982EEEF43CB401559801209650FBDCF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194557.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194557.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:ADA0236719B4FB4D45F36AE30860D386685E02F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194558.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194558.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:35CC8905967E38D637217646D911247E9C100DBC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194565.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194565.jpg" />
 </div>
 
 
@@ -546,78 +620,6 @@ magnet:?xt=urn:btih:35CC8905967E38D637217646D911247E9C100DBC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389E68A3B72BED35CA12889CE29F8892EB27E2FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652010   (194588) от 09.08.2023
-
-Шоугёлз / Showgirls (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая длинноногая танцовщица Номи отчаянно пытается добиться успеха в Лас-Вегасе и устроиться в популярное шоу. Но пока ей приходится согласиться на работу в стриптизе. Вскоре девушке достаётся счастливый билет — она знакомится с королевой сцены Лас-Вегаса Кристал. Та устраивает Номи в свое шоу и вводит ее в мир шоу-бизнеса — мир случая, предательства и интриг, (   Читать дальше...   )Производство: Франция, США / Carolco Pictures, Chargeurs, United Artists SeeЖанр: для взрослых, драмаРежиссер: Пол ВерховенАктеры: Элизабет Беркли, Кайл МакЛоклен, Джина Гершон, Гленн Пламмер, Роберт Дави, Алан Рачинс, Джина Равера, Лин Туччи, Грег Трэвис, Аль РуссоПеревод: Дублированный, многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC254B2AE48C9969A64CB86D09F89EEEC2574F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651904   (194602) от 09.08.2023
-
-Легко ли быть молодым? / Vai viegli but jaunam? (Is It Easy to Be Young?) (1986) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм становится первым документальным представителем одного из самых важных перестроечных жанров: "проблемного" фильма о молодежи. На смену давно устаревшим лозунгам пришло время судьбоносных вопросов - "кто виноват?", "что делать?" и сакраментального "кому на Руси жить хорошо?". Наступает период поиска ответов на эти "вечные (   Читать дальше...   )Производство: СССР, Рижская киностудияЖанр: документальный, драмаРежиссер: Юрис ПодниексАктеры: советская молодёжь 1980-х годовПеревод: Одноголосый профессиональныйЯзык озвучки: русский, латышскийСубтитры: русские, английские, латышскиеПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D51CB74F33C067BCB47F298EAAB8633C866626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646464   (194709) от 06.08.2023
-
-Пропавшая экспедиция; Золотая речка (1975; 1977) DVDRip [H.264/1080p] [Дилогия] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда искателей расследует утечку сибирского золота за границу. Продолжение детектива "Пропавшая экспедиция"Производство: СССР, Мосфильм, Киностудия им. М. ГорькогоЖанр: боевик, драма, приключенияРежиссер: Вениамин ДорманАктеры: Александр Абдулов, Николай Горлов, Александр Кайдановский, Юрий Каюров, Андрей Харыбин, Георгий Мартиросян, Ольга Матешко, Николай Олялин, Сергей Сазонтьев, Виктор СергачевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF70E1A4237DEC73D716BA0F0C1FC48BF293BD0
 ```
 
 

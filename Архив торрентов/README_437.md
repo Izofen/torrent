@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98478.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0DFE5B3AA03947F403650CB52E702FB1472A2B03
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98481.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98483.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98484.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98485.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98486.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98491.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98492.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98495.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98497.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Весенняя танцевальная вечеринка (2012) [MP3|16
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98499.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Tech
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98501.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98503.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98504.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic De
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98508.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98509.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98510.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98510.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98514.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98515.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98520.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98522.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98525.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98529.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98531.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98534.jpg" />
 </div>
 
 

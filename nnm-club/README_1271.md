@@ -6,7 +6,7 @@ Kimi wa Meido-sama. / You Are Ms. Servant. / Ты — горничная [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись арис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33401.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33402.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A74984B0851D1A8A7821EFEB1E2214D3813BC237
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33403.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:27062BBA1AEB54C51FE67E626B1063A8F1A8A0D2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33404.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:9645D2FFC816B3B508A3B341D92A372F003DABF4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33405.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33406.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A46AE129B864F520FB1EE0A35AF25E7D2110A747
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33407.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33408.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ YTD Video Downloader Ultimate 7.6.4.1 RePack (& Portable) by elchupacabra [Multi
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33409.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7D9FE1DF20155C83A0177B0485FF601D0B8DA7D6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33410.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33411.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33412.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33413.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ V.A. - Christmas Lounge – The Essential (Playlist 2024) (2024) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33414.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B9E1D9C28822E4CE15A9491060FDCF1C6A1A8F17
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33415.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.6 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33416.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B596F698A735DFF44ABA2630E1BFE684EF536AD2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33417.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:DF0EB32010592238D93A9BB94A4155BFFE374888
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33418.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Microsoft Windows 11 [10.0.26100.2605], Version 24H2 (Updated December 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33419.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:BE3081511EDDDB8E3E6FA5B6403C743D1982CEB2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33420.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:70E95ED100F2A37351FAFC951AB53244F79B3CF6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33421.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ SIFU (2022) [Ru/Multi] (1.28/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33422.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:2448CDB70BC08020770DA10366562F897C9369E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33423.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33424.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57227.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:465586EDE901CDF4A8E87A5856DB6CCBF016FD82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57228.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rufus 4.5 (Build 2160) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57229.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2945886869CA06F0CAA47C5029E190D683643929
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57230.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4ABDD123D1E04D130165A5B8A37FB80B2FE9FF17
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57231.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ableton - Live Suite 11.3.25 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57232.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1DF9BC26556B60C793E50FE788898D645D662CF5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57233.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0105913EC124065C291AB0A1BC9C0C8A227CB92C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57234.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Animate 2024 24.0.3.19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57235.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E8A1BA57D1BB5D21EBFDED634B425950C4D99650
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57236.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1464B2E954B3B972730C2804FC3EFC29320EEF22
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57237.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:BE8AEEBC5D2EBF08D6B81103C6812596D04109AD
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57238.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7872B607958FFDC6D2F19D80BDCF46B0598AC776
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57239.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:812B52C22FA9AF4C916789F571758AA6FE32D0C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57240.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windows 7 SP1 x64 (3in1) Activated by Updated Edition (08.05.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57241.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7290514240ED87D3F3EDF0ACDB4CFB96FB80F9AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57242.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0E1E647EF30E4AC0759A4D3DDE0D8268598A30AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57243.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:47DF60166315D889803781508ED6E0A86A6936BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57244.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:7B5CCF2CFFB2AD76C5A541386D6F93B7CBDF62B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57245.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8D55429E3407D378482A87C5C6DFBD10794851DE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57246.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:1F0D1B25C6D92CC6540F770676DB3DE6B358A0A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57247.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:5FB9FC3642A3E46CBC9767E0D247E20DF2023532
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57248.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5FB9FC3642A3E46CBC9767E0D247E20DF2023532
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57249.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9C3FC45463C62CF4A13230226720F0C2C88947E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57250.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Adobe Acrobat Pro 2024.002.20736 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57251.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57252.jpg" />
 </div>
 
 

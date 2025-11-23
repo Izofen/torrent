@@ -1,3 +1,75 @@
+###  Публикация: 467828   (82164) от 14.03.2012
+
+UralSOFT | Курс по WPI [2011] [ISO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный видеокурс предназначен для тех,кто хочет научиться делать и редактировать WPI.Объясняется всё простым и доступным языком.В курсе приведены примеры как изменить уже имеющиеся сборники WPI,удалить не нужные программы,"заточить" под себя WPI.2011Жанр: ОбучениеФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513274D6F2DF45125F570E292AAB48EEFADA1626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467756   (82167) от 14.03.2012
+
+Азамат Ушанов | 7-дневный план продажи информации с нуля [2011] [unpacked]
+
+>>Мультимедийные материалы
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хороший видеокурс от Азамата Ушанова для тех кто видит свое будущее в работе и получении прибыли от создания собственных видеокурсов. До получения первых дивидендов с момента изучения курса вам осталось ждать всего лишь одну неделю, наберитесь терпения и приступайте к внимательному изучению, быть может это ваша стезя к будущему процветанию. Видеоуроки подойдут даже тем кто вообще не имеет минимального представления о работе с информационными технологиями. Присоединяйтесь к приносящему великолепный результат делу - продаже инфопродуктов.2011Жанр: ОбучениеФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632074DBE37609E7F3337FB98286A3B992BA8B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467392   (82170) от 14.03.2012
+
+[Maps] 2781 карта для Starcraft Brood War [Ru/En] 1998
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82170.jpg" />
+</div>
+
+
+###  Подробнее
+
+2781 карта типа UMS (Use Map Settings) для Starcraft Brood War!Тип издания: MapsЖанр: StrategyЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A208B1F2174C97ADAC786846425BBC4827FFCF22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466315   (82174) от 14.03.2012
 
 Настоящие монстры /  Real Monsters (1994-1997) TVRip (Сезони 1-4) [UKR]
@@ -6,7 +78,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82174.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:EFEDEFF550D894B7DD0B49E1A4222B8A7D720FD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82175.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:58DC2D51C343BE8B4306F33D12AEEAE7DD3D53F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82176.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ ArcSoft Perfect365 1.1.0.1 [Английский + русификатор]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82177.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ Guadalinex 8 [i386] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82180.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:7FC937AA47EA8B836C43A7A2A216F0D41579205E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82181.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ Nitro PDF Professional 7.3.1.1 (x86x64) [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82185.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Nitro PDF Pro - необходимый набор утилит для созда
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82187.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:7780D6798CEC3DBCD41EFBBC40F11684D7220566
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82188.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ VA - Oldschool Hardcore Top 100 - Megamix vol.2 2CD (2012) [MP3|~257 кб/с]<Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82190.jpg" />
 </div>
 
 
@@ -265,7 +337,7 @@ magnet:?xt=urn:btih:1616D72047D56E1F9E295180D827EFCE80C72048
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82191.jpg" />
 </div>
 
 
@@ -293,7 +365,7 @@ Al Di Meola - Original Album Classics [5 CD Boxset] (2010) [MP3|320 kbps]<Jazz, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82193.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:23D5A37C53C7DEDB9AD340F79353D2DFFF9B08AB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82194.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82195.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:55C14D67B1100B2BE7131F9FCB26D002FEC8C810
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82200.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ magnet:?xt=urn:btih:55C14D67B1100B2BE7131F9FCB26D002FEC8C810
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82201.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:3540E05949471D643C9316D7D14DF8F2842790FE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82203.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:3540E05949471D643C9316D7D14DF8F2842790FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82204.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:FA509F1797067DABA8B28C80EC32C7269B7F9EA3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82206.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:FA509F1797067DABA8B28C80EC32C7269B7F9EA3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82208.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:71A53878A184F8CBE82F22F8D26FA83D9F7FD069
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82209.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ VA - Zumba Dance 2011 (2011) [MP3|~ 256 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82210.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82217.jpg" />
 </div>
 
 
@@ -586,97 +658,6 @@ magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB4A16DA51FD94B6BD0293F3E91A1F5B0E97C03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468041   (82218) от 15.03.2012
-
-[Картинки] Фото знаменитости/Тина Канделаки
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тинати́н (Ти́на) Ги́виевна Кандела́ки (груз. თინათინ კანდელაკი);
-10 ноября 1975, Тбилиси — российская журналистка, телеведущая, продюсер и общественный деятель. Совладелец компании «Апостол Медиа».
-Отец — Гиви Шалвович Канделаки (1942 — 1 мая 2009), из рода Канделаки — дворянского грузинского рода греческого происхождения. По профессии — экономист, работал директором овощной базы в Тбилиси, после выхода на пенсию жил с супругой в Москве. Мать Тины — Эльвира Георгиевна Канделаки (д. Алахвердова) — армянка или наполовину армянка, наполовину турчанка, бывший тбилисский врач-нарколог.
-Тина окончила 64-ю среднюю школу для детей военных в центре Тбилиси. В 1993 году поступила на медицинский факультет Тбилисского государственного университета, но вскоре, оставив медицину, поступила на факультет журналистики.
-В 2008 году окончила факультет международных отношений РГГУ.
-Работала на радиостанции «Радио 105» (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FD1B99362F80D94A91A0FA3A0B273B1CBF1EC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467464   (82222) от 15.03.2012
-
-[Картинки] Фото знаменитости/Группа Reflex и Ирина Нельсон
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reflex — популярная российская поп-группа, обладатель 17 национальных музыкальных премий.
-    1999 — певица Ирина Нельсон (ранее выступавшая под сценическим именем Диана), заканчивая свою сольную карьеру, вернулась из Германии.
-    2000 — продюсер Ирины Нельсон Вячеслав Тюрин начал кастинг молодых артистов, которые смогли бы вместе с Ириной стать лицом новой команды. В группе появились Ольга Кошелева (танцовщица и бэк-вокал) и Денис Давидовский (танцор).Вышел дебютный сингл группы под названием «Дальний свет» штурмом взявший вершину хит-парада радиостанции «Европа Плюс»
-    2001 — У группы выходит дебютный альбом «Встречай новый день».В этом же году к группе приходит настоящая известность с композицией «Сойти с ума», чуть ли не за неделю поднявшейся до первого места в хит-параде «Русского радио» «Золотой граммофон».
-    2002 — в группу приходит Григорий Розов (DJ Silver). Из группы уходят Ольга (из-за учёбы) и Денис (ушёл служить в армию). Позже в группу приходит Алёна Торганова(танцовщица и бэк-вокал).
-    2003 — Этот год стал для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5E3028DF2A06ABA8D5759BC7C20525764F8F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468415   (82224) от 15.03.2012
-
-The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Violet Nude Women (3:27)
-2. They Say / Shangrila (Feat. Tay Walker) (4:48)
-3. She DGAF (3:28)
-4. Cunt (2:19)
-5. Cocaine / Tevie (Feat. Left Brain) (4:32)
-6. Ode To A Dream (Feat. Kilo Kish & Coco O.) (4:09)
-7. Gurl (Feat. Pyramid Vritra) (2:51)
-8. Love Song – 1 (1:29)
-9. Lincoln (Feat. Mike G & Left Brain) (2:08)
-10. Web Of Me (2:48)(   Читать дальше...   )2012Жанр: Electronic, Funk, Trip-HopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 

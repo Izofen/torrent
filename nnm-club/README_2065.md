@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF421974ED75F353E5A800D13C211ED1D983C361
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AA8F6CD8931EEC2023AB9A0FB333A87F9199D7F0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KiCad 8.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:329EEC499D8DB0875D55E284DB51B48E9CA286DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54059.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ FolderSizes 9.6.488 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54060.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:64EC4D12D952A610B1A54213234AB23547666975
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54061.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Roger Berry | From Words to Grammar (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54062.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Константин Ступин. Трибьют. Часть 1 (2024) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54063.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:05B6A094805418B259A70505A53D7906D95778FB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54064.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FocusWriter 1.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54065.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1E2C66D786CD410901ECB9F476AF9D43200039AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54066.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54067.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54068.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:55685525BA15AB85EDFFF9B902FFF8A39902F725
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54069.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:284EACDFF587E217C59AF14BE69D3AE3A3792077
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54070.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:5E4A08790C849BDA0D0ED5791D72103BED44E1BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54071.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:706DE80BE2DD3D5C9C2D295E70ADD829AA6D220C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54072.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9A569714D72FCC6049AEE903CFE8E87191556572
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54073.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:0D6C2032AD46DC8B47848B4582E8030393716803
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54074.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54075.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54076.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54077.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7B58BB4EFB3A10704BDBEBE5EA5D4E1283480256
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54078.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - The Mysterious music of the World (2024) vol.2 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54079.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:BA6B1E6EA918C661A3106358E31DDF860EB1B662
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54080.jpg" />
 </div>
 
 

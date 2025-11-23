@@ -6,7 +6,7 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159036.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159258.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159284.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159288.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sarah Brightman - Diva : The Singles Collection (2006) [OGG Vorbis|480 Kbps] <Mo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159330.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gene Ferrari And The Disco Roma Band - Disco Italiano (1978) LP [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159334.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Winter Chill 2023 (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159365.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159632.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159637.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159743.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Broken Beat & Nu Disco The Best Of (2022) CD, Compilation [MP3|320 Kbps] <S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159857.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160070.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160263.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Very Best of Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160577.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160635.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160637.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160641.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160646.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C0C810E63242815CDF924C294C2D7D63A22F567F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160711.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:58BB951AF557CC5F4EB4151EFEAABA95EBD018AF
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160718.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:8727C2ADC2E8AACA4AB94002200F2F63BB420B84
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160723.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160730.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160852.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Сделано в С.С.С.Р. 10xCD (2007-2010) [FLAC|Lossless] <Retro, Po
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160881.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ V. A. - Russian Collection (Лучшие Песни 1969-89) Vol. 3-6 (1995-1997
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160891.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:66E78C2D4DC0567FF96F8FEE2B13C947E26F0E62
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160897.jpg" />
 </div>
 
 

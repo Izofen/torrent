@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10339.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10346.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BE6A44AD54525F3CFAD6C217A387976626D04422
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10351.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ StaxRip 2.48.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10361.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Telegram Desktop 5.16.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10373.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ MassTube Ultra 20.1.6.140 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10378.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:38E468C51A57A2CAFF8D55DA0E346B08979C6155
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10380.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ IObit Driver Booster Pro 12.6.0.620 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10386.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Wise Disk Cleaner 11.2.5.845 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10391.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ SplitCam 10.8.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10394.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CPU Temp 1.7.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10403.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Revo Registry Cleaner Pro 1.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10405.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ ByeByeDPI v1.6.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10419.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adguard 7.21.0 (7.21.5079.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10422.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ K-Lite Codec Pack 19.1.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10431.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:82D90FB33354F46ACA43B326B55793F6132A7CC2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10446.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ GPU-Z 2.67.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10460.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Strava: бег, велоезда, хайкинг v421.4 Mod by PieMods [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10464.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Purvpn 8.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10487.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Smart AudioBook Player Pro v11.5.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10488.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ YT Downloader 9.12.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10490.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ TVGuide v4.5.30 Premium Mod by Alex.Strannik [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10493.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Kdenlive 25.04.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10494.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PictureThis - Plant Identification v5.8.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10497.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Process Lasso Pro 16.0.0.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10500.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ RustDesk 1.4.1 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10509.jpg" />
 </div>
 
 

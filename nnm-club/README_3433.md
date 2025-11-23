@@ -1,3 +1,80 @@
+###  Публикация: 1725644   (108940) от 25.05.2024
+
+Живая еда с Сергеем Малозёмовым (25.05.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как выбрать еду в придорожных кафе и избежать неприятных сюрпризов? Какая еда не испортится в пути, получится ли питаться правильно в автопутешествии с детьми и какие гаджеты могут помочь?
+ Пять рецептов маринада для шашлыка! Какой из них сделает мясо вкуснее, а какой — испортит? Команда программы раскрыла секрет идеального маринада от ученых.
+ Гранатовый сок: есть (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4A20FFF05B46B669119AC131B0CFC74CC3FFF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725588   (108941) от 25.05.2024
+
+Монеточка - Молитвы. Анекдоты. Тосты. (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это было в России
+2. Остановилось
+3. Заново
+4. Монополия(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA22310FABD50F17533C6921640F49618CA6EBAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725685   (108942) от 25.05.2024
+
+O&O DiskImage Professional 19.1 Build 137 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108942.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DAF758DE2472CC624C0C0C0B44DBDADC2653B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725613   (108943) от 25.05.2024
 
 Pet Shop Boys - Furthermore (New version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth Pop>
@@ -6,7 +83,7 @@ Pet Shop Boys - Furthermore (New version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108943.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ MyFitnessPal: Счетчик калорий 24.18.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108944.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ VA - Радио новинки 2024, Часть 3 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108945.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ magnet:?xt=urn:btih:341144F217B74A10F12856E90AA3C7B7F1952880
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108946.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:D12792A0D17144D10E414FCAB96F9EB673AAEE9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108947.jpg" />
 </div>
 
 
@@ -134,7 +211,7 @@ The Beach Boys - The Beach Boys: Music From The Documentary (2024) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108948.jpg" />
 </div>
 
 
@@ -161,7 +238,7 @@ FBackup 9.9.911 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108949.jpg" />
 </div>
 
 
@@ -185,7 +262,7 @@ magnet:?xt=urn:btih:337CF50974CD2878A7C816FFCDFDAF098617BB4D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108950.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ magnet:?xt=urn:btih:68DDD0FB0B65C7EA5D78111BCA26E75E48B72B87
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108951.jpg" />
 </div>
 
 
@@ -235,7 +312,7 @@ n7player Music Player 3.2.10-3002010 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108952.jpg" />
 </div>
 
 
@@ -259,7 +336,7 @@ Calibre 7.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108953.jpg" />
 </div>
 
 
@@ -283,7 +360,7 @@ Sensual Lounge Music Universe - Jazz Saxophone for Sex (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108954.jpg" />
 </div>
 
 
@@ -310,7 +387,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 1 (2021) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108955.jpg" />
 </div>
 
 
@@ -337,7 +414,7 @@ VA - Ibiza Deep House Megamix 2024 (2024) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108956.jpg" />
 </div>
 
 
@@ -364,7 +441,7 @@ Sun of Sensei - S.O.S. (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108957.jpg" />
 </div>
 
 
@@ -391,7 +468,7 @@ VA - Русская 30 хитов (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108958.jpg" />
 </div>
 
 
@@ -418,7 +495,7 @@ magnet:?xt=urn:btih:D0A82273E284C89140D67A990B4EC182B04DC554
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108959.jpg" />
 </div>
 
 
@@ -442,7 +519,7 @@ Soul Browser 1.4.22 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108960.jpg" />
 </div>
 
 
@@ -466,7 +543,7 @@ Topaz Gigapixel AI 7.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108961.jpg" />
 </div>
 
 
@@ -491,7 +568,7 @@ Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108962.jpg" />
 </div>
 
 
@@ -518,7 +595,7 @@ magnet:?xt=urn:btih:F0141776ABF7BB1827A9A7E9F7D7E2FC8D7105C9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108963.jpg" />
 </div>
 
 
@@ -543,7 +620,7 @@ Sandra N. Elbaum | Grammar in Context 3 (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108964.jpg" />
 </div>
 
 
@@ -568,7 +645,7 @@ magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108965.jpg" />
 </div>
 
 
@@ -579,80 +656,6 @@ magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A4A836B59F538DA20B84DC1B1C02AE811FDDEA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725584   (108966) от 25.05.2024
-
-Заклятье. Мертвые воды / Mulgwisin (2023) WEB-DLRip [звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108966.jpg" />
-</div>
-
-
-###  Подробнее
-
-По древнему преданию вода в проклятом озере отделяет потусторонний мир от нашего. Демон из потустороннего мира хочет вселиться в сестру девушки, чтобы разорвать границу миров. Если это произойдет, ее душа навсегда останется в царстве мертвых.Производство: Корея ЮжнаяЖанр: ужасыРежиссер: Лим Джи-хунАктеры: Пак Сон-хе, Пак Ран, Юн И-рэ, Щин Дон-нёкПеревод: Профессиональный (многоголосый) (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:44Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0182C2FEF1741572D2D17851AF7DB133DD227A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725741   (108967) от 25.05.2024
-
-Telegram Desktop 5.0.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AC93545C3768FD2BD5713185D077716926077F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725593   (108968) от 25.05.2024
-
-Rosetta Stone: Изучение языков v8.25.1 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему приложение Rosetta Stone? Потому что лучший способ выучить новый язык — окружить себя им, и метод Dynamic Immersion® от Rosetta Stone делает именно это. Интерактивные и контекстуальные уроки сочетаются с функциями расширенного обучения, которые буквально у вас под рукой — в любое время, в любом месте и на любом устройстве; онлайн или оффлайн и совершенно без (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.05.2024Разработчик: Rosetta Stone LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3469C7092E40766F5CEBEBCB09AFB38AEE886C
 ```
 
 

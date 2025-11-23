@@ -1,3 +1,27 @@
+###  Публикация: 590510   (139278) от 18.12.2012
+
+Benvista PhotoZoom Pro 5.0.4 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139278.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии не переживая о потере качества. PhotoZoom Professional - это крайне необходимая программа для увеличения цифровых изображений, используемых для DTP, Internet и цифрового фото. Программа имеет мультиязычный интерфейс, включая Русский.Название программы: Benvista PhotoZoom ProЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679198   (139294) от 24.11.2023
 
 Total Commander 11.02 (23.11.2023) Portable by MiG [Ru/En]
@@ -6,7 +30,7 @@ Total Commander 11.02 (23.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139294.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ Chromium 73.0.3654.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139299.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ Psiphon 3 build 180 (23.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139303.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:D925EC525B9AFD869374022844301C7CDDFDFAAC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139319.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:FD6ECE2AB741046F26889F4A3C915673FD5BCA15
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139321.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.0 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139323.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ magnet:?xt=urn:btih:C3E6402B614EB9BFE69EFFBF3CD6B0B855F6A4F6
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139338.jpg" />
 </div>
 
 
@@ -172,6 +196,30 @@ magnet:?xt=urn:btih:FC05425572AD0DB6245C70ACA02631AC201F6E1A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590524   (139348) от 18.12.2012
+
+Benvista PhotoZoom Pro 5.0.4 RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_139348.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoZoom Professional - программа является лучшей из имеющихся технологий для увеличения цифровых фотографий! Фирменная технология масштабирования S-Spline, используемая в PhotoZoom Professional, основана на запатентованной адаптивной методике, которую можно отнести к категории революционных. Сохраните качество Ваших снимков! Теперь Вы сможете увеличивать Ваши фотографии не переживая о потере качества. PhotoZoom Professional - это крайне необходимая программа для увеличения цифровых изображений, используемых для DTP, Internet и цифрового фото. Программа имеет мультиязычный интерфейс, включая Русский.Название программы: Benvista PhotoZoom ProЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195610   (139352) от 30.12.2017
 
 AV Uninstall Tools Pack 2017.12  [Ru/En]
@@ -180,7 +228,7 @@ AV Uninstall Tools Pack 2017.12  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139352.jpg" />
 </div>
 
 
@@ -204,7 +252,7 @@ Permute 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139362.jpg" />
 </div>
 
 
@@ -229,7 +277,7 @@ MediaHuman YouTube Downloader 3.9.9.30 (2912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139374.jpg" />
 </div>
 
 
@@ -253,7 +301,7 @@ Slimjet 21.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139387.jpg" />
 </div>
 
 
@@ -277,7 +325,7 @@ DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139414.jpg" />
 </div>
 
 
@@ -301,7 +349,7 @@ Aerosmith - Music from Another Dimension! (2012) [FLAC 2.0 24/192|image (Vinyl-R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139421.jpg" />
 </div>
 
 
@@ -328,7 +376,7 @@ KMPlayer 2023.11.24.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139422.jpg" />
 </div>
 
 
@@ -352,7 +400,7 @@ ClipGrab 3.8.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139435.jpg" />
 </div>
 
 
@@ -376,7 +424,7 @@ magnet:?xt=urn:btih:E64DF1063477EFC86D2252088FED32E9E126C70E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139453.jpg" />
 </div>
 
 
@@ -400,7 +448,7 @@ magnet:?xt=urn:btih:02B10A93F060ADB0B367E6D956232B5B6CE945F5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139459.jpg" />
 </div>
 
 
@@ -425,7 +473,7 @@ Amadine 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139467.jpg" />
 </div>
 
 
@@ -450,7 +498,7 @@ John Todd | Подкасты (1968-1983) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139476.jpg" />
 </div>
 
 
@@ -477,7 +525,7 @@ magnet:?xt=urn:btih:FB6D63B1295751A1B0DF3FDC8705978797CE59A5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139481.jpg" />
 </div>
 
 
@@ -501,7 +549,7 @@ magnet:?xt=urn:btih:FB6D63B1295751A1B0DF3FDC8705978797CE59A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139482.jpg" />
 </div>
 
 
@@ -525,7 +573,7 @@ magnet:?xt=urn:btih:6C8D574D54620F7B589771DF234B567CC2F5DC07
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139483.jpg" />
 </div>
 
 
@@ -549,7 +597,7 @@ Soulver 3 v3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139488.jpg" />
 </div>
 
 
@@ -574,7 +622,7 @@ Media Player Classic Home Cinema 1.9.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139498.jpg" />
 </div>
 
 
@@ -585,63 +633,6 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2045ADEC03AA07848D4807DA5E7CA0C80A5F1506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591091   (139505) от 18.12.2012
-
-Рисованная графика - Horror art от Habibity Nickerson
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Habibity Nickerson.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9038D1380E5B2BB917B170CB7A15DD254DEB8F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590277   (139512) от 18.12.2012
-
-VA - Russian рэп Vol. 4 (2012) [MP3|256 кб/с]<Rap,Hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rzn - One Life
-002. Каста - Встреча
-003. Руставели - Песня О Друге
-004. Lala By Babes Feat. Slem - Ангелы
-005. Мезза - Язва
-006. Верный - Кто, Если Не Мы
-007. Правый Берегъ - Двойные Стандарты
-008. Guf - Сто Строк
-009. The Chemodan - Это Высоко
-010. Западный Сектор - Город(   Читать дальше...   )Жанр: Rap,Hip-hopПродолжительность: 06:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1794334DB3A218BE41B094263BCAC11D05738B3
 ```
 
 

@@ -6,7 +6,7 @@ Moon+ Reader Pro v10.1 (b1001001) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8814.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PPlayer v1.32 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.2_92.3d163d7) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8816.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AC49F57FCF26B9ACE62C723F9F1AADAA03BD7888
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8817.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7A057F040BC79BE9928455C7F483551C22C0C40A
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8818.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:15D3B6FAC5368D01623DFC7EF957730B5B64BCF6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8819.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7CD65645A203B372AE82849934864F9022529C5E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8820.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A5E36CA633923135DE783000908F6F59CFBE2403
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8821.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8822.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:78672136300D151047F02C20878C2D0A0E780EA0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8823.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4BADD64A5C8007446C0E4005C960D36B7E65FABF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8824.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:389BBDB6B18A9834CFFC802B5AD52CC11F768FD1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8825.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.6 Stable + Portable + Standalo
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8826.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:33829809860CFF224B6771C10163FA6F34D4D825
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8827.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FBReader Premium v3.8.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8828.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Aiseesoft FoneLab for Android 5.1.12 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8829.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8830.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:63FEBF0E1DC63CF223A7EC1A1860AE512C1ED9D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8831.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:0487115E4A80CE8150197F8A85283A405FE2E5B0
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8832.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A39B41460EBFD4605EB016B0BD7B08857EB069C0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8833.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8834.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Yomi 2 (2023) [Ru/Multi] (2841/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8835.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8836.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8837.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MediaHuman YouTube Downloader 3.9.16 (0708) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8838.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ The Count of Monte Clicker (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8839.jpg" />
 </div>
 
 

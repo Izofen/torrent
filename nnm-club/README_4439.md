@@ -1,3 +1,83 @@
+###  Публикация: 1436340   (137281) от 31.12.2020
+
+Векторный клипарт - Merry Christmas Santa Claus elements and themed painted flat illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+19 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBECEFE492A447AFF1062364454EA776795D7988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601463   (137282) от 31.12.2022
+
+Борис Гребенщиков - Песни Бардов (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Элегия
+2. Примета
+3. Песенка о Солдатских Сапогах
+4. Неистов и Упрям(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25273673E8FC0544B3165E9BFC1F5C8C7C90121D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088563   (137283) от 31.12.2016
+
+VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
+02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
+03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
+04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679382   (137284) от 25.11.2023
 
 Тегеран-43 (1980) DVDRip [H.264/1080p] (2 серии) [Handmade Upscale AI]
@@ -6,7 +86,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137284.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:07E116B1D7472FD5D6205A2ABC7CB246CE15CA9A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137285.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ KMS Tools Portable 31.12.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137286.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ magnet:?xt=urn:btih:0961F7BC60F216F55FCE7799CC34B1274BBF7BB7
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137287.jpg" />
 </div>
 
 
@@ -102,7 +182,7 @@ Ant Download Manager Pro 2.9.1 Build 83632 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137288.jpg" />
 </div>
 
 
@@ -126,7 +206,7 @@ magnet:?xt=urn:btih:A2064E99B875A94A9B2672663A2D05F9CE150476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137289.jpg" />
 </div>
 
 
@@ -150,7 +230,7 @@ magnet:?xt=urn:btih:FB51C90C3BFE99B7BDAEECA3503B1D20C6F34834
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137290.jpg" />
 </div>
 
 
@@ -174,7 +254,7 @@ magnet:?xt=urn:btih:A19486277E74AC0B14EE16E6571B563AD79B4B7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137292.jpg" />
 </div>
 
 
@@ -200,7 +280,7 @@ magnet:?xt=urn:btih:A9CBDC717CB689C6B88204936A2C238F0C692DF5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137293.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137294.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ magnet:?xt=urn:btih:23D02EF1BE30C0BEB76A688FCAE309C211D3CC0A
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137295.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ magnet:?xt=urn:btih:0559A32819D8FC2A2F639EB21D414DFAC2EDAD12
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137296.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ magnet:?xt=urn:btih:925C8C80C8422FBB616BCBC981DCA9CEEFE1F026
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137297.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ magnet:?xt=urn:btih:2BE1423053690DE9A95F4BD618E5350A98A5DC71
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137298.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ magnet:?xt=urn:btih:D2D8F3B3E3F5281DCB66462FBA5D5F7D4738DB46
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137299.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ magnet:?xt=urn:btih:BC5B8EFA490195B0C2E0D980DD39FB7B1B89BFC5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137300.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ magnet:?xt=urn:btih:3EC78CD1959E11258B2BAFE7A137FA236D0834FA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137301.jpg" />
 </div>
 
 
@@ -421,7 +501,7 @@ magnet:?xt=urn:btih:6922C6E04F26D444659EE6ED5C11B325CF9C51FE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137302.jpg" />
 </div>
 
 
@@ -445,7 +525,7 @@ magnet:?xt=urn:btih:61ED8E7ECBDEC91C66D2365498492C0B812FAFE4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137303.jpg" />
 </div>
 
 
@@ -469,7 +549,7 @@ magnet:?xt=urn:btih:0105B953FA5A82F6A3B8F9A6344C981ECFC05AFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137304.jpg" />
 </div>
 
 
@@ -493,7 +573,7 @@ DriverPack Solution 16.12 + Драйвер-Паки 16.12.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137305.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ magnet:?xt=urn:btih:5D37CF884328B3580EF9E282C2664A5F2E2FFF43
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137306.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ magnet:?xt=urn:btih:3DC70F6EA6A408DB1E79121B869C931535637820
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137307.jpg" />
 </div>
 
 
@@ -553,78 +633,6 @@ magnet:?xt=urn:btih:3DC70F6EA6A408DB1E79121B869C931535637820
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADCFC1D09CA4D0DAE30CB689451D16A0BB1441A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349327   (137308) от 31.12.2019
-
-Земля обетованная / La Terra Buona (2018) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть место на земле, где ты обретаешь всё о чем мечтаешь. Где люди улыбаются. Где дети свободны. Где каждый восход солнца всё ещё трогает до глубины души. Где друг - всё еще ценен. Где твоя жизнь может быть другой.Производство: Италия / Obiettivo CinemaЖанр: ДрамаРежиссер: Эмануэле КарузоАктеры: Фабрицио Ферракане, Лоренцо Педротти, Виола Сарторетто, Кристиан Ди Санте, Джулио Броджи, Орфео Орландо, Маттиа Сбраджа, Серджио Альбелли, Паоло Манассеро, Стефано ЭйралеПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:38:47Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C01006BBAE32390CBE526A2D8CA9A4645E83BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273188   (137309) от 31.12.2018
-
-Daum PotPlayer 1.7.16291 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DC9E4E2F9966EA82B28ADC9990236693BE41E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520892   (137310) от 31.12.2021
-
-Мажоры на мели / Pourris gates (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер в Монако устал от капризов собственных детей и решает преподать им урок. Он объявляет, что стал банкротом. Теперь избалованным отпрыскам придётся делать то, что они никогда не делали: пойти работать, научиться любить и ценить жизнь.Производство: Франция / Borsalino Productions, TF1 Studio, TF1 Films ProductionЖанр: КомедияРежиссер: Николя КюшАктеры: Жерар Жюньо, Камилль Лу, Виктор Артус Соларо, Лука Мельява, Том Либ, Франсуа Морель, Франк Адриен, Фабьен Ара, Элеа Клэр, Колетт КраффПеревод: Дублированный (iTunes)Субтитры: Русские (full) - отдельноПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B4D33DA619E1507C3A216225DCBA9CB59AB00B
 ```
 
 

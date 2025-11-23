@@ -6,7 +6,7 @@ Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:713EB98420AC447E4CF0C4FC4E8DE1A5A9C98656
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48820.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48821.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0FD76A7A8BBFB8E9001B4DB4361DC034DEF63491
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48822.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Audition 2024 (24.4.1.3) Portable by XpucT [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48823.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48824.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8FBA194E10452FCAC950FE68092E7156A187A569
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48825.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8FBA194E10452FCAC950FE68092E7156A187A569
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48826.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48827.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:2AD8893E9EAB917BB7F649607B3499C30D063910
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48828.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:4DC74C49A17A7636073D38B263A3B4AD427011B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48829.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B19ABD44494AF63E89820A5450556785F157936B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48830.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - 80's-90's Beach Party (2024) 2CD [MP3|320 Kbps] <Pop, Rock, Electro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48831.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ray Charles Live: In Concert with the Edmonton Symphony (19.09.2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48832.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B5F62803628E9B3BE0040AAB31B9C9B635E4F4ED
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48833.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:4CE313FD43FBE002E163BE6F8DEB1AEA0C1AD463
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48834.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:4DC39D30F6C0FD8F70F6B8E395FFF2352A8E7236
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48835.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:4DC39D30F6C0FD8F70F6B8E395FFF2352A8E7236
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48836.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4DC39D30F6C0FD8F70F6B8E395FFF2352A8E7236
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48837.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:47CD488F5DDA30DE49DB5D357BF750ECDA454476
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48838.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:47CD488F5DDA30DE49DB5D357BF750ECDA454476
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48839.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:FBAFC895142A4734CC2CEBF91E2B51055914F458
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48840.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 (25.07.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48841.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:1FA549B22199456A265D40824D31847FF18A5557
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48842.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A8420092B7C70D1F22E799E01C6B84A4FEA74CB0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48843.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:FAACC0AA7C0186F0DDDEAC5176CF56AD36326402
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48844.jpg" />
 </div>
 
 

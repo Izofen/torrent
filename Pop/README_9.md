@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32935.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F6D71E0828C817CF3F3CC3D9496088B183E546B9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33036.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Yuri Sosnin - Night Disco (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33038.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5A35D094C0E7A4C6C68136CDB4396A7D23890F1A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33230.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33548.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DD6D640888DC186C85CFBDF2F052523C72EC7098
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33561.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:50E81E7912BC1E93803A7F0A2F2952E46956F953
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33784.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Emin - Верни мне музыку (памяти Муслима Магома�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33785.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33789.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33807.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 10s Hits - Best 10s Music (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33865.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 10's Nostalgia Best from the Tens (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33871.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Игорь Крутой - 70 (трибьют-альбом) (2024) [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34188.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Ed
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34402.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34403.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Roxette - ROX RMX (2024) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34432.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A00E22D364F1586EA0983A0D241B11CBFA81EF25
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34502.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Kylie Minogue - Tension II (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34629.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, Remastered
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34682.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ GAYAZOV$ BROTHER$ - Ночная жизнь (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34998.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Roxette - Crash! Boom! Bang! (1994) 30th Anniversary Edition, Reissue, 2024, War
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35010.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Greatest Love Songs (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35298.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35300.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35302.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Mflex Sounds - Flashback Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35307.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35405.jpg" />
 </div>
 
 

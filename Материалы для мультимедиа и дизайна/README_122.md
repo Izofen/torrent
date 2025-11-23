@@ -1,3 +1,149 @@
+###  Публикация: 1601559   (211126) от 01.01.2023
+
+Векторный клипарт - Cartoon Character Rabbit [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор векторных новогодних зайчиков
+7 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88D2781295A0E1C3443BBB8B20DB02B4759BCAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601577   (211149) от 01.01.2023
+
+3D print - Keqing [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нрав и взгляды Кэ Цин многим могут не понравится. Но она парирует их аргументы с той же легкостью как расправится со Стражем руин. Этот персонаж хорош как в нанесении физического так и электро урона. А ее потрясающий в плане красоты Взрыв стихии не оставит никого равнодушным. Если в вашем отряде не хватает немного электричества то она та кто вам нужен.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB2D8D8D1D2800F34BD4EB682A3807C21672FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601722   (211155) от 01.01.2023
+
+Растровый клипарт - Super Wings [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 288x250-3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C251E696D3D89E2225E7B436D3AC4F2DE2426053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567632   (211244) от 03.08.2022
+
+Растровый клипарт - GraphicRiver - ArtBox - Artistic Mockup Kit - 12147534 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211244.jpg" />
+</div>
+
+
+###  Подробнее
+
+ArtBox - Небольшой набор для художников.Формат: PSDРазрешение файлов: 6305x2011-9329x7573
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD24EC09B9870F8ED06420C6DBDE9256E228D00B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567215   (211429) от 01.08.2022
+
+Растровый клипарт - Design Cuts - Herbs & Spices – Isolated Food Items [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_211429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 110+ элементов, которые позволяют генерировать композиции кухонного стола. Высококачественные ресурсы с видом сверху: специи, травы, соусы, кухонные принадлежности и многое другое. Доступно в .PNG без фона и в .PSD форматах. Также в набор входят уже 4 готовых сцены.Формат: PNG, PSDРазрешение файлов: 332x1624-4000x3278
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BF68121600810255B8FED95634A5CED443B37B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639824   (211543) от 14.06.2023
+
+Растровый клипарт - Creative Market - Cake My Day! The Sweetest Scene Gen. - 4698853 [PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот макет и генератор сцен позволяет вам создать свою собственную оригинальную сцену или использовать наши готовые баннеры, посты в Instagram. Вы также можете просто перетаскивать элементы в Photoshop и создавать свою собственную сцену. Все элементы созданы на основе фотографий, в большом разрешении и отличного качества, что позволяет создавать действительно огромные (   Читать дальше...   )Формат: PSD, JPGРазрешение файлов: 1000x1000-5459x3198
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D76F5E110EBCA861A933135B61CCE3A343A29A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566637   (211589) от 30.07.2022
 
 Растровый клипарт - Creative Market - 1250+ Collage Elements Creator Kit - 6376017 [PNG, PSD, JPG]
@@ -6,7 +152,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211589.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211589.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212137.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212137.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ magnet:?xt=urn:btih:14AF83EDDC5DB987C7A262A2C638AEF1967C884F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212138.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212138.jpg" />
 </div>
 
 
@@ -80,7 +226,7 @@ magnet:?xt=urn:btih:0E58D89C6A2E2ED06D0C1E53A33E630942502659
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212176.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212176.jpg" />
 </div>
 
 
@@ -104,7 +250,7 @@ magnet:?xt=urn:btih:0A99E25BBEA524B6B1A7D30DE0D4BC37C2C9A6D3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212177.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212177.jpg" />
 </div>
 
 
@@ -130,7 +276,7 @@ Ui Kits - UI8 - FindWork - Job Finder App Ui Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212178.jpg" />
 </div>
 
 
@@ -154,7 +300,7 @@ magnet:?xt=urn:btih:DCCD37165EE5A2556D41AF1C1BDEDC36F45F4DF5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212206.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212206.jpg" />
 </div>
 
 
@@ -178,7 +324,7 @@ magnet:?xt=urn:btih:2540DE9292B0B989884E82FF084526560C2FD483
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212248.jpg" />
 </div>
 
 
@@ -202,7 +348,7 @@ magnet:?xt=urn:btih:03313F786DCB4D8D4CD257490C3EF48CD479A61D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212252.jpg" />
 </div>
 
 
@@ -226,7 +372,7 @@ magnet:?xt=urn:btih:55C6AB1CC681FD7779B82BFD8F5D0B197DD007C9
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212265.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212265.jpg" />
 </div>
 
 
@@ -253,7 +399,7 @@ magnet:?xt=urn:btih:57A96B5FC476F034232B7100FB895636F913982E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212437.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212437.jpg" />
 </div>
 
 
@@ -280,7 +426,7 @@ magnet:?xt=urn:btih:6917E22DD17E26C59681BE90A8802726B651CA24
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212439.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212439.jpg" />
 </div>
 
 
@@ -306,7 +452,7 @@ magnet:?xt=urn:btih:9A1EB00477BDAC6A5B7A0EDAA4B9370796946893
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212455.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212455.jpg" />
 </div>
 
 
@@ -330,7 +476,7 @@ magnet:?xt=urn:btih:F68D8366CCD658972C31F91A32A789DEE5A5DFBE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212461.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212461.jpg" />
 </div>
 
 
@@ -354,7 +500,7 @@ magnet:?xt=urn:btih:D86DA805DB24BEE702F6B1CB40DFE05FE62CFBF2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212465.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212465.jpg" />
 </div>
 
 
@@ -378,7 +524,7 @@ magnet:?xt=urn:btih:8200442A2A4A4734C429C5D72A4D95D7316092D4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212475.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212475.jpg" />
 </div>
 
 
@@ -402,7 +548,7 @@ magnet:?xt=urn:btih:D0F20E736E76F6BC9D24A0962479BAEF1EB72B48
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212477.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212477.jpg" />
 </div>
 
 
@@ -426,7 +572,7 @@ magnet:?xt=urn:btih:3D3D62B425F9F0809171E51028E565BCC4EEDCB8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212512.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212512.jpg" />
 </div>
 
 
@@ -450,7 +596,7 @@ magnet:?xt=urn:btih:25ED6EE55BDC01A3506A0A51F26978E136219CFC
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212533.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212533.jpg" />
 </div>
 
 
@@ -474,7 +620,7 @@ magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212535.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212535.jpg" />
 </div>
 
 
@@ -485,155 +631,6 @@ magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB2376BC270176941A53E3CB7F2C347BB2C3D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831110   (212537) от 28.10.2025
-
-Шрифты - Envato - Regaza - B3VBCGY [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Regaza — современный и аутентичный шрифт. Идеально подходит как для профессиональных, так и для брендинговых целей продукта.Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FA1979305D3E0F077B51EA041F9694A4E861C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831047   (212554) от 28.10.2025
-
-Шаблоны - UI8 - iPhone 17 Pro Mockup PSD - Orange Color [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите презентации своих проектов на новый уровень с нашим ярким мокапом iPhone 17 Pro в поразительном оранжевом оттенке. Этот мокап идеально подходит для демонстрации ваших приложений, дизайнов UI/UX и брендинговых проектов, добавив профессиональный штрих к вашему портфолио.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441D6884DFEF9A5246C09DBD81D82699843847DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831037   (212556) от 28.10.2025
-
-Шрифты - Envato - Bastion - X7RKVR8 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bastion — светлый шрифт без засечек, создающий элегантный и современный вид.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8149864DA43889E213CB247CAE171AA69CF1CB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831021   (212574) от 28.10.2025
-
-Шрифты - Creative Market - Stones Crush - Handrawn Grunge Font - 291786345 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212574.jpg" />
-</div>
-
-
-###  Подробнее
-
-STONES CRUSH — это нарисованный от руки шрифт с настоящим гранжевым эффектом, который придаст вашим творческим проектам аутентичный и нетронутый вид. Каждая буква прорисована вручную, скрывая естественные недостатки, что придаёт вашему дизайну смелость и мощь.
-
-Благодаря встроенным альтернативным вариантам вы можете создавать уникальные вариации букв для более динамичного (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4575727A654FB2E994ED1369ED32E19A3AB4B368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830989   (212576) от 28.10.2025
-
-Шрифты - Behance - Alexey Atapin - Ingenue - 237011255 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ingenue - это вариативный акцидентный шрифт, вдохновлённый растениями, деревьями и цветами. Включены расширенные латинские и кириллические глифы с цифрами и базовыми символами. Только заглавные буквы.
-Благодаря использованию контекстных альтернатив и лигатур буквы выглядят более естественно связанными, и слова превращаются в единый, цельный узор.
-Это вариативный (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAFC2595D12E080466CC00970F127E9F35C08DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830987   (212578) от 28.10.2025
-
-Шрифты - Sasha Pavljenko - Stieglitz SP [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stieglitz SP — узкий акцидентный шрифт с готическим духом и каллиграфическим изяществом, вдохновлённый надписью на памятнике барону Александру Штиглицу, созданной скульптором Яном Нойманном. Его вертикально вытянутые формы, чёткие засечки и мазки, напоминающие кисть, создают ощущение элегантности рукописной надписи.
-Шрифт сочетает в себе выразительность и удобочитаемость (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB08D72DD4578781F33CB9B3660EDD95CF7B132
 ```
 
 

@@ -6,7 +6,7 @@ Peter Murphy - Silver Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18931.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stereophonics - Make ‘em Laugh, Make ‘em Cry, Make ‘em Wait (2025) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19026.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eela Craig - One Niter (1976) Japanese Edition, Reissue, Remastered, 2009, Belle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19027.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Karg - Marodeur (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient Black Metal, Post-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19037.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Be Bop Deluxe - Modern Music (1976) Japanese Edition, Limited Edition, Reissue, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19143.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DFCCB142FEF3F8FE9FB72F6EA676EF6593A5299A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19263.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19368.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19369.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Iron Maiden - The First Ten Years I (1990) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19460.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8BC2213D9695A6000C1451BF80325F2D4592C664
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19548.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Flower Kings - Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19555.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eluveitie - Ànv (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19559.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Behölder (Beholder) - In the Temple of the Tyrant (2025) [MP3|320 Kbps] <Epic D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19561.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BC2BC081B3AE11CD2BA4ABEB8CDE03CDB08DFC24
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19583.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ In Flames - Used And Abused...In Live We Trust (2005) 2xCD, Reissue, Remastered,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19771.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5FF0DAC783740648BB76098AFA3582D00CAD5557
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19779.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:567D39D99640975EC8C1A92EB1C1946E16D3AEF1
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19988.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Machine Head - Unatøned (2025) [FLAC|Lossless|image + .cue] <Groove Metal / Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20165.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20165.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Seem Wild - The Great Gig at Heaven Pt1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20169.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20169.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Various - Metal Hammer Goes 90s (2017) Compilation [WavPack|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20173.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20173.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C42193EEC6B86BCC522FB29D10A7CC096DDD4EF0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20190.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20190.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20259.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Billy Idol - Dream Into It (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20263.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:61ADB96887F16D7CB0358EF2ED098811648E5810
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20272.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ T. Rex - Bolan B-Sides (2025) [MP3|320 Kbps] <Rock, Classic Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20275.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:FE1F7CAF9B373176730E0F4015AE4B2D8964FE68
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20296.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20296.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows Manager 2.1.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28797.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FC47308AF4976828CB96842F851A4CDB300CC7A9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28798.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E287B4F0E92395AA2543C60BCE0BC9B96485192E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28799.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Windows Manager 2.1.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28800.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ InnoExtractor Ultra 10.0.0.112 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28801.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28802.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:49D3C5F2C781E7B67E4E1BEAA4A251D68975B641
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28803.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Agisoft Metashape Professional 2.2.1 Build 20019 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28804.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CAE131D855E6231CC73010958CB661A5A8567C68
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28805.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4FC8BAE4B374119EA84D333C1147EC0985512492
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28806.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34438.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28807.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E07258AC894F094352B0F4F8C4B46F6630BF63D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28808.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5F8429F90BB47F58C540F3ED8E0A9F4C650643EC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28809.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:6276123424AB327B47262521C7D2915C5DBB1A0D
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28810.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ PDF-XChange PRO 10.5.1.394 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28811.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7F3C343A8B90FA8E20ED898BECE8503D501C47C3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28812.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:FD533DCB69D28DF936F570043EADBCC2FF42E09A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28813.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28814.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:8D008E2E70FEA38DDF50C56141156DE04E396246
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28815.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:260BC7F2011EC520584CCFDD2AA8920DF6F0FE0F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28816.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28816.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Microsoft  Visual C++ Runtimes AIO v0.86.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28817.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28817.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:309ED6286F780277143BFD9FE27FAEDF058569AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28818.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28818.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DC89B7F245E329120702A77428B380429E036783
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28819.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28819.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28820.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28820.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28821.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C89BCD95E9E5BC076DE78EFA27645958C5F0FFEC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28822.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28822.jpg" />
 </div>
 
 

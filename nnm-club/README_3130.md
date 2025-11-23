@@ -1,3 +1,75 @@
+###  Публикация: 487549   (100452) от 25.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (25.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2050
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487534   (100453) от 25.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487912   (100455) от 25.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487796   (100456) от 25.04.2012
 
 Журнал | Простые рецепты здоровья №4 [апрель 2012] [PDF]
@@ -6,7 +78,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100456.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100457.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100458.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100459.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100461.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ VA - Весенняя Атмосфера Танцевальная (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100462.jpg" />
 </div>
 
 
@@ -168,7 +240,7 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100464.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100466.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100468.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100470.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ Disfunktion - Snooki (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100471.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100474.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Wise Registry Cleaner 7.16 Build 454 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100478.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100480.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100481.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100483.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100485.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100490.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100491.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100492.jpg" />
 </div>
 
 
@@ -588,7 +660,7 @@ Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100493.jpg" />
 </div>
 
 
@@ -621,7 +693,7 @@ magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100494.jpg" />
 </div>
 
 
@@ -649,7 +721,7 @@ magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100495.jpg" />
 </div>
 
 
@@ -660,78 +732,6 @@ magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488481   (100497) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (27.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5440x4080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488677   (100499) от 26.04.2012
-
-Улетное видео по-русски. Новый сезон  (2012.04.25) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488078   (100500) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 2881х2048
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 ```
 
 

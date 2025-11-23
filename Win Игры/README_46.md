@@ -6,7 +6,7 @@ Adventures & Quests: The Black Crystal (2025) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13913.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13915.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Repack FitGirl [Comp
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13920.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13921.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13926.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13930.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (3028143/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13934.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13935.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13939.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thrive: Heavy Lies The Crown (2024) [Ru/Multi] (1.0.0203) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13946.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13955.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13958.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13960.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13961.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13964.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13967.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13999.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Viscerafest (2021) [Ru/Multi] (1.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14025.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Executive - Movie Industry Tycoon (2025) [Multi] (1.3.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14031.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14032.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Oirbo (2023) [En] (1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14044.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14052.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14073.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11166) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14074.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14084.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14091.jpg" />
 </div>
 
 

@@ -1,3 +1,177 @@
+###  Публикация: 1271705   (147604) от 25.12.2018
+
+Postbox 6 v6.1.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30CC83D4D78E990AF72E01124C82A3F5EF1973B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086385   (147605) от 26.12.2016
+
+Scanitto Pro 3.14 RePack (& Portable) by Trovel (Upd. 26.12.2016) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scanitto Pro - это легкое, быстрое и не перегруженное массой ненужных функций программное обеспечение для сканирования. Точная настройка параметров сканирования, копирование документов в один клик и сохранение документов в многостраничные PDF и TIFF файлы - это именно то, что постоянно нужно под руками пользователям сканера!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56423FA24E4A9A537C5C56A806754521139D3C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345482   (147606) от 24.12.2021
+
+Гранд тур / The Grand Tour (2019-2021) WEB-DL [H.264/720p] (сезон 4, серии 1-4 из ?) Jetvis Studio (обновляемая) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147606.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: Ток-шоу, АвтопередачаРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин Уайтхед, Брайан КлейнАктеры: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (Jetvis Studio)Субтитры: отсутствуютПродолжительность: 01:31:00 (одна серия)Реклама: присутствует аудиореклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B997703E534885A3E1166472A0510E3633C56D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347873   (147608) от 25.12.2019
+
+Coherence Pro 2.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coherence Pro позволяет вам легко превратить любой веб-сайт в мощное приложение на вашем Mac. Используя переработанный инструмент создания, вы можете быстро создавать приложение с помощью встроенной функции или использовать один из нескольких новых режимов приложений для дальнейшего расширения возможностей.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39F2BB3E6475514C57F5D56A04BA46C92464CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969429   (147609) от 27.12.2015
+
+Чудо техники (2015.12.27) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147609.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7193B96599B46A1C28717732BAA30CFFEAE065F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968631   (147610) от 27.12.2015
+
+Артем Пивоваров - Океан (2015) [MP3|192-320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нирвана
+02. Мы Молоды
+03. Океан
+04. Зависимы(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25166EC85B08CCB3A1BFB6757EF7CB78420D668F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347853   (147612) от 25.12.2019
+
+Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147612.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mud Bug [5:08]
+02. Sweet And Lovely [5:08]
+03. Apple Core [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271485   (147613) от 25.12.2018
 
 Ф. Кенэ | Избранные экономические произведения (1960) [DJVU]
@@ -6,7 +180,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147613.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147614.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147615.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:F269077398CC42DC04D22887229F26E419FDD805
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147616.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:A22C46D700608ED1FF0265E90AEC5399194F103C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147617.jpg" />
 </div>
 
 
@@ -126,7 +300,7 @@ magnet:?xt=urn:btih:B3DF352621CFAB54D85485F03E77F3C1E98910F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147618.jpg" />
 </div>
 
 
@@ -150,7 +324,7 @@ Animals as Leaders - The Madness of Many (2016) [FLAC|Lossless|image + .cue] <In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147619.jpg" />
 </div>
 
 
@@ -177,7 +351,7 @@ magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147620.jpg" />
 </div>
 
 
@@ -201,7 +375,7 @@ magnet:?xt=urn:btih:5135E275D6F413DC33FAED00DB7EDEFE07328414
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147621.jpg" />
 </div>
 
 
@@ -225,7 +399,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147622.jpg" />
 </div>
 
 
@@ -249,7 +423,7 @@ MotoGP. Этап 19. Гран-при Катара. Гонка (19.11.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147623.jpg" />
 </div>
 
 
@@ -273,7 +447,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147625.jpg" />
 </div>
 
 
@@ -299,7 +473,7 @@ magnet:?xt=urn:btih:7F390C7337DC1840065F3E8F1CD3C0AEE0F05C7C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147626.jpg" />
 </div>
 
 
@@ -323,7 +497,7 @@ magnet:?xt=urn:btih:7AD8FE6AEA9A9AA8DFA9178456936CAB17078B48
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147627.jpg" />
 </div>
 
 
@@ -348,7 +522,7 @@ magnet:?xt=urn:btih:B950AFF4C58CE4DF3B8CC053794E1EB7D1D25634
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147628.jpg" />
 </div>
 
 
@@ -372,7 +546,7 @@ Aiseesoft Screen Recorder 2.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147629.jpg" />
 </div>
 
 
@@ -396,7 +570,7 @@ magnet:?xt=urn:btih:6D6D33E8681F9E69E53F43F9754DE6C409907F68
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147631.jpg" />
 </div>
 
 
@@ -420,7 +594,7 @@ magnet:?xt=urn:btih:EAC4E12FDBB47CC39203E8089FDA0A0E1C0F064A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147632.jpg" />
 </div>
 
 
@@ -444,7 +618,7 @@ magnet:?xt=urn:btih:0F45536F3614A6A9AECEC660EBFC6EE0E656F789
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147633.jpg" />
 </div>
 
 
@@ -455,185 +629,6 @@ magnet:?xt=urn:btih:0F45536F3614A6A9AECEC660EBFC6EE0E656F789
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4561B43E6D71522E5782EDF082B381F9A3DC88E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271993   (147634) от 25.12.2018
-
-Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Love You
-02. To The Island
-03. Red Meat
-04. Getaway(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2896FBDAD1D9F498831477579C82F32685A6BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677798   (147635) от 20.11.2023
-
-Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Alternative Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Revival [4:26]
-02 - Deathless Endeavor [3:40]
-03 - Magnetism [4:11]
-04 - Skeleton Shuteye [3:42](   Читать дальше...   )Жанр: Metal, Alternative Metal, Progressive MetalПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424952   (147637) от 26.12.2020
-
-Последний король Шотландии / The Last King of Scotland (2006) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власть президента Уганды Иди Амина и его смелые решения сперва очаровали шотландского медика Гарригана, ставшего личным врачом диктатора. Но жестокий режим и кровавые преступления президента изменили отношение Гарригана к своему кумиру, и он всеми силами пытается повлиять на происходящее.Производство: Великобритания, Германия / Fox Searchlight Pictures, DNA Films, FilmFourЖанр: триллер, драма, биография, историяРежиссер: Кевин МакдональдАктеры: Форест Уитакер, Джеймс МакЭвой, Керри Вашингтон, Джиллиан Андерсон, Саймон МакБерни, Дэвид Ойелоуо, Стивен Рвангйези, Эбби Микииби Нкаага, Адам Котц, Барбара Рафферти, Сэм ОкелоПеревод: Дублированный, многоголосый, двухголосыйСубтитры: русские, английскиеПродолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C5DC3120988D2B7D2BCF4E855752F86938422E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271944   (147638) от 25.12.2018
-
-VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147638.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Discotron - Last Night A DJ Saved My Life (Original Mix) (06:35)
-02. Audio Jacker - Turn Up The Muzik (Original Mix) (07:13)
-03. Disko Junkie - House Is A Feeling (Original Mix) (05:11)(   Читать дальше...   )Жанр: Funk, Soul, DiiscoПродолжительность: 02:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969660   (147639) от 27.12.2015
-
-Елена Явецкая | Стихи к новому году (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима - это очень весёлое время года: можно кататься на коньках и на санках, играть в снежки, лепить снеговиков.
-Зимой мы отмечаем наш самый любимый праздник - с ёлкой, пирогами и пряниками. Ты можешь выучить стихи из этой книжки и прочитать их Деду Морозу.
-Для чтения взрослыми детям.Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F229BDD42814412DFFBCE2C5D519E6A4CD50BCE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911629   (147640) от 26.12.2016
-
-Дальнобойщики (2001 - 2011)  DVDRip, SATRip (сезон 1-3, серии 1-44 из 44)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147640.jpg" />
-</div>
-
-
-###  Подробнее
-
-В любое время суток, в жару и в лютую стужу они колесят по дорогам нашей страны, выполняя нелегкую и подчас очень опасную работу. Дальнобойщики, для них каждый рейс — это не только пункт назначения, но и новые встречи, неожиданные трудности, нечаянные радости, риск и везение, и конечно — новые истории, правдивые и невероятные!Производство: РоссияЖанр: драма, приключенияРежиссер: Юрий Кузьменко, Василий Бледнов, Марина ВидинееваАктеры: Владимир Гостюхин, Владислав Галкин, Кристина Бабушкина, Ярослав Бойко, Алексей Макаров, Николай Чиндяйкин, Михаил Глузский, Александр Пороховщиков, Виктор Проскурин, Андрей Ростоцкий и др.Продолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E6D144459D58D3D993C137D94C3089593DC07F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 399055   (147641) от 24.12.2021
-
-Кодекс молчания: На тёмной стороне луны (1989) VHSRip (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается во время московской летней Олимпиады 1980 года в городе Джизаке, на родине Шарафа Рашидова и в Ташкенте. Недалеко от Джизака, в летнем кафе «Чиройли», совершено вооружённое нападение на заместителя начальника уголовного розыска Джизакской области майора Андрея Пака. Вместе с ним погиб и человек, с которым он встретился для разговора (   Читать дальше...   )Производство: СССР, УзбекфильмЖанр: криминал, детективРежиссер: Зиновий РойзманАктеры: Мурад Раджабов, Александр Фатюшин, Ирина Шевчук, Наби Рахимов, Ульмас Юсупов, Джавлон Хамраев, Ходжиакбар Нурматов, Бекзод Мухаммадкаримов, Паул Буткевич, Мелис АбзаловПродолжительность: ~01:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E47EA9FC86876D808246DFC0351DA89ACB65A5
 ```
 
 

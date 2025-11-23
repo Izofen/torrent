@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FCA2ED29544CB566D78E8E0BE67671B347661093
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1BA951CCC5C9974491C28A3084799910F5DF7447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60739.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BBC: После смерти. Загадочная наука разложени
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:20E7E4457E5735C8692DD08904530E59FD5F85F9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60741.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monamour: Любовь моя / Monamour (2005) BDRip [H.264/1080p] [Handmade co
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60742.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:651A1F750F392A85C389E5B1FB94ABD5E57EDF8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WinToHDD 6.5 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60744.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BD8840C3C8FBB700A805D10319B8E3003B268F7F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60745.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:829955EF29712A7F6B5236F7841BD9523353A44B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60746.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Change MAC Address 24.03 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60747.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3DAEE87489953D2EF798E2842A92A100406A1570
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60748.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60749.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60750.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ASCOMP Cleaning Suite Pro 4.011 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60751.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:C743CFB6098EB3E5D6318CCB2D862561562516D8
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60752.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:FE57AFC54145C1D01A967CB5055E7354685CA562
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60753.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:88D7AF81C05A65529CBF8AA5B960B69647F7685E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60754.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:267A675E1B1BE645D5FC51A16E8DA51BB9714CD3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60755.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:FBA97C7A288AC71A7D904A9A8AB397EF7E6BFEAC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60756.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:12AEF73818A7A17C4CAADDCCFC8299D833EC3728
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60757.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:044875868175919325CBAF53F7398733447C1A3E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60758.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:6A9ED34AF45FDC7BC4D5388322B415BC4E13679A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60759.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:22DF577496A55CACE94B952716195D8E82A90BA0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60760.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ChrisPC Win Experience Index 7.24.0404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60761.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dict Box - Английский словарь v8.9.3 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60762.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1824993   (136857) от 16.10.2025
+
+По ту сторону кровати / De l'autre cote du lit (2008) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136857.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому роману Аликс Жиро де л'Эн...
+Ариана и Гюго Марсиак вместе уже давно. У них большой дом и двое детей. Со стороны кажется, что всё замечательно. Но только со стороны. Ариана целый день вертится как белка в колесе, присматривая за детьми, да ещё и работать успевает. Гюго с утра до ночи на работе и так устаёт, что ему кажется, что Ариана ничего не делает. (   Читать дальше...   )Производство: Франция / Fidelite Films, TF1 Films Productions, Orange Cinema SeriesЖанр: комедияРежиссер: Паскал ПузадуАктеры: Софи Марсо, Дани Бун, Антуан Дюлери, Ролан Жиро, Анни Дюпере, Жюльет Арно, Нинон Могер, Клемо Кутюр, Франсуа Винчентелли, Дэльфин Ривьер, Арсен Моска, Эрик Фратичелли, Патрик Пальмеро, Филипп Бенард, Рафаэл КамбрейПеревод: дублированный (Blu-ray RUS), авторский (Антон Алексеев)Язык озвучки: русский, французскийСубтитры: нетПродолжительность: 01:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962C0DC65CE0073D8704B0273FD1D855DFCF2C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824998   (136858) от 16.10.2025
+
+Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Said, Marianne Crebassa, Pene Pati, Michael… (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozart - Requiem in D Minor, K. 626
+01. I. Introitus. Requiem æternam (4:10)
+02. II. Kyrie (2:17)
+03. III. Dies iræ (1:44)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825001   (136859) от 16.10.2025
+
+Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ashes and Whispers (3:09)
+02.  Blood Moon Chant (5:05)
+03.  Salt and Bone (3:14)
+04.  Echoes in the Dust (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825000   (136860) от 16.10.2025
 
 Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +85,7 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136860.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136861.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ magnet:?xt=urn:btih:319F35ABA79EE4395E6B7AF2C4B345A3BD43430E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136862.jpg" />
 </div>
 
 
@@ -82,7 +161,7 @@ magnet:?xt=urn:btih:D32F7E401469CC4C1F2CE238CB0C387FFBC3AAA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136863.jpg" />
 </div>
 
 
@@ -106,7 +185,7 @@ magnet:?xt=urn:btih:6E6D13FF414FA235A7535FCB5D2975CC5853AF4F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136864.jpg" />
 </div>
 
 
@@ -130,7 +209,7 @@ magnet:?xt=urn:btih:573E832929327CE5DD1F361E6F0EC86125DD37BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136865.jpg" />
 </div>
 
 
@@ -154,7 +233,7 @@ magnet:?xt=urn:btih:E626913CFB8DD11B5FF698D5B3FB8A292CB0D40C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136866.jpg" />
 </div>
 
 
@@ -178,7 +257,7 @@ Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136867.jpg" />
 </div>
 
 
@@ -202,7 +281,7 @@ magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136868.jpg" />
 </div>
 
 
@@ -226,7 +305,7 @@ magnet:?xt=urn:btih:52AFA1F51BDBCB4A6CA4CA432D880691211870E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136869.jpg" />
 </div>
 
 
@@ -250,7 +329,7 @@ magnet:?xt=urn:btih:264E2B8E0EA262B36D0BCA606572E9C9ABF3CF38
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136870.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ magnet:?xt=urn:btih:6352566120F80C8F142C8B293E34B8FC0C42167F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136871.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ The Last Mimzy / Последняя Мимзи Вселенной (2007) [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136872.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ magnet:?xt=urn:btih:66B6D645FF1C2FE3C52AB571C4D3F058CDEFF6A2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136873.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136874.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136875.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136876.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ magnet:?xt=urn:btih:87B557501519A67BCD3EB9D71778D339ACAD87AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136877.jpg" />
 </div>
 
 
@@ -446,7 +525,7 @@ magnet:?xt=urn:btih:A25AFFE6FA20AC93349D9ADC44350934C2AC4C93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136878.jpg" />
 </div>
 
 
@@ -472,7 +551,7 @@ magnet:?xt=urn:btih:02DBE76C3137D9257D017F9591CCFBF06F223A4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136879.jpg" />
 </div>
 
 
@@ -496,7 +575,7 @@ Open Server Panel 6.4.5 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136880.jpg" />
 </div>
 
 
@@ -522,7 +601,7 @@ magnet:?xt=urn:btih:2E1A136331A2290DF212270B6138B3588129C672
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136881.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ magnet:?xt=urn:btih:AFB62BF312D7E4B2526DBB2F124FAB664DB4A6C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136882.jpg" />
 </div>
 
 
@@ -557,80 +636,6 @@ magnet:?xt=urn:btih:AFB62BF312D7E4B2526DBB2F124FAB664DB4A6C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7088C796439E3FCF40E2411E710FD19FB54CC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824949   (136883) от 16.10.2025
-
-MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136883.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE99E06573DE3E6BCD2F2D26AA1F9189A110F963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824948   (136884) от 16.10.2025
-
-Проекты - VideoHive - Funeral Memorial Slideshow - In Loving Memory Tribute Video MOGRT - 60250444 [MOGRT]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект поможет вам создать трогательное и уважительное видео-посвящение любимому человеку. Благодаря элегантным переходам, плавному дизайну и лёгкой настройке оно идеально подойдёт для похорон, поминальных служб.
-
-Музыка предоставлена в демо режиме.Формат: MOGRT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F57B017018A2172813D91B1F8256CA0B0F0B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824947   (136885) от 16.10.2025
-
-Дипломатка / The Diplomat (2025) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) Videofilm, Tak Treba Production
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Уайлер должна была отправиться работать в Афганистан. Но совершенно неожиданно её назначают послом США в Великобритании. Женщине-дипломату придётся разрешать международные кризисы, создавать стратегические союзы в Лондоне и приспосабливаться к своему новому месту в самом центре внимания. И всё это вперемешку с попытками сохранить брак с коллегой-дипломатом и (   Читать дальше...   )Производство: Великобритания, США / Netflix StudiosЖанр: триллер, драма, комедияРежиссер: Саймон Селлан Джонс, Эндрю Бернштейн, Лиза Джонсон, Алекс ГрейвзАктеры: Кери Рассел, Руфус Сьюэлл, Дэвид Джеси, Али Ан, Рори Киннер, Ато Эссандо, Джессика Шанлье, Пёрл Маки, Тим Делап, Адам Сильвер, Джорджи Хенли, Селия Имри, Нана Менса, Мигель СандовалПеревод: ДублированныйЯзык озвучки: Русский (Videofilm Int.), украинский (Tak Treba Production), английскийСубтитры: Русские (Forced, 2xFull), английские (Full, SDH), украинские (Forced, 2xFull)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108B59019EFCB75F1F3AB66CC202C135DF267986
 ```
 
 

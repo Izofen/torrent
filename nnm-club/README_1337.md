@@ -6,7 +6,7 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35115.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35116.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Jazzyness (New Sounds From Today's Jazz) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35117.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Downhome Kin - Whiskey & Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35118.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E10EFD40A2B608103DE50A8AA72412560976451A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35119.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Desktop Calendar 3.19.213.6862 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35120.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:EC231A58BCC8A669CBC927FBA9422A6B1605F4BE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35121.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ XtraTools Professional 24.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35122.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ ExtraDisks 24.12.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35123.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:DEBDD9CB58A6CF8A062E03D3E26056CED6826C8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35124.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Golden Hitss  III. Классика Зарубежной Эстрады (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35125.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:436C61EA894EC84C8E74CE64E100E6865A824E62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35127.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ GOODBOYS - GOODBOYS Pres. LINKED (001-006) (2023-2024) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35128.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:B1528F556F619ECBE51A908425C5FCB22E7BDFD5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35129.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ KStars 3.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35130.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:31694FCA00566B3E61314D23C335C3E9469EC83E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35131.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:E01AE16A4E36B9C312FEBC44F96EB745A70495B2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35132.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:162416959CA4B1224FB680CF3898907F141A5FF7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35133.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35134.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35135.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:92DCCF3B5D1401D370B123F607E9ECBFFD652338
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35136.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:975DBF10A6794BB5FFFFFE81F35197F9C39903D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35137.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Walmart сворачивает часть инициатив в рамках п�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35138.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Walmart сворачивает часть инициатив в рамках п�
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35139.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35140.jpg" />
 </div>
 
 

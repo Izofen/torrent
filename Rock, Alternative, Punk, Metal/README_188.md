@@ -6,7 +6,7 @@ Avenged Sevenfold - Waking the Fallen (Resurrected) (2003) Japanese Edition, 2 x
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123443.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A29EA1BB7A82C068795637B557C580DC910F9170
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123446.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Euphoriall - Dasos (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123511.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ We Are Space Horses - Apologia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123514.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hurricane on Saturn - Фnx (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123615.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Fog - The Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123616.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Liva - Ecce Mundus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123618.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Andrew W. Boss - Strength (2024) [MP3|320 Kbps] <Rap-Metal, Alt.Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123620.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B888CDEA2D10BD7DCC49BEB3BF621896FEB8B8AA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123622.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Andrew W. Boss - The Arrival (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123628.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ TodoMal - Ultracrepidarian (2021) [FLAC|Lossless|tracks] <Atmospheric Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123629.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Proteos - Эпитафия (2023) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123631.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rat Mass - Time Pulls the Trigger (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123632.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Andrew W. Boss - Strength (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap-Metal, Alt.M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123633.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|image + .cue] <Doom, Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123638.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Steve Thorne - Malice In Plunderland (2023) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123641.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crucifer - Hell Is for the Hopeful (2024) [MP3|320 Kbps] <Thrash Metal, Hard Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123644.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hauntologist - Hollow (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123646.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Red tail - Back And Forth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123648.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:53D4144364EACABEFD33BD76FA8FA5C0FB765067
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123664.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Suffocation - Hymns from the Apocrypha (2023) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123672.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Slade - 12 of Slade (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123687.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lumiere Trouble - Sisterie (2023) [MP3|320 Kbps] <Rock Opera, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123782.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123784.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ KATCH Me Please - Дом (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123793.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Distraid - Знак Саламандры (2023) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123794.jpg" />
 </div>
 
 

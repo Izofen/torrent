@@ -6,7 +6,7 @@
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101133.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101134.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101135.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101136.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101137.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101138.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101139.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101140.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3C57D743835A6D0D509D3E9EE79F06E275032771
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101141.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pomante - Frames (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101146.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Funky For A Sunny Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101148.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mamiko Watanabe - Being Guided By The Light (2024) Jojo Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101150.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101153.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101166.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101172.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101174.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101195.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101196.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101197.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - House Disco Funk Vol 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Ho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101211.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Jalapeno Funk, Vol. 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101212.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - My PlayList (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101213.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jelly-Roll Morton - 1928 - 1929 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101215.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kenny Acosta Band - It's All Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101233.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hook Herrera - No Matter What I Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101234.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lefty - What A Life - The Lost LA Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101236.jpg" />
 </div>
 
 

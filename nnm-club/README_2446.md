@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63961.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D4F0988E3B366B82C1E66BC7212A91DAE0721C15
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63962.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3AAAB9E6A8D1AB3B22989E0E2B2B274182841A6D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIMP 5.40.2695 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63964.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft® Windows® 11 x64 Ru 25H2 4in1 Upd 10.2025 by OVGorskiy [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63965.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VueScan Pro 9.8.48.01 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63966.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:661361CDE708711A00FB7A94E0156A8996182D95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63967.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4E77A135ED90EC0FD4FFCDF5066D3F90206EB336
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63968.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:09B65B9F7BD18F4043339037613D490E5D0C1A79
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63969.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Rufus 4.11 (Build 2285) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63970.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:0559318E56AD4E88C445D9D06A3AE74ACE4CB555
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63971.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D424DCD07343D07286D4567A3BCB0F0F353A36A2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63972.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3C130B56608BF0A80E98333E2F344C9C6C8154EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63973.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D9D4F95C0A475EF4E948C12D3E7F206C2C9F00DF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63974.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:BF5A6D9BD6B1071C9D9D365D82F7C79B5F367D23
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63975.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5F80C3E686D501820558144238B557E9003A08B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63976.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:259EAF3301279B5A65C19559E5224DB642A4C852
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63977.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:31DC1E73616C4E888FF02778894C138DE0D2375D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63978.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:975C2CF16D81D69CED3925A877A31BDB3053E5DA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63979.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EE454A16F0E0B8FBCE3323DB59C9F57ADA3D5D04
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63980.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:20DE7EB1F9F56902458022C0F578D58FB6C04AD2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63981.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:EBC6A140D8D27B13A47EECC7A5CDD2CE6897B688
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63982.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:2343EF6254A6EBBEBA4B5B9F7B6114F3CDE0E7C3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63983.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63984.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TapScanner v3.0.84 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63985.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Orbit Culture - Death Above Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63986.jpg" />
 </div>
 
 

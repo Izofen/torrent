@@ -6,7 +6,7 @@ TSA - Soft Noir Jazz for Winter Evenings (2024) [MP3|320 Kbps] <Jazz, Electro, N
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34698.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Jazzyness (New Sounds From Today's Jazz) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35117.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Downhome Kin - Whiskey & Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35118.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35212.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35214.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Smooth Jazz Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35309.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Whiskey Sour: Bar Blues, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35311.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Dance Electro Swing For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35313.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Gershwin – The Gershwin Songbook - 'S Marvelous (1994) CD, Compilation [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35320.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Larry Fuller Trio - Easy Walker (1998) 2003, Pony Boy Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35410.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Etta James - The Right Time (1992) CD, Album, Club Edition, BMG [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35417.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ V.A. - LoFi Jazz (Holiday Chill Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <LoF
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35438.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35441.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Joanne Shaw Taylor - 11 Albums (2009 - 2024) [FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35605.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jungle Jim Smith - This Is Ghost Country (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35924.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ AJ Plug - Underneath Your Skin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35931.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Vanessa Collier - Do It My Own Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35933.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Steve Hill - Hanging On A String (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35936.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Larry Dupio - Hawaii, My Island Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35937.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CHELLE! and Friends - Daughters of the Delta (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35938.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Jimmy Cornett & The Deadmen - One of a Kind (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35939.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Deedra Patrick - Gold Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35940.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Jed Thomas Band - Emerald Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35941.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Ollee Owens - Nowhere To Hide (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35942.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Sickler Brothers - We Got Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35943.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Dick Earl's Electric Witness - Get Up Off The Ground (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35944.jpg" />
 </div>
 
 

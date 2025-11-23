@@ -1,3 +1,180 @@
+###  Публикация: 1597489   (165479) от 15.12.2022
+
+The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamentals (2022) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unreal Engine 5 значительно улучшил качество освещения в реальном времени благодаря реализации глобального освещения в реальном времени с помощью нового механизма освещения Lumen. Тем не менее, остается множество инструментов, методов и рабочих процессов освещения, которые необходимо хорошо понимать, чтобы максимально использовать свой опыт проектирования и оптимизации (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Unreal Engine, ОсвещениеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E5A8D6402154CB533FF2249D2907F07C02A59F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516656   (165480) от 12.12.2021
+
+Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djangology [3:25]
+02. I'm Coming Virginia [3:03]
+03. Misty [3:46]
+04. Shine [3:37](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345541   (165481) от 16.12.2019
+
+Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165481.jpg" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516756   (165482) от 12.12.2021
+
+MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Into the Parallel Universe
+02.Shadow People
+03.Dust Devils and Cosmic Storms
+04.Of Immortal Aeons(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597493   (165483) от 15.12.2022
+
+Кутёж 2: Этот чудесный запой / The Binge 2: It's A Wonderful Binge (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздник выпивки Бингл на этот раз совпал с Рождеством. Зрители увидят новые невероятные приключения, услышат музыкальные хиты и посмеются над выходками участников праздника, который прошел в американском городе Сиракузы. В фильме показано вымышленное ближайшее будущее. Алкоголь и наркотики находятся под полным запретом. Лишь один раз в году можно их употреблять. (   Читать дальше...   )Производство: США / American High, Liddell EntertainmentЖанр: комедияРежиссер: Jordan VanDinaАктеры: Кэйтлин Олсон, Дэнни Трехо, Пэтти Гуггенхайм, Пол Шир, Эдуардо Франко, Ник Свардсон, Тим Медоуз, Тони Кавалеро, Карен Маруяма, Конни СолтцмэнПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D39BBCD9DE4034F6ED0ED7983FD1BE85996563E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673232   (165484) от 01.11.2023
+
+Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/Occult>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satan's War [00:04:03]
+02. Demon [00:03:30]
+03. Burning Water [00:03:15]
+04. When You Were Dead [00:03:23](   Читать дальше...   )Жанр: Psych, Stoner, Doom, OccultПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345878   (165485) от 16.12.2019
+
+В сердце моря / In the Heart of the Sea (2015) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165485.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание посреди океана…Производство: США, Австралия, Испания / Warner Bros., Village Roadshow Pictures, RatPac-Dune EntertainmentЖанр: боевик, триллер, драма, приключения, биография, историяРежиссер: Рон ХовардАктеры: Крис Хемсворт, Бенджамин Уокер, Киллиан Мёрфи, Брендан Глисон, Бен Уишоу, Мишель Фэйрли, Том Холланд (II), Пол Андерсон, Фрэнк Диллэйн, Джозеф МоулПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835BE03C38093E2C21D33CCCE2AD95F731BE5D80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516631   (165486) от 12.12.2021
 
 VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +183,7 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165486.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165487.jpg" />
 </div>
 
 
@@ -58,7 +235,7 @@ Fleshworks - Diabolus ex Machina (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165488.jpg" />
 </div>
 
 
@@ -85,7 +262,7 @@ Sweet & Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165489.jpg" />
 </div>
 
 
@@ -112,7 +289,7 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165490.jpg" />
 </div>
 
 
@@ -139,7 +316,7 @@ magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165491.jpg" />
 </div>
 
 
@@ -166,7 +343,7 @@ magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165492.jpg" />
 </div>
 
 
@@ -190,7 +367,7 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165493.jpg" />
 </div>
 
 
@@ -217,7 +394,7 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165494.jpg" />
 </div>
 
 
@@ -244,7 +421,7 @@ magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165495.jpg" />
 </div>
 
 
@@ -268,7 +445,7 @@ magnet:?xt=urn:btih:493EA68A794E8DFF21F19F11428DF1308C3C60B3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165496.jpg" />
 </div>
 
 
@@ -292,7 +469,7 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165497.jpg" />
 </div>
 
 
@@ -319,7 +496,7 @@ magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165498.jpg" />
 </div>
 
 
@@ -345,7 +522,7 @@ Snappy Driver Installer 1.20.9 (R2009) | Драйверпаки 20.12.1 [Multi/R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165499.jpg" />
 </div>
 
 
@@ -369,7 +546,7 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165500.jpg" />
 </div>
 
 
@@ -396,7 +573,7 @@ PhotoDirector - Редактор фото 18.6.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165501.jpg" />
 </div>
 
 
@@ -420,7 +597,7 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165502.jpg" />
 </div>
 
 
@@ -447,7 +624,7 @@ AllWinUSB Constructor by SmokieBlahBlah 10.06.20 [Ru/En]
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165503.jpg" />
 </div>
 
 
@@ -473,7 +650,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165504.jpg" />
 </div>
 
 
@@ -487,184 +664,6 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516627   (165506) от 12.12.2021
-
-VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Morgan - Do It (Original Mix) (5:56)
-02. Sangre De La Tierra - El Sueno Del Mar (Original Mix) (5:00)
-03. Luis Hermandez - Mi Amor (Original Mix) (3:36)
-04. C.A.V.O.K. - Secret Vale (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F36030B754137C2D8142D01DF9E1BAEC887E9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597429   (165507) от 15.12.2022
-
-Danil K, Данил Куширмский | Сборник курсов по личному бренду, монтажу и YouTube (2019) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165507.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе мы сэкономим тебе десятки тысяч рублей, подобрав для тебя камеру, свет и звук.
-Ты научишься получать профессиональную картинку, лучше, чем 90% блогеров.
-Ты не будешь зависеть от наемной команды в будущем.Производство: Danil KЖанр: Личный брендЯзык озвучки: РусскийПродолжительность: 45:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B423757DAAB793A3A387B25C374C4A826EE767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431641   (165508) от 15.12.2020
-
-Непосредственно Каха! (2020) WEBRip [H.264/1080p-LQ] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каха запал на прекрасную Софу, но, чтобы подобраться к её сердцу, ему нужно на своей «копейке» обогнать новенькую BMW Руслана и забить на дружбу с Серго. Что же выберет Каха – любовь или дружбу?Производство: Россия / Видеосервис START, Forever FilmsЖанр: КомедияРежиссер: Виктор ШамировАктеры: Артём Карокозян, Артём Калайджян, Тамара Турава, Данил Иванов, Микаел Погосян, Марина Калецкая, Людмила Артемьева, Нана Муштакова, Милена Цховреба-Агранович, Юлия Гревцова, Вартан Даниелян, Артур ОганесянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345485   (165509) от 16.12.2019
-
-Решала (2019) WEBRip [H.264/720p-LQ] (сезон 6, серии 1-12 из 12) [PR]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежедневно огромное количество доверчивых жителей Российской Федерации становится жертвами мошенников, которые пользуются доверием людей и обворовывают их. И чаще всего аферисты оказываются безнаказанными, так как единицы пострадавших обращаются с заявлением в правоохранительные органы.
-Однако нельзя оставлять данную проблему просто так, необходимо действовать. Именно (   Читать дальше...   )Телекомпания: ЧЕЖанр: Ток-шоуПеревод: Не требуетсяЯзык озвучки: РусскийПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2153E4263F998B3DB73B299929B4ED5BE7B5947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516655   (165510) от 12.12.2021
-
-Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura [2:42]
-02. Stardust [2:48]
-03. Somebody Loves Me [2:45]
-04. Back Home Again In Indiana [2:35](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673379   (165511) от 01.11.2023
-
-Пьер Леметр | Комиссар Верховен (Книга 2). Алекс (2022) [MP3, Лора Луганская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар Камиль Верховен находится в крайне затруднительном положении: впервые в его практике у него нет ничего — ни подозреваемого, ни мотива преступления, а надежда, что похищенная девушка жива, быстро тает. Все, что ему известно от случайных свидетелей, это что красавицу Алекс Прево схватили на парижской улице и затолкали в белый фургон. Но что если замкнутая (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 11:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4FFF26FE7644FB1F0D7237169EB54956EF678E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597679   (165512) от 15.12.2022
-
-kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята, я приготовил ну просто мега крутой интенсив, который заменит полноценный курс по TypeScript!
-7,5 часов ценнейшего материала, которые позволят тебе уверенно работать с этим языком и серьезно прокачать свои скилы. Особое внимание уделено теме Generic в TS. Сопоставимых по детализации курсов в рунете просто нет!Производство: kobezzza.channelЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:42:52Реклама: Ватермарки на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 ```
 
 

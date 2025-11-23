@@ -1,3 +1,180 @@
+###  Публикация: 968127   (158220) от 22.12.2015
+
+А.В. Дьяков | Радиоуправляемые автомодели (1973) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158220.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Внимание! Старт!» - прозвучала команда, и автомобиль помчался по извилистой трассе. Поворот, еще поворот, «восьмерка», «змейка», часть пути задним ходом, снова передник ход. Миновав узкие ворота и сделав крутой вираж, машина выходит на финишную прямую...
+Что это? Соревнования по фигурному вождению автомобиля? Нет. Это соревнования моделей автомобилей, управляемых (   Читать дальше...   )Жанр: Самоделки, сделай самФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9FD3092DBCDC6AAC7ABDDC3B37427B0421DC76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968186   (158221) от 22.12.2015
+
+Сергей Попов | Небо цвета крови (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая хроника жизни молодой семьи Флетчеров, пережившей величайшую в истории человечества экологическую катастрофу.
+
+«Метель, беснующаяся всю ночь, успокоилась только ближе к полудню. Кипящая серая мгла, еще какое-то время висевшая в воздухе после нее, вскоре окончательно рассеялась, рассосалась, словно водяной пар, обнажила черно-зеленые сугробы и угольные (   Читать дальше...   )Жанр: Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E35ED07B93F11FA4991807D6B01AA72F6B810FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967916   (158222) от 22.12.2015
+
+Журнал | Вязание ваше хобби №1 Вязаная мода для мужчин и женщин (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы фанаты рыбалки или просто предпочитаете прогулки на свежем воздухе? Вам доводилось бродить дружной компанией по норвежским фьордам, или вы любите родные места? Неважно. Главное - одеться так, чтобы чувствовать себя комфортно. Девушки наверняка выберут безрукавки с ажурными косами или жакеты с необычными воротниками. Сильный пол предпочтёт более строгие, но не (   Читать дальше...   )Жанр: Домоводство, вязание, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2411F6116F98A45C1850AE817F6CA9DCE6C7A1BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967999   (158223) от 22.12.2015
+
+David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Roads (05:04)
+02. Wind and Stone (04:48)
+03. Mother Sky (06:00)
+04. Mesa Morning (04:51)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964723   (158224) от 22.12.2015
+
+Дебютантка поневоле / The Reluctant Debutante (1958) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка, американка, приезжает погостить в Лондон к своему отцу и, неожиданно для себя, попадает на «Сезон». Её не интересует эта ярмарка невест и чопорные молодые аристократы. Но встреча с симпатичным молодым человеком обещает стать интересной. Как жаль, что его считают нежелательным субъектом…Производство: США / Avon Productions (II), Metro-Goldwyn-Mayer (MGM)Жанр: Мелодрама, КомедияРежиссер: Винсент МиннеллиАктеры: Рекс Харрисон, Кэй Кендалл, Джон Сэксон, Сандра Ди, Анджела Лэнсбери, Питер Майерс, Дайан Клер, Рене Аранда, Жорж Билли, Жан-Поль БлондэПеревод: Одноголосый закадровый (Хромолка)Язык субтитров: РусскийПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E6F1B990385447A1BBBD30C5D838CF520DEC4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967830   (158225) от 22.12.2015
+
+Bon Jovi - Crush (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Life (3:44)
+02. Say It Isn't So (3:33)
+03. Bon Jovi - Thank You for Loving Me (5:08)
+04. Two Story Town (5:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EEBF47D9F1031332B94BD74A77633F1E79A93F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968034   (158226) от 22.12.2015
+
+CoolUtils Total Image Converter 5.1.100 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CoolUtils Total Image Converter - преобразует изображения в желаемый вами формат, изменит размеры и перевернёт фотографии и картинки. Total Image Converter сделает всё, что вам потребуется: вы сможете преобразовывать большие TIFF изображения в маленькие JPEG, подгонять картинки под размеры веб-страницы или преобразовать RAW фотографии в более популярные форматы. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23430684E39DD1788F9FEBE0423E6779B24DD96A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968022   (158227) от 22.12.2015
 
 Обои - Wallpapers Mix №283 [JPG]
@@ -6,7 +183,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158227.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ magnet:?xt=urn:btih:11DB0A6FE7457A974EB2E22A561D9B73F164E69C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158229.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158230.jpg" />
 </div>
 
 
@@ -78,7 +255,7 @@ Enigma Dubz - The Journey So Far/Part One (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158231.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ Nemo & Jaymon - Wanderings (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158232.jpg" />
 </div>
 
 
@@ -132,7 +309,7 @@ magnet:?xt=urn:btih:F0F445A093AD8AA31E4870942426DF43A7FB36C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158233.jpg" />
 </div>
 
 
@@ -156,7 +333,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158235.jpg" />
 </div>
 
 
@@ -207,7 +384,7 @@ magnet:?xt=urn:btih:DFA417895F99F0916B818FB98CE88DA2CD91446F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158236.jpg" />
 </div>
 
 
@@ -231,7 +408,7 @@ magnet:?xt=urn:btih:CEC94D7C9BF4B9D777B49945270E27DA2376BF0B
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158237.jpg" />
 </div>
 
 
@@ -255,7 +432,7 @@ magnet:?xt=urn:btih:AF3E529E6BA9761FF8D984492D197C6003ABB76F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158238.jpg" />
 </div>
 
 
@@ -279,7 +456,7 @@ magnet:?xt=urn:btih:2438FE339E7C08CBB5A4AE78BA51DD401C108AEA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158239.jpg" />
 </div>
 
 
@@ -303,7 +480,7 @@ magnet:?xt=urn:btih:D3D2753C8C5DEE52FAFAD5257F926664F2194321
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158240.jpg" />
 </div>
 
 
@@ -327,7 +504,7 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158241.jpg" />
 </div>
 
 
@@ -354,7 +531,7 @@ magnet:?xt=urn:btih:88098D7637002AEF00C7C2B0B15C99A3658FCE38
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158242.jpg" />
 </div>
 
 
@@ -378,7 +555,7 @@ magnet:?xt=urn:btih:42CFE81D941AFE9AB40BF2FEF0FDFFE8BB05D47E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158243.jpg" />
 </div>
 
 
@@ -402,7 +579,7 @@ magnet:?xt=urn:btih:0823B34F4FEB7F8564C69D295FC55E95F5E03056
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158244.jpg" />
 </div>
 
 
@@ -426,7 +603,7 @@ VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158245.jpg" />
 </div>
 
 
@@ -450,7 +627,7 @@ magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158246.jpg" />
 </div>
 
 
@@ -464,180 +641,6 @@ magnet:?xt=urn:btih:84C4AAD6C3A163721F4A30F675EB0CFEB39C547B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68B0310790B1B689D4E4706C819CB664304F946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967877   (158247) от 22.12.2015
-
-Испанец (2015) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саша и Костя — двое друзей-беспризорников, которых разлучает судьба, когда Сашу усыновляет молодая пара и увозит в Испанию, а Костя исчезает. Спустя 20 лет маленький Саша стал Алехандро — богатым молодым человеком с сильным характером и добрым сердцем. Получив весть от Евы — детектива, которая ведет поиск Кости, Алехандро летит в Россию. Алехандро предстоит встретиться (   Читать дальше...   )Производство: Россия / "Триикс Медиа"Жанр: криминал, драмаРежиссер: Анатолий АртамоновАктеры: Артём Карасёв, Вера Шпак, Алексей Красноцветов, Алексей Нилов, Егор Петренко, Станислав Мухамадеев, Дмитрий Лебедев, Игорь Качаев, Кирилл Нагиев, Олег Жилин, Михаил Елисеев, Михаил Сидаш, Татьяна Кузнецова и др.Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E881BEF0683E9EBD7E31E3EC18BB2B79D4F6F04A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968075   (158248) от 22.12.2015
-
-Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azur (02:00)
-02. Tran/For/Mation (07:27)
-03. The Singing Clouds (03:36)
-04. She Is Home (04:40)(   Читать дальше...   )Жанр: Piano, Lounge, DowntempoПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0064EB4C8020D3E1940E19B8096A53C4C1B5651A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968010   (158249) от 22.12.2015
-
-10cc - The Original Soundtrack (1975) Remastered, 2013, Universal International [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Nuit A Paris [08:44]
-02. I'm Not In Love [06:08]
-03. Blackmail [04:32]
-04. The Second Sitting For The Last Supper [04:31](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2121D5BBE602373A871379BBE05572DB00F130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968195   (158251) от 22.12.2015
-
-Москва таинственная (22.12.2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-расследование вновь оживил давно забытые легенды о несметных сокровищах, припрятанных когда-то в Москве осторожными жителями. Зрителю расскажут о множестве таинственных историй. Мы узнаем, что геологическая карта Москвы была создана в 18 веке Яковом Брюсом. И не только геологическая, но и астрологическая. Сохранились подробные описания карт Брюса, но сами карты (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098B55670FD0B1B58F1EAB00299A9C978D5F54F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967650   (158252) от 22.12.2015
-
-Александр Островский | Светит, да не греет (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158252.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске записана известная пьеса Александра Островского "Светит, да не греет", которая изображает дворянскую усадьбу и ее обитателей в состоянии усиливающегося упадка. Спектакль Московского драматического театра имени А.С. Пушкина. Постановка Юрия Еремина. Запись 1989 года.Жанр: Пьеса, драмаПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03354B17C3CE79F7020DEEB937CFD1F11C4A4446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967227   (158253) от 22.12.2015
-
-Елена Васильева, Юрий Пернатьев | 50 знаменитых бизнесменов XIX - начала XX в (2004) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XIX веке героев этой книги называли деловыми людьми. И они действительно делали много полезного не только для себя, но и для общества. Благодаря организаторскому таланту, энергии, смелости и предприимчивости Форда и Карнеги, Кузнецова и Фаберже, Ротшильдов, Дюпонов, Морозовых, Круппов, Морганов и других предпринимателей, в мире были созданы огромные промышленные, (   Читать дальше...   )Жанр: Бизнес, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7F621D26855B45EE98FF6966384B79D63EBEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968018   (158254) от 22.12.2015
-
-Обои - Реки 22 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему рекФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B053D8C509587B68D6293934BFBF98BED97EF7
 ```
 
 

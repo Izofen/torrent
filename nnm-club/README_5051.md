@@ -1,3 +1,185 @@
+###  Публикация: 586850   (156314) от 13.12.2012
+
+VA - Gangnam Style Compilation (2012) [MP3|~245 кб/с (V0)]<Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psy - Gangnam Style
+02. Of Monsters An Men - Little Talks
+03. Carly Rae Jepsen - Call Me Maybe
+04. Mika feat. Pharell Williams - Celebrate
+05. Scissor Sisters - Only The Horses
+06. Ne-Yo - Let Me Love You (Until You Learn To Love Yourself)
+07. Will I Am feat. Eva Simons - This Is Love
+08. Asaf Avidan & The Mojos - New Day / Reckoning Song (Wankelmut Remix)
+09. Alesso feat. Matthew Koma - Years
+10. Noir & Haze - Around(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8BA9A7DA688912D52F0612C10DEACA2EB928A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518359   (156315) от 19.12.2021
+
+VA - Ibiza Chill Vibes, Vol. 2 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
+02. Lazy Hammock - Deep Sunday Bliss (4:42)
+03. Smooth Deluxe, Nizam Kharda - Multani (3:57)
+04. Inventors Of The Sun - Es vedrà (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C023072EEA2A829C68DA6A491F0A01C1D981CF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085933   (156316) от 22.12.2016
+
+Демон внутри / Вскрытие Джейн Доу / The Autopsy of Jane Doe (2016) WEB-DLRip [H.264] AlexFilm [MP4|1024x424]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тони, гробовщик маленького городка, получает тело жертвы таинственного убийства — красивой и молодой Джейн Доу, без видимой причины смерти. Он пытается выяснить, кто она и как умерла, обнаруживая всё более причудливые подсказки, которые ведут к ужасным тайнам её жизни и смерти.Производство: Великобритания /  42, IM Global, Impostor PicturesЖанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Многоголосый закадровый, профессиональный - (AlexFilm)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275571   (156317) от 13.11.2023
+
+Уильям Сомерсет Моэм | 10 лучших рассказов (2004) [MP3, Елена Морозова, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Виртуозы рассказа.
+Уильям Сомерсет Моэм (1874-1965) - один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов. Герои его рассказов удивляют своим разнообразием: это и пациенты туберкулёзного санатория, жертвующие жизнью ради любви в рассказе «Санаторий», и священник, одержимый греховной страстью (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказыИздательство: СиДиКомПродолжительность: 08:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB52AF926B88FA7C51FBB268149A6DCF9B652263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563246   (156319) от 27.12.2022
+
+Люцифер и бисквитный молот | Hoshi no Samidare | Lucifer and the Biscuit Hammer [2022, TV, 24 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амамия Юхи — простой японский школьник, который абсолютно ничем не выделяется среди сверст... Ой, погодите-ка! Это с ним ящерица только что заговорила?! Что-что она там сказала?! Мир может оказаться расколот вдребезги мощью невероятного Бисквитного молота? Звучит совершенно безумно! Особенно та часть, где говорится про какой-то Бисквитный молот... Однако мир нужно (   Читать дальше...   )Производство: Япония / Студия Naz, JumondouЖанр: Приключения, фэнтезиРежиссер: Наканиси НобуакиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433701   (156320) от 21.12.2020
+
+Capture One 20 Pro 13.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1544B1AA5BAD306179BC5854925BC54C0496D480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588739   (156321) от 13.12.2012
+
+Линкольн Чайлд | Из глубины [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156321.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глубине 12 000 футов под поверхностью Атлантического океана исследователи обнаруживают нечто совершенно удивительное. Величайшая археологическая находка в истории? Или что-то такое, с чем еще не приходилось сталкиваться человечеству? В обстановке сверхсекретности ученые приступают к изучению странных артефактов, однако внезапно всех, кто работает на исследовательской базе на дне океана, поражают странные болезни. На базу срочно вызывают бывшего военного врача Питера Крейна, который постепенно начинает понимать, что медицинские проблемы — лишь малая часть огромной проблемы, которая угрожает самому существованию человеческой цивилизации.Жанр: Научная фантастика, триллер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8FC5C1D799EB1A3530A94D73B682F22FCE60CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258255   (156323) от 19.12.2018
 
 DxO PhotoLab 2 2.1.0 build 14 [Multi]
@@ -6,7 +188,7 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156323.jpg" />
 </div>
 
 
@@ -31,7 +213,7 @@ VA - Chillout & Lounge Music (2021) [AAC|~289 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156324.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ magnet:?xt=urn:btih:70F3C4EE30B4881D7A99525B8FE9A90305884B72
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156325.jpg" />
 </div>
 
 
@@ -83,7 +265,7 @@ magnet:?xt=urn:btih:5D48EBBF3DE9890DCCB7DE988FCD02B0CD571ADB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156326.jpg" />
 </div>
 
 
@@ -107,7 +289,7 @@ magnet:?xt=urn:btih:11C17C4CC62F87D6D7E8781BF8A61C90E4878700
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156327.jpg" />
 </div>
 
 
@@ -131,7 +313,7 @@ WhatsApp 2.2049.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156329.jpg" />
 </div>
 
 
@@ -155,7 +337,7 @@ magnet:?xt=urn:btih:20EAFA52D13DE8AC9E49688A4EDAB4240365CCA6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156331.jpg" />
 </div>
 
 
@@ -180,7 +362,7 @@ Adobe Acrobat Reader DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156332.jpg" />
 </div>
 
 
@@ -204,7 +386,7 @@ VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156334.jpg" />
 </div>
 
 
@@ -231,7 +413,7 @@ magnet:?xt=urn:btih:158EEECE9E3B5D8AC9E73798C585D92BDA772BCE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156335.jpg" />
 </div>
 
 
@@ -256,7 +438,7 @@ Path Finder 8.3.7
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156336.jpg" />
 </div>
 
 
@@ -280,7 +462,7 @@ Tap Forms Organizer 5 v5.3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156337.jpg" />
 </div>
 
 
@@ -305,7 +487,7 @@ magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156339.jpg" />
 </div>
 
 
@@ -329,7 +511,7 @@ magnet:?xt=urn:btih:11D7376B1C97CC3D47BDE4550E592B7470CC326C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156340.jpg" />
 </div>
 
 
@@ -353,7 +535,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156341.jpg" />
 </div>
 
 
@@ -377,7 +559,7 @@ magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156342.jpg" />
 </div>
 
 
@@ -401,7 +583,7 @@ magnet:?xt=urn:btih:582C126011F1094C971162CEAAADE0F07E08E718
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156344.jpg" />
 </div>
 
 
@@ -425,7 +607,7 @@ VA - Ibiza Let's Chill, Vol. 2 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156345.jpg" />
 </div>
 
 
@@ -452,7 +634,7 @@ magnet:?xt=urn:btih:396A2DB8A80C8049E11DAB3424372BD485B5945B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156346.jpg" />
 </div>
 
 
@@ -463,177 +645,6 @@ magnet:?xt=urn:btih:396A2DB8A80C8049E11DAB3424372BD485B5945B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBC31845C95BF1BAA81FD6A78D6F252CEF3F9B4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600172   (156348) от 27.12.2022
-
-Ведьмак: Происхождение / The Witcher: Blood Origin (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4) HDrezka, RuDub
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал повествует о временах, когда Континентом правили эльфы, за 1200 лет до Геральта из Ривии. Узнайте забытую историю о создании первого Ведьмака и о том, что предшествовало судьбоносному Сопряжению Сфер, когда миры чудовищ, людей и эльфов слились в один.Производство: США, Польша / Hivemind, Netflix, Platige FilmsЖанр: Фэнтези, боевик, драма, детектив, приключенияРежиссер: Вики Джуисон, Сара О’ГорманАктеры: Лоуренс О’Фуаран, Миррен Мак, Ленни Генри, Джейкоб Коллинс-Леви, Зак Уайатт, Лиззи Эннис, Huw Novelli, Франческа Миллс, Мишель Йео, Софиа БраунПеревод: Многоголосый профессиональный (HDrezka Studio, RuDub)Язык озвучки: русский, английскийСубтитры: русские (Forced, full), английские (Forced, Full, SDH)Продолжительность: ~01:03:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDDBB63F487D38843441A44D96DBED82F059C67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433640   (156349) от 21.12.2020
-
-А. Братушева (ред.) | 100 лучших рецептов салатов и закусок к празднику и на каждый день (2015) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Салат - уникальное и многогранное блюдо. В нем можно сочетать фрукты с овощами, сладкое с соленым, рыбу с мясом и будет вкусно! Под обложкой этого издания собраны 100 лучших рецептов и идей салатов и закусок. Как тех, которые можно готовить каждый день, так и тех, над которыми стоит потрудиться, но они станут аппетитным украшением праздничного стола!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA41C037CEFBEE0BA9B445B78505C42470E9EB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588518   (156351) от 13.12.2012
-
-Gunz The Duel / Поединок на оружии (P) [En/8672] 2005 | R.G. Actual Fragment
-
->>Win Игры
->>Online Action (MMO)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gunz: The Duel - стартовала в Корее еще в начале 2005-го, а до Европы добралась только недавно. Несмотря на то, что в странах Востока она позиционируется как онлайновая ролевая игра с элементами экшена (бирка MMORPG прилагается), на деле определить ее жанр практически невозможно.Тип издания: ПираткаЖанр: action/onlineЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11C8C038F1EAC29E3E306A14ED00CB462B1D97B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238479   (156352) от 19.12.2018
-
-Тихое место / A Quiet Place (2018) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья с двумя детьми живёт на отдалённой ферме. Казалось бы, жизнь этих людей совершенно не отличается от жизни других таких семей, но они живут в месте, которое наполнено ужасными монстрами, реагирующими на любой звук. Семейство разучило целый комплекс специальных жестов, которые помогают им общаться друг с другом, не издавая ни единого звука. Кроме того, каждый (   Читать дальше...   )Производство: США / Platinum DunesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Джон КрасинскиАктеры: Эмили Блант, Джон Красински, Ноа Джуп, Милли Симмондс, Леон Рассом, Кейд Вудворд, Дорис МакКартиПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DCA0E51212F3FD7F99BB8C27648B95BF32842D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968115   (156353) от 23.12.2015
-
-VA - Anjunabeats Volume 12 (Mixed by Above and Beyond) (2015) [MP3|320 кб/с] <Trance,Progressive Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howling - X Machina (Cubicolor Remix)
-02. Thomas Schwartz & Fausto Fanizza - Circles
-03. Oliver Smith - Your Love
-04. Jaytech - Great Divide(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E806BEC3E5510D79D6229F3F8E76C4B0DE7F89F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346692   (156354) от 20.12.2019
-
-Х. Катан-Ибарра | Испанский язык. Полный курс. Учу самостоятельно [+AudioCD] (2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156354.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сам себе учитель иностранного» – это уникальная серия пособий, разработанных для самостоятельных занятий. С ними учащиеся смогут пройти путь от новичков до «уверенных пользователей» без помощи преподавателя. Цель самоучителей – помочь легко и уверенно заговорить на иностранном языке. Материал организован таким образом, чтобы можно было эффективно заниматься, тратя (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDFПродолжительность: 02:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9A96A77E82CC8D4B3A8406603842FE3B45D5C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853931   (156355) от 27.12.2014
-
-Михаил Зощенко и др. | Заколдованная буква [Сборник] (1988) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли юмористические рассказы известных советских писателей разных поколений — М. Зощенко, Л. Пантелеева, Л. Кассиля, Н. Носова, Ю. Сотника, М. Лоскутова, В. Драгунского и других. Многие из представленных здесь произведений были написаны еще в тридцатых годах и стали классическими, их знают не только современные дети, но и их дедушки и бабушки, которые (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8789DB7A65D2F428CFE546C1D20532795F1B7E
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1436273   (137443) от 31.12.2020
+
+Deborah Washington - Love Awaits (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Baby (3:54)
+02. Back In Love Again (3:43)
+03. Can't Be A Fool For Love (4:51)
+04. Rock It (5:04)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65F2190F59EB5174957B6DCBC83795397A2E894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520993   (137444) от 31.12.2021
+
+Тихий омут / Stillwater (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец едет из Оклахомы во Францию, чтобы помочь своей дочери, которая была арестована за убийство.Производство: США / 3dot productions, Amblin Partners, Anonymous ContentЖанр: Триллер, драма, криминалРежиссер: Том МакКартиАктеры: Мэтт Дэймон, Камилль Коттен, Эбигейл Бреслин, Lilou Siauvaud, Дианна Данаган, Идир Азугли, Анн Ле Ни, Мусса Мааскри, Изабель Танакил, Нэйдра АйадиПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 02:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A27C70621169D56BA084DD920C93209DFED37D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824204   (137445) от 31.12.2015
+
+Иван Васильевич меняет профессию (1973) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер-изобретатель Тимофеев сконструировал машину времени, которая соединила его квартиру с далеким шестнадцатым веком - точнее, с палатами государя Ивана Грозного. Туда-то и попадают тезка царя пенсионер-общественник Иван Васильевич Бунша и квартирный вор Жорж Милославский.
+
+На их место в двадцатом веке «переселяется» великий государь. Поломка машины приводит (   Читать дальше...   )Жанр: Фантастика, Комедия, ПриключенияРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Юрий Яковлев, Леонид Куравлёв, Наталья Крачковская, Савелий Крамаров, Наталья Селезнёва, Владимир Этуш, Михаил Пуговкин, Сергей Филиппов, Наталья КустинскаяПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E8B8CEC6FD03BBFA7629E5615CFCCA90D6F9BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088404   (137446) от 31.12.2016
 
 Шаблоны - PSD исходник - Новый год нам дарит волшебство Part. 1-18 [PSD]
@@ -6,7 +83,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137446.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ magnet:?xt=urn:btih:1D1F6FA6B050BCCDFC486F250015686CD26833D8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137447.jpg" />
 </div>
 
 
@@ -56,7 +133,7 @@ magnet:?xt=urn:btih:E28F1EEAED630517B50515A62DE8AA1A0DC00A4B
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137448.jpg" />
 </div>
 
 
@@ -80,7 +157,7 @@ magnet:?xt=urn:btih:56369B2CF566A20142FE40D60DAE79453F093D9A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137449.jpg" />
 </div>
 
 
@@ -104,7 +181,7 @@ Glarysoft File Recovery Pro 1.20.0.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137450.jpg" />
 </div>
 
 
@@ -128,7 +205,7 @@ magnet:?xt=urn:btih:1A6B3EBE615B4B2D9FBA0E9EDE51517CC2AF6357
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137451.jpg" />
 </div>
 
 
@@ -152,7 +229,7 @@ Deborah Washington - Any Way You Want It (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137452.jpg" />
 </div>
 
 
@@ -179,7 +256,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -203,7 +280,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137454.jpg" />
 </div>
 
 
@@ -227,7 +304,7 @@ magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137455.jpg" />
 </div>
 
 
@@ -252,7 +329,7 @@ magnet:?xt=urn:btih:CAA19AF934C2E12D34462F8E86086C2773D888E8
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137457.jpg" />
 </div>
 
 
@@ -279,7 +356,7 @@ magnet:?xt=urn:btih:62D3EFDEE21C2D137A39D753A0A27A7C27D16A84
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137458.jpg" />
 </div>
 
 
@@ -304,7 +381,7 @@ magnet:?xt=urn:btih:A35C34782CBC847A689F7ED92D6043EC296CEC92
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137459.jpg" />
 </div>
 
 
@@ -328,7 +405,7 @@ magnet:?xt=urn:btih:9151626B775F69FC0C067CBC873AEF005EFABF15
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137460.jpg" />
 </div>
 
 
@@ -353,7 +430,7 @@ magnet:?xt=urn:btih:28E1F3C6F8ECCECE24EAB5D8A1BB1C432B02C63A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137461.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ magnet:?xt=urn:btih:A473324C9F434B14503A5C434786EFA7CB20ABF4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137462.jpg" />
 </div>
 
 
@@ -404,7 +481,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137463.jpg" />
 </div>
 
 
@@ -428,7 +505,7 @@ magnet:?xt=urn:btih:3779124B5E6684279A7DB6EF2DBDF4F0F5544EBC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137464.jpg" />
 </div>
 
 
@@ -452,7 +529,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137465.jpg" />
 </div>
 
 
@@ -476,7 +553,7 @@ magnet:?xt=urn:btih:4B47CFBCA890D2E83358776C02C2F62C9696E847
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137466.jpg" />
 </div>
 
 
@@ -502,7 +579,7 @@ magnet:?xt=urn:btih:51222B8E3158B3AC258578CB5D3A341CEF09CD4F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137467.jpg" />
 </div>
 
 
@@ -529,7 +606,7 @@ magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137468.jpg" />
 </div>
 
 
@@ -553,7 +630,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137469.jpg" />
 </div>
 
 
@@ -564,78 +641,6 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679377   (137470) от 25.11.2023
-
-Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите Three.js, создавая собственные проекты. Этот курс охватывает всё от начальных до продвинутых тем. Если вы JavaScript-разработчик, который серьезно нацелен на повышение навыков программирования и развитие карьеры, создавая потрясающие интерактивные 3D-проекты непосредственно в веб-браузере, то этот курс именно для вас.Производство: Zero To Mastery Academy (ZTM)Жанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 17:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D42DE48BA87FFE52075F4A2708BD749BD78FE3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436372   (137471) от 31.12.2020
-
-Растровый клипарт - Fotolia - Sushi with ginger and soy sauce stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суши с имбирем и соевым соусом с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 8000x5355
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CA4278E32EF7D54F6D6AA4EF947C80312D8F96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976527   (137472) от 31.12.2016
-
-Wallz Pro 1.3.1 [Ru] - Обои
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая коллекция красивых обоев различной тематики с популярных фото-сервисов. Фото-обои берутся с таких сервисов как: Flickr, 500px, Pixabay, Google+, BING gallery, а также различных OEM-ресурсов.Тип издания: ПираткаРелиз состоялся: 31.12.16Разработчик: The Lockdown TeamПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220884E1FEE2C949B27BC2D29492BF2AF92B6FB2
 ```
 
 

@@ -6,7 +6,7 @@
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20892.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D2F450C8FA5770F9C2E5CF72915E830E1A426529
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20893.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.2.0 + Portable (unofficial) [Multi
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20894.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ OpenNumismat 1.10.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20895.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0166626D6C73F9BFCC8A27CCC258BFF85CEB342C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20896.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9183836D700EAC3827C9D1BE188EFC90F157294A
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20897.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:48F6A9B4D56F58DB926E419CACE7C8ABD585082A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20898.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Soft Organizer Pro 10.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20899.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4B388AE6F199E5DFF69CD27781CAADEAB9FDE0A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20900.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AIMP 5.40 Build 2674 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20901.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8F6B5DF40A77D6EAA5C07693976C482DCBEB1C82
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20902.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20902.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Tomorrowland Winter (2025) [MP3|320 Kbps] <Trance, Tech House, Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20903.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2A73419A3D0E88389000D060E079212DC78F50B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20904.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Reg Organizer 9.70 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20905.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0F36184672221D1BFFB75EBCE1AFA5F378CDB03F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20906.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Black Hole Trance Music 04-25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20907.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20908.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ BitComet 2.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20909.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MediaHuman YouTube Downloader 3.9.10 (1804) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20910.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.2 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20911.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:929FFCA4870F918430F71C430AF0247A39402DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20912.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20912.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:929FFCA4870F918430F71C430AF0247A39402DA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20913.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:27756605847A0E0681A2BDDA8CB8924404001129
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20914.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20914.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:E9B83CA0DAF3BB240F439412A0D26E0F3B6F3DA2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20915.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D0AE8FF7DA5A04F75966A95DFF9F119B693F245E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20916.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Steinberg - HALion 7 7.1.10 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20917.jpg" />
 </div>
 
 

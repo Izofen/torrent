@@ -1,3 +1,180 @@
+###  Публикация: 1086408   (153082) от 24.12.2016
+
+Подшивка журналов | Elektronika Praktyczna (2015) [PDF] [Pl]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153082.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elektronika Praktyczna" ("Практическая электроника") - журнал для радиолюбителей и профессионалов о новинках электроники на польском языке. В каждом номере приведены теоретические сведения, интересные статьи по технике и электронике, новинки в области электроники, справочные данные по электронным компонентам, практические конструкции разнообразной (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DB5F347D7C9C8236AA156D41B51EA2369BF23E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194470   (153084) от 26.12.2017
+
+Физики приближаются к созданию оптического компьютера
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Значительный шаг к созданию компьютеров будущего удалось сделать российским ученым совместно с зарубежными коллегами: они впервые смогли изучить внутреннюю структуру объемных фотонных кристаллов, которые считаются основой перспективной сверхбыстродействующей электроники. Понимание структуры позволит начать проектировать оптические компоненты вычислительной техники (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269940   (153086) от 21.12.2018
+
+Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terraria (Террария) — инди-игра в жанре приключенческой песочницы, которая выпущена независимой игровой студией Re-Logic. Особенностью игры является возможность исследовать мир, создавать различные предметы, строить сооружения и сражаться с разнообразными созданиями, которые случайно генерируются в 2D-мире. Музыка для игры, стилизованная под чиптюн, была написана (   Читать дальше...   )Тип издания: LicenseРазработчик: Engine SoftwareЖанр: Action-adventure,Язык озвучки: Не озвученаЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BD6105203B936C118921556B65C435C56237A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677224   (153087) от 16.11.2023
+
+Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (My Heartbeat)
+02. State of Me
+03. Are You Listening
+04. The Decree(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAAC92523C78EA22406F0172440051C062C0155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657759   (153088) от 23.12.2020
+
+Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Roar
+02. Out Of Control
+03. Out On The Streets
+04. Neuromancer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968709   (153089) от 24.12.2015
+
+Мамульки Bend - Coverock (2015) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ансамбль
+2. Ay
+3. Лимония
+4. Оранжевое настроение(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347234   (153090) от 22.12.2019
+
+Райские холмы / Paradise Hills (2019) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в дивный новый мир. Здесь создан высокотехнологичный остров, имя которому — Райские холмы. Богатые семьи отправляют сюда «несовершенных» дочерей, чтобы преобразить их по своему желанию. Ведь если ты принадлежишь к высшему обществу, даже в далеком будущем брак по любви — непозволительная роскошь. Красота, покорность и непорочность — вот путь к новой (   Читать дальше...   )Производство: Испания / Nostromo Pictures, Colina Paraiso AIE, Radio Televisión EspañolaЖанр: Фантастика, фэнтези, триллерРежиссер: Элис ВэддингтонАктеры: Эмма Робертс, Даниэль Макдональд, Аквафина, Милла Йовович, Эйса Гонсалес, Джереми Ирвин, Арно Валуа, Дэниэл Хорват, Джои Сордил, Нэнси ДжекПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7150359438F465C997F4BC3A84E14D72884072E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518899   (153091) от 21.12.2021
 
 DupeZap 4.1.4 fix [En]
@@ -6,7 +183,7 @@ DupeZap 4.1.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153091.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:40BBB6AED107EA75AF827363D35344A624719AD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153093.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:89A5E145297E0175D4B3C77E7EDC7BE5640CED80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153094.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ CoolUtils Total Mail Converter 4.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153096.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ magnet:?xt=urn:btih:B6C1DE71995512BDCEEBB7986AA20D30E1449335
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153097.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ magnet:?xt=urn:btih:8873ACAB8B786CDFD4A604978A9A5B1BD944CE60
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153098.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ magnet:?xt=urn:btih:CF40169746C135BC1A94729F2DE5E54FE67719C8
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153099.jpg" />
 </div>
 
 
@@ -177,7 +354,7 @@ Reap The Light - Deliver Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153100.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ magnet:?xt=urn:btih:68900B1739BB23033015107C436559C739284CE5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153101.jpg" />
 </div>
 
 
@@ -229,7 +406,7 @@ magnet:?xt=urn:btih:2A3D5F43E7D082912AADD04B17F86EC2888A2A1F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153102.jpg" />
 </div>
 
 
@@ -254,7 +431,7 @@ OTT Navigator PREMIUM v1.6.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153103.jpg" />
 </div>
 
 
@@ -278,7 +455,7 @@ magnet:?xt=urn:btih:C21F12A669C36418412991BC425A739FE6A74AC1
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153104.jpg" />
 </div>
 
 
@@ -302,7 +479,7 @@ magnet:?xt=urn:btih:DFA79104E56D8B6C2CEA65563C725D8BA2ABA00B
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153107.jpg" />
 </div>
 
 
@@ -328,7 +505,7 @@ magnet:?xt=urn:btih:3D83807FCE90086F95746388C81323ACC2D27704
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153108.jpg" />
 </div>
 
 
@@ -352,7 +529,7 @@ magnet:?xt=urn:btih:954DFA0AC0E6D70205DDAA6FDC2FEC8352364E25
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153109.jpg" />
 </div>
 
 
@@ -376,7 +553,7 @@ Conrad Herwig - A Voice Trough The Door (2012) [FLAC|Lossless]<Post-Bop, Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153110.jpg" />
 </div>
 
 
@@ -407,7 +584,7 @@ Conrad Herwig - A Voice Trough The Door (2012) [FLAC|Lossless]<Post-Bop, Contemp
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153111.jpg" />
 </div>
 
 
@@ -431,7 +608,7 @@ magnet:?xt=urn:btih:31F89C1B7CF7CE63D1127203535968F8D9497ABC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153112.jpg" />
 </div>
 
 
@@ -455,7 +632,7 @@ Opera TOR Web Browser 57.0.3098.106 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153113.jpg" />
 </div>
 
 
@@ -466,180 +643,6 @@ Opera TOR Web Browser 57.0.3098.106 Stable Portable by PortableAppZ [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCD3C5E1631817018C3EFED740453DB268E07D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677196   (153114) от 16.11.2023
-
-Пять ночей с Фредди / Five Nights at Freddy's (2023) WEB-DL [H.265/2160p] [SDR, 8-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь сохранить опекунство над сестрёнкой, Майк Шмидт устраивается работать ночным охранником в «Freddy Fazbear’s» — некогда популярный, но ныне закрытый семейный развлекательный центр. Несколько лет назад, когда Майк был ещё ребёнком, его младшего брата похитил неизвестный, и к этому событию парень снова и снова возвращается во сне, пытаясь вспомнить лицо похитителя. (   Читать дальше...   )Производство: США, Blumhouse Productions, ScottGames, Universal PicturesЖанр: ужасы, драмаРежиссер: Эмма ТаммиАктеры: Джош Хатчерсон, Пайпер Рубио, Элизабет Лэил, Мэттью Лиллард, Мэри Стюарт Мастерсон, Кэт Коннер Стерлинг, Дэвид Линд, Кристиан Стоукс, Джозеф Поликуин, Грант ФилиПеревод: Дублированный (неофициальный - HDRezka Studio, Line)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английские (full, SDH)Продолжительность: 01:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679AF39B8A0BAC62D574D26451C327DC9A87C10F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518900   (153115) от 21.12.2021
-
-ImageRanger Pro Edition 1.8.7.1827 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153115.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F410738F0938378B96C1E234872BA3D13EA840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194641   (153117) от 26.12.2017
-
-Михаил Шуфутинский - Неизвестный-Известный (2017) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У вокзала
-02. Кто был ничем…
-03. Не стреляйте в белых лебедей
-04. Супчик из цветной капусты(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5465C2D0A5B4FAAA8C2F7838990B2108B69FC79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152369   (153118) от 29.12.2022
-
-Кооперация / Confidential Assignment / Gongjo (2017) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полковник погранслужбы Северной Кореи Чха Ги-сон занимался поставкой контрабандного оружия для армии, но однажды решил воспользоваться положением и начал возить через границу ещё и наркотики. Был в этом уличен, разжалован, лишен всех регалий. Чтобы отомстить режиму чучхе (в том числе за погибшую в тюрьме жену) бывший полковник выкрал сделанные Пхеньяном клише для (   Читать дальше...   )Производство: Южная КореяЖанр: боевик, драма, комедияРежиссер: Ким Сон-хунАктеры: Хён Бин, Ю Хэ-джин, Ким Джу-хёк, Чан Ён-нам, Ли Дон-хви, Юна, Кон Джон-хван, Ли Хэ-ён, Чон Гук-хванПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 02:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58377AD936B7DBEF2B3B479D346B0EDBDE5472F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343954   (153119) от 22.12.2019
-
-Владислав Чубаров | Погружение в себя (2020) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осознанная счастливая жизнь – это когда эмоции, ощущения, мысли и действия находятся в гармонии. Путь к этому состоянию подобен погружению в воду. Устремляясь вглубь себя, проходя через психологические защиты, доходишь до глубины, где нет границ между сознанием и подсознанием, защитные реакции не подавляют эмоции и истинные желания, – там происходит встреча с собой (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A03CF39A6AB5CA4582C606A8F965FB35E78924
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967911   (153120) от 24.12.2015
-
-Наши соседи (1967) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153120.jpg" />
-</div>
-
-
-###  Подробнее
-
-В освободившуюся комнату коммунальной квартиры вселяется общительный молодой слесарь и сразу же завоевывает симпатии жильцов. Но у мадам Шпаковской, матери единственной дочери, появляются свои виды на благополучного юношу, в котором она признает "знаменитость". Однако молодые люди без ее помощи влюбляются друг в друга, а Шпаковская, узнав, что жених - простой (   Читать дальше...   )Производство: СССР, БеларусьфильмЖанр: КомедияРежиссер: Сергей СплошновАктеры: Лев Фричинский, Наталья Корнеева, Глеб Глебов, Ольга Викланд, Константин Сорокин, Валентина Кравченко, Анатолий Адоскин, Михаил Петров, Рита Гладунко, Тамара ТрушинаПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7624F69A3BCBBC37F397AB12A0F6B4ECD2E6C59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677058   (153122) от 16.11.2023
-
-VA - A Smooth Jazz Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney James - Sleigh Ride (4:17)
-02. Dave Koz - Winter Wonderland (3:48)
-03. David Benoit - Christmas Is Coming (Album Version) (2:55)
-04. Spencer Day - Silver Bells (3:48)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731700797E537C5E5C5F1005A16CB10062F34860
 ```
 
 

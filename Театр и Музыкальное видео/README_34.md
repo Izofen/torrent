@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137864.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25829208A0819348D484CB770065FF0655CC7516
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137878.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138069.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138122.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138164.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:609AC8A1620B4A67B6699F85457F277B293D8DD3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138265.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138329.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5ED4E7F349C85B71B76021BBCE939AE3709C9AFE
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138584.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:21E5EC045BE442BAE3D605E5535D632312051C9E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138610.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:1E80830E88165F44D12D1F64401D51A4E9C441A4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138692.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139182.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:EC8A70448AC0183C8334DF53C115856EB3250460
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139247.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139775.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139921.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139947.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140438.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:04DBB92569A3FD955DD4547CE8139CDC60941D72
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141214.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:75AB74F0AB3398696918CD736805E8832C2D142E
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141692.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5DA8B1139E90FC9506E4552896B3202BBBBA4660
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141852.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:2CF204BB0A33FDEA188CBA67166C1E9260B2157C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142275.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A21A3A2989158AC36AE37D8135C1D0F16D3B874A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142555.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6F9BDABBE1F38C0E3A6ABC52663DEB0072D27B7D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142579.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142784.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:5708AB329C44302B48E524CD024BA0BAA66C9B20
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143017.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:B6DA837A33955FBD380DC20B1800423DA3B64E7B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143224.jpg" />
 </div>
 
 

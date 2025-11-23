@@ -6,7 +6,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37169.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37170.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Neverland - Illusory World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37171.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37172.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Free To Dance, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37173.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Black Hole House Music 11-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37174.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Alesso - Tomorrowland Friendship Mix (2024-11-14) [MP3|320 Kbps] <Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37175.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:4BD028F05E8FEEFEBF86B829ABC1B9723E9AF522
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37176.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:6EED01BB5684A7A38897DC628587C6344D71F996
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37177.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Armin van Buuren - A State Of Trance 1199 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37178.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Foreshadowing - New Wave Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37179.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37180.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Voodoo Circle - Hail To The King (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37181.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Empires Of Eden - Guardians Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37182.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sodom - Tapping The Vein (1992) Super Deluxe Edition, 2024, SPV [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37183.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bunuel - Mansuetude (2024) [FLAC|Lossless|WEB-DL|tracks] <Noise-Rock, Punk-Blues
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37184.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:FED60150365AE1751AE1B6898CD6F15F5371877A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37185.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Guess Who - American Woman (1970) Remastered, 2024, SMCMG [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37186.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:8FF56AB69E9A2970247F414FE60C0CD1898AB0BF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37187.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:72A7871427B1719F093E7EEAAC79E789BE7659F4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37188.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:C6EFD877F2A818E2AE53D67F5A7C21206444B64C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37189.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:0A4034025934598906B219A90F814AF1156651C6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37190.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Free Hex Editor Neo 7.50.00.8782 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37191.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:E167281050CA5CF8F423EB282CF56E86BEC7747A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37192.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Rocking The Blues (2024) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37193.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Linkin Park - From Zero (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37194.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Andreas Georgiou - Asate (2003) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151963.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jerry Bergonzi - Tenorist (2007) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152086.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Henry Mancini - Combo! (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152195.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152387.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stephane Grappelli - Live 1994 (1998) Justin Time Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152449.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Yusef Lateef - The Complete Yusef Lateef (1967) 2002, Collectables [WavPack|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152457.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Larry Clinton & His Orchestra - The Uncollected 1937 - 1938 (1977) Hindsight Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152491.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Joey DeFrancesco & "Papa" John DeFrancesco - All In The Family (1998) HighNote [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152658.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152673.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152784.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Art Van Damme - Keep Going & Blue World (1970) 1995, Universal [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152791.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Howard Rumsey’s Lighthouse All Stars - Sunday Jazz a la Lighthouse (1953) 2007
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152886.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stanley Turrentine - Sugar (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152982.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Saturday Night Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152984.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tony Joe White - Closer To The Truth (1991) [APE|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153055.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Conrad Herwig - A Voice Trough The Door (2012) [FLAC|Lossless]<Post-Bop, Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153110.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - A Smooth Jazz Christmas (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153122.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Erroll Garner - 1952-1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153239.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153303.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Willis Jackson - Bar Wars (1977) 1989, Muse Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153445.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Grant Green - Remembering (1961) 2013, Essential Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153477.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Dave Hole - Outside Looking In (2001) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153517.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Rob Orlemans & Half Past Midnight - Libertyville (2007) [APE|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153519.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153536.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ J.J. Johnson - Quintergy: Live At The Village Vanguard (1988) 1991, Island Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153539.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Lee Morgan - Last Album (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153545.jpg" />
 </div>
 
 

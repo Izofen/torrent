@@ -1,3 +1,85 @@
+###  Публикация: 1677091   (152971) от 16.11.2023
+
+Fitify: Фитнес тренировки дома 1.60.1 Mod by Balatan [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к более чем 10 миллионам людей, которые занимаются с помощью тренировок и планов от Fitify. С нами вы можете тренироваться дома с использованием только веса вашего тела (без оборудования!). Однако мы здесь представляем единственное приложение, которое также предлагает тренировки и тренировочные программы с использованием снарядов для фитнеса.Тип издания: ProРазработчик: Fitify Workouts s.r.o.Поддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C5531A09C6FE64F3A8DFAE706F4C47EF7367AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588940   (152975) от 14.12.2012
+
+Cojones - Bend To Transcend (2012) [MP3|320 кб/с]<Stoner Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have To Run 03:22
+02. Colour 04:53
+03. Bend & Stretch 04:48
+04. Sacred Fire 04:51
+05. Tide 07:38
+06. Hey Baby 03:07
+07. As Far As It Goes 06:06
+08. Indika 05:52Жанр: Stoner RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B157AFE5D1189BFC0DBF6A574A4A51A25DB3B7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086402   (152996) от 24.12.2016
+
+Wondershare Filmora 7.8.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Filmora - программа для редактирования видео.
+В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах.
+
+После того как ваше видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 декабря 2016Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B7EA635916A1F6AA94BEF60FB61608C413B5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194894   (152999) от 26.12.2017
 
 VMware Workstation 14 Pro 14.1.0 Build 7370693 Lite RePack by qazwsxe aka Lisbon [Ru/En]
@@ -6,7 +88,7 @@ VMware Workstation 14 Pro 14.1.0 Build 7370693 Lite RePack by qazwsxe aka Lisbon
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152999.jpg" />
 </div>
 
 
@@ -30,7 +112,7 @@ magnet:?xt=urn:btih:55D9DA356533E0517379372F3BB74499E992ACDF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153000.jpg" />
 </div>
 
 
@@ -54,7 +136,7 @@ magnet:?xt=urn:btih:449193A61CAFED288401A44C6DA6978E81A7150D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153006.jpg" />
 </div>
 
 
@@ -78,7 +160,7 @@ Your Universal MultiBoot Installer 2.0.1.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153008.jpg" />
 </div>
 
 
@@ -102,7 +184,7 @@ K-Lite Codec Pack Update 16.6.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153012.jpg" />
 </div>
 
 
@@ -126,7 +208,7 @@ magnet:?xt=urn:btih:AFC89CCE82B66380A80B01F8F9038A6A4A035885
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153019.jpg" />
 </div>
 
 
@@ -151,7 +233,7 @@ PhotosRevive 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153023.jpg" />
 </div>
 
 
@@ -175,7 +257,7 @@ magnet:?xt=urn:btih:A2318E64A3A6B02E1E3AF55BBC69C607154D03CF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153025.jpg" />
 </div>
 
 
@@ -199,7 +281,7 @@ IconFly - Create icons from images 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153028.jpg" />
 </div>
 
 
@@ -226,7 +308,7 @@ Wondershare PDFelement 10.1.7.2541 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153033.jpg" />
 </div>
 
 
@@ -250,7 +332,7 @@ magnet:?xt=urn:btih:CEC0F16608F1A21A03BD3F5321760EDDC253CB47
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153039.jpg" />
 </div>
 
 
@@ -274,7 +356,7 @@ Sandboxie 5.55.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153043.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ magnet:?xt=urn:btih:06412FAAA3E1C19193960D88D50AFEEC070F3698
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153046.jpg" />
 </div>
 
 
@@ -323,7 +405,7 @@ Mozilla Firefox 43.0.2 Final RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153054.jpg" />
 </div>
 
 
@@ -347,7 +429,7 @@ magnet:?xt=urn:btih:59CE3D844C96E73859B5F288C479373EDE3A81E0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153059.jpg" />
 </div>
 
 
@@ -372,7 +454,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153060.jpg" />
 </div>
 
 
@@ -396,7 +478,7 @@ Usher 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153062.jpg" />
 </div>
 
 
@@ -421,7 +503,7 @@ Best HD Wallpapers Pack (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153071.jpg" />
 </div>
 
 
@@ -445,7 +527,7 @@ CCleaner Browser 77.1.1836.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153075.jpg" />
 </div>
 
 
@@ -469,7 +551,7 @@ Telegram Desktop 2.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153076.jpg" />
 </div>
 
 
@@ -493,7 +575,7 @@ CoolUtils Total Mail Converter 4.1.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153096.jpg" />
 </div>
 
 
@@ -517,7 +599,7 @@ magnet:?xt=urn:btih:B6C1DE71995512BDCEEBB7986AA20D30E1449335
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153104.jpg" />
 </div>
 
 
@@ -541,7 +623,7 @@ magnet:?xt=urn:btih:DFA79104E56D8B6C2CEA65563C725D8BA2ABA00B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153108.jpg" />
 </div>
 
 
@@ -552,78 +634,6 @@ magnet:?xt=urn:btih:DFA79104E56D8B6C2CEA65563C725D8BA2ABA00B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954DFA0AC0E6D70205DDAA6FDC2FEC8352364E25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270877   (153113) от 21.12.2018
-
-Opera TOR Web Browser 57.0.3098.106 Stable Portable by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCD3C5E1631817018C3EFED740453DB268E07D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518900   (153115) от 21.12.2021
-
-ImageRanger Pro Edition 1.8.7.1827 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153115.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F410738F0938378B96C1E234872BA3D13EA840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587086   (153127) от 14.12.2012
-
-Sexy Women Wallpapers (09.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4368х2912
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CC6B04C250CF374689D2C3E720047C6476A545
 ```
 
 

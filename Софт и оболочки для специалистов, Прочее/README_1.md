@@ -6,7 +6,7 @@ EasyUEFI 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KiCad 9.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11561.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maplesoft Maple 2025.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12175.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hydra Launcher 3.6.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12269.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Geneious Pro 4.8.5 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12843.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WinEdt 11.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13464.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Proteus Professional 9.0 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13515.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Snappy Driver Installer Origin R816 | Драйверпаки 25.06.2 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13649.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft .NET 9.0.6 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14973.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ZW3D 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15392.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ZWCAD MFG 2026 SP0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15650.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Graebert ARES Mechanical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16778.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Schrodinger Suite 2025-2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17118.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Plexim Plecs 4.9.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17686.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ZWCAD 2026 SP0 Professional [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17712.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SAS.Планета 250505 portable [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18454.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Sante DICOM Editor 10.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20369.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20369.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Sante DICOM Viewer Pro 14.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20417.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20417.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ashampoo 3D CAD Professional 12.0.0 Portable by FC Portables [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20441.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ BlueStacks App Player 5.22.51.1038 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20648.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20885.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ FlashPrint 5.8.7 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21243.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Mul
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21618.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ OrcaSlicer 2.3.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22167.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22167.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ RisohEditor 5.8.7 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22175.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22175.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Eric's Movie DataBase (EMDB) 5.36 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22625.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) Repack Wanterlude [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27790.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27807.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27837.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.110917.0/dlc) Repack FitGirl [Dwarven
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27852.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27870.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27895.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27945.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27969.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27969.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27984.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27989.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27990.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27993.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28008.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Back Then (2023) [Multi] (3.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28020.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Jet Kave Adventure (2021) [Multi] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28048.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28053.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Jet Kave Adventure (2021) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28070.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28072.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 8603627/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28073.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Stars In The Trash (2024) [Ru/Multi] (1.04 Build 20250209) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28089.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28096.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (1.0.27/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28099.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28112.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28113.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28114.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28118.jpg" />
 </div>
 
 

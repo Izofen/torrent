@@ -1,3 +1,30 @@
+###  Публикация: 1594739   (177226) от 02.12.2022
+
+Disturbed - Divisive (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You 4:28
+02. Bad Man 3:22
+03. Divisive 3:58
+04. Unstoppable	3:58(   Читать дальше...   )Жанр: Groove Metal, Nu MetalПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AB0DB915C647E71C19D3B45C0C4B1CBE2B985B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594681   (177236) от 02.12.2022
 
 Чёрный Кофе - Слёзы Дождя (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +33,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177236.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177236.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ magnet:?xt=urn:btih:BE339C6DF0034ED3DBB9FC23353CEE26AF96CA1D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177238.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177238.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ magnet:?xt=urn:btih:4788732DA9BF15D6C68C248B569FFEDBE50CF48B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177278.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177278.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ magnet:?xt=urn:btih:B7F66C4FAF54068F1C498CE1C107D65AC5381804
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177298.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177298.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Ring Of Fire - Gravity (2022) [FLAC|Lossless|image + .cue] <Neo-Classical Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177354.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177354.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ magnet:?xt=urn:btih:5450C82AB52387E664E03A1BF15CC56B2ADECCC0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177367.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177367.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ magnet:?xt=urn:btih:C43AB00D5F60CC59DD7C944C44767480C506F955
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177372.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177372.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Seventh Wonder - The Testament (2022) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177383.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177383.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177389.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177389.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177402.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177402.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177410.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177410.jpg" />
 </div>
 
 
@@ -295,6 +322,33 @@ magnet:?xt=urn:btih:8571E6F8371669CF1BA8CEC46B7C9C8D2BBDCB5A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429341   (177436) от 05.12.2020
+
+Racy Glow - Into the Wild (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Riders (04:22)
+02. Born to Die Free (04:52)
+03. Into the Wild (04:25)
+04. We Are Goin’ On (03:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00303A6DCBA6CFCDBCE21022EA45F8318B4CF79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594326   (177440) от 02.12.2022
 
 Atomic Trip - 3 Albums (2017-2022) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
@@ -303,7 +357,7 @@ Atomic Trip - 3 Albums (2017-2022) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177440.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177440.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Dire Straits - Live 1978 - 1992 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177443.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Aggressiful - Инновация (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177452.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177452.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Entheos - 3 Singles, 1 EP (2015-2022) [MP3|320 Kbps] <Progressive Metalcore, Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177456.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ Faust - From Glory To Infinity (2010) [WavPack|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177462.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177462.jpg" />
 </div>
 
 
@@ -430,6 +484,33 @@ magnet:?xt=urn:btih:C4BD78D49E61F2B1A347E956CBF86A0F06D32E91
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429340   (177463) от 05.12.2020
+
+VA - Best Of Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Me At Six - Underdog (2:25)
+02. Rise Against - House On Fire (3:14)
+03. Royal Republic - Getting Along (2:17)
+04. The Killers - Caution - Radio Edit (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59FB495B911418E7C77FB9748AAF4ECDECED97A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594613   (177466) от 02.12.2022
 
 Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, Metalcore>
@@ -438,7 +519,7 @@ Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177466.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Creation's End - A New Beginning (2010) [WavPack|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177471.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177481.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177481.jpg" />
 </div>
 
 
@@ -511,6 +592,33 @@ magnet:?xt=urn:btih:AB36C4A8223BBFFF7116AF9A84F599E08FBC6B33
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429284   (177531) от 05.12.2020
+
+Smokie - Bright Lights & Back Alleys (1977) Ariola 261028 [FLAC|Lossless|image + .cue]<Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Your Life (3:36)
+ 02. I Can't Stay Here Tonight (4:09)
+ 03. Sunshine Avenue (3:13)
+ 04. Think of Me (4:44)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75386F6D29F1E482DB93F5BDBED4E1BCAC9599A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667253   (177532) от 07.10.2023
 
 Advent Horizon - A Cell To Call Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
@@ -519,7 +627,7 @@ Advent Horizon - A Cell To Call Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177532.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Ufo - Hot N’ Ready In Texas Live 1979 (2011) Remaster, 2023, Cleopatra Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177566.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177574.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177574.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72AD2BBF754C77F530C15DB87CB9F3F8ABD41173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667239   (177596) от 07.10.2023
-
-Apotheus - Ergo Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape and Geometry [00:05:36]
-02. The Unification Project [00:05:23]
-03. Firewall [00:04:53]
-04. Cogito [00:04:53](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E734FB183857D8F546447B98305A012295E262A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667293   (177603) от 07.10.2023
-
-Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Face I Reflect
-02. Die Young
-03. Rain Song
-04. Broken(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A74272D7EDD4E0A2E6189E1BBF45826B2354DB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667246   (177607) от 07.10.2023
-
-Marcel Verand - Memorias De Un Despertar - Reclama Tu Libertad (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy Tu Creación
-02. Enciende Tu Luz
-03. Vuelve Tus Sueños Realidad
-04. Yo Soy(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B163FB42C1F2CBCF6D34FBE6D03A456AE9F661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667249   (177619) от 07.10.2023
-
-Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Indvstrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (0)485
-02. Doombreaker
-03. Anti-Savior
-04. Ofelia(   Читать дальше...   )Жанр: Symphonic Indvstrial MetalПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF1ABBD87E2ABC341CE1C1ECE2BD25F826E34C3
 ```
 
 

@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15025.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15026.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bon Jovi - Bon Jovi + 7800° Fahrenheit (1999) Compilation, Reissue, 2009, Unive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15027.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0F6F5E5A301376803A97393E76011B8E15944638
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15028.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C904A6758AF782D322B08D61E2D40BB8E44FDED8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15029.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Jimi Hendrix - BBC Sessions 1967 (2025) Remastered, Live On Broadcasting [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15030.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Animalyze - Powerhouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15031.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Shirley Bassey - The Singer: Classic and Undiscovered Gems 1962-79 (2025) [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15032.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C21F9301EE0905D014EDD6ADB750557B5CD05470
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15033.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15034.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15035.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:FFA0EC88F83A968F7D564C2F176CF04837BAD839
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15036.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15037.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15038.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15039.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Räum (Raum) - Emperor of the Sun (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15040.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15041.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Mesmur - S (2017) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15042.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15043.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15044.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15045.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:BF74E0373A547F2B335F2E8D539AE5A2737E781A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15046.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:585FC522934F1BDABD5DD1F24FBB9033634E6A63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15047.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:6BF1451DBE04FFEA8C64556B484A753191235D4C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15048.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Stone Voices - Ambient Reverb 7 7.1.7 VST, VST 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15049.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:46E2C439DC56E640134536698C3AE246572B2A7C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15050.jpg" />
 </div>
 
 

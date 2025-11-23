@@ -6,7 +6,7 @@ Tad Morose - Revenant (2013) [FLAC|Lossless|image + .cue] <Progressive Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112155.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tad Morose - St. Demonius (2015) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112156.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Torchia - Arcane Magicae (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112169.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Isle of the Cross - Excelsis (2020) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112172.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lesson In Violence - No Need For Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112174.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Timeless Haunt - Dark for Life (2021) [FLAC|Lossless|image + .cue] <Heavy, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112175.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sleeping Well - Wisdom Of The Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112176.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DragonForce - Warp Speed Warriors (2024) [FLAC|Lossless|tracks + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112177.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3963E8B982C3734286E942C5B4CB21477FC9639C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112184.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mannequin Pussy - I Got Heaven (2024) [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112186.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F4B1CECCEBCC718E1346B485D532747F5908FAC0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112196.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tad Morose - Paradigma (1996) EP [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112253.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tad Morose - Modus Vivendi (2003) Japanese Edition, Reissue, 2004, Century Media
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112255.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tad Morose - Reflections (2000) Compilation, 2001,  Remastered, Irond Ltd. [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112256.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tad Morose - A Mended Rhyme (1997) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112257.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tad Morose - Undead (2000) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112258.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112267.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112269.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112277.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Leviathan Project - MCMLXXXII (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112280.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dino Jelusick - Chosen Gems (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112286.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112298.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Tad Morose - Leaving the Past Behind (1993) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112335.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Corsair - The Golden Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112337.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tad Morose - Sender of Thoughts (1995) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112339.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112343.jpg" />
 </div>
 
 

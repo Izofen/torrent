@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9C5B75C2F4E2F2832F5FB3B287026DF2A75A47E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55343.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lovejagten / Охота на львов (1907) WEBRip [H.264/720p]
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A9E069271BF4BF24764C152F829743AE40B92170
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55731.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D728CF9D10DA722BB0BCCCDC7F2F255FBF4EDAA2
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:47D2FBE73F9628DB6B2B46411D7FBEBA34874636
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57442.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:132B444738CFF04F8A028BCC0FF47369CBF6B117
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57446.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:94BB1AE48AD703A4D719EA62D76EC38CE9CABC1F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57518.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:50FAA57A6C1FBD9403AB4EABBD95F9D52DC3C0A4
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57521.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:332E758648428FF3CC50482FB9D3D3CD89217D4A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57526.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E31472E60C9B5C0322A748AA6AABC9B0B86A4352
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57627.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F14567338D629F83FDA7F25724DE323D4EBEC97D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59009.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:618D74ABEB8B462A742531E6CF1BE58485DD22C3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59015.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FEE47238730F4B5A3B060F5BC8048868011E813F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59016.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:29F0CDD0B2BA1ADDFBCF8E5DC7A2C44A37D07550
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59018.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:30590CE1B3E9A5879221624F638A95DE5426C6D2
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59038.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C89FD8046565F4C285150FED2D8DA9D29FFB923E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59075.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:52F2C2C8036552BF72A589F66D3CD556BCD7B7A1
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59076.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:1637D41C78779B836F9BACD7ED896934CD9858CF
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59102.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:1DDD180F1DBF4445712CC25BAFF06E1B35610436
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59103.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:58D1E34AAB1B30FEE0B9410D33B3EE3A9DDE2374
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59326.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0B035378285987D617F3B7EA9C76A120484587B0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59428.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D205B8B6671011E3C486591F4573BE21B130B9BD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59531.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:7263D05CE0C2DD5F23B6B573741FCC05DA9AAE24
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59532.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Гонка (14.04.2024) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59601.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:59325089CC3183A256097325C90E9DF628C4EB7C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59743.jpg" />
 </div>
 
 

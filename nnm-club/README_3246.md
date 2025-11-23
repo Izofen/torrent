@@ -1,3 +1,83 @@
+###  Публикация: 1751442   (104077) от 25.09.2024
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Витязь (Балашиха) (24.09.2024)
+СУДЬИ Лаврентьев Антон (Казань, Россия) Спирин Виктор (Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 4872Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCA19CE24C0CE434654F3E71615B3D191956726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751054   (104078) от 23.09.2024
+
+Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Did You Go (5:30)
+02. Goodbye, My Love (3:21)
+03. Midnight Tears (5:51)
+04. Echoes of Sorrow (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DCC94CBC52640BBA9A735F701D980AD3ADAC74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751048   (104079) от 23.09.2024
+
+Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses Patrou - Cali Mambo (4:38)
+02. Tom Beckham - Star Eyes (6:33)
+03. Tom Beckham - Poinciana (5:46)
+04. Tom Beckham - La Enganadora (3:59)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A775B916486B4B5DBBCA0DA07237E918CDF070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751037   (104080) от 23.09.2024
 
 Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +86,7 @@ Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104080.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:739BED6F4EC1E4E3BAD7AC6A85E22906B3BDC899
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104081.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ magnet:?xt=urn:btih:99272E5B2D3D4111FE8F733952C0FE7EFA0C943F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104082.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ magnet:?xt=urn:btih:DC649633ADD0D1DA000258DB134B170D6E473BA4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104083.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104084.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104085.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104086.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104087.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104088.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104089.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104090.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104091.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104092.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104093.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104094.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104095.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104096.jpg" />
 </div>
 
 
@@ -460,7 +540,7 @@ Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104097.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104098.jpg" />
 </div>
 
 
@@ -514,7 +594,7 @@ LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104099.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104100.jpg" />
 </div>
 
 
@@ -568,7 +648,7 @@ Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104101.jpg" />
 </div>
 
 
@@ -595,7 +675,7 @@ Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104102.jpg" />
 </div>
 
 
@@ -609,87 +689,6 @@ Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750798   (104103) от 22.09.2024
-
-Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey Intro (1:12)
-02. Whiskey And Women (3:45)
-03. Gypsy Woman (3:37)
-04. That Old Blues Again (6:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B39E60AEDDB812C10FF86A9D0713430036E84A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750972   (104104) от 22.09.2024
-
-The Mothercrow - Foraneo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Rock, Psych Blues Rock, 70's>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing My Ground (4:33)
-02. Howling (3:55)
-03. Danger Rules (3:49)
-04. Tumbling Down (5:47)(   Читать дальше...   )Жанр: Heavy Rock, Psych Blues Rock, 70'sПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287392B1A535E486CE1125434C3D1B3F926F30EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750800   (104105) от 22.09.2024
-
-Asha Parkinson - Possession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Fantasy (4:14)
-02. Distant Devotion (4:38)
-03. Mirror Image (4:40)
-04. Possession (4:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6F7A31A725413924922E65ECF165DDBBFC471C
 ```
 
 

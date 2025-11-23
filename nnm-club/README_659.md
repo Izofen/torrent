@@ -6,7 +6,7 @@ Audiophile NBR Music - Speak Softly Love (Deluxe Edition) (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C9038CC3B4797A2B35AE750C1CD05BF9FECDD5FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17452.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Atlantic Behind - Delusion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17453.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:794D9845536250E62082C2B9B3D14AE7DE45DF3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17454.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D48AC8E8939324AA7D88A3798344FCF1292CD0E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17455.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:687052C8ADE4ABF038CBB03129EB17098E2395C8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17456.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Ui Kits - UI8 - Sublima UI (v3.0 ) - UI kit and Design system [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17457.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17458.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17459.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17460.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:46985BA4E07317CF3EBBDC67F34E9D193B0852D4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17461.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Adobe Photoshop 2025 26.7.0.15 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17462.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Adobe Photoshop 2025 26.7.0.15 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17463.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:DD5BEE5468FDEA3D510F77B30DB39FDF40421C2F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17464.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17465.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7DFB09EBC8B2FD818614EF4AA05B9CCABE22870E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17466.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DLRip [H.264/720p]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17467.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (build 18552414) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17468.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Windows 11 PRO 23H2 22631.5335 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17469.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17470.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:57BCBBE9571B3398EAB53E96067990C780BCF53D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17471.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:1EB9E8080BC7901A86574623A5D4F576FBBABCCB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17472.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:10B27AAE15023D2141CD8B9C4E6A4C01D7EC05C5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17473.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:3578BC356841FECC22ABC73030E8A78A704D377F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17474.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17475.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:134AEA816A8045ABB317019F93405B7D1485A1FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17476.jpg" />
 </div>
 
 

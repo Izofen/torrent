@@ -6,7 +6,7 @@ Blind Guardian - Somewhere Far Beyond (Live at Rock Hard Festival 2022) (2024) [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105826.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blacklist - With Murderous Intent (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105834.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:44AD54AABB4DBBE551F122978C149571DEA03533
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105836.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105851.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:34ABCD7682299A66938AD80BD671208CE969D7A9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105873.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DE3963CB154C36F3D3F4AC54B5C130DAE61A8C84
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105888.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sarke - Endo Feight (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105898.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Akroasis - Hubris (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105903.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ NanoStorm - Mister Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105904.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ron Keel - Keelworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105909.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105917.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Seventh Dimension - Of Hope & Ordeals (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105926.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Autumns Eyes - Grimoire Of Oak & Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105927.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ In Other Climes - Spreading Chaos (Since 2004) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105929.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mechanyzed - Ivy King (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105930.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:2D2ACAB25EFE6DDE6D4566D6C808F0F11F5215FC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105933.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Cherry Bomb - Sunset BLVD (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105942.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse (2024) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105947.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eden Architect - Form And Function (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105966.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ColdCell - Age of Unreason (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105968.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105980.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Surf - Rock & Pop (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Surf>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105981.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105985.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Fab Manzini Music - Chapter One (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105987.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hall Aflame - Amplifire (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105988.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Band of the Underhand - A Cheap Ride To Heaven (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105989.jpg" />
 </div>
 
 

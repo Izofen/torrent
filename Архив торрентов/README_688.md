@@ -1,3 +1,79 @@
+###  Публикация: 1252111   (144907) от 26.12.2018
+
+Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Негодник, которому не снилась девушка-кролик [2018, TV, 13] WEB-DL 1080p rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет полон слухов о «синдроме юности», что проявляется у подростков с неустойчивой психикой. Старшекласснику Сакуте он знаком не понаслышке, ведь ему одна за другой встречаются девушки, страдающие этим загадочным синдромом. Так, однажды в библиотеке он натыкается на девушку в вызывающем костюме кролика, однако, к его удивлению, никто вокруг не обращает на неё (   Читать дальше...   )Производство: студия CloverWorksЖанр: романтика, комедияРежиссер: Масуй СойтиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89673B0FDA9B4AB1F6E6526A2886E05F29626ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087601   (144911) от 28.12.2016
+
+Хаме-леон - Ночь шальных машин в городе тьмы (2016) [FLAC|lossless|image + .cue] <Progressive Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пламя (03:58)
+02. Мастер перевоплощения (03:58)
+03. Крылья расправь (07:46)
+04. Ночь шальных машин (05:52)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291B09664C0578EF14149E8B9DAA99F4B13D2B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087867   (144916) от 28.12.2016
+
+CopyClip 2 - Clipboard Manager v2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144916.jpg" />
+</div>
+
+
+###  Подробнее
+
+CopyClip 2 - эффективный менеджер буфера обмена
+CopyClip - очень простой и эффективный менеджер буфера обмена для вашего Mac, значек которого после запуска, находиться в строке меню и всегда под рукой. Приложение хранит все, что вы скопировали или вырезали в прошлом, что позволяет быстро обнаружить нужный фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00F6E1320F93C2C43A1EFF15774D37323A2CB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 739456   (144926) от 29.12.2013
 
 Оддог оробо Муро - Красный Дом (2013) [MP3|320 кб/с]<underground rap>
@@ -6,7 +82,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144926.jpg" />
 </div>
 
 
@@ -34,7 +110,7 @@ magnet:?xt=urn:btih:1AF44CC299C93A5ED05180F45D3D3EBBE473ECD2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144932.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ BELOFF 2020.12 Medium
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144933.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ VA - Orbita Solaris - Sacred Sequence (2013) [FLAC|Lossless|WEB-DL]<Psybient, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144937.jpg" />
 </div>
 
 
@@ -111,7 +187,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144939.jpg" />
 </div>
 
 
@@ -135,7 +211,7 @@ Slimjet 25.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144940.jpg" />
 </div>
 
 
@@ -159,7 +235,7 @@ Infix PDF Editor 5.26  Professional [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144941.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ TG Pro (Temperature Gauge Pro) 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144943.jpg" />
 </div>
 
 
@@ -210,7 +286,7 @@ Adobe Audition CC 2019 12.0.1.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144957.jpg" />
 </div>
 
 
@@ -234,7 +310,7 @@ Comfy File Recovery 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144959.jpg" />
 </div>
 
 
@@ -258,7 +334,7 @@ Adobe Media Encoder CC 2019 13.0.2.39 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144965.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ magnet:?xt=urn:btih:DF304A3C3E5D002CD505C79AE5FCC0F72716FA59
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144966.jpg" />
 </div>
 
 
@@ -306,7 +382,7 @@ VA - Sound: 2017 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144976.jpg" />
 </div>
 
 
@@ -333,7 +409,7 @@ AI War 2  v1.023 (2019) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144977.jpg" />
 </div>
 
 
@@ -359,7 +435,7 @@ MyLanViewer 4.19.7 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144979.jpg" />
 </div>
 
 
@@ -383,7 +459,7 @@ magnet:?xt=urn:btih:275854430D7692057414E68BC8CBE42681F2EDFD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144985.jpg" />
 </div>
 
 
@@ -407,7 +483,7 @@ PUTS (People Under The Stairs) - The Gettin' Off Stage, Step 2 (2016) EP [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144990.jpg" />
 </div>
 
 
@@ -434,7 +510,7 @@ Jamie xx - In Colour (2015) Japanese Edition [FLAC|Lossless|tracks + .cue] <Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144998.jpg" />
 </div>
 
 
@@ -461,7 +537,7 @@ AIMP 5.01 build 2357 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145002.jpg" />
 </div>
 
 
@@ -485,7 +561,7 @@ WinTools.net Premium 22.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145018.jpg" />
 </div>
 
 
@@ -509,7 +585,7 @@ qBittorrent 3.3.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145039.jpg" />
 </div>
 
 
@@ -533,7 +609,7 @@ CrystalDiskInfo 9.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145046.jpg" />
 </div>
 
 
@@ -557,7 +633,7 @@ magnet:?xt=urn:btih:9EF039BDECFD3F6AB1E183B4B544C970BB270194
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145050.jpg" />
 </div>
 
 
@@ -568,82 +644,6 @@ magnet:?xt=urn:btih:9EF039BDECFD3F6AB1E183B4B544C970BB270194
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0964F9023679703FB907965037360AE9D7B9AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348209   (145058) от 27.12.2019
-
-Дмитрий Семеник | Самоубийство - ошибка или выход (2019) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145058.jpg" />
-</div>
-
-
-###  Подробнее
-
-О суициде не принято говорить. Но нестерпимая душевная боль, отчаянье, чувства ненужности или пустоты неисчислимыми оттенками мрачной палитры затмевают разум и душу многим и многим тысячам людей. Они живут там, внутри, эти мысли, от которых кажется, что ты сходишь с ума…
-Люди с суицидальными намерениями находятся в состоянии чрезвычайного психического напряжения, (   Читать дальше...   )Жанр: практическая психологияПродолжительность: 08:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185D71124AD6FE462E5005965AEB113A841F85BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435084   (145059) от 27.12.2020
-
-CyberLink PowerDirector Ultimate 19.1.2407.0 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145059.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79079429EE2930F7A4CAA8F0FEF42471530E9D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087563   (145079) от 28.12.2016
-
-Eschaton - Icaros (2016) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perihelion (Original Mix) (07:07)
- 02. Entheogen (Original Mix) (ft Parallel) (07:51)
- 03. Animism (Original Mix) (07:10)
- 04. Kensho (Original Mix) (05:46)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F729408B26713E9E121FF5C04DBB41FFFB9A3E
 ```
 
 

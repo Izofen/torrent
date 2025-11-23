@@ -1,3 +1,147 @@
+###  Публикация: 637600   (142385) от 29.12.2015
+
+MAVEN Music Player Pro 2.48.39 [Ru] - Аудио плеер
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плеер с 7-ми полосным эквалайзером от компании по разработке 3D звука EMERSYS с простым и легко управляемым интерфейсом.  MP3, OGG, WAV (не поддерживает WMA, FLAC, AMR)Тип издания: ПираткаРелиз состоялся: 29.12.15Разработчик: EMERSYSПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9EEB607589642FE15CF5DC0954632740BFBDA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348652   (142386) от 28.12.2019
+
+Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Password Recovery Bundle – пакет программ, позволяющая менеджерам, администраторам по поддержке в области информационных технологий и правоохранительным органам получить доступ к различным защищенным паролями документам, которые были случайно или намеренно защищены паролями. Продукт использует новейшие и наиболее совершенные криптоаналитические алгоритмы расшифровки.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3300313D43885558F9935DE2A81100E2E1B75F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435801   (142388) от 29.12.2020
+
+Растровый клипарт - Fotolia - New Year and Christmas stock photos №55 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4000x2666-9005x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A04972CD45870781E394F804F92FC0DAB2C4DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969892   (142389) от 29.12.2015
+
+Скорость: Автобус 657 / Heist  (2015) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что обокрасть Фрэнка Поупа, владельца казино и босса мафии - это самоубийство. Но однажды некогда преданный ему крупье решается вынести из кассы казино несколько миллионов долларов. Все было продумано, но план не сработал. Скрываясь с места преступления, грабители захватывают автобус, полный заложников. На бешеной скорости автобус мчится к мексиканской (   Читать дальше...   )Производство: США, Emmett/Furla Films, Silver Plane Films, Mass Hysteria Entertainment, Tri Vision PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Скотт МаннАктеры: Джеффри Дин Морган, Роберт Де Ниро, Кейт Босворт, Дэйв Батиста, Джина Карано, Моррис Честнат, Марк-Пол Госселаар, Д.Б. Суини, Саммер Элтис, Алисса Джулия Смит, Лидия Халл, Кортни Би ТуркПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Михаил ЯроцкийСубтитры: ОтсутствуютПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA2B2CA77B72B7CB1724C6640A2B5B74D341913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272507   (142390) от 28.12.2018
+
+Самвел Аветисян | Между клизмой и харизмой (2019) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самвел Аветисян - первопроходимец российского маркетинга, известный благодаря участию в запуске и провокационному продвижению кампаний «Тинькофф», «Дарья» и «Техношок». В искрометной и ироничной попытке автобиографии Самвел рассказывает историю рождения российского бизнеса. Один из главных героев истории - типичный российский бизнесмен начала 90-х. Напористый и дерзкий (   Читать дальше...   )Жанр: Биографии и Мемуары, Просто о бизнесе, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6A936AE6DCC030F10A5403A53E59B44F50CBC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316445   (142392) от 28.12.2019
+
+Animal Planet: Удивительный мир животных (часть 2) / How do Animals do That (2019) HDTV [H.264/1080i] (эпизоды 21-35) (Обновляемая?)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные делают самые невероятные вещи, но задумывались ли вы когда-нибудь, как или почему? Ответы на самые острые вопросы мира природы. Например, как светлячки светятся в темноте? Как слоны слушают сквозь ноги? Почему собаки виляют хвостами? Всё, чтобы понять: как животные делают это?Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Кети Бакланд, Гаретч СакалаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EEAC668A28E88D1849A919545E79C1C92E297A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435576   (142393) от 29.12.2020
 
 Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
@@ -6,7 +150,7 @@ Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142393.jpg" />
 </div>
 
 
@@ -33,7 +177,7 @@ VA - Martian's Gift, vol. 2 (2021) [AAC|~319 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142394.jpg" />
 </div>
 
 
@@ -60,7 +204,7 @@ JixiPix Premium Pack 1.2.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142395.jpg" />
 </div>
 
 
@@ -84,7 +228,7 @@ magnet:?xt=urn:btih:89731DC8AF842635AD90421F833ECBE05E5B0F42
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142396.jpg" />
 </div>
 
 
@@ -110,7 +254,7 @@ VA - Music Lovers Club #003 (2021) [AAC|~290 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142399.jpg" />
 </div>
 
 
@@ -137,7 +281,7 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142400.jpg" />
 </div>
 
 
@@ -164,7 +308,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -191,7 +335,7 @@ magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142402.jpg" />
 </div>
 
 
@@ -215,7 +359,7 @@ magnet:?xt=urn:btih:C2345058B2DB7250C2F08C0E7A55D5930859822B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142404.jpg" />
 </div>
 
 
@@ -239,7 +383,7 @@ AI RoboForm Enterprise 7.9.17.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142405.jpg" />
 </div>
 
 
@@ -263,7 +407,7 @@ magnet:?xt=urn:btih:D46D4B9672A46843AD43CCEC7BCA1E4F0D783770
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142406.jpg" />
 </div>
 
 
@@ -287,7 +431,7 @@ magnet:?xt=urn:btih:6CC8F22A0529CBFC20755F05D0EEE2105B879BF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142407.jpg" />
 </div>
 
 
@@ -311,7 +455,7 @@ VA - Music Lovers Club #001 (2019) [AAC|~295 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142408.jpg" />
 </div>
 
 
@@ -338,7 +482,7 @@ George Michael - December Song (I Dreamed of Christmas) EP (2009) [AAC|256 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142409.jpg" />
 </div>
 
 
@@ -365,7 +509,7 @@ Maxthon Browser 5.1.5.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142410.jpg" />
 </div>
 
 
@@ -390,7 +534,7 @@ magnet:?xt=urn:btih:25C66D5641008ABDB9C1C8367505A251E9CBF35C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142411.jpg" />
 </div>
 
 
@@ -418,7 +562,7 @@ magnet:?xt=urn:btih:05724C934F2829951CB565DA557B2B6796A1FE27
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142413.jpg" />
 </div>
 
 
@@ -442,7 +586,7 @@ SiteSucker 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142414.jpg" />
 </div>
 
 
@@ -467,7 +611,7 @@ magnet:?xt=urn:btih:BCF97920790CD2BFEFB0213FF867F1C6DC63E963
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142415.jpg" />
 </div>
 
 
@@ -491,7 +635,7 @@ Burning Witches - Burning Witches (2017) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142416.jpg" />
 </div>
 
 
@@ -505,159 +649,6 @@ Burning Witches - Burning Witches (2017) Japanese Edition [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D9E331D798295EAA9D1BF32B30057FD7673841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272618   (142417) от 28.12.2018
-
-The Crypt (Байки из склепа) 1.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142417.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Crypt v1.0 (Байки из склепа) - приложение для любителей "олдскульных" ужасов. Содержит в себе американский телесериал-антологию. С 1989 по 1996 год было снято 7 сезонов (общей сложностью 93 эпизода). Первая серия вышла на экраны 10 июня 1989 года, последняя — 19 июля 1996 года. Сериал был основан на популярных в 1950-е годы одноимённых комиксах. Каждый (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 27.12.2018Разработчик: ShostBoxПоддерживаемая ОС: 4.1 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4B54829C5BA5F4CCA1418B51F54199F2AA7BE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087896   (142418) от 29.12.2016
-
-Chimeras 3: Cursed and Forgotten / Химеры 3: Проклятые и забытые (2016) [Ru] (1.0.9) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы отправились в Шотландию, чтобы узнать больше о своем наследии. То, что начиналось, как расслабляющий отдых, вдруг превратилось в путешествие во времени! Ваша прародительница была похищена бандитом. Только Вы сможете спасти ее! Но не все так просто в этом волшебном мире.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C9A4CC8229ABF51054B724A7F93847B69FBF61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195251   (142421) от 29.12.2017
-
-VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooklyn Guy - Cold Stuff (Original Mix)
-02. Astero feat. Tiana - Satellite
-03. Anthony Chocco - Oh My Baby (Sensoniques Deep Mix)
-04. A Club Tunes - Cry(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086038   (142422) от 29.12.2016
-
-Путь на Запад / The Way West (1967) Blu-ray [H.264 /1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XIX века. Уильям Тэдлок ведет переселенцев на запад Америки, чтобы создать там новое поселение. Тэдлок - строгий предводитель, который одинаково требователен как к себе, так и к остальным участникам похода. По дороге путешественникам приходится пережить множество несчастий, а после убийства индейского мальчика испытать на себе всю силу правосудия.Производство: США, Harold Hecht ProductionsЖанр: Вестерн, экранизацияРежиссер: Эндрю В. МакЛагленАктеры: Кирк Дуглас, Роберт Митчэм, Ричард Уидмарк, Лола Олбрайт, Салли Филд, Кэтрин Джастис, Джек Илэм, Стабби Кайе, Майкл МакГриви, Харри Кэри,Конни Сойер, Майкл Уитни, Уильям Лэндиган, Элизабет Фрейзер, Джон МитчумПеревод: (Многоголосый закадровый, Петербург - 5 канал)Продолжительность: 02:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C241DFD878BDC3634C5C0DD54523E5AA4958D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435735   (142423) от 29.12.2020
-
-Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Мужчины. Гонка преследования 12,5 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по биатлону 2020-2021
-19 декабря 2020, суббота. 15:00 МСК
-Этап 4. Хохфильцен (Австрия)
-Мужчины. Гонка преследования 12,5 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A72E48E026F6F7A6B2D05BBBB27BA08B460401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520400   (142424) от 28.12.2021
-
-VA - Silent Night Chill-Out (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Polar Nights (Original Mix) (6:22)
-02. Chambre 7 - Rising to the Top (Original Mix) (3:56)
-03. Andre Wildenhues - Eagle Beach (Original Mix) (3:48)
-04. Tranquillo - As Days Go By (Original Mix) (6:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46663EC3BCC9503116B44CD59FF4B2232A6D047
 ```
 
 

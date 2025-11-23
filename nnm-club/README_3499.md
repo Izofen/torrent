@@ -1,3 +1,76 @@
+###  Публикация: 1719319   (110656) от 28.04.2024
+
+НашПотребНадзор (28.04.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проверка куриных яиц самых популярных брендов: яйца от каких брендов меньше, чем написано на коробке и яйца какой категории брать экономичнее всего? Мясо диких лосей, оленей и кабанов действительно натуральнее, безопаснее, полезнее чем обычные свинина и курятина и что находится в банках с консервированной дичью. Жевательный мармелад: от каких брендов сладкое угощение (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2537830807EE7ACFBF13E3DEF6ACB9E650D08BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703063   (110657) от 28.04.2024
+
+Перекоп (1929) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущенный к годовщине взятия Перекопа, фильм состоит из некоторого числа эпизодов, на первый взгляд не связанных напрямую друг с другом...
+Крестьянин-бедняк тщетно пытается приделать к сохе нож, чтобы заменить им лемех. Грустно смотрят на невспаханное поле крестьянки. Бездействует завод, но приходят рабочие и пускают его. Восстанавливаются шахты, движутся вагонетки, (   Читать дальше...   )Производство: СССР, Украинфильм (Одесса)Жанр: драма, история, немое киноРежиссер: Иван КавалеридзеАктеры: Сергей Минин, В. Поддубный, Степан Шагайда, Семён Свашенко, Иван Твердохлиб, Екатерина Осмяловская, Степан ВасютинскийСубтитры: украинские (интертитры), русские отдельным файломПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26485D0C10C2F5772E2D2C8C75D51D0849DD839C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717356   (110658) от 28.04.2024
+
+4K Video Downloader + 1.5.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55870C0C42C686B0D45FC2B751C8EF94D8A2229D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718587   (110659) от 28.04.2024
 
 VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
@@ -6,7 +79,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110659.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110660.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:23B146C618E7B831A0238333EC639E61395FA58A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110661.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:4CBA45B425F2B61C46100BAF9569D34C1274C8D6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110662.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:E6EB93DC4DD2445FBE9052CF91F6458ADC1EFDD7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110663.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ magnet:?xt=urn:btih:72ED8C77D91C87503952049BB5E62BD5E2F7C36A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110664.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110665.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110666.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:BE6219C8FFD79B25BB744CA914386F8BCFBB81B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110667.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Topaz Gigapixel AI 7.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110668.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ Topaz Gigapixel AI 7.1.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110669.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:53F82073D92DB08C04757A1021BE3046DB613474
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110670.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Call Me Malcolm - Echoes and Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110671.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110672.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ magnet:?xt=urn:btih:5B2A2525B098D07E689729AF09AFB1A35F57640A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110673.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ n-Track Studio Suite 10.1.0.8635 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110674.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Brave Browser 1.65.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110675.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:F9CA403752B57D360A011C96596B3178F0F5F708
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110676.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110677.jpg" />
 </div>
 
 
@@ -480,7 +553,7 @@ magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110678.jpg" />
 </div>
 
 
@@ -506,7 +579,7 @@ WinPaletter 1.0.9.3 Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110679.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ simplewall 3.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110680.jpg" />
 </div>
 
 
@@ -556,7 +629,7 @@ magnet:?xt=urn:btih:B8E0C5927689784BCA5382933961E5914EBCA8A4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110681.jpg" />
 </div>
 
 
@@ -567,84 +640,6 @@ magnet:?xt=urn:btih:B8E0C5927689784BCA5382933961E5914EBCA8A4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:124745D59362547E9670483CC66B72FA07C5E542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719282   (110682) от 28.04.2024
-
-Жил-был Тигр / Ek Tha Tiger (2012) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индийский спецагент по прозвищу Тигр во время очередной миссии влюбляется в очаровательную танцовщицу Зою — помощницу ученого, который подозревается в продаже секретных технологий пакистанской разведке.Производство: Индия / CounterPunch Studios, Fantastic Films, Prime FocusЖанр: боевик, мелодрамаРежиссер: Матур Госвами, Кабир КханАктеры: Салман Кхан, Катрина Каиф, Гириш Карнад, Рошан Сет, Ранвир Шори, Ашок Авасти, Авинаш Бадал, Киран Батра, Вимал Батра, Сушма БэттПеревод: Дублированный (RuFilms)Язык озвучки: Русский, хиндиСубтитры: РусскиеПродолжительность: 02:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCEDEA2B92028D9122BEA4F29A0B9FF4E493D36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718600   (110683) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
-02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
-03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
-04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719240   (110684) от 28.04.2024
-
-Mylene Farmer - Remix XL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Libertine (nit Remix) (00:05:15)
-02 - Sans contrefaCon (The Magician Remix) (00:03:43)
-03 - Pourvu qu'elles soient douces (Cut Killer & Prez Poney Club Remix) (00:03:24)
-04 - Desenchantee (Arnaud Rebotini Remix) (00:07:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83BAC39B0980AEE6E40DBE116B2DBEA16FCDD1B
 ```
 
 

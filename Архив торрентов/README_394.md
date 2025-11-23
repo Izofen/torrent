@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93904.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93906.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93913.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93930.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93935.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93936.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93938.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93942.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93945.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93947.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:90B851A123DAA950730C7EEE199F4A5A2494B684
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93950.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93953.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93957.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93960.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93994.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94011.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94013.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94037.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94037.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94058.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94067.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94087.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94093.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94114.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94120.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94129.jpg" />
 </div>
 
 
@@ -759,7 +759,7 @@ VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94140.jpg" />
 </div>
 
 

@@ -1,3 +1,93 @@
+###  Публикация: 477897   (86477) от 04.04.2012
+
+Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>След.
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) “Trouble On My Mind” - Pusha T
+02) “Bitch Betta Have My Money” - AMG
+03) “Tipsy” Club Mix - J-Kwon
+04) “Candy” w/ Pitbull - Far East Movement & Pitbull
+05) “Ray Ban Vision” - A-Trak
+06) “Le Disko” Boys Noize Fire Mix - Shiny Toy Guns
+07) “Nasty” - Nas
+08) “Pursuit of Happiness” Steve Aoki Dance Remix - Kid Cudi
+09) “Heads Will Roll” A-Trak Remix - Yeah Yeah Yeahs
+10) “Pretty Girls” (Benny Benassi Remix) - Wale(   Читать дальше...   )2012Жанр: SoundtrackПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AFD30482DE30A6039259DE6066AB58C539C4BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477974   (86478) от 04.04.2012
+
+Миссия невыполнима: Протокол Фантом / Mission: Impossible - Ghost Protocol (2011) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой (   Читать дальше...   )Производство: США, ОАЭ / Paramount PicturesЖанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдАктеры: Том Круз, Пола Пэттон, Саймон Пегг, Джереми Реннер, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C14C1E7F9993E71B3A3D2DD7DF7138DC69A0CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478112   (86481) от 05.04.2012
+
+Пир Во Время Чумы (4UMA) - Радиогрязь (2011) [FLAC|Lossless]<Alternative Metal/Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карусель (3:08)
+02. Ничего Не Происходит  (3:43)
+03. Вот Так Вот (2:20)
+04. КиберМаяковский (2:40)
+05. Post Rock (3:20)
+06. Земля (1:22)
+07. Один Шаг (3:27)
+08. Не Согласен (3:01)
+09. Преступление (1:21)
+10. Молоко (2:58)(   Читать дальше...   )2011Жанр: Alternative Metal/ElectronicПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478024   (86483) от 05.04.2012
 
 [Wallpapers] Обои для рабочего стола
@@ -6,7 +96,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86483.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ magnet:?xt=urn:btih:405A353CAA8B5C38397B83EA9F2B6D1CD1A431A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86485.jpg" />
 </div>
 
 
@@ -58,7 +148,7 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86491.jpg" />
 </div>
 
 
@@ -91,7 +181,7 @@ magnet:?xt=urn:btih:932964C64786432A198A7CF4B80D27E15D0BF485
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86493.jpg" />
 </div>
 
 
@@ -115,7 +205,7 @@ magnet:?xt=urn:btih:4C873F318D87718A5A835D8D7C134C0A3E8EF15F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86494.jpg" />
 </div>
 
 
@@ -139,7 +229,7 @@ magnet:?xt=urn:btih:895400024152031D18B267808541A1D35019848B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86496.jpg" />
 </div>
 
 
@@ -163,7 +253,7 @@ magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86500.jpg" />
 </div>
 
 
@@ -191,7 +281,7 @@ VA - Шансон без тормозов 16 (2012) [MP3|256 кб/с]<Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86501.jpg" />
 </div>
 
 
@@ -224,7 +314,7 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86502.jpg" />
 </div>
 
 
@@ -257,7 +347,7 @@ magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86503.jpg" />
 </div>
 
 
@@ -281,7 +371,7 @@ magnet:?xt=urn:btih:9FF83C3952A84A0729CD96C05051CA3715C834C2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86505.jpg" />
 </div>
 
 
@@ -305,7 +395,7 @@ magnet:?xt=urn:btih:FA59A8C9868D3846EB7F404A8D1FD724AF3ABCEC
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86510.jpg" />
 </div>
 
 
@@ -329,7 +419,7 @@ VA - 50 Fitness & Aerobic Songs (2012) [MP3|320 кб/с]<House, Deep House, Tech
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86513.jpg" />
 </div>
 
 
@@ -362,7 +452,7 @@ magnet:?xt=urn:btih:7D40561F64FB874778DCC3869C210148268DC33F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86514.jpg" />
 </div>
 
 
@@ -386,7 +476,7 @@ magnet:?xt=urn:btih:EDD93B429F0FD50E02F32ABB60C8F6B84E2F7526
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86515.jpg" />
 </div>
 
 
@@ -412,7 +502,7 @@ magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86516.jpg" />
 </div>
 
 
@@ -436,7 +526,7 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86518.jpg" />
 </div>
 
 
@@ -461,7 +551,7 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86519.jpg" />
 </div>
 
 
@@ -485,7 +575,7 @@ magnet:?xt=urn:btih:1053C0ACB13EDC0D533EEF4BA415B59743F90BA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86520.jpg" />
 </div>
 
 
@@ -509,7 +599,7 @@ magnet:?xt=urn:btih:A52AAFC9B6C941CA4EC085551F3AAF31297CF07D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86521.jpg" />
 </div>
 
 
@@ -533,7 +623,7 @@ magnet:?xt=urn:btih:DB52B3D32DBBABE54094B31792B743906767976C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86522.jpg" />
 </div>
 
 
@@ -561,7 +651,7 @@ magnet:?xt=urn:btih:1A03E67DBD0D1CE25DF35C49442BD3BC122CA7B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86526.jpg" />
 </div>
 
 
@@ -586,7 +676,7 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86528.jpg" />
 </div>
 
 
@@ -597,78 +687,6 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478293   (86529) от 05.04.2012
-
-Если бы я был моим папой (1987-1988) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечты мальчика о добрых делах, которые он сумеет сделать, став взрослым.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Юрий БутыринПерсонажи: Мальчик, его папа, всякие хулиганы, грубияны и т.п.Продолжительность: 00:17:32 (Выпуск 1) + 00:09:26 (Выпуск 2)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C9818D93681B13F248A857C106B8B47B5F2637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476868   (86531) от 05.04.2012
-
-«Вояка» Батлер / Воюющий дворецкий / Battling Butler (1926) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альфред Батлер – избалованный всевозможными удобствами богатой жизни молодой человек, которого отец отсылает в горы порыбачить и поохотиться с надеждой, что сынок хоть немного возмужает, заботясь о себе сам. Но Альфреда никогда не покидает его совершенно преданный слуга, который при просьбе организует всё, что угодно. В горной местности Альфред влюбляется в девушку. Чтобы понравиться её родне, ему приходится выдавать себя за боксёра-одноимёнца по прозвищу «Вояка» (Battling), который вместе с «Алабамским Киллеров» претендует на титул чемпиона в лёгком весе…Жанр: комедияРежиссер: Бастер КитонАктеры: Бастер Китон, Сэлли О’Нил, Уолтер Джеймс, Бадд Файн, Фрэнсис МакДональд, Мэри О’Брайэн, Том Уилсон, Эдди Борден, Шнитц ЭдвардсПеревод: НемойПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26BB130929C9EBA5014D897D6A9E0D3A8597E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478515   (86532) от 05.04.2012
-
-Shannon Tweeds: Attack of the Groupies (P) [En] 2012
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клон игры Plants vs. Zombies, в которой вам предстоит противостоять ордам поклонниц, собирающимся увести мужа Шеннон Твид, рок-звезду Джина Симмонса.(   Читать дальше...   )Тип издания: ПираткаЖанр: Бизнес-симулятор, Аркада, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66220782226DDBC75B36B39BD3D6CA71203914E8
 ```
 
 

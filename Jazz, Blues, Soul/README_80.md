@@ -6,7 +6,7 @@ Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gerry Wiggins - Live at Maybeck Recital Hall, Vol. 8 (1990) 1991, Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108737.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lorne Lofsky - Lorne Lofsky (1992) Jazz Inspiration [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108773.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Horace Parlan - Blue Parlan (1978) 1987, SteepleChase [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108776.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dave Stryker Quartet - Blue Degrees (1993) SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108778.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108784.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Paula Atherton - Dancin' Shoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108794.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Randy Scott - Oasis (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108795.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108798.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Roy Eldridge - Little Jazz & The Jimmy Ryan All-Stars (1975) 2001, Original Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108799.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108810.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Lew Tabackin Quartet - I'll Be Seeing You (1992) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108817.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108818.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108820.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108822.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108893.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kenny Burrell - When Lights Are Low (1978) 1997, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108981.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108982.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108983.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109043.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109044.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ricky Ford - Hot Brass (1992) Candid [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109087.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Malachi Thompson - 47th Street (1997) Delmark Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109088.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Superblue - Superblue (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109089.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jazz L’Amour - Erotic Jazz 2024 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109094.jpg" />
 </div>
 
 

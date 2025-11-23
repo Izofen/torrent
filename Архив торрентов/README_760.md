@@ -1,3 +1,77 @@
+###  Публикация: 1346637   (157016) от 20.12.2019
+
+Viber 12.1.0.29 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62C1AB1127467120485D35298075156709C1FFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085632   (157017) от 22.12.2016
+
+Permute 2.3.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9BC4736A56DB8934BB3EBA4FF59C83572D1F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270315   (157021) от 19.12.2018
+
+BlueStacks App Player 4.32.80.1017 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157021.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueStacks - платформа для запуска Android приложений и игр на настольных компьютерах, ноутбуках и планшетах. Использует технологию под названием LayerCake, которая обеспечивает корректную среду для запуска ARM-приложений для ОС Android на компьютере с операционной системой Windows.
+После установки BlueStacks на ваш ПК с Windows вы можете прямо из программы загрузить (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DE6D161E639EEAFA20065F30F506E86D3CE99A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518100   (157028) от 18.12.2021
 
 IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +80,7 @@ IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157028.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Efficient Sticky Notes Pro 5.50 Build 542  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157032.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Free Studio 5.9.0.1212 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157036.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157036.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.2 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157047.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Jethro Tull - Aqualung (40th Anniversary Collector's Edition) (1971) [FLAC 2.0 2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157052.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ TreeSize Professional 8.5.2.1715 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157063.jpg" />
 </div>
 
 
@@ -161,7 +235,7 @@ PotPlayer 231110 (1.7.22037) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157065.jpg" />
 </div>
 
 
@@ -185,7 +259,7 @@ magnet:?xt=urn:btih:F7F36C272D3324365CFAA73F7E77335A6721FE39
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157066.jpg" />
 </div>
 
 
@@ -212,7 +286,7 @@ Calibre 3.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157070.jpg" />
 </div>
 
 
@@ -236,7 +310,7 @@ HDCleaner 1.322 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157080.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ Comedy Woman (13.12.2019) WEB-DLRip (сезон 9, выпуск 13)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157084.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ The Bat! Professional 9.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157088.jpg" />
 </div>
 
 
@@ -308,7 +382,7 @@ PrivaZer 4.0.16 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157089.jpg" />
 </div>
 
 
@@ -332,7 +406,7 @@ Wondershare UniConverter 15.0.5.18 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157100.jpg" />
 </div>
 
 
@@ -356,7 +430,7 @@ magnet:?xt=urn:btih:65765EED70F5394777C268F42DA4FE24DC92A7EF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157101.jpg" />
 </div>
 
 
@@ -383,7 +457,7 @@ TweakPower 2.032 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157112.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ Winclone Pro 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157118.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ magnet:?xt=urn:btih:AE9C6A58465CF129702BEE2806804D5ED0669B1B
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157120.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.60.5900 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157145.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ PortableApps.com Platform 26.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157149.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ Stellarium 1.2 (0.22.5.0-1.22.5.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157151.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ Corlyx - 2 Albums (2019-2020) [MP3|320 Kbps] <Darkwave, post-punk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157159.jpg" />
 </div>
 
 
@@ -556,7 +630,7 @@ magnet:?xt=urn:btih:770B0B27F91BECF8C37BE3B61324DD68C9A00BF1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157168.jpg" />
 </div>
 
 
@@ -567,79 +641,6 @@ magnet:?xt=urn:btih:770B0B27F91BECF8C37BE3B61324DD68C9A00BF1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96E951E35D21C722923725EF80ACEA93EEE61DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433567   (157175) от 21.12.2020
-
-TG Pro (Temperature Gauge Pro) 2.54 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157175.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F498D2DC62CC5D1469F28DBFA585D5D3F729F81A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346737   (157176) от 20.12.2019
-
-EssentialPIM Pro Business Edition 8.63 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157176.jpg" />
-</div>
-
-
-###  Подробнее
-
-EssentialPIM - высокофункциональный менеджер персональной информации с продуманным интерфейсом и множеством возможностей. Содержит средства для работы с календарем, списком задач, заметками и контактами. Есть широкие возможности для печати, импорта и экспорта информации, возможность запуска с переносных USB накопителей (включая U3 SmartDrive - сертифицированную версию), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78940A7BC6C18D0CAD88693E7DFD0E11445F2916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676443   (157185) от 13.11.2023
-
-Imagine 1.3.5 + Portable + Plugins [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FE45D4DD80B852F1760CD0A0591EEF7B520BA8
 ```
 
 

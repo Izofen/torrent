@@ -1,3 +1,152 @@
+###  Публикация: 1087725   (144611) от 28.12.2016
+
+Александр Каневский | Цикл «Следователь Борис Пахомов» [3 книги] (2013-2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144611.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я никогда не писал детективов, быть может, это первый и последний. Просто захотелось вдруг нырнуть в новый для себя жанр и по-своему его разнообразить: добавить к детективной фабуле немножко юмора, немножко печали, немножко эксцентрики и, даже, чуть-чуть фантастики – словом, решил удивить чем-то необычным. И удивил, на свою голову!
+Завершив повесть, я, ещё в рукописи, (   Читать дальше...   )Жанр: Полицейские детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FF3D1AC62D17BF7C57BA15A40E9F4C1EAAD882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348289   (144613) от 27.12.2019
+
+Fairy Godmother Stories: Cinderella / Сказки Феи Крестной: Золушка (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Вы - фея, крёстная Золушки, которую оберегаете от болезней и ошибок и протягиваете ей руку помощи в трудные времена. Но, случается невероятное: вас вдруг арестовывают по подозрению в совершении серии ограблений! В городе орудует грабительница банков и оставляет на месте преступления... хрустальную туфельку - у вас находят точно (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96F4333B122E37BB2BF9B5268C1DCA47CFB589A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272349   (144614) от 27.12.2018
+
+Биатлон. Кубок Мира 2018-2019. 3-й Этап. Нове-Место (Чехия). Женщины. Масс-старт 12,5 км (23.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144614.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 декабря 2018 года, воскресенье. 16:30 МСК
+Кубок Мира по биатлону сезона 2018-2019.
+Этап 3. Нове-Место (Чехия):
+Женщины. Масс-старт 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA07FF7BE497AA07811588317DB4DB3E6FCD6958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087729   (144617) от 28.12.2016
+
+Глеб Васильев | Игрушка Белоглазого Чу (2016) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёня Пузырьков и Геша Друзилкин – молодые люди, безоговорочно преданные Искусству. Они чувствуют в себе достаточно сил, чтобы бросить вызов Вечности и покорить Вселенную, хоть те о них слыхом не слыхивали. На что способны двое бездельников, если свободного времени полно, в головах тесно от мыслей, а в руках – шариковая ручка? Расставить все по местам и перевернуть (   Читать дальше...   )Жанр: Юмористическая фантастика, Альтернативная фантастика, Черный юморФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA76C32F6B3CE35A2B497F5A8CE8D0BF59D4A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443670   (144618) от 26.12.2021
+
+Книжная серия | Сказки Прекрасной Долины [14 книг] (2016-2021) [EPUB, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарья Донцова — известная российская писательница, главная оптимистка страны, выступающая теперь и в роли детского автора. В новой серии «Сказки Прекрасной Долины» выходят книги для детей, главными героями которых становятся домашние животные. Искренние сказочные повести Дарьи Донцовой — это увлекательные и динамичные истории, их можно читать всей семьей и размышлять (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: EPUB, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F112144BB938DCF87F6EB9084BFF083C56382DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969877   (144619) от 28.12.2015
+
+Константин Шереметьев | Интеллектика. Как работает ваш мозг (2014) [FB2, PDF, DOCX]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете все. Инструмент, с помощью которого вы способны достигать любых высот, – это ваш интеллект. Именно от работы «серого вещества» зависит уровень вашего успеха. Хотите достичь серьезных жизненных целей – научитесь правильно им пользоваться.
+В этой книге Константин Шереметьев – кандидат наук, психолог, имеющий 20-летний опыт в сфере практической психологии, (   Читать дальше...   )Жанр: Психология, ИнтеллектФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970C73958CF4BD0C5A882D3AA3BC4BACE00F9592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347843   (144620) от 27.12.2019
 
 Мистер Робот / Mr. Robot (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-13 из 13) [IdeaFilm] [AD]
@@ -6,7 +155,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144620.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ magnet:?xt=urn:btih:B6A1FEC337C632F8FF715EB9AAEA48C80A81315A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144621.jpg" />
 </div>
 
 
@@ -54,7 +203,7 @@ Movie Explorer 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144622.jpg" />
 </div>
 
 
@@ -78,7 +227,7 @@ magnet:?xt=urn:btih:7EF3C7AD4A0B3BF7C2E8B6FC6FFBA9786AC5406A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144623.jpg" />
 </div>
 
 
@@ -105,7 +254,7 @@ magnet:?xt=urn:btih:D41B4E015A0A6B23B81A804539C3A6E076191617
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144624.jpg" />
 </div>
 
 
@@ -129,7 +278,7 @@ JixiPix Snow Daze 1.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144625.jpg" />
 </div>
 
 
@@ -153,7 +302,7 @@ magnet:?xt=urn:btih:4977C139040BDFFD5C06573E72A391B4F0039AA5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144627.jpg" />
 </div>
 
 
@@ -177,7 +326,7 @@ magnet:?xt=urn:btih:4977C139040BDFFD5C06573E72A391B4F0039AA5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144628.jpg" />
 </div>
 
 
@@ -201,7 +350,7 @@ magnet:?xt=urn:btih:4EB8928C7E76BDCA11F30D2E29707376F86C14DC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144629.jpg" />
 </div>
 
 
@@ -225,7 +374,7 @@ SZMC - Dark Energy (The Album) (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144630.jpg" />
 </div>
 
 
@@ -252,7 +401,7 @@ magnet:?xt=urn:btih:DA7032F92746780A7832C3F0191C1B9E7FAD4060
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144631.jpg" />
 </div>
 
 
@@ -276,7 +425,7 @@ Clouds - Clouds Acoustic (2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Acoustic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144632.jpg" />
 </div>
 
 
@@ -303,7 +452,7 @@ magnet:?xt=urn:btih:B2DC5C5234B24CA855DF394B211849B676BF8EAE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144633.jpg" />
 </div>
 
 
@@ -328,7 +477,7 @@ Udemy | IELTS Daily - Speaking Starter Course (2021) WEB-DL [En / En Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144634.jpg" />
 </div>
 
 
@@ -355,7 +504,7 @@ magnet:?xt=urn:btih:EF447833F5D35A5576A1D6471FA4B867CB2D40B5
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144635.jpg" />
 </div>
 
 
@@ -381,7 +530,7 @@ magnet:?xt=urn:btih:F58D328B3E517A314E3D3AB8923C29DA5871B828
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144637.jpg" />
 </div>
 
 
@@ -408,7 +557,7 @@ magnet:?xt=urn:btih:0D1B33B2392218EB53BCD9D4B2773685560D0F4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144640.jpg" />
 </div>
 
 
@@ -432,7 +581,7 @@ magnet:?xt=urn:btih:4E1D7F977F6E06D9E79DB278B857FF1FD3EFCCCB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144641.jpg" />
 </div>
 
 
@@ -459,7 +608,7 @@ magnet:?xt=urn:btih:21E5BEEAF0369267F64AA4EF85AD28937D8319F3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144642.jpg" />
 </div>
 
 
@@ -483,7 +632,7 @@ VA - Русские свежаки радиостанций. Топ новино
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144643.jpg" />
 </div>
 
 
@@ -497,157 +646,6 @@ VA - Русские свежаки радиостанций. Топ новино
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:858F2525E47518D744AAFFF1E8D39E04C58C46C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272473   (144644) от 27.12.2018
-
-The Fade Beta - Yesterday's Eden (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterday's Eden (02:55)
- 02. The Silences (04:47)
- 03. African Sky (02:28)
- 04. World (03:47)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDDC10072825C47573688750B486808E251EDE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435466   (144646) от 28.12.2020
-
-PullTube 1.6.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C531B6FBFFB88C7E0C6AB2B10BD845403C564B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520040   (144647) от 26.12.2021
-
-BBC. Гарри Поттер: История Магии / Harry Potter: A History of Magic (2017) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках подготовки к выставке "Гарри Поттер: История магии", организованной Британской библиотекой, Джоан Роулинг рассказывает, что послужило вдохновением для элементов созданного ею магического мира и кто был реальным прототипом некоторых персонажей.Производство: Великобритания / BBC Studios Documentary UnitЖанр: ДокументальныйРежиссер: Alex Harding, Jude HoПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087613   (144648) от 28.12.2016
-
-Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Ravenite Social Club (02:13)
-02. Harbor Neuroscience (01:20)
-03. Do You Like Puzzles? (05:43)
-04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969817   (144649) от 28.12.2015
-
-Adobe Flash Player 20.0.0.267 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C839CFD266592E6B2842F69A0830976F7D676EBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272397   (144650) от 27.12.2018
-
-Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 4 (2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 23.12.2018
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A341A886A92F22C35574106E66826F3BDE24E32
 ```
 
 

@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53769.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Change MAC Address 24.06 Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53770.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53771.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New A
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53772.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.526/dlc) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53773.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C3B344F48EC26411107C65B32C92646D7FFD19EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53774.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53775.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53776.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:04AC4DABDF19DD09A6A431A30754414E640349BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53777.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:6E9FAE4AE0542DD9951F596B1C6E1D607D2A5E52
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53778.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3AE54B7BA9BF8716366B3000B317BC2D0EA617EE
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53779.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53780.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53781.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:34873580AA9B5800A83901E9DB562D17861A2EDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53782.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53783.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53784.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A83F403B2FDBF5F6F6BF2247B88606DC8A0D684E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53785.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ GoodbyeDPI 0.2.2 Launcher 7.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53786.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ iZotope - RX 11 Audio Editor Advanced 11.1.0 STANDALONE, VST 3, AAX (x64) RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53787.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:AC1216D9734A89725E84D6DBB781E6226ED8D6E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53788.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:37DC5909266CB257AD747377B4A77FCEF7A4ADFC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53789.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53790.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53791.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53792.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53793.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53794.jpg" />
 </div>
 
 

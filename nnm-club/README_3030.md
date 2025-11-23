@@ -1,3 +1,78 @@
+###  Публикация: 1822116   (94568) от 05.10.2025
+
+Смена передач / Shifting Gears (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1 из 13) HDRezka (обновляемая)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэтт — упрямый и своенравный овдовевший мужчина, который занимается реставрацией автомобилей. У него тяжелый характер, который когда-то стал причиной разрыва отношений с дочерью Райли. Однако спустя много лет девушка вынуждена вернуться к отцу вместе со своими детьми. И им придется всем вместе не только уживаться под одной крышей, но и наладить отношения и отреставрировать (   Читать дальше...   )Производство: США / 20th Television, Shaky Gun ProductionsЖанр: КомедияРежиссер: Джон ПаскуинАктеры: Тим Аллен, Кэт Деннингс, Шонн Уильям Скотт, Дэрил Митчелл, Максвелл Симкинс, Barrett Margolis, Синтия Куилес, Эйлин Гонзалес, Бренда СонгПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F2CA63C36618327993681BFD04F22C8BC6AE00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822049   (94570) от 05.10.2025
+
+Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard rock, Heavy metal, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Dealer (& Lords Of Black) {Alchemy Of Souls. Part II} 2021
+02. Ferryman (& The Ferrymen) {The Ferrymen} 2017
+03. How (& Intelligent Music Project) {Unconditioned} 2022
+04. Hell & High Water (& Vandenberg) {2020} 2020(   Читать дальше...   )Жанр: Hard rock, Heavy metal, Blues rockПродолжительность: 12:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB18F9748D72228D3C856B875B0EF69AA962404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458226   (94571) от 26.02.2012
+
+Если это случится с тобой (1972) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время похода по местам боевой славы, сидя у костра на месте бывших боёв, школьники фантазируют, как бы они повели себя, оказавшись участниками этой войны. Неожиданно их сны становятся явью — они приходят в себя среди тумана, окутавшего боевой танк, неподалеку слышаться выстрелы. Еще немного — и они столкнуться лицом к лицу с настоящим и опасным врагом… Неведомым (   Читать дальше...   )Жанр: Приключения, СемейныйРежиссер: Игорь НиколаевАктеры: Сергей Образов, Екатерина Малинина, Сергей Комолов, Владимир Цветков, Владлен Паулус, Светлана Коновалова, Юрий Дружинин, Елена Гришина, Эля Молоканова, Александр Буркович, Сергей Григоренко, Алексей Кабанов, Иван Макушок, Виктор Пинский, Алексей АлиевПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C9B47B8F050F85A585D1C889E2E14E8C010160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822118   (94572) от 05.10.2025
 
 Промты - SevenUnited LLC - 335 Midjourney Prompts for Dark Fantasy Art - 6051441 [TXT, JPG]
@@ -6,7 +81,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94572.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:D59B843BCD1089291DA1584C7DFEE37E3704E788
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94574.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:F70026E575D3E5ACF22D3F10E8A3325F992AEC84
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94576.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94578.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:E1062B406D2664DE560308100AE817CA099B6C59
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94579.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:7047AD9328FFEC73B5409932FBE973CA5180D36B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94582.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94586.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94587.jpg" />
 </div>
 
 
@@ -200,7 +275,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -224,7 +299,7 @@ magnet:?xt=urn:btih:9DB1DC9625B70C24139636974454590D38C73D22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94589.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ The Derailed (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94590.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94591.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:1E6A5B979D0EF6EA86F7A10E3F87CEB9634D90E2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94594.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94595.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ Comodo Dragon + Portable 17.4.1.0 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94596.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94596.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94597.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94598.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94599.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:86E8A183AA83D403E9A34C90C8E53E74258B3ACB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94601.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ magnet:?xt=urn:btih:9DD259EC128F4CB62F70976BC78B8A5B3BC3592C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94603.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ magnet:?xt=urn:btih:B6700D009133ADD7526D9C5DDD06FBA9E48972D5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94604.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:3158DD93FCE2D94BA3FA21E3AD85F0D4848D04C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94605.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:D7DFA551E42D781E0B3031FFA0B7DE2226BEA969
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94607.jpg" />
 </div>
 
 
@@ -552,78 +627,6 @@ magnet:?xt=urn:btih:D7DFA551E42D781E0B3031FFA0B7DE2226BEA969
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822054   (94609) от 05.10.2025
-
-Список смертников: Тёмный волк / The Terminal List: Dark Wolf (2025) WEB-DL [H.264/720p] (сезон 1, серии 1-7 из 7) TVShows, LostFilm, Red Head Sound
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бен Эдвардс, элитный «морской котик», сталкивается с переломным моментом в своей карьере. После роковой операции он теряет статус в SEAL и вынужден стать оперативником теневого подразделения ЦРУ.Производство: США / Amazon Studios, Civic Center Media, Fuqua FilmsЖанр: боевик, триллер, драмаРежиссер: Пол Кэмерон, Фред Туа, Лиз ФридлендерАктеры: Тейлор Китч, Том Хоппер, Дар Салим, Джаред Шоу, Люк Хемсворт, Джай Кортни, Джинн Трипплхорн, Райли Кио, Патрик Шварценеггер, Констанс ВуПеревод: Многоголосый (TVShows, LostFilm, Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH)Продолжительность: ~00:56:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AF6A919F24677C93A0A916E5799162A0B5EF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822002   (94611) от 05.10.2025
-
-Плохие парни 2 / The Bad Guys 2 (2025) UHD BDRemux [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 7.6, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плохие парни пытаются адаптироваться к новой жизни, когда их просят вернуться к криминальной жизни и выполнить последнее задание.Производство: США / Universal Pictures, DreamWorks Animation, Scholastic EntertainmentЖанр: мультфильм, боевик, комедия, криминал, детектив, приключения, семейныйРежиссер: Пьер Перифел, Джейпи СансАктеры: Сэм Рокуэлл, Марк Мэрон, Аквафина, Крэйг Робинсон, Энтони Рамос, Зази Битц, Даниэль Брукс, Наташа Лионн, Мария Бакалова, Алекс Борштейн, Ричард АйоадиПеревод: Дублированный (Продубляж)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7C13BC5E6B792D2CA9957276FEAF0813898D11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584830   (94613) от 05.10.2025
-
-Мулен Руж / Moulin Rouge! (2001) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж, 1899 год. Знаменитый ночной клуб «Мулен Руж» — это не только дискотека и шикарный бордель, но и место, где, повинуясь неудержимому желанию прочувствовать атмосферу праздника, собираются страждущие приобщиться к красоте, свободе, любви и готовые платить за это наличными. За любовь самой известной куртизанки Парижа, блистательной Сатин, борются двое мужчин, (   Читать дальше...   )Производство: Австралия, США / 20th Century Fox Film Corporation, Angel Studios, Bazmark FilmsЖанр: мьюзикл, мелодрама, драмаРежиссер: Баз ЛурманАктеры: Николь Кидман, Юэн Макгрегор, Джон Легуизамо, Джим Бродбент, Ричард Роксбург, Гарри МакДональд, Яцек Коман, Мэттью Уиттэт, Керри Уокер, Кэролайн О’КоннорПеревод: дублированный, многоголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английскиеПродолжительность: 02:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5924F496A1DBED69D26D1A213EB67EDC4566EAD5
 ```
 
 

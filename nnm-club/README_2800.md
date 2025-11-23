@@ -1,3 +1,77 @@
+###  Публикация: 461940   (80012) от 04.03.2012
+
+Чудовища из бездны ( Существа забытого мира ) / Creatures the World Forgot (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доисторические времена. После того, как большая часть племени погибает в результате извержения вулкана, суровый воин Мали берет на себя бремя лидерства над оставшимися в живых товарищами. Он ведет их через пустыню на поиски новой плодородной земли. Вскоре дикари встречаются с племенем более развитых людей с белыми волосами. Мали женится на местной девушке, и вскоре та рожает ему мальчиков-близнецов: мирного, спокойного, интеллигентного и сообразительного Тумака и жестокого, воинственного и сурового Рула. Проходит много лет. Когда сыновья Мали вырастают, они начинают соперничать между собой за главенствующее положение в племени, а главное: за обладание очаровательной девушкой Налой…Жанр: ужасы, фантастика, приключенияРежиссер: Дон ЧеффиАктеры: Джули Эдж Брайан О`Шонесси Тони Боннер Робин Джон Марсия Фокс Розали Кратчли Дон Леонард Беверли Блейк Сью УилсонПеревод: ОтсутвуетПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B47E535E816793963D3B90640F0DC6A56296DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462536   (80013) от 04.03.2012
+
+Родственник (2012) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стрельцов много лет не бывал в родных краях — на далеком острове, где расположена старая деревня Стрельня. А когда вернулся — оказалось, что земляки в опасности! И кроме него их некому выручить!
+
+В деревне почти все жители — Стрельцовы. Многие из них родственники. Все жители работают на рыбном комбинате, на котором несколько лет назад полностью сменились руководство и служба безопасности. Появление нового родственника взбудораживает местных жителей, а их поведение, в свою очередь, кажется странным Владимиру…Жанр: Драма, КриминалРежиссер: Антон БорматовПродюсер: Инесса Юрченко, Сергей Щеглов, Алексей РыбинАктеры: Олег Долин, Руслан Барабанов, Виталий Кищенко, Светлана Смирнова (III), Кирилл Полухин, Роман Агеев, Вера СмолинаПеревод: Оригинал (Русский)Продолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6858C4ABA6AE0686198A2CD35F7A46FE2E7FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460098   (80016) от 04.03.2012
+
+Подборка книг | Рынок ценных бумаг [1998-2010] [PDF, DjVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка изданий по теории и практике рынка ценных бумаг и биржевого дела2001-2011Жанр: Учебная литератураФормат: PDF, DjVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8E34BD01E971B6EC4B401931F9ABD4BC6B6A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460405   (80017) от 04.03.2012
 
 Капкан / The Trap (1966) VHSRip
@@ -6,7 +80,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80017.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:F8ABE184921FFA305851EBE518125BD5FDC4C302
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80020.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:F8ABE184921FFA305851EBE518125BD5FDC4C302
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80021.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80030.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80031.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80032.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ magnet:?xt=urn:btih:65CD5D6041F7538DC36B571CC5A75AD6F3556B9B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80034.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Whitesnake - Best Ballads (2000) [MP3|320 кб/с]<Hard/Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80036.jpg" />
 </div>
 
 
@@ -209,7 +283,7 @@ magnet:?xt=urn:btih:DA31BFD56A6E4F1546610632C45502C2B5B3BF60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80042.jpg" />
 </div>
 
 
@@ -235,7 +309,7 @@ magnet:?xt=urn:btih:F1FB061AF3397C149FE79AE87127CE2D27DDC54F
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80043.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ magnet:?xt=urn:btih:F1FB061AF3397C149FE79AE87127CE2D27DDC54F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80044.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80046.jpg" />
 </div>
 
 
@@ -308,7 +382,7 @@ magnet:?xt=urn:btih:4D1647DBB0BCE1A3214316A31A3E5A1AB3F8C3A6
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80047.jpg" />
 </div>
 
 
@@ -335,7 +409,7 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80048.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ magnet:?xt=urn:btih:E17FA6E59EACA22971673225E59F7B13C7A51AB5
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80049.jpg" />
 </div>
 
 
@@ -384,7 +458,7 @@ magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80050.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ magnet:?xt=urn:btih:83E505EA4FEF0358A681064684442115154F68AE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80052.jpg" />
 </div>
 
 
@@ -433,7 +507,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80055.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80059.jpg" />
 </div>
 
 
@@ -481,7 +555,7 @@ magnet:?xt=urn:btih:FCCD1216ACD222FAA0793C39A4E82EA225D58D2F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80062.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80066.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80067.jpg" />
 </div>
 
 
@@ -553,7 +627,7 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80068.jpg" />
 </div>
 
 
@@ -564,78 +638,6 @@ magnet:?xt=urn:btih:AD9D1B5300CEAA426CD02D8529BA86F1C36C3F7E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CFD694B29A339C37974CA24121B43876B886EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461869   (80071) от 04.03.2012
-
-[Xbox 360] Stoked Big Air Edition [ENG] [Pal] (2011)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработанная в сотрудничестве с всемирно известным создателя сноуборд фильмов Absinthe Films, Stoked отражает новаторский дух профессиональных райдеров. Экстремальные миссии и динамическое управление. Райдеры, которые смелы и готовы освоить эти условия являются основой любой легенды любого видео и на страницах журналов. Внешний вид и стиль этих всадников является подражанием во всем мире. В Stoked, ваша очередь стать легендарным всадником и удивить мир в Xbox Live став профессиональным сноубордистом.2011Жанр: sport (snowboard/ski)Язык интерфейса: ENG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D959EBDD6BC0107AC46E4488E9CB3BC8055E10B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462310   (80073) от 04.03.2012
-
-Михаилъ Щербатовъ | Житiе и славныя дела Петра Великаго [1774] [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как отмечал П.Ш. Левек, высоко ценивший труды М.М. Щербатова, «большое знание истории своей страны и его связь с архивами придают его свидетельству большой вес». Не будет преувеличением сказать, что корпус источников и сочинений о Петре I, изданный Щербатовым, составляет источниковедческую основу «петровской» части «Российской истории» Левека. В данной раздаче предлагается (   Читать дальше...   )Жанр: Научная литература, история, биографииЯзык: Русский (старая орфография)Издательство: Типографiя Императорской Академiи Наукъ, Санктпетербургъ, Россiйская ИмперiяФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592595B5CB506EAD8DCB2819A51AF80D4E68EA68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461839   (80074) от 04.03.2012
-
-Microsoft Touch Pack для Windows 7 2010 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Touch Pack для Windows 7, впервые предустановленный в мае прошлого года и состоящий из 6 приложений адаптированных для сенсорных экранов, теперь доступен всем желающим. Пакет состоит из трех казуальных игр и трех приложений для Microsoft Surface, портированных на Windows 7.MicrosoftНазвание программы: Microsoft Touch Pack для Windows 7Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

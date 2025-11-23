@@ -6,7 +6,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122019.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122135.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122136.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122145.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122146.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Wizard 2 for Mac 2.0.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122148.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122149.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Greeting Card Shop v.4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122152.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122156.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122169.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Numi 3.32 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122193.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Disk Drill Enterprise 5.4.1426 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122264.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ BatchOutput PDF 3.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122324.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122331.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GM CHM Reader Pro for Mac 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122332.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PaintCode 3 v.3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122340.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122353.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122359.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ PDF Checkpoint 1.9.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122368.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ FontLab 8 v.8.3.0.8766.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122369.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122381.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122517.jpg" />
 </div>
 
 

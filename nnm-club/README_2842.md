@@ -1,3 +1,81 @@
+###  Публикация: 469337   (82604) от 17.03.2012
+
+Серия «Гарфанг» [1991-2008] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция Гарфанг - серия, которую начинали неоднократно.
+В 1991-1992 года серию с таким названием выпускали издательства
+Судостроитель и Terra Incognita, в 2000-2001 - издательство Языки
+русской культуры, в 2007-2008 - Эннеагон Пресс.
+Значок серии везде одинаков - фигурка белой совы.1991-2008Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467209   (82609) от 17.03.2012
+
+Подборка журналов | Учет в бюджетных учреждениях 2012, 2011[PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание на рынке бухгалтерской периодики, полностью посвященное специфике бухгалтерского учета и налогообложения в государственных (муниципальных) учреждениях. Все материалы написаны доступным языком, с конкретными примерами.
+О журнале:
+В каждом номере – ответы на вопросы читателей, комментарии к изменениям в бюджетном и налоговом законодательстве, советы специалистов Минфина России и Федерального казначейства, опыт коллег в решении сложных хозяйственных ситуаций. В журнале рассматриваются варианты действий в ситуациях, не урегулированных законодательно. Все материалы написаны доступно, подкреплены подробными числовыми примерами. Читатели всегда в курсе не только нововведений, но и того, как применять их на практике.2012, 2011Жанр: Бюджетный учетФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469240   (82610) от 17.03.2012
+
+Которн Найджел |  Интимная жизнь английских королей и королев [1999] [FB2, RTF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интимная жизнь английских королей и королев. Откровенное и нелицеприятное изложение фактов из жизни монархов от Генриха VIII до наших дней. Личная жизнь царственных особ в любой стране всегда привлекала внимание и вызывала любопытство. Скандальные истории из жизни чопорных англичан, принадлежащих к королевской семье, заинтересуют даже самого искушенного читателя. (   Читать дальше...   )Жанр: История, публицистикаФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455B8D23E298691BA71747ACE42FE7329986DA55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469268   (82611) от 17.03.2012
 
 Журнал | Maxim [Украина] №4 (апрель 2012) [PDF]
@@ -6,7 +84,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82611.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:7E833E9371054CE87461099CDD8CED5C85CC76F1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82616.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:ABBD0A48FB266B64D801DCAE8705D207C1407290
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82618.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ magnet:?xt=urn:btih:4A9EF192CC626C06E570EC9687905F4CDC1D51A9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82619.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82622.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82627.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ magnet:?xt=urn:btih:9B708C631A70A807D420C17F1C346C3194D3FAB2
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82631.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82632.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ Megazone 23 OVA / Мегазона 23 [1985-1989, OVA, 4] DVDRip raw
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82634.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ magnet:?xt=urn:btih:122BAB9E6BB4D15F2331AD0F5899856588ADA826
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82635.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82638.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82641.jpg" />
 </div>
 
 
@@ -311,7 +389,7 @@ magnet:?xt=urn:btih:5B76C091231D528D5688EE8B620B114DF18B7E85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82646.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82648.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82649.jpg" />
 </div>
 
 
@@ -387,7 +465,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82651.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82652.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ magnet:?xt=urn:btih:D702D6D086B0D7C5443F8FCEE743E17CAD1F4A9A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82655.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ magnet:?xt=urn:btih:1B44C4EFADD1B302C571DCCD38593B1C6010B878
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82657.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ magnet:?xt=urn:btih:BC91522C2913F0B9648F089AA167E548DC31B06A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82658.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ magnet:?xt=urn:btih:EBFAF97C84D744617BDFC4BFC8CF561618795E35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82659.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:EBFAF97C84D744617BDFC4BFC8CF561618795E35
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82660.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ DJ Smash - The Beat Instinct #001 - #007 (2011 - 2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82661.jpg" />
 </div>
 
 
@@ -581,80 +659,6 @@ DJ Smash - The Beat Instinct #001 - #007 (2011 - 2012) [MP3|320 кб/с]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DC83A70F9261FD4F7AB60DA38EBF25F6E218330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469099   (82662) от 17.03.2012
-
-[EN] Джефф Данхэм: Хаос, Которым управляют / Jeff Dunham: Controlled Chaos (2011) DVDRip
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чревовещателя и комика принимают на театральную сцену для представления публике оригинального комического проекта, в котором будут задействованы его уникальные классические куклы-марионетки Walter, Jose и Achmed с их двумя новыми необычными театральными характерами и уникальными причудами.Жанр: КомедияРежиссер: Майкл Саймон, Мэтью МакнеилАктеры: Джефф ДанхэмПеревод: ОтсутствуетПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD092DECDE485D1683DD03E536608E23BB2AB59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469059   (82663) от 17.03.2012
-
-Прирожденный гонщик / Born to ride (1991) VHSRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82663.jpg" />
-</div>
-
-
-###  Подробнее
-
-1939-й год. Армия США решила модернизировать свою кавалерию и полковник Деверс получил приказ заменить лошадей мотоциклами. Но его мотовзвод был легко превзойден бунтарем-мотоциклистом Греди. Греди живет сегодняшним днем, ему нравится нарушать правила и дразнить шерифа. После очередного ареста у него есть выбор - сесть в тюрьму или принять предложение полковника и записаться в армию в качестве инструктора по вождению. Вчерашний хулиган, а теперь капрал армии США Греди Вестфолл приступает к работе, не забывая при этом подрывать дисциплину и флиртовать с дочерью полковника. Но тут взвод получает свое первое серьезное задание - под прикрытием мотофестиваля в Билбао, они должны пробраться в замок испанского фашистского диктатора Франко, чтобы освободить похищенного ученого-ядерщика и его дочь....Жанр: боевик, военныйРежиссер: Грэм БейкерАктеры: Джон Стамос, Джон Стокуэлл, Тери Поло, Сэнди МакПик, Крис КаммПеревод: Авторский (одноголосый)Продолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA58575569EACC4D616AEFDFE4CAA44FB20A0F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469082   (82666) от 17.03.2012
-
-Холодный взрыв / Cold Fusion (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82666.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нескольких городах Америки прогремели страшной силы взрывы. Последствия ужасают — разрушенные до основания жилые кварталы и сотни тысяч жертв. Эксперты, работающие на местах трагедий, отмечают повышенный уровень радиации и наличие необычных химических элементов в составе взрывчатки.
-
-Вести расследование поручают Ангеру — руководителю спецгруппы, берущемуся за решение самых сложных задач. Он быстро выясняет, что элементы, использованные для создания взрывчатки, имеют внеземное происхождение…Жанр: БоевикРежиссер: Иван МитовАктеры: Уильям Хоуп, Велизaр Бинев, Сара Браун, Ники Илиев, Рустам Касымов, Джон Ласковски, Мишель Ли, Эдриан Пол, Атанас Сребрев, Майк СтраубПеревод: Многоголосый закадровыйПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 

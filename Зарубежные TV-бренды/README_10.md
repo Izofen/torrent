@@ -6,7 +6,7 @@ Discovery: Паранормальная Ирландия / Spooked: Ireland (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125199.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125239.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126164.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E4655B65C2A120AB6E63F96B00D2C4DA4B8E7EC0
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126937.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:33273A02C32BB476A46E0C1F30073FDACD2BCBDB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126945.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D46667C7BB3A6D351EEBDD5E306239D82970E2B8
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130944.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131790.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132268.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132485.jpg" />
 </div>
 
 

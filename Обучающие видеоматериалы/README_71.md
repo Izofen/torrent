@@ -6,7 +6,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168574.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7093FECC5557BD79EC9A96C97EEF6B15508E6F81
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168873.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169247.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Udemy, Nikita Sergeev | Как создать свой онлайн курс: с
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169280.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169351.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A4BC7E1AA2FD876280C4D0FBC6BA843D2944F816
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169409.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:2A313C25E20F2968BD64FD5527833FE781AF04E9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169916.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ JUG Ru Group | SmartData 2021. Конференция по Data Engineering (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170034.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170078.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170118.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ JUG Ru Group | VideoTech 2021. Конференция по технология�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170136.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170223.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170379.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170482.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:2D29E769AEEA17EACC784D6862C44D4F5E48312F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170656.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170667.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170698.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:78C1FD8B5874D81C5F9AA959F2B2E3F90DDCABA8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170699.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170702.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170709.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Udemy, Камилла Мукатаева | Основная грамматика
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170712.jpg" />
 </div>
 
 

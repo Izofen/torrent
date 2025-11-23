@@ -6,7 +6,7 @@ GIMP 3.0.4 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Photo AI Pro 4.0.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14078.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Audition 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14160.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14348.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dolby Reference Player 3.2.0 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14353.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Arturia - Mix DRUMS 1.0.0 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14516.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14579.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ W.A. Production - Instacomposer 2 2.0.2.250425 VSTi, VSTi 3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14622.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adobe Media Encoder 2025 25.3.0.73 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14630.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Minimal Audio - Effect Bundle 2025.6.12 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14753.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FabFilter - Total Bundle 2025.05.21 VST, VST 3, AAX (x64) RePack by Team V.R. [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14787.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Futurephonic - Rhythmizer Fusion 1.0.2 CLAP, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14853.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe Audition 2025 25.3.0.71 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14862.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ WinX DVD Ripper Platinum 8.22.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14874.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ AIR Music Technology - AIR Creative FX Collection 2 1.2.1.14 VST, VST 3, AAX ReP
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14918.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Devious Machines - Complete Effects Bundle 2025.6.10 VST, VST 3, AAX RePack by T
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14921.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Cockos REAPER 7.40 + Portable (x86/x64) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14951.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Stone Voices - Ambient Reverb 7 7.1.7 VST, VST 3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15049.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ AIR Music Technology - Sub Factory 1.2.1.11 Standalone, VSTi, VSTi3, AAX (x64) R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15051.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Phaser Editor 4.11.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15181.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wavesequencer - Hyperion 1.65 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15250.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Knif Audio & Plugin Alliance - Knifonium 1.4.1 VSTi, VSTi 3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15251.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15568.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ SketchUp Pro 2025 25.0.660 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15719.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15720.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Format Factory 5.21.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15785.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15884.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Open Server Panel 6.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15885.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack Other s [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15886.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Topaz Photo AI Pro 4.0.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15887.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0A14E79DFC1E9B87C9A4ED07A95B6748290DB075
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15888.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Topaz Photo AI Pro 4.0.1 Portable by 7997 + Models [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15889.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6843FE4F1B30DA5A04FF38E9BFC987DC56759854
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15890.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:15C885138EB906CB406591BE8B8EB56378350CB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15891.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:9A1F74759E5E588F7D9146F0A889C58299A626B0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15892.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0E6F5D8CD1C184B077DD0FDB5A2FC55EB3235981
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15893.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ LinuxPHB 12.25.0001 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15894.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15895.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15896.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:F9764980F4FEABC2352EB031A186F0F7D5F43836
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15897.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F64933B059F4575516F6C981B13545D2D5D597D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15898.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:BCC132B573136FFCC418B0E715BBF73B8222E336
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15899.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:88F3DD3BC28F66A3024BC84C31353004D989D315
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15900.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:DE3FB6640E1B3AFB2000B869A71937963F099D52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15901.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:71B949243EDB45C4AFBA42203EC7FC2EFA6E97CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15902.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:0F8B02492880E1E85CD6EE7425F0C889828398D3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15903.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ PurpleSchool, Андрей Соколов, Антон Ларичев | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15904.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:34376057064AF98F8B6FDA353D9FCAC5688AD1FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15905.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:28B27E4159B191CA5C6B0622B74975B2C2C72CFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15906.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:915D9ACC64119C4C03D96E28E51CEF9D988752DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15907.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:46F0592A9B0C5CA41550EE3F05840D2A19E058CB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15908.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Iron Meat (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15909.jpg" />
 </div>
 
 

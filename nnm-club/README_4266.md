@@ -1,3 +1,80 @@
+###  Публикация: 1682742   (131163) от 08.12.2023
+
+Младший Боннер / Junior Bonner (1972) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющий ковбой родео Боннер возвращается в родной городок Прескотт в штате Аризона и понимает, что всё в мире меняется. С печалью он узнаёт, что его родители разошлись, а брат разбогател, распродавая по кускам землю отца... Боннер пытается вернуть себе уважение, укротив ранее непобедимого быка на родео, проводимом в городке в честь 4-го июля...Производство: США, American Broadcasting Company, Joe Wizan-Booth Gardner Productions, Solar ProductionsЖанр: драма, вестернРежиссер: Сэм ПекинпаАктеры: Стив МакКуин (I), Роберт Престон, Ида Лупино, Бен Джонсон, Джо Дон Бэйкер, Барбара Ли, Мэри Мёрфи, Билл МакКинни, Даб Тейлор, Сэм Пекинпа, Сандра Дил, Дон ’Красный’ Бэрри, Чарльз Д. Грэй, Мэтью Пекинпа, Сандаун СпенсерПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D6EED34037472DBD4C50DD3D2BF2A21E3F379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596482   (131164) от 30.12.2012
+
+Borderlands 2 + 5 DLC [Ru/En] (RePack/1.2.2) 2012 l R.G ReCoding
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131164.jpg" />
+</div>
+
+
+###  Подробнее
+
+В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
+
+Выберите героя и как следует снарядите его — по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, — причем чем дальше, тем больше. Предметы на Пандоре генерируются автоматически, и вы никогда не можете знать заранее, что за пушка окажется в ближайшем ящике! Открывайте новые тайны Пандоры, прокачивайте персонажа по мере выполнения заданий, заводите друзей и наживайте врагов — станьте героем собственной истории в полном неожиданностей мире Borderlands!(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682671   (131165) от 08.12.2023
+
+Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The New Dimension
+02. Isis And Osiris
+03. Amazing Flight
+04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596471   (131166) от 30.12.2012
 
 Воздушная кукуруза и малиновое мороженое / Popcorn und Himbeereis (1978) DVDRip
@@ -6,7 +83,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131166.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131167.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131168.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ Spirits Burning & Michael Moorcock - The End Of All Songs - Part 1 (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131169.jpg" />
 </div>
 
 
@@ -108,7 +185,7 @@ magnet:?xt=urn:btih:139097406F26B7BB353D242DC4E484DB73246CF8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131170.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Suzie Mork - Wearin' the Blues (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131171.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ Speedtest от Ookla 5.2.4 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131173.jpg" />
 </div>
 
 
@@ -183,7 +260,7 @@ magnet:?xt=urn:btih:EA2A17E02BD96F80AF0CADE337A59249BB33181C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131174.jpg" />
 </div>
 
 
@@ -207,7 +284,7 @@ Mos Eisley Spaceport - Further (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131175.jpg" />
 </div>
 
 
@@ -234,7 +311,7 @@ Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131177.jpg" />
 </div>
 
 
@@ -261,7 +338,7 @@ magnet:?xt=urn:btih:583ED21A48CA723ECCB549B7FF6E77F2A3480969
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131178.jpg" />
 </div>
 
 
@@ -286,7 +363,7 @@ The Bat! Professional 5.3.6 Christmas edition [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131180.jpg" />
 </div>
 
 
@@ -314,7 +391,7 @@ Oddworld: Stranger's Wrath HD [Ru/En] (Repack) 2012 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131181.jpg" />
 </div>
 
 
@@ -344,7 +421,7 @@ Tariot - Drag Me To Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131183.jpg" />
 </div>
 
 
@@ -371,7 +448,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131186.jpg" />
 </div>
 
 
@@ -398,7 +475,7 @@ F1 2012 [Ru+multi] [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131187.jpg" />
 </div>
 
 
@@ -422,7 +499,7 @@ The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131188.jpg" />
 </div>
 
 
@@ -449,7 +526,7 @@ Sons Of Eternity - End Of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131189.jpg" />
 </div>
 
 
@@ -476,7 +553,7 @@ Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131190.jpg" />
 </div>
 
 
@@ -503,7 +580,7 @@ Prog Mountain - Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131191.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ Lyr - Lyr (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131192.jpg" />
 </div>
 
 
@@ -557,7 +634,7 @@ Damanek - Making Shore (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131193.jpg" />
 </div>
 
 
@@ -584,7 +661,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131194.jpg" />
 </div>
 
 
@@ -599,88 +676,6 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682841   (131195) от 08.12.2023
-
-The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 01
-Disc 02
-Disc 03Жанр: Alternative RockПродолжительность: 3CD, 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0475EA06D860B71392171BBCFD0187CFE6455DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682611   (131197) от 08.12.2023
-
-Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Insomniashes
-02		Empty Source
-03		Brutal Doom
-04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596418   (131198) от 30.12.2012
-
-The Bat! Professional 5.3.6 Christmas edition RePack (& portable) by KpoJIuK [MULTi / Русский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131198.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми
-свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные
-опции, которые понадобятся продвинутым пользователям.
-
-(   Читать дальше...   )Название программы: The Bat! Professional EditionЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

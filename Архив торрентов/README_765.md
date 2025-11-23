@@ -1,3 +1,79 @@
+###  Публикация: 588586   (157860) от 13.12.2012
+
+Журнал | Атлас. Целый мир в твоих руках №148 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157860.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F391EB7882B036C764D1642F833866087115FDD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967992   (157861) от 22.12.2015
+
+Синистер 2 / Sinister 2 (2015) BDRip [H.264/720p] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
+Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей — близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания / IM Global, Alliance Films, Automatik Entertainment, BlumhouseЖанр: Ужасы, Триллер, ДетективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон БизлиПеревод: Дублированный (Line)Язык субтитров: РусскийПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B3EF333A05B593E4047B37A990EAE6CAE0552B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194402   (157867) от 24.12.2017
+
+Аnsаtheus - In the Соnstellаtion of Кesil (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Berlin-School>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157867.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Orbiter
+2. Deep Flight
+3. The Alnilam Trip
+4. Particular Signals from Mintaka(   Читать дальше...   )Жанр: Electronic, Ambient, Berlin-SchoolПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98AFD6717D6B39472F0579A32471777684312D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967943   (157868) от 22.12.2015
 
 Синистер 2 / Sinister 2 (2015) HDRip [Line]
@@ -6,7 +82,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157868.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Polarr Photo Editor Pro 5.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157871.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ Finder Windows 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157879.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ Hydra 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157881.jpg" />
 </div>
 
 
@@ -106,7 +182,7 @@ magnet:?xt=urn:btih:262D8775752C9CBAB7D80BD71DBF76C6546949C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157888.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ Big Mean Folder Machine 2 v2.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157890.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ Topaz Gigapixel AI 5.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157902.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:06AB4DB2464270D6C58A573A3AF69AD356CD775D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157913.jpg" />
 </div>
 
 
@@ -207,7 +283,7 @@ Skynet 2019.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157915.jpg" />
 </div>
 
 
@@ -231,7 +307,7 @@ Ummy Video Downloader 1.5.0.4 RePack (& Portable) by Killer000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157918.jpg" />
 </div>
 
 
@@ -255,7 +331,7 @@ VA - Turn On The Dark (Mixed By Oberon) (2017) [MP3|320 Kbps] <Trance,Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157920.jpg" />
 </div>
 
 
@@ -282,7 +358,7 @@ Movavi Video Editor Plus 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157927.jpg" />
 </div>
 
 
@@ -306,7 +382,7 @@ Wondershare Filmora 10.0.10.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157934.jpg" />
 </div>
 
 
@@ -330,7 +406,7 @@ IObit Driver Booster Pro 3.1.1.457 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157935.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ VA - Dark Tomorrow Amsterdam 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157948.jpg" />
 </div>
 
 
@@ -381,7 +457,7 @@ magnet:?xt=urn:btih:B300D9A43C484366AA392B2D9C35BE20D6128B34
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157953.jpg" />
 </div>
 
 
@@ -405,7 +481,7 @@ magnet:?xt=urn:btih:299E07890FE2715FBB5941BA22FA625CFBA82B96
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157956.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ magnet:?xt=urn:btih:3C0330C849DE4339209F43A2C97B176C3ABC373C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157961.jpg" />
 </div>
 
 
@@ -457,7 +533,7 @@ magnet:?xt=urn:btih:AE6E678F5977D04BB3010BE4A1B1186809576563
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157967.jpg" />
 </div>
 
 
@@ -484,7 +560,7 @@ magnet:?xt=urn:btih:5FE65B56364793BCA3D9C594F56A47A45AD4CA5F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158036.jpg" />
 </div>
 
 
@@ -508,7 +584,7 @@ magnet:?xt=urn:btih:7A59A52EDCFC6EB342E6D3EF7CE4F933B5B366B2
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158058.jpg" />
 </div>
 
 
@@ -532,7 +608,7 @@ Daynature New Christmas ScreenSaver 6.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158060.jpg" />
 </div>
 
 
@@ -558,7 +634,7 @@ SparkyLinux 4.2 Tyche (Включая легкие дистрибутивы) [x8
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158085.jpg" />
 </div>
 
 
@@ -571,78 +647,6 @@ SparkyLinux 4.2 Tyche (Включая легкие дистрибутивы) [x8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63AA9494ECAA843A825E5D4023D594E751F80373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964941   (158095) от 22.12.2015
-
-Джессика Джонс / Jessica Jones (2015) WEBRip [H.264/720p]  (сезон 1, серии 1-4 из 13) LostFilm (обновляемая)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158095.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагических событий, оборвавших короткую супергеройскую карьеру Джессики Джонс, девушка пытается восстановить свою личную жизнь и свою карьеру частного детектива, расследуя таинственную активность людей со сверхспособностями в Нью-Йорке.Производство: США / ABC Studios, Marvel Studios, NetflixЖанр: боевик, драма, криминалРежиссер: С.Дж. Кларксон, Дэвид Петрарка, Стивен СерджикАктеры: Джош Дюамель, Дин Уинтерс, Джанет МакТир, Кэл Пенн, Обри Доллар, Дэймон Херриман, Лиза Лапира, Джесси Фудрей, Мередит Итон и др.Перевод: многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C45F62BC5ACA31DC6D85B90340440EC9E94B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194155   (158104) от 23.12.2017
-
-Убить Гюнтера / Killing Gunther  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158104.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света - хакера, взрывника, (   Читать дальше...   )Производство: США / Folktale Productions, Ingenious Media, Miscellaneous Entertainment, Rookfield Productions, Rowdy Row Productions, RuYi Media, StarStream Media, WWKG ProductionsЖанр: боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив Бачич, Скотт МакНил, Амир ТалайПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E567EE870E26284251C8D373F0D1BF30495790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194060   (158107) от 23.12.2017
-
-Malwarebytes AdwCleaner 7.0.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158107.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDB320347F978EA5951EFDD7EE98A0F170285D1
 ```
 
 

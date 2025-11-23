@@ -1,3 +1,79 @@
+###  Публикация: 1682171   (131567) от 06.12.2023
+
+Что происходит потом / What Happens Later (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилла и Билл — бывшие любовники, которые увидят друг друга впервые за много лет, когда они оба окажутся в заснеженном аэропорту во время перелета.Производство: США / Das Films, Prowess PicturesЖанр: мелодрама, комедияРежиссер: Мег РайанАктеры: Мег Райан, Дэвид Духовны, Hal Liggett, Julia D. Borkowski, Faron Ledbetter, Эрик Паркинсон, Will Reed, Kat Silva, Renee WhiteleyПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH), ИспанскиеПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADA5F789201A2AFF567D07C270F81DC53177EA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596160   (131568) от 30.12.2012
+
+Cafe R&B - 4 Альбома (1998 - 2012) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Black & White
+2002 - Blues and all the rest
+2005 - Very Live (2CD)
+2012 - American MusicЖанр: BluesПродолжительность: 04:08:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682310   (131569) от 06.12.2023
+
+Поколение «Ви» / Gen V (2023) WEB-DLRip [H.265/1080p-LQ] [10-bit] (сезон 1, серии 1-8 из 8) Red Head Sound
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые супергерои Америки обучаются в специально предназначенном для них колледже, которым управляет компания «Vought». В учениках бурлят гормоны, заставляя их проверять свои физические и моральные пределы, соревнуясь друг с другом за лучшие контракты в лучших городах.Производство: США / Amazon Studios, Kripke Enterprises, Original Film, Point Grey Pictures, Sony Pictures TelevisionЖанр: фантастика, боевик, драма, комедия, приключенияРежиссер: Нельсон Крегг, Стив Бойум, Рэйчел ГолдбергАктеры: Джаз Синклер, Чэнс Пердомо, Лиззи Бродвей, Мэдди Филлипс, Лондон Тор, Дерек Лу, Аса Германн, Шелли Конн, Александр Кэлверт, Майа Джей БастидасПеревод: Дублированный (Red Head Sound 18+)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639EA20463F527EBA57A815D067164C781573C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 221510   (131571) от 06.12.2023
 
 Мэри Поппинс, до свидания (ТВ) (1983) DVDRip [H.264]
@@ -6,7 +82,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131571.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:ECA8F1846ABF07E863A08FDBAA31EF93E8FD124B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131573.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ V-Ray 6.20.00 for 3ds Max 2019-2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131575.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ VA - New Age Style - Erotic Lounge 3 (2012) [MP3|320 кб/с]<New Age,Chillout, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131576.jpg" />
 </div>
 
 
@@ -112,7 +188,7 @@ magnet:?xt=urn:btih:773CA699AFF4E8B985174564A02EFCD976D7E7CA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131577.jpg" />
 </div>
 
 
@@ -136,7 +212,7 @@ magnet:?xt=urn:btih:B0948904859B594E28CAA08B1AA0264B6AD63210
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131578.jpg" />
 </div>
 
 
@@ -164,7 +240,7 @@ magnet:?xt=urn:btih:7F737FFEA3862D2C91B319E842783FECE07191C0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131579.jpg" />
 </div>
 
 
@@ -188,7 +264,7 @@ magnet:?xt=urn:btih:5D516CC0C1190864B79045045AFC076B32C6190E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131581.jpg" />
 </div>
 
 
@@ -212,7 +288,7 @@ GNEURO, Никита Глухов, Артур Форостяк | Stable Diffusio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131583.jpg" />
 </div>
 
 
@@ -239,7 +315,7 @@ magnet:?xt=urn:btih:EF257C0671EBB128FEFB22496E1726F4F071E53F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131584.jpg" />
 </div>
 
 
@@ -264,7 +340,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131585.jpg" />
 </div>
 
 
@@ -288,7 +364,7 @@ magnet:?xt=urn:btih:E7DDA0CAE36380F817135C5CF0C7C4A3B962ECE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131587.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ magnet:?xt=urn:btih:4567D44884955B09FD1F872A72DB670739EA9624
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131589.jpg" />
 </div>
 
 
@@ -338,7 +414,7 @@ magnet:?xt=urn:btih:745C60AA53E344D4131DAF4E76D5C682A6C578D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131591.jpg" />
 </div>
 
 
@@ -362,7 +438,7 @@ magnet:?xt=urn:btih:B92299DB88FDEC44E3EB4F449A5AAA8482E0FF5D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131592.jpg" />
 </div>
 
 
@@ -386,7 +462,7 @@ magnet:?xt=urn:btih:2CFD53AF9BEF9C71251E6A1742DDC60171B05E82
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131593.jpg" />
 </div>
 
 
@@ -414,7 +490,7 @@ magnet:?xt=urn:btih:18982513FA54BC7030498385F9D92CDBFBC4741A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131594.jpg" />
 </div>
 
 
@@ -442,7 +518,7 @@ magnet:?xt=urn:btih:1E54E16D01AEB49DE5DDB077D835433DEAF188FF
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131595.jpg" />
 </div>
 
 
@@ -466,7 +542,7 @@ magnet:?xt=urn:btih:616066E837DB42FC557415827A4DF5BB3FA40A71
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131597.jpg" />
 </div>
 
 
@@ -490,7 +566,7 @@ magnet:?xt=urn:btih:616066E837DB42FC557415827A4DF5BB3FA40A71
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131598.jpg" />
 </div>
 
 
@@ -518,7 +594,7 @@ magnet:?xt=urn:btih:4AE8CFD7DBF87A96E4918067ED4D59007B61BF56
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131599.jpg" />
 </div>
 
 
@@ -542,7 +618,7 @@ magnet:?xt=urn:btih:D4DD5FF24C5097F5A9D4F3EA018CD542E8F47EBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131601.jpg" />
 </div>
 
 
@@ -568,7 +644,7 @@ magnet:?xt=urn:btih:6313CF7C7C129E7679D44A5695C0B1471A35B0ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131603.jpg" />
 </div>
 
 
@@ -579,82 +655,6 @@ magnet:?xt=urn:btih:6313CF7C7C129E7679D44A5695C0B1471A35B0ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3CDD0DD51441FF348AFBEE840606DF95EAEE7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681732   (131605) от 06.12.2023
-
-Арнольд Шварценеггер | Будь нужным: Семь правил жизни (2023) [PDF, FB2, RTF, EPUB] [RU, EN]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Будь нужным» – о том Арнольде Шварценеггере, которого вы до сих пор не знали, даже если занимаетесь бодибилдингом, смотрели всех «Терминаторов» и интересуетесь американской политикой. Мало кому известно, что десять лет назад суперзвезда Голливуда, великий спортсмен, предприниматель и политик оказался на самом дне, но смог подняться и построить заново свою (   Читать дальше...   )Жанр: Автобиографии, Методы мотивации, Саморазвитие / личностный ростПеревод: Николай МезинЯзык: Английский, РусскийИздательство: Альпина ДиджиталФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCE75C31C1335BE9B77A0358D6005D4448DC1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682164   (131607) от 06.12.2023
-
-В смятении / Fuzzy Head (2023) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина копается в своих детских воспоминаниях и травмах, чтобы узнать правду о смерти матери.Производство: США / Bell The Cat, Neon Heart Productions, Trikon ProductionsЖанр: триллерРежиссер: Венди МакколмАктеры: Алисия Уитт, Венди МакКольм, Рэйн Феникс, Tolliver, Фред Меламед, Нума Перрье, Celina Biurrun, Ричард Рили, Кэссиди Батлер, Доминик БенедеттоПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB9A58902CBECF92E35C00B8E052AEFBC8868E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596346   (131608) от 30.12.2012
-
-[Wallpapers] Best collection of wallpapers (30.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131608.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best collection of wallpapers (30.12.12)
-Название: Best collection of wallpapers (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E2D3936D81CCC12BA9778990E47B6E7423D173
 ```
 
 

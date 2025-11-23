@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72942.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Raimond Lap – Baby Christmas (2004) [MP3|172-195 kbps]<Музыка для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73000.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:70627A31CB204588A14724FF5D24946458A81497
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73036.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:70627A31CB204588A14724FF5D24946458A81497
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73522.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Зимняя сказка: Лучшие детские песенки (2012
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73871.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:912F6D54CBA6BBEEE7ECBB61D0AE3E5C1C1A740F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74405.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:912F6D54CBA6BBEEE7ECBB61D0AE3E5C1C1A740F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74449.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:912F6D54CBA6BBEEE7ECBB61D0AE3E5C1C1A740F
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75530.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Мультконцерт. Антология Детского Шлягер�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75549.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Anthony Miles - Music For Children (1995) [MP3|320 kbps]<Музыка для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75867.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Anthony Miles - Mother & Baby (2001) [MP3|320 kbps]<Музыка для дете
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75900.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - К 80-ти летию В. Шаинского. Когда мои друзь�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76315.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:FC2A4A1DC9ECD1882D679454D44265FED7239D9C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76705.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F0C973F0881222963F5A7689EADD8A826DB88A5E
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78506.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Fisher-Price. Tender Lullabies (2005) [MP3|320 кб/с]<Музыка для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78548.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:E25C9DB565956A461C23968B48221EA5D5CA922B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81481.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:6D5A838BC70E82FCD9DB78B7950BFDEB88854C81
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81881.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A702BF8163EC2F3BA574B3AECEC4EDF9847FB453
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82081.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - СОЮЗ Детский (2012) [MP3|256 кб/с]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82730.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Дружба начинается с улыбки (1991) [MP3|320 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83064.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:54A78E697344608012E926C8364F51EDCA7CA59B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83715.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:12D24C0226E4D5D33EBBF7C1509288C25635537B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84908.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:993185F3C0838746FFA836BA9BD77C56C0BC1565
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84980.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:D8CCF0956948DCDC92FE929A0ECA15F2B19A9284
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85532.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Девочка с планеты Земля. Детские песни и �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85728.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:4C567C36D7AA3EE9B6698D5C8B0B6239C5746548
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85869.jpg" />
 </div>
 
 

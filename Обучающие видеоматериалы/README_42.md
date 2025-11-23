@@ -6,7 +6,7 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126150.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126161.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126166.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Skillbox, Илья Феоктистов, Дмитрий Зайцев | Инфр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126169.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Proprofiling, Алексей Филатов | Ты - детектор лжи. К
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126315.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126318.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126383.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и д�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126391.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126549.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Skillbox, Андрей Митрохин | Excel для рабочих и лич�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126849.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ KalachevaSchool, Татьяна Головко | Digital сафари. Тари�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126931.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:3C83300628FDBDA6F61887A21715F81074BB1E5A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126943.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1CE4731EFF1CAD0B1ABB5D6E19DF99345307BC46
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126965.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127027.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127029.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Liveclasses, Виталий Новиков | Как мыслят наши кли
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127101.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Udemy, Ellen Chamilothoris | Master Any Language with ChatGPT: Boost Your Langua
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127143.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:CB86A4CCF63D3114ECE968A47DC7417A5AB391C9
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127155.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, Rajesh Thakar | Foundation of Video Editing with Adobe Premiere (2023) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127175.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1F58E946A37873D28D5D465024DD08BDD597F1D4
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127309.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Udemy, Jones Granatyr | Midjourney in 2 hours: Practical Guide for Beginners Dis
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127316.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127435.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Bratec Lis School, Элиза Талентино | Эффекты гравюры
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127450.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Marker School, Юлия Максимова | Цифровая ботаничес
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127466.jpg" />
 </div>
 
 

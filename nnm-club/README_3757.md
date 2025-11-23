@@ -1,3 +1,84 @@
+###  Публикация: 1699898   (117364) от 15.02.2024
+
+King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Face Down (2:23)
+02. Crack The Mantle (4:59)
+03. Ze Chicken Feet (2:58)
+04. If God Is A Woman (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5A137A7FC7420297B9F120080B0E9E5D79A026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699906   (117365) от 15.02.2024
+
+The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Is The Illusion (4:20)
+02. Killer's Kiss (3:17)
+03. Mr Hot Stuff (3:31)
+04. Big City Lights (2:45)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DA4DA6F7CA5738343895C3FC1C2DD3776298E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699892   (117366) от 15.02.2024
+
+Zataban - Naturally Seasoned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Brown (4:40)
+02. Late at Night (3:39)
+03. Better Off (4:53)
+04. Straight Up (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EBFA64136ED900B358B058C3C0ADFF1F3DB38F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699967   (117367) от 15.02.2024
 
 MediaMate for Mac 3.0.7 [En]
@@ -6,7 +87,7 @@ MediaMate for Mac 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117367.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ doubleTake 2.6.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117368.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117369.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:4F4A796F750B48E023CF19F6B9FE83EB949DCDFD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117370.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117371.jpg" />
 </div>
 
 
@@ -132,7 +213,7 @@ Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117372.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ Vellum 3.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117373.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ magnet:?xt=urn:btih:D05E8B2256C3C7F9336CEBFDFE1E871D3CCA8C3A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117374.jpg" />
 </div>
 
 
@@ -209,7 +290,7 @@ The Smack Dabs - The Smack Dabs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117375.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ DiskCatalogMaker 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117376.jpg" />
 </div>
 
 
@@ -260,7 +341,7 @@ One Dime Band - Side Hustle - One Dime Band - Side Hustle (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117377.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ magnet:?xt=urn:btih:23B615BE1A0681E8C3E1F205812D9C4C110BC672
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117378.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ Patrick Mautner - Uptown Downtown (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117379.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ Donald Byrd - Four Classic Albums (1958 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117380.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ Brandon Agnew - Aquarius Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117381.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ Always Naked - Just Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117382.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117383.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ magnet:?xt=urn:btih:F580A0CF2DB7F1036C8ED3E170AFBC5B28C4ED7B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117384.jpg" />
 </div>
 
 
@@ -473,7 +554,7 @@ magnet:?xt=urn:btih:BD35D06A767BCBC88376126AF86AB8BEB87E13C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117385.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ Magic Slim & John Primer  - Slow Blues - Magic Slim & John Primer  - Slow Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117386.jpg" />
 </div>
 
 
@@ -527,7 +608,7 @@ Jack J Hutchinson - Battles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117387.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ magnet:?xt=urn:btih:4D418081E5D63FF53A07CE8BCEEB83C38A37FF4B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117388.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ magnet:?xt=urn:btih:AFA40B8DC698D34CCD06D920BDE6F62D80903E85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117389.jpg" />
 </div>
 
 
@@ -591,81 +672,6 @@ magnet:?xt=urn:btih:AFA40B8DC698D34CCD06D920BDE6F62D80903E85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675D85C2AE121232FF86492C5DE611C997ED1725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700049   (117390) от 15.02.2024
-
-TinkerTool System 8 v.8.9 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117390.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Marcel BresinkПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FC76426DF7B5632142591E2F1B4C5A69343948
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699905   (117391) от 15.02.2024
-
-Cesare Verdacchi - Psychotrip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychotrip (2:59)
-02. Ball and Chain (4:15)
-03. Free Man (4:22)
-04. Fall (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D14C49EF9D2F7332AD1252E2C473802CFC4604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699852   (117392) от 15.02.2024
-
-Valentina Studio Pro 13.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: 2001 - 2024 Paradigma SoftwareПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4F29CCBF9BCC2D6C39D6A8119EBF4372522705
 ```
 
 

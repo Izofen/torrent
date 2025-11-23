@@ -1,3 +1,184 @@
+###  Публикация: 1597913   (165113) от 16.12.2022
+
+VA - Enhanced Music Best Of (Mixed by Tritonal) (2022) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klur - Entangled (Extended Mix)
+02. Klur & Hildur Ottilia - Heart To Heart (Extended Mix)
+03. Modera & Phoebe Tsen - Lotus Flower (Extended Mix)
+04. Sound Quelle & Lauren L'aimant - Colours (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9F7D4E325852EA93E64E289BBC84EC5535CA4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346032   (165114) от 17.12.2019
+
+VideoDuke 1.5 (build 257) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши! Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497DE0A610A6233D1F16F773543809E8C2B11F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516802   (165116) от 12.12.2021
+
+Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdom | Герой-рационал перестраивает королевство [2021, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165116.jpg" />
+</div>
+
+
+###  Подробнее
+
+«О, наш герой!» - стандартная фраза, которой встречают Кадзую Сому жители иного мира. А ведь им действительно нужен новый герой!
+Но парень о героизме и не мечтает, он более чем практичен — никакой романтики, ведь теперь он у престола и обручён с принцессой Лисией Эльфриден. Экономика страны, в которой он оказался, терпит крах — нужна подмога. Кадзуя должен собрать (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиПеревод: SRsubs (эпизоды 1-4), AniLibria (эпизоды 5-13)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0BAD6CB759137D24048EA3406C8EF3EA8764C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346052   (165117) от 17.12.2019
+
+Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Abstract Hop, Jazz Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ararat Valley (3:21)
+02. Spice Lahore (2:48)
+03. Montego Bay (3:01)
+04. Africa's Calling (2:52)(   Читать дальше...   )Производство: Melting RecordsЖанр: Hip-Hop, Instrumental Hop, Abstract Hop, Jazz Hop, Trip HopПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E0D97876D128A6B7B8692592DD3E4112A75BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432241   (165118) от 16.12.2020
+
+Room Arranger 9.6.0.621 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07144151CACD034F5EDC883CC328CC99D6850607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516743   (165119) от 12.12.2021
+
+Олеся Жукова | 365 дней до школы. Тренируем мышление и логику (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незаметно пролетело время, ваш малыш вырос, и уже через год наступит новый этап в его жизни — он станет первоклассником. Главная задача заботливых и внимательных родителей сделать так, чтобы ребёнок чувствовал себя в школе уверенно и комфортно.
+Серия книг "365 дней до школы" вам в этом поможет, так как создана специально для будущих первоклашек. С помощью (   Читать дальше...   )Жанр: Рабочая тетрадь/Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687005CB3D61E1E4789E1149286B0045C009903A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597897   (165120) от 16.12.2022
+
+VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES - Is It True (Extended Mix) [6:54]
+02. Markus Schulz & Copini - Atlas (Extended Mix) [4:17]
+03. BT - Flaming June (Dan Thompson Extended Remix) [7:16]
+04. Ciaran McAuley & Susie Ledge - You're Never Alone (Extended Mix) [7:16](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3882880078EBBF670F2F10625D1610BF5B35BD02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673245   (165121) от 01.11.2023
 
 Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Version, 2023, Fearless Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
@@ -6,7 +187,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165121.jpg" />
 </div>
 
 
@@ -33,7 +214,7 @@ magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165122.jpg" />
 </div>
 
 
@@ -57,7 +238,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165123.jpg" />
 </div>
 
 
@@ -81,7 +262,7 @@ VA - Funky Just Away Dance (2022) [MP3|320 Kbps] <Chicago House, Soulful, Indie 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165124.jpg" />
 </div>
 
 
@@ -108,7 +289,7 @@ VA - Music News vol.311 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165125.jpg" />
 </div>
 
 
@@ -135,7 +316,7 @@ magnet:?xt=urn:btih:3D2696BD817DD46D0643BCA2381408F594AC6626
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165126.jpg" />
 </div>
 
 
@@ -159,7 +340,7 @@ VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165127.jpg" />
 </div>
 
 
@@ -186,7 +367,7 @@ Opera GX 93.0.4585.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165128.jpg" />
 </div>
 
 
@@ -212,7 +393,7 @@ FontExpert 2021 18.0 Release 1 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165129.jpg" />
 </div>
 
 
@@ -236,7 +417,7 @@ magnet:?xt=urn:btih:C0125A0405A8A589E4516C96AEAAB288182F49CE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165130.jpg" />
 </div>
 
 
@@ -260,7 +441,7 @@ CyberLink PhotoDirector Ultra 15.0.10.1025 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165131.jpg" />
 </div>
 
 
@@ -284,7 +465,7 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165132.jpg" />
 </div>
 
 
@@ -311,7 +492,7 @@ Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165133.jpg" />
 </div>
 
 
@@ -338,7 +519,7 @@ magnet:?xt=urn:btih:BD20C6D1E3267B8C4B63123A924975FCA7FCE4CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165134.jpg" />
 </div>
 
 
@@ -362,7 +543,7 @@ magnet:?xt=urn:btih:92D68BBBCD815F6AF5F0EC9D1B9678EC1A8F5A31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165135.jpg" />
 </div>
 
 
@@ -386,7 +567,7 @@ magnet:?xt=urn:btih:6C02F30028AD8E8E8B265A2752E04EDBC7F74249
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165136.jpg" />
 </div>
 
 
@@ -410,7 +591,7 @@ magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165137.jpg" />
 </div>
 
 
@@ -434,7 +615,7 @@ VA - Abora Recordings: Best Of 2021 (Mixed By Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165138.jpg" />
 </div>
 
 
@@ -461,7 +642,7 @@ magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165139.jpg" />
 </div>
 
 
@@ -472,174 +653,6 @@ magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:748D85B8818C0F44693B822320E63C59F46839AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673504   (165140) от 01.11.2023
-
-Topaz Video AI 4.0.2 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB024475B75C00D8E294A1AAD0A048D04CB273C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432085   (165141) от 16.12.2020
-
-Н.Н. Калиткин | Численные методы (1978) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются основные численные методы решения широкого круга математических задач, возникающих при исследовании физических и технических проблем. Изложенные методы пригодны как для расчетов на ЭВМ, так и для «ручных» расчетов. Для каждого метода даны практические рекомендации по применению. Для лучшего понимания алгоритмов приведены примеры численных расчетов. (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE4317674B0B6AE00537C757A253E9D9703E991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345992   (165142) от 17.12.2019
-
-GoodSync Enterprise 10.10.16.6 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165142.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0298C1DE0E142DD862476A4F96948ACEBE30DAAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597726   (165143) от 16.12.2022
-
-Кирилл Бабаев, Александра Архангельская | Что такое Африка (2021) [MP3, Игорь Богданов, Татьяна Бур]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой научно-популярное описание самых увлекательных аспектов изучения Африки: её природы и животного мира, народов и языков, религий и культур, искусства и архитектуры. Простым и доступным языком авторы - известные учёные-африканисты - рассказывают о самых интригующих загадках Чёрного континента, об удивительных обычаях народов Африки и малоизвестных (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 20:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DC53860C1CBC1A10E5FD71A5E7614B115D4963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516794   (165144) от 12.12.2021
-
-Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another World: The Slow Life of a Cheat Pharmacist | Размеренная жизнь фармацевта-читера: Открыть аптеку в другом мире [2021, ...
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэйдзи Кирио был типичным офисным планктоном, который целыми днями только и делал, что работал. В самый обычный день, идя на работу с отсутствующим выражением лица, он вдруг обнаружил, что оказался в лесу в другом мире. «О, должно быть, это то самое перерождение в другом мире, о котором рассказывают». Рэйдзи может создавать лекарства, которых очень не хватало в этом (   Читать дальше...   )Производство: EMT Squared / EMTスクエアードЖанр: комедия, фэнтези, повседневностьРежиссер: Сато МасафумиПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B43F902A87DF8C37F175AD3CFB6A685AEC7ECCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673336   (165145) от 01.11.2023
-
-Михаил Петров | Трафик. Старт (2023) [MP3, Семен Ващенко]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в русскоязычном пространстве вся информация, необходимая для старта работы в арбитраже, собрана в одной книге. Прочитав её, вы увидите, как на этом рынке делаются серьёзные деньги, и поймёте, как вам действовать, чтобы быстро и эффективно стартовать. Эта книга для тех, кто начинает свой путь в сфере affiliate-маркетинга и арбитраже трафика. Автор книги Михаил (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 08:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDFEBC91B63D5E591EAA7F07C116A85E0224D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432138   (165146) от 16.12.2020
-
-Firefox Browser 84.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132B213B2FF2A02F40F70D5DB4F1778A755FB869
 ```
 
 

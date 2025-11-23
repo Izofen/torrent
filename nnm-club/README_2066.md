@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54082.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:606D20DC8F319F4866242327221AA080FC25CD8C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54083.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B1983949C9F7668E6FC9343E71E00AB2842F7007
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54084.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54085.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54086.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ UltraSearch Professional 4.2.0.925 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54087.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:8A47C01E226CEE9FEA53402E53E7DFFDBD9C7922
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54088.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:40D7C50D417452CE6ECD36D0AFB217CF63163CFF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54089.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54090.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2CA0CDB3EAFB95DAB16F84DC6E0006B623C1BEEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54091.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A0775E44FBB7E22FD51E50F815CDBCCAAA5A78BA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54092.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:886BFF250CFF62EDDBFC8EDDC33CE2976A6BF876
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54093.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54094.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:692AEE64FCC340224B3BB03BBE207323F509E28A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54095.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D8AB71533B957FE39C0194D6934C51D01582EF86
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54096.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:56D4D902D4BC9AA23C2CFC80B114AF246A6BEFF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54097.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Blue Archive the Animation / Синий архив [2024, TV, 7 из 12] WEBRip 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54098.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:28F8D174C45FA6318B877F54FFBA3E7A2C01B338
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54099.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Hotel Business Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54100.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:2E8E565805ECD532070B469217CD4C7DE553C548
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54101.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:6DB2CF303AA7614559A7EE810E7390BDBA558BAA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54102.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:11967A59CDA55609A5A996F135E5F60C4E4B4D49
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54103.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54104.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54105.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54106.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 474668   (97867) от 28.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E7781308A186A1F6BE39BC46F6B9F18C96765E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474672   (97868) от 28.03.2012
+
+[Wallpapers] Films Wallpapers (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECFF332AA944BC6F18E3A70955F1F5E78B3A79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474669   (97870) от 28.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DB600511D309A954C812150727721573447969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474285   (97873) от 28.03.2012
 
 DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro House, House>
@@ -6,7 +78,7 @@ DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97873.jpg" />
 </div>
 
 
@@ -37,7 +109,7 @@ VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Р
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97874.jpg" />
 </div>
 
 
@@ -70,7 +142,7 @@ VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97875.jpg" />
 </div>
 
 
@@ -101,7 +173,7 @@ Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97877.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97878.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97879.jpg" />
 </div>
 
 
@@ -187,7 +259,7 @@ magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97880.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ magnet:?xt=urn:btih:2E22082D56FDA829E1FEC185C4C276C1C9FB8105
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97881.jpg" />
 </div>
 
 
@@ -238,7 +310,7 @@ magnet:?xt=urn:btih:A2A42AD696BDC8931F244AD6AAE2848CCEA5C9C8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97882.jpg" />
 </div>
 
 
@@ -262,7 +334,7 @@ Mythological Cold Towers - Immemorial (2011) [FLAC|Lossless]<Death Doom Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97885.jpg" />
 </div>
 
 
@@ -292,7 +364,7 @@ Mythological Cold Towers - Immemorial (2011) [FLAC|Lossless]<Death Doom Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97890.jpg" />
 </div>
 
 
@@ -316,7 +388,7 @@ magnet:?xt=urn:btih:9F7A86102B4A5CBC829B9ADC5AA9E455E916B20B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97891.jpg" />
 </div>
 
 
@@ -340,7 +412,7 @@ Angel Witch - As Above, So Below (2012) [APE|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97892.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97892.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97893.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ magnet:?xt=urn:btih:F28BFEB8EE9BEB0FD52078C50F854FB30A28EB5C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97894.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:A15A3C43A8E941344AECE9421EFE306BF86CEDB9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97895.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ magnet:?xt=urn:btih:A15A3C43A8E941344AECE9421EFE306BF86CEDB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97897.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97897.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:A15A3C43A8E941344AECE9421EFE306BF86CEDB9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97898.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:A6DC6674697496914D232C7DE9A983EEF202076D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97899.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ VA - Авто Дискотека Радио Record 50/50 (2012) [MP3|192 kbps]<C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97901.jpg" />
 </div>
 
 
@@ -558,7 +630,7 @@ magnet:?xt=urn:btih:8D52224C542000D56B2F1C1A910DA1319C0F1844
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97902.jpg" />
 </div>
 
 
@@ -582,7 +654,7 @@ VA - Авторитетный Хит 11 (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97903.jpg" />
 </div>
 
 
@@ -615,7 +687,7 @@ magnet:?xt=urn:btih:1C1ABBA223963F09B35DF02877770BD296D4138D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97904.jpg" />
 </div>
 
 
@@ -626,87 +698,6 @@ magnet:?xt=urn:btih:1C1ABBA223963F09B35DF02877770BD296D4138D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56BA37DF89EC8616EB1181609AE7999CEEBCAEED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474273   (97905) от 28.03.2012
-
-VA - Звезды Кавказа. Морское рандеву (2007) [MP3|224 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97905.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Группа Домбай - Кавказ
-002. Альберт Тлячев - Волны Черного моря
-003. Al’bina - Горный цветок
-004. Хардай - Ромашка
-005. Аza - Алые паруса
-006. Мардас Дауров - Хабез – Страна чудес
-007. Эльза - Желтая луна
-008. Marat - Сделай погромче
-009. Шокко - Малиновое лето
-010. Дени - Малика(   Читать дальше...   )2007Жанр: PopПродолжительность: 06:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97AB17EDB818EA2C5BDE7199F7495F37D475139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475225   (97906) от 29.03.2012
-
-[Wallpapers] Films Wallpapers (30.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAACB8EF9869C7CA7F47548FBC3C291723155DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475226   (97907) от 29.03.2012
-
-[Wallpapers] Interer Wallpaper (30.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEB1AECC1549CD74285FAAFCD72DFF6B8A60457
 ```
 
 

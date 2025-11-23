@@ -1,3 +1,77 @@
+###  Публикация: 1680873   (133886) от 30.11.2023
+
+AirMail Pro 5 v.5.6.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC728D1D1372A53B5A7352B29E91824C273761
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680836   (133888) от 30.11.2023
+
+Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базарт - это удостоенное различных наград приложение для редактирования фотографий и графического дизайна, которое поможет вам легко создавать красивые фотографии, профессиональные дизайны и потрясающее коллажное искусство. Откройте для себя возможности бесконечного творчества!Тип издания: Premium / ModРелиз состоялся: 26.11.2023Разработчик: Bazaart Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594401   (133889) от 25.12.2012
+
+Вымирание - Хроники генной модификации / Extinction - The G.M.O. Chronicles (2011) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тому Келлеру удаётся выжить после начала вирусной эпидемии, обращающей заражённых в кровожадных безумцев. Относительно безопасное укрытие он находит на заброшенной военной базе, откуда безуспешно пытается наладить радиосвязь со внешним миром.
+Спустя две недели, в ходе ночной вылазки в город, Том натыкается на группу других уцелевших, один из которых позже открывает ему глаза на причины катастрофы. Одновременно выясняется, что вирус стремительно мутирует, и противник становится всё более опасным.Жанр: УжасыРежиссер: Ники Дроздовский / Niki DrozdowskiАктеры: Дэниэл Будер, Луиза Бер, Джерри Койл, Тобиаш Кэй, Ли Рыхтер, Бина Милас, Кристиан Сток, Клаус Эберт, Генрих Баумгартнер, Георг Марин и др.Перевод: Одноголосый закадровый |R1shpil|Продолжительность: 01:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680724   (133890) от 30.11.2023
 
 Борис Пастернак | Сборник стихов (2017) [MP3, Алексей Борзунов]
@@ -6,7 +80,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133890.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ Hands Off! 2.0.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133891.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133892.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Duplicate File Remover 3.4.1257 Build 34 [Multi / Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133893.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Duplicate File Remover – мощная утилита для поиска и о
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133894.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] Portable by SoftLab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133895.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Mp3tag 1.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133896.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133898.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ magnet:?xt=urn:btih:DD0A71F99EA04F2A2333B98636F129CF1356C6E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133899.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ magnet:?xt=urn:btih:2CE29ACE841212277DEAAF02CEDC29F959EC7510
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133900.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ Recompress 22.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133901.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Input Recorder for Mac 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133902.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ magnet:?xt=urn:btih:8782F0723B288671B25115833D8F3DF7A978AC26
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133903.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ magnet:?xt=urn:btih:106C7A33CC270F3436A903047D858AF4F8E87DBE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133905.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ magnet:?xt=urn:btih:20869DE20A2F916026123899E0C0A5D4835F1FC5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133907.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ magnet:?xt=urn:btih:285BFE0305C2C7C178F61A37848B5C502DE024DC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133908.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ TodoMal - A Greater Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133909.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ magnet:?xt=urn:btih:0E7666389687E872082579BCD7F4231FA8A556D4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133910.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ PhotoFoundry for Mac 1.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133911.jpg" />
 </div>
 
 
@@ -503,7 +577,7 @@ magnet:?xt=urn:btih:E8DA6C11CD67B66390295C49ACDA888AA6CD8134
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133913.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:760A0AB5CDCB45CE971AE0B1668C023C8FCDEC30
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133914.jpg" />
 </div>
 
 
@@ -554,7 +628,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133915.jpg" />
 </div>
 
 
@@ -568,88 +642,6 @@ NCH DreamPlan Plus 8.61 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF4E3A30061D008287306583ADBEBA43315B3525
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594256   (133916) от 25.12.2012
-
-Tweetbot 1.0.1 [EN]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tweetbot является полнофункциональным Twitter-клиентом для OS X с большим количеством особенностей. Это тщательно продуманной интерфейс, звуки и многое другое.
-
-Преимущества:
-Поддержка нескольких учётных записей и быстрое переключение между ними
-Несколько окон и колонок
-Поддержка "Центра уведомлений"
-Поддержка Retina-дисплеев
-Mute-фильтр позволяет блокировать сообщения от пользователей не отменяя их чтения. Вы также можете отключить хэштеги и конкретные ключевые слова.
-Поддержка таких сервисов, как Pocket, Instapaper, Readability, CloudApp и Droplr.
-Cохранение черновиков, добавление местоположений, прикрепление фото/видео, управление списками, и многое другое.Название программы: TweetbotЯзык интерфейса: EN
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680757   (133917) от 30.11.2023
-
-Борис Шергин | Избранное (2011) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Викторович Шергин (1896–1973) – автор поморских былей и сказаний, замечательный мастер слова, известность которого растет с каждым новым изданием его произведений.
-В книгу Бориса Шергина, знатока быта и поэтического творчества поморов, включены произведения, рисующие образы талантливых умельцев Русского Севера – моряков, кораблестроителей, народных художников. (   Читать дальше...   )Жанр: Русская литература, классика, прозаИздательство: Нигде не купишьПродолжительность: 15:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A655BB1C5A8874A75071D2FA3EF60B982ABD2117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680652   (133919) от 30.11.2023
-
-CryptoEdit 2 v.2.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133919.jpg" />
-</div>
-
-
-###  Подробнее
-
-CryptoEdit - это абсолютно простое, мощное и безопасное приложение для создания и редактирования документов, которые по умолчанию зашифрованы. Идеальное решение для управления зарезервированными личными документами. Он может обрабатывать файлы TEXT, RTF и RTFD (RTF с изображениями).Тип издания: macOS SoftwareРелиз состоялся: 10.02.2022Разработчик: © 2023 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA02E5116C6BDDE47B708771E516099750A9B0A
 ```
 
 

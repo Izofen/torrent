@@ -1,3 +1,76 @@
+###  Публикация: 1673753   (164160) от 02.11.2023
+
+ExtraDisks 23.10.1 Home [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164160.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExtraDisks - это набор инструментов для создания виртуальных дисков на физических дисках вашего компьютера, которые не изменяются и не делятся на дополнительные разделы. Программа содержит инструменты для создания зашифрованных дисков, виртуальных дисков на основе файлов и виртуальных дисков на основе каталогов. Текущая версия включает следующие инструменты: Зашифрованные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC65DF8DEBA151976BD17D1A815E44B5E586D2AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432593   (164168) от 17.12.2020
+
+Q-Dir 9.05 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF63EE3AEB4C76A2846AC6297E2B0679133138B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346207   (164173) от 18.12.2019
+
+K-Lite Codec Pack 15.3.0 Mega_Full_Standard_Basic + Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164173.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354E8C5F3358404C40F1FDCA57941426FA2F0456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598195   (164176) от 17.12.2022
 
 PrivaZer 4.0.60 Free + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ PrivaZer 4.0.60 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164176.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ FiLMiC Pro: Mobile Cine Camera v6.13.2 Mod by EasyApk Team, biN32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164181.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ PotPlayer 231102 (1.7.22031) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164182.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Topaz Video AI 4.0.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164185.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Easy Data Transform 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164189.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ AIDA64 (Mobile) v1.84 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164197.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164198.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ Volume2 1.1.7.444 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164200.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ Windows and Office Genuine ISO Verifier 11.12.43.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164205.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Webcam Surveyor 3.8.7 Build 1182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164210.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ FileMaker Pro 19 v19.2.1.14  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164212.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ Final Draft 12 v.12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164214.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ Google Chrome 119.0.6045.106 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164222.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ FastStone Capture 10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164224.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ OpenHashTab v3.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164227.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ Google Chrome 79.0.3945.88 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164228.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ SiteSucker Pro 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164235.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Google Chrome 79.0.3945.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164248.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ simplewall 3.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164249.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ TagScanner 6.1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164253.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164255.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Viber 21.3.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164257.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ Topaz Photo AI 2.0.7 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164258.jpg" />
 </div>
 
 
@@ -552,79 +625,6 @@ Topaz Photo AI — это универсальный инструмент для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC7FC0B0257D5F47E0D1C1455CD00626DAB4EB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673743   (164260) от 02.11.2023
-
-Google Chrome 119.0.6045.106 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296D1D6C198BDC2D7CA5F1D9EDE0723001528F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673577   (164263) от 02.11.2023
-
-ON1 Photo RAW 2024 v.18.0.3.14689  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164263.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 ON1, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7038FC4BC52B1A64620FE105887F5685A05112C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673654   (164265) от 02.11.2023
-
-Wondershare UniConverter for Mac 15.0.4 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2023Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BEB507C764CD0E09142E268F2A95B695C4B545
 ```
 
 

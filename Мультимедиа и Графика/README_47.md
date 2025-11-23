@@ -1,3 +1,76 @@
+###  Публикация: 1830884   (205616) от 27.10.2025
+
+Adobe Illustrator 2026 30.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Illustrator — это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях — цифровой графики, иллюстраций и печати — при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-контента, интерактивных средств, видеороликов и мобильных приложений.
+Создавайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072666D56A2C6BA1DD15274FA1DD8DE402D7DE32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830861   (205617) от 27.10.2025
+
+Adobe Photoshop Lightroom Classic 2026 15.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF17CF5919F3BAC303BB64B7311A353C8B980C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830769   (205632) от 27.10.2025
+
+Adobe Photoshop 2026 27.0.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это приложение для редактирования и дизайна цифровых изображений, которое позволяет преобразовывать фотографии, графику и иллюстрации в высококачественный пользовательский контент. Редактируйте и создавайте изображения, используя слои, кисти, инструменты ИИ на базе модели Adobe Firefly Image и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830678   (205648) от 27.10.2025
 
 Imagine 2.3.0 + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ Imagine 2.3.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205648.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205648.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ The KMPlayer 4.2.3.25 repack by cuta (build 3) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205675.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205675.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205687.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205687.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205690.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205690.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Adobe Bridge 2026 16.0 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205764.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205764.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Adobe InDesign 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205778.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205778.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Adobe InCopy 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205810.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205810.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ MediaChance Dynamic Auto-Painter PRO 7.02 Portable by polx73 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205825.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205825.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) Portable by 7997 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205932.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205932.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ Vegas Image 5.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206058.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206058.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ Pixarra TwistedBrush Blob Studio 5.04 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206184.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206184.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ HitPaw Video Editor 1.6.0.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206386.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206386.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Pinta 2.1.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206388.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206388.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206696.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206696.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ MAGIX SOUND FORGE Audio Studio 16.1.2.57 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206724.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206724.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ Any Video Converter Professional 7.1.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206761.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ HitPaw Photo Enhancer 2.0.3.1 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206787.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206787.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ PhotoInstrument 7.7 Build 1052 RePack by softwox [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206797.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206797.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Photo Supreme 2023.2.0.4954 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206808.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206808.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ magnet:?xt=urn:btih:B4478644FB20412A6305B7E8042DB0E5515D2D0D
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206836.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206836.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207239.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207239.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ ViWizard Audio Converter 3.9.0.59 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207246.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207246.jpg" />
 </div>
 
 
@@ -539,7 +612,7 @@ Bricklink Studio 2.23.7 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207287.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207287.jpg" />
 </div>
 
 
@@ -550,78 +623,6 @@ Bricklink Studio является преемником Lego Digital Designer и 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917473BFDB97AEB517DA029DB0A317F7C07A3846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650539   (207376) от 02.08.2023
-
-3DQUAKERS - Forester 1.5.2 (x64) For Cinema4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forester - это плагин для Maxon Cinema 4D, который предоставляет инструменты для создания природных элементов, таких как деревья, растения, камни, а также их геологического распределения на полигональной местности. Forester состоит из 4 модулей, а именно Forester Trees, Multiflora, MultiCloner и Forester Rock. Forester - один из лучших и наиболее успешных подключаемых (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081E903C7EAA5EC2958AEF4188E1FA51FF24C255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612144   (207378) от 14.02.2023
-
-MAGIX Sound Forge Pro 16.1.3 Build 68 (x64) Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207378.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE вот уже более 20 лет задает стандарты в том, что касается работы со звуком. SOUND FORGE Pro задаёт ориентиры для уже не первого поколения продюсеров, мастеров звукозаписи и артистов. SOUND FORGE Pro позволяет записывать, обрабатывать и восстанавливать звуковой материал с высочайшим выходным качеством звука. Трансляция, запись CD или потоковое воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045230566154847BC35E6EF96ED99D425A977421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650216   (207578) от 31.07.2023
-
-Wise Video Converter Pro 2.3.1.66 (акция Comss)  [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Video Converter — эффективная утилита для конвертации любых форматов видео в один клик или с помощью перетаскивания видео в окно программы. Это делает переключение между устройствами более гибким. Используете ли вы смартфон, планшет или ПК, эта программа поможет вам проигрывать видео файлы на любом из них. Видео можно подготовить для его дальнейшего просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7813D6280C45829DF4270E5AFAD129264A41724C
 ```
 
 

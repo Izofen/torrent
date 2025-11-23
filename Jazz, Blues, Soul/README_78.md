@@ -6,7 +6,7 @@ Louis King - Little Devil! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108347.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Levee Town - Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108351.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108374.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108376.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108381.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108382.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108389.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108390.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108393.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108394.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108396.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108399.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108401.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108406.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108416.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108423.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108459.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108469.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108475.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108480.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108493.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108536.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108538.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108545.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108549.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dave Brubeck - We're All Together Again For The First Time (1973) 1990, Atlantic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108568.jpg" />
 </div>
 
 

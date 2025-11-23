@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6057.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CBCEDF3C4DC4AC9C0E8711CA77137B5904604964
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6058.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6C6E99F0FE60855D71A9F3B6D6A09C24E3C85C47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6059.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:83B9F82921C1EF5581E24FD857131786B72D9ACF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6060.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9CAABF178125E481CFDA9FBA8E645826848B9EAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6061.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B3114E685CD32B23CB2B0D850AA6B36504CF9359
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6062.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D3F9E1F94A602FD44A801EBDCB441BD8D523A980
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6063.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.4.3/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6064.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264/1080p-LQ] [hand m
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6065.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:428DDA39BFF091007801D2E51AE102E25433DB3A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6066.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6067.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:FFD60074843F59D0E53B28719BC1332A5E5EEA95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6068.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:AE7E961B6010A858E34CCBD6B0ED7CA24E1008ED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6069.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:A7E66EC0C421995E9CF3EC514FC34AE8D506721F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6070.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3D51D9E2221B34CB4599871F8915B87DF7593F8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6071.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:23FA1ABD8B0BCF476E3FE0EF0553DB21FD03C6B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6072.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:CD77DC2448624190AA843AAEABC2DB101E27B063
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6073.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6074.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:75CE9108679D9CFDFF0A5C77C4C1C95E1FB13533
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6075.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:7CC8AD0B7B6B1185D3332A024D058D4042AE38EE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6076.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:74B7EA4CAEA165F82753F181F7DBEFAD8959C3BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6077.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:C4FC8F85AFE09D6E11F3E58863AEFF717A2DBB55
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6078.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:B5A6EA6BD36F7F4DDCC94DD43B2B48301593A50A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6079.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C8E7A25E4FAE9FF2477674D08148F0A46DB588CB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6080.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F044E5C58022D51F3DC5382CE7C1179B2C543A96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6081.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B7BE9A5821B4AAD1295A7DAEF4B9D2E8B582DB5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6082.jpg" />
 </div>
 
 

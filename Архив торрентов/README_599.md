@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129967.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7BE8F7E6F8A6178DA1A27724535638ED7B06E301
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129972.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129976.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FC5D75A4BC486C7FB1039939EA13657A391D554A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129980.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129984.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ SnippetsLab 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129987.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Heretic Soul - Born Into This Plague (2010) [MP3|~212 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129994.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ableton - Live 12 12.0b.21 (x64) Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130005.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130006.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Donemax DMmenu 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130012.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ iStatistica Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130024.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:00A0A24FC48F49429A1DBA9C23CA0E11947655FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130025.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7CA15C5786ABFE98278A57E7A2D6B86C0CA5B432
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130027.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Клубные Новинки Vol.68 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130029.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6FF6F849A580AF10F5C8AECC9472412B350EAF3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130031.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:31B617608B8784C0E498D94859C9DC8073A95AE0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130033.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:6D8FD2221C423AE21773B434FF1D7BCEA5210F35
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130035.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D5D1CF0133DF146736C4B1E2394252D4F3404115
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130037.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Nova 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130038.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Зарубежные Новинки Vol.45 from AGR (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130039.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:5AE7008E21AB5972A50D4433E5AD6277F9D57086
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130041.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ DoYourData Start Menu Pro 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130042.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sandboxie 5.55.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130043.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130053.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ByClick Downloader Premium 2.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130074.jpg" />
 </div>
 
 

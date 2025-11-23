@@ -1,3 +1,98 @@
+###  Публикация: 485113   (100031) от 19.04.2012
+
+VA - NRJ: Мы Эксперты По Молодому Поколению 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100031.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Каникулы В Мексике - Мексикана-Мама (Radio Version)
+002 Christopher S Feat. Flava & Stevenson - Poison (Re-Work 2012)
+003 Елена Терлеева - Я За Тобой (Radio Rip)
+004 Alex Kenji And Starkillers Feat. Nadia Ali - Pressure (Alesso Remix)
+005 Вероника Агапова - Baby By By!
+006 Alexis - Keep On Falling (Gordon & Doyle Remix)
+007 А.р.м.и.я - Львица
+008 Wisin & Yandel feat. Jennifer Lopez - Follow The Leader
+009 Шима - Океан
+010 Inna Feat. Flo Rida - Club Rocker (Radio Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CFBD313B95FB35269F3E11B6C39359B0901203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484652   (100033) от 19.04.2012
+
+VA - Pandora (2012) [MP3|320 кб/с]<Psychedelic / Night Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Diagnostik - Fear & Loathing [08:02]
+ 02. Sci Lab - Pandoras Box [07:22]
+ 03. EMP - Renegade [07:19]
+ 04. Night Wolf - Scientology [06:18]
+ 05. Algorhythm - Reborn [07:54]
+ 06. Iron Lotus - Inferno [07:04]2012Жанр: Psychedelic / Night Full OnПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2A66762E8117911E1FE0AD33E098F37366E86A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484951   (100036) от 19.04.2012
+
+Серия "Giants of Jazz - Immortal Concerts" / Kid Ory and The Creole Jazz Band - Echoes From New Orleans (1956/1996) [APE|Lossless]<Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, T ...
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_100036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Me Blues (T.Delaney) (3:51)
+02. Careless Love (traditional) (5:33)
+03. High Society (P.Sleeve) (4:07)
+04. Oh, Didn't He Ramble (W.C.Handy) (4:57)
+05. Eh, La Bas (K.Ory) (6:01)
+06. Toot, Toot, Tootsie! (T.Fiorito - E.Erdman - G.Kahn) (6:37)
+07. Maryland, My Maryland (tradirional) (2:44)
+08. Bugle Call Rag (W.C.Sweatman) (3:18)
+09. 1919 Rag (traditional) (5:32)
+10. Down Home Rag (W.C.Sweatman) (3:23)(   Читать дальше...   )1956 / 1996Жанр: Jazz, Dixieland, New Orleans Jazz, Jazz Instrument, Trombone JazzПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484997   (100039) от 19.04.2012
 
 Величайшие автомобили: Спортивные машины / Great Cars: Sports cars (2004) SATRip
@@ -6,7 +101,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100039.jpg" />
 </div>
 
 
@@ -30,7 +125,7 @@ Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100043.jpg" />
 </div>
 
 
@@ -54,7 +149,7 @@ Wise Registry Cleaner v7.15 build 453 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100048.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100048.jpg" />
 </div>
 
 
@@ -78,7 +173,7 @@ Wallpaper Sexy Girls 0.9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100050.jpg" />
 </div>
 
 
@@ -102,7 +197,7 @@ Mozilla Thunderbird 12.0 Beta 5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100052.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100052.jpg" />
 </div>
 
 
@@ -126,7 +221,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100055.jpg" />
 </div>
 
 
@@ -150,7 +245,7 @@ Mendozza - Mendozza (2012) [MP3|192 кб/с]<Sludge Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100056.jpg" />
 </div>
 
 
@@ -176,7 +271,7 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100057.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100057.jpg" />
 </div>
 
 
@@ -201,7 +296,7 @@ magnet:?xt=urn:btih:9DD6F0F9E46987ECF1C14A6836FD946DF5040562
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100059.jpg" />
 </div>
 
 
@@ -229,7 +324,7 @@ magnet:?xt=urn:btih:A9DDD5770FBF356E11803097FA8B5639F45C9C1D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100062.jpg" />
 </div>
 
 
@@ -253,7 +348,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -279,7 +374,7 @@ Lions Breed - Damn The Night (1985) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100064.jpg" />
 </div>
 
 
@@ -312,7 +407,7 @@ magnet:?xt=urn:btih:EC1A2C39E942C163CC77703A0375B2A592C95143
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100065.jpg" />
 </div>
 
 
@@ -340,7 +435,7 @@ Mozilla SeaMonkey 2.9 Beta 4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100068.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100068.jpg" />
 </div>
 
 
@@ -364,7 +459,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100069.jpg" />
 </div>
 
 
@@ -392,7 +487,7 @@ magnet:?xt=urn:btih:9AE6CED25FC37C5F3A0D31142E85EF236886343D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100071.jpg" />
 </div>
 
 
@@ -416,7 +511,7 @@ Bongripper - Satan Worshipping Doom (2010) [FLAC|Lossless]<Instrumental Doom Slu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100075.jpg" />
 </div>
 
 
@@ -443,7 +538,7 @@ Silana - Мы стали ветром (2012) [H.264/720р] WEBRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100077.jpg" />
 </div>
 
 
@@ -467,7 +562,7 @@ Elegy - Optics EP (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100081.jpg" />
 </div>
 
 
@@ -493,7 +588,7 @@ Wallpaper Sexy Girls 0.10
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100083.jpg" />
 </div>
 
 
@@ -517,7 +612,7 @@ Velocidad Absurda - Reborn For The Extermination (2011) [MP3|320 кб/с]<Brutal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100088.jpg" />
 </div>
 
 
@@ -543,7 +638,7 @@ Ludicra - The Tenant (2010) [MP3|320 кб/с]<Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100089.jpg" />
 </div>
 
 
@@ -573,7 +668,7 @@ Mozilla Thunderbird 12.0 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100090.jpg" />
 </div>
 
 
@@ -584,87 +679,6 @@ Thunderbird - простая и удобная бесплатная програ
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485726   (100093) от 21.04.2012
-
-Mixed Wallpapers 0.8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD6F19F5FF780DFE2D6EB2E1DB80E9CC8EA46DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485336   (100098) от 21.04.2012
-
-Mustasch - Sounds Like Hell, Looks Like Heaven (2012) [FLAC|Lossless]<Stoner / Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Metal (3:07)
-02. The Challenger (3:46)
-03. It's Never Too Late (5:21)
-04. Cold Heart Mother Son (3:07)
-05. Morning Star (4:00)
-06. Dead Again (4:30)
-07. Your Father Must Be Proud Of You (3:07)
-08. Destroyed by Destruction (2:40)
-09. I Don't Hate You (4:03)
-10. Northern Star (1:26)Жанр: Stoner / Heavy MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485638   (100100) от 21.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
 ```
 
 

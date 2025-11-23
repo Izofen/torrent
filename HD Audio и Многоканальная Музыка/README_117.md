@@ -6,7 +6,7 @@ Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, I
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105517.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105538.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105541.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bronnie - Jaded (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk, Female V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105549.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105550.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Schnallo - white fluffy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk / New W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105552.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Elles Bailey - Beneath the Neon Glow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105557.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105558.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Princesa Alba - Como Si Fuese Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105562.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Luna Falling - Ctrl + End (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt. Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105570.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105572.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E27A16C6CC0FF66CC8B07FBB419466C82DECA389
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105577.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Kite - VII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105579.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Godsmack - Faceless (2003) Remaster, 2024, Universal Records [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105584.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105586.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ That Woman - Find Joy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105587.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Honey Revenge - Retrovision (2023) Extended Edition, 2024, Thriller Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105588.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105589.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105590.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Brianna Harness - Spiritual Ecstasy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105609.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105611.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Geoff Everett - The Crow Hill Roadsters (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105613.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105614.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Cody Dickinson - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105615.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ AJ Fullerton - Closer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105616.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Kaisas - Ieria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105617.jpg" />
 </div>
 
 

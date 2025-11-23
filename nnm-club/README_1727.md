@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45257.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Duran Duran - Notorious (1986) Deluxe Edition, Remaster, 2010, Parlophone Record
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45258.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Moon Tripper - Echoes Of Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45259.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45260.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Google Chrome 128.0.6613.114 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45261.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 6.9.3447.37 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45262.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Wondershare PDFelement 11.0.6.3108 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45263.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45264.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45265.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ File & Image Uploader 8.4.6 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45266.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D79054792D3AACE89623C95ED00635447FBE2B1D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45267.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45268.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:3322431AA3787696EC02C79A40B2046A3B6AA9C1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45269.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Jutoh 3.19.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45270.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:4A6EDDC25B2A1EE8308CAF96E269E6843503AEF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45271.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ascold Flow | Мертвецкий круиз (Книга 3). Реконстру
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45272.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:101CD8C67CC67DB9A679FC2FE10DB99A221434A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45273.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:43A2C26A7F3A4C7D0F2C75741EB1F70AEDE6986A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45274.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Beyond Compare Pro 5.0.2.30045 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45275.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:029D2888F3BBEB61E4C901D32A7CC250C5F9661E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45276.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:FA2696B11287ECF520DEEED66ACE8D0E28262A51
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45277.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ DLNow Video Downloader 1.54.2024.08.26 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45278.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D2BCD6594F867B0DCBBFC12677B169B4F14432DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45279.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:092C8622E25DD2720AE59AAC715590F9B5566076
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45280.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:2DEF07054EDE4914CAE6BFCC659D68EBF3981F78
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45281.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:7B21B86B985AA9FFD016FEC4284A525EE04831A8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45282.jpg" />
 </div>
 
 

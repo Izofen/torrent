@@ -1,3 +1,157 @@
+###  Публикация: 1195315   (144396) от 28.12.2017
+
+Yaporigami - One Sound Extinguisher (2017) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks|24Bit] <IDM, Techno, Broken Beat, Glitch>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Sound Extinguisher (04:52)
+ 02. Second Sound Extinguisher (06:10)
+ 03. Third Sound Extinguisher (04:37)
+ 04. Fourth Sound Extinguisher (05:39)Жанр: IDM, Techno, Broken Beat, GlitchПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37AE69AC6E97FCD518DB17F25E35F55E2418B7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087594   (144397) от 28.12.2016
+
+Вышел ангел из тумана (2005) SATRip (Московский академический театр сатиры)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пенсионерка Екатерина Кондратьевна Первухина отмечает день рождения. К ней на праздник приехали все ее родные и близкие. Два брата, ее сыновья - бедный ученый и богатый деляга, еще совсем недавно живущие в мире и согласии, теперь открыто враждуют между собой, и лишь на дне рождении матери решают разыграть семейную идиллию, примирение. Но Екатерина Кондратьевна сама (   Читать дальше...   )Производство: Россия, Московский академический театр сатирыЖанр: Трагикомедия, спектакльРежиссер: Никита ШиряевАктеры: Ольга Аросева, Лев Дуров, Андрей Зенин, Борис Тенин мл., Татьяна Титова, Луиза Мосендз, Ольга Мотина, Светлана Малюкова, Зоя Зелинская, Павел МисаиловПродолжительность: 02:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD30487A9DD2F54E7BB260E7B292F4E52DF81328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519897   (144398) от 26.12.2021
+
+Обратный отсчёт / Balsinjehan (2021) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привычный план — отвезти детей в школу и отправиться на работу в банк — для героя неожиданно превращается в самый жуткий квест в жизни. Голос с незнакомого телефонного номера утверждает, что в автомобиле бомба. И если кто-то откроет дверь, все погибнут. Помощи просить нельзя. Что делать?Производство: Южная Корея / CJ EntertainmentЖанр: Триллер, криминал, боевикРежиссер: Ким Чхан-джуАктеры: Чо У-джин, Ли Джэ-ин, Чин Гён, Ким Джи-хо, Чи Чхан-ук, Чон Сок-хоПеревод: Многоголосый профессиональный (студия "Кипарис")Субтитры: РусскиеПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865F5368A4E623C826C54FBF95047442A4C6208F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435387   (144399) от 28.12.2020
+
+Trishula - Time Waits For No Man (2020) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It's Supposed To Be
+02. Fallen Hero
+03. I Want It All
+04. Make up Your Mind (Take Your Time)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E5B8232965E78C55ABE63DECEA6EB95E5302CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195373   (144400) от 28.12.2017
+
+VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hawcroft - Your Eyes (Original Mix)
+02. Credland - Photosphere (Original Mix)
+03. Manda Dex - Dream Beat (Original Mix)
+04. Like It Lite - Sometimes Ibiza (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087329   (144401) от 28.12.2016
+
+Г.Г. Бондаренко и др. | Основы материаловедения (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий учебник является одним из наиболее полных современных учебных изданий по материаловедению. В нем систематизированы фундаментальные сведения о строении и физико-химических свойствах, фазовых превращениях и физических процессах широкого спектра материалов, в том числе наноструктурированных, рассмотрены методы исследования их структуры и свойств.
+Широко проиллюстрированы (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06A221A57E8B86511F015B1CCA9038A26A4D004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348148   (144402) от 27.12.2019
 
 WinToUSB Technician 5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +160,7 @@ WinToUSB Technician 5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144402.jpg" />
 </div>
 
 
@@ -31,7 +185,7 @@ magnet:?xt=urn:btih:513E6DB05A6CEF646F784EE14610392B378B75CB
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144403.jpg" />
 </div>
 
 
@@ -64,7 +218,7 @@ magnet:?xt=urn:btih:8F78B80EA907E0BD36C66E94EA3B51580937B23C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144404.jpg" />
 </div>
 
 
@@ -88,7 +242,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144405.jpg" />
 </div>
 
 
@@ -115,7 +269,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144406.jpg" />
 </div>
 
 
@@ -142,7 +296,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -169,7 +323,7 @@ magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144409.jpg" />
 </div>
 
 
@@ -193,7 +347,7 @@ magnet:?xt=urn:btih:40341F73F1F47D090093E7052C988EBE7D854ECC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144410.jpg" />
 </div>
 
 
@@ -217,7 +371,7 @@ magnet:?xt=urn:btih:FD6F46092AF12C811FDAE26B2829B943B24BECC9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144411.jpg" />
 </div>
 
 
@@ -244,7 +398,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144412.jpg" />
 </div>
 
 
@@ -269,7 +423,7 @@ magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144413.jpg" />
 </div>
 
 
@@ -296,7 +450,7 @@ magnet:?xt=urn:btih:9A4FE4C5E9E840B2F7BAA72D486712F32C9C5674
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144414.jpg" />
 </div>
 
 
@@ -323,7 +477,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144415.jpg" />
 </div>
 
 
@@ -347,7 +501,7 @@ magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144416.jpg" />
 </div>
 
 
@@ -371,7 +525,7 @@ magnet:?xt=urn:btih:C0C6A6F9CCD5CE5A3AFAABECFA78FA8AEE769223
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144417.jpg" />
 </div>
 
 
@@ -395,7 +549,7 @@ BurnAware Professional 11.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144419.jpg" />
 </div>
 
 
@@ -419,7 +573,7 @@ magnet:?xt=urn:btih:4DE2575190DBCA4E61697BF7DB540C96B2F4F284
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144420.jpg" />
 </div>
 
 
@@ -443,7 +597,7 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144421.jpg" />
 </div>
 
 
@@ -470,7 +624,7 @@ magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144422.jpg" />
 </div>
 
 
@@ -494,7 +648,7 @@ magnet:?xt=urn:btih:641C5EB95DC7B6ADCCB690573BE0C38D458B33ED
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144423.jpg" />
 </div>
 
 
@@ -505,162 +659,6 @@ magnet:?xt=urn:btih:641C5EB95DC7B6ADCCB690573BE0C38D458B33ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F94DD039B18B14E0F2DF2CDBF66B140522958FB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194981   (144424) от 28.12.2017
-
-Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + .cue] <Big Band, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermopylae [02:57]
-02. Everything Happens To Me [03:03]
-03. Incident In Jazz [03:29]
-04. House Of Strings [04:18](   Читать дальше...   )Жанр: Big Band, Third StreamПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087703   (144425) от 28.12.2016
-
-П. Чайковский - Сюита из балета Лебединое озеро, Увертюра до минор (Е. Светланов) (1991) [WavPack2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Сюита из балета Лебединое озеро
-01. Сцена 3:22
-02. Вальс 7:24(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46E827C6AD0E40FC2A61D1F1F05CA9090CBB33D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272455   (144427) от 27.12.2018
-
-VA - Platipus - Archive 13 (Mixed by Luke Brancaccio) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art of Trance - Firebird (Original Mix)
-02. L.S.G. - Netherworld (Oliver Lieb 2017 Main Mix)
-03. Martin Merkel - Little Wonder (Simon Berry & Luke Brancaccio Remix)
-04. Art of Trance - Ultrafoxx (Gai Barone's Cuboid Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91765094A197E9B9108F28AC80F6102D49D0F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519676   (144428) от 26.12.2021
-
-Последний поезд в Рождество / Last Train to Christmas / The Age of Tony (2021) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тони - беззаботный владелец клуба в Англии конца 80-х. Его дело процветает и у парня светлые жизненные перспективы. В канун рождества он едет со своей невестой Сью в родной город, познакомить её с родными. Но, перейдя в другой вагон, он вдруг понимает, что оказался в будущем. Печально то, что это будущее совсем не такое блестящее, каким себе его представлял молодой (   Читать дальше...   )Производство: Великобритания, Future Artists Entertainment, Stigma FilmsЖанр: Фэнтези, драма, комедияРежиссер: Джулиан КемпАктеры: Натали Эммануэль, Кэри Элвес, Майкл Шин, Робин Эсквив, Миа Маккенна-Брюс, Софи Симнетт, Шианад Грегори, Джон Томсон, Анна Лундберг, Натали МицонПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские (PhysKids), английские - отдельными файламиПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE0CFAB176582B065DD167FE1D68F076DD951D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678362   (144429) от 21.11.2023
-
-Создатель / The Creator (2023) WEB-DLRip [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144429.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в будущем, во время войны между людьми и искусственным интеллектом. Бывший спецназовец Джошуа вместе с отрядом оперативников получает задание найти и убить архитектора продвинутого искусственного интеллекта — Создателя, который разработал оружие, способное положить конец не только войне, но и всему человечеству.Производство: США, 20th Century Studios, New Regency Productions, Entertainment OneЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Гарет ЭдвардсАктеры: Джон Дэвид Вашингтон, Мэделин Юна Войлс, Джемма Чан, Эллисон Дженни, Кэн Ватанабэ, Стерджил Симпсон, Амер Чадха-Пател, Марк Менчака, Робби Танн, Ральф АйнесонПеревод: Дублированный (MovieDalen), многоголосый (NewComers, TVShows)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 02:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37CBD196E5FABCE1E51A78EA45C3617B883BFAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087163   (144430) от 28.12.2016
-
-VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack) (2013-2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Junipero (80s-90s-00s-??S) (04:01)
-02. Faith, Hope, Fear & Falling in Love (02:47)
-03. Tick Tock (Clock of My Heart) (04:09)
-04. Night Drive (02:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 03:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8E8BF1995D228D08C06B22B477A90998605941
 ```
 
 

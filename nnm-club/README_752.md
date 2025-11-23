@@ -6,7 +6,7 @@ VA - Assorted Remixes Compilation Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19876.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3E169264921F93A10FE28FB5C0F0C48EF2B675C4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19877.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D9F3441EB3756EB39D2C538CD12AA4B31724716C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19878.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Smart AudioBook Player Pro v11.2.8 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19879.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Denise Audio - Bass XXL 1.3.0 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19880.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Mystery of Myths 2: Mystery of the Fjords / Загадки мифов 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19881.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D1A6E2183C0EBB5AB31CB181A2146B9F39DAA2E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19882.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AIMP 5.40 Build 2675 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19883.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ BLACKSHARD (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19884.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Enigma Virtual Box 11.30 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19885.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:23317768E2E394969A1A0B490F9EE46538C3086F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19886.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CG Cookie, Lucas Falcao | BASEMESH: Create Stylized Characters Quickly with Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19887.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:470AAA564DEC4A56DFA32EE6F1CD95F1F84CDEF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19888.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19889.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FullReader - читалка книг v4.3.6 b350 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19890.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AIMP 5.40.2675 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19891.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19891.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:6C1A841C9ACFB7A924F618DA2DE6FF390A19A911
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19892.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19892.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6C1A841C9ACFB7A924F618DA2DE6FF390A19A911
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19893.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19893.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CG Cookie, Wayne Dixon | RIG: Blender's Character Rigging Playbook (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19894.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F78B3603F18266B289BEF6B2670D4383B7081CD9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19895.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:6E3702FFAF9E52272843485C040BAA7FD735899B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19896.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ge Cheng | ChatGPT: Principles and Architecture (2025) [PDF, EPUB, MOBI] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19897.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19897.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Winxvideo AI 4.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19898.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19899.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7DC670E5DE80026CF4432A399A6E4B9B80723E06
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19900.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19900.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:467D9282418D045D1AB2E05B3359558A4121E033
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19901.jpg" />
 </div>
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 493225   (248603) от 07.05.2012
+
+Shanghai Dragon [En] (RePack) 2003 | Pilotus
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рельсовый шутер, где вы попадаете в 1937 год, в Шанхай, куда только что вторглись японские аоиска. Ваша задача - противостоять японским захватчикам.Тип издания: RePackЖанр: Рельсовый трехмерный шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492588   (248649) от 07.05.2012
+
+Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_248649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухмерный «мультинаправленный шутер», посвященный полетам на летающей тарелке и изучению титульной «Теневой планеты», заполоненной недружелюбной живностью.Тип издания: RePackРазработчик: Michel Gagné и Joe OlsonЖанр: Arcade (Shoot'em up)Язык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61DDA272B1843F26CCB1F06B8BB7C812ADCCDDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493120   (248676) от 07.05.2012
 
 Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
@@ -6,7 +54,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248676.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248676.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_249160.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250600.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250600.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250889.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250889.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250932.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_250932.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251060.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251060.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251549.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252469.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252469.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252478.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Sonic the Hedgehog 4: Episode 2 (P) [Multi5/-] 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253522.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253522.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253580.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254055.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254480.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254480.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254486.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254486.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Arto (2023) [En] (1.0.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254492.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254492.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254794.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254828.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254867.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254867.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Beyond Contact (2023) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255359.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255359.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -487,7 +535,7 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255901.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255901.jpg" />
 </div>
 
 
@@ -511,7 +559,7 @@ An Arcade Full of Cats, A Park Full of Cats, A Building Full of Cats 2 (2023-202
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256738.jpg" />
 </div>
 
 
@@ -535,7 +583,7 @@ Police Stories (2019) [Ru/Multi] (1.4.7/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256776.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256776.jpg" />
 </div>
 
 
@@ -546,6 +594,30 @@ Police Stories – это история о двух полицейских: Д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB0B58F926FBD7832F0A7F304754218026E6D16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838100   (257928) от 20.11.2025
+
+Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortal Kombat Trilogy - это файтинг-сборник 1996 года, который включает в себя всех персонажей и почти все арены из первых трех игр серии «Mortal Kombat». Игра представляет собой расширенную версию «Ultimate Mortal Kombat 3», добавляя в себя существенное количество контента, включая новых персонажей (Хамелеон/Камелеона) и улучшенные возможности, такие как большее (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche Software, Midway Games, Point of View, Inc.Жанр: ФайтингЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B4C8E0B3D05F6398FB6DCCBC454625BA63075C
 ```
 
 

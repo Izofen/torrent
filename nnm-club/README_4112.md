@@ -1,3 +1,84 @@
+###  Публикация: 1686139   (126599) от 22.12.2023
+
+горные цветы¿ - Психический коллапс (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Synth-Wave, Lo-Fi, Dark-Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:01:20]
+02. Снова слушать и молчать [00:02:49]
+03. Выход [00:01:55]
+04. Среда [00:02:38](   Читать дальше...   )Жанр: Synth-Pop, Synth-Wave, Lo-Fi, Dark-WaveПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2347402A92ECC26DB07B3BB0342EA2344916D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686130   (126600) от 22.12.2023
+
+Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хай буде треш! [00:03:00]
+02. Кожному своє [00:03:31]
+03. Алкосторі [00:03:20]
+04. На твоїх іклах [00:03:26](   Читать дальше...   )Жанр: Thrash Metal, Female vocalПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433701C08CC36E4722056FFA8C4A6044C17424C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686306   (126601) от 22.12.2023
+
+From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BR4INFCK [00:03:09]
+02. BLACK HEART [00:03:35]
+03. DRAW THE LINE [00:02:53]
+04. SUPERNOVA [00:03:44](   Читать дальше...   )Жанр: Alternative Metal, RapcoreПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3A5FDCC42E60FCB8048BAF74FBD35A42D5BF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686129   (126602) от 22.12.2023
 
 Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -6,7 +87,7 @@ Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126602.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:969F998FA041C4246C08A2242783C979055F73D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126603.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:53447AA42A78EC3FC00E178826CFCB2C4D446B5C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126604.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:2AF6E8183FB76F8A321211BB965D4529DCA1A0F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126605.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:3E825ED4544612B16EB64F1FB6F5B187A8AB5A41
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126606.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:FCC1244CA604BF6DD8CA6F5AB35BE8842012CE1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126607.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:FCC1244CA604BF6DD8CA6F5AB35BE8842012CE1E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126608.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ magnet:?xt=urn:btih:2150EE7FD1D1553FD11ABABEC17F24331D483A9D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126609.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ magnet:?xt=urn:btih:A20462C2051CA4C81E82429A73EF63D67CAE2590
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126610.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126611.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126612.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ magnet:?xt=urn:btih:AFC4DCD95E40FE3165F950981647016615BFE5AD
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126613.jpg" />
 </div>
 
 
@@ -310,7 +391,7 @@ magnet:?xt=urn:btih:7A046FEB7D88B249D89CF4257EC5E9ACA2DB1729
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126614.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ magnet:?xt=urn:btih:C7B18B6D14338FF91B7EC286F1CB8DC3A7C35615
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126615.jpg" />
 </div>
 
 
@@ -360,7 +441,7 @@ magnet:?xt=urn:btih:810ABC71693ED7FD922FB9FDE30ABB0D56BE6A5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126616.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126617.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126618.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ VA - Liquicity Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126619.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ magnet:?xt=urn:btih:A832966F40C2F73A51CA71D36D86217AE7276FF4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126620.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ magnet:?xt=urn:btih:3A856EE321EA48855B0ABB4FC5F60A81F99A9F46
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126621.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Armin van Buuren - Feel Again (Remixes) - Extended Versions (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126622.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126623.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126624.jpg" />
 </div>
 
 
@@ -578,82 +659,6 @@ magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:536326FC5F94F12915E893B8EF4F5329842C008C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686340   (126625) от 22.12.2023
-
-Дмитрий Ревякин - Стрелы Лет (2023) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сольный альбом Дмитрия Ревякина «Стрелы лет» — уже четвëртая его совместная работа с гитаристом Александром Бадажковым, который отвечал за аранжировку и инструментальную составляющую.01. Будем жить! 03:33
-02. Абакан 02:57
-03. Оренбург 03:03
-04. Грёб ложкой 03:32(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2991A7A00B8F0107CDB0F3975E02DE08E099999D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686260   (126626) от 22.12.2023
-
-Андрей Константинов | Бандитская Россия. Бандитский Петербург (2023) [MP3, Роман Волков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126626.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бандитский Петербург» – это самая полная криминальная история Северной столицы с момента ее основания до настоящего времени.
-«…в каком-то смысле книга „Бандитский Петербург“ для меня – это бесконечная литературно-исследовательская каторга, отбывая которую с каждым годом все труднее находить в себе силы продолжать работу… И все-таки, как мне кажется, тема „Бандитского (   Читать дальше...   )Жанр: ПублицистикаИздательство: Аудиокнига АСТПродолжительность: 32:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7412DEC76B4216F032B7DA918B92A300CA09D5F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686411   (126627) от 22.12.2023
-
-Google Chrome 120.0.6099.130 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF469F836BBC52097723D9687B18AF1C50C99B0
 ```
 
 

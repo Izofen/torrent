@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Various - Desert Storm Presents Vocal Jungle Volume One... (1996) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99613.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:DB286DB75C8B058DC7FD5239BC93E83A8AD9FC17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99618.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:BAA90C79199A1561FDB89A399FA588F91EC9F727
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99626.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Various Artists - Jungle Mania 94 (1994) [MP3|320 кб/с]<Jungle, Ragga Jungle,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99631.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:1E548BF35225C6523457392E32980CDE555AF42C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99636.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ A.S.Y.S. - Bpm Is Dead (2012) [MP3|320 кб/с]<Techno, Hard Trance, Acid>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99640.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:916FFEEA0E653F2FE6512D40F6081DD4FF03320E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99646.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9705149AECE685D3F7D36F33E3052CF7F9F57854
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99653.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:75CCD6D45DA29366293ACC51C35D548DCF71D404
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99657.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:2B870DE4510B12982CEC834F87ED02C399ED8540
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99658.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:45C2CE112F3A48C64E0F39F04F61F4240546A88D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99665.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:CECFBB6199AC036453CDD045FD7D3CF8BA60216C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99666.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:0DE651331D4B045391D92FA1D317C29CF0C0BD17
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99671.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:79D8D51BB586D89D602B9DD784EE5C0D7831ACC4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99675.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:6810E4CACF87DB831F90C8C9BB562BA9CB88EE3E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99684.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99694.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ectima - No Way Out (2009) [FLAC|Lossless]<Psy-Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99696.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99696.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99698.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99700.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mozilla SeaMonkey 2.9 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99705.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99705.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99713.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Heroes Of Trance (13.04.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99714.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99724.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99725.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99728.jpg" />
 </div>
 
 

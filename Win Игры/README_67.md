@@ -6,7 +6,7 @@ BLACKSHARD (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19884.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19889.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19899.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19907.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19914.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19914.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19925.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19929.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19933.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19947.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19974.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19982.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19984.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19985.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19986.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Last Man Survivor (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19987.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19989.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19990.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2011.010.003.007.006/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19999.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20001.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20002.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20005.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20009.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20014.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20021.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Night Slashers: Remake (2024) [Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20025.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20030.jpg" />
 </div>
 
 

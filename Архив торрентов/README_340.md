@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83139.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Xara Designer Pro 7 7.1.2.18680 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83142.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Content Pack - набор шаблонов для веб страниц, при�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83148.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Content Pack - набор шаблонов для веб страниц, при�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83156.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Content Pack - набор шаблонов для веб страниц, при�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83159.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Worms: Reloaded / Worms 2: Armageddon + 7 DLC [Multi5/+] (RePack/1.0.0.475) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83168.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83173.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83201.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83204.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:7EBBA582AE524E4A33642277451E759D76551CDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83208.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:7554B7C8366AE129202DD5D78CA8CC345619375A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83209.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:01F1DDFC1563DD4C2D89FD3CAC209A4D114D77C0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83210.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Protozoa 2.0 Interstellar Evolution (2012) [MP3|320 кб/с]<GOA Trance, Ni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83212.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:49FE73A7ED933D2F82086588A12AF1DD859D68CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83214.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Ministry - Relapse (2012) [MP3|~245 кб/с (V0)]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83219.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AF82BA869C97D39CEF9BD287F5E04EEFF3B8E390
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83220.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:EB2C53901D786D03B2A2E8E33FA1DA9731CFBDD6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83221.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:07F36403953D039B1908421525173F27C0FE9811
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83230.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:C90F251647CEE487DE6988D0D999C5C956F930C8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83241.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4B3498291E81965926EEA732AF40CE1795CFA81A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83242.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E25BAC457337973C37C9EDD4D4B7B1CE176B4DB7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83245.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E25BAC457337973C37C9EDD4D4B7B1CE176B4DB7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83248.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:92ACA186841F6833CF222DFD2E0C69167F6EE5BC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83249.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ FotoMix 8.8 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83250.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ FotoMix 8.8 [Multi/Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83251.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:2268BF88A68FC2BC22C029B7DA015A4975DFB983
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83257.jpg" />
 </div>
 
 

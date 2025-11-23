@@ -6,7 +6,7 @@ Duplicate Cleaner Pro 5.23.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46742.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.39 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46792.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ XYplorer 26.30.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46798.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46804.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 127.0.6533.120 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46818.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StartAllBack 3.8.3 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46826.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ HandBrake 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46838.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Microsoft Visual Studio 2022 Professional 17.11.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46843.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ K-Lite Codec Pack 18.5.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46857.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ AnyDesk 8.0.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46859.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BC47E490545097A003F3CA8DE15517C0AC28C682
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46860.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Visual C++ Runtimes AIO v0.83.0 x86-x64 Repack by abbodi1406 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46889.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Topaz Video AI 5.2.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46897.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ JetBrains DataSpell 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46898.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ FanControl V199 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46904.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Music Collection 3.6.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46907.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Devious Machines - Complete Effects Bundle 2024.8.12 VST, VST 3, AAX (x64) RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46908.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ AVS Video Software 13.10.7.37 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46921.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ JetBrains DataGrip 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46930.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Process Lasso Pro 14.3.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46940.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ JetBrains PyCharm Professional 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46941.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Topaz Video AI 5.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46948.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.4 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46950.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ JetBrains PhpStorm 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46954.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Jetbrains WebStorm 2024.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46956.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:51D21024033FD6C4C6AB36207C107DACA4F339AE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46964.jpg" />
 </div>
 
 

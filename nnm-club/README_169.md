@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1F554721107E09FAAB6E3775C96BC548022974F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4447.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Real Fishing / Настоящая Рыбалка v0.0.71 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4448.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5F96AE43C7780FBDC706B9DEC67E196746930482
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4449.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Save location GPS / Сохранить местоположение GPS v9.6 Mod
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4450.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4451.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ iZotope - Ozone 12 Advanced 12.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4452.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8EF405C2A4D039E02D558C3AB816C824F0D311EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Process Lasso Pro 16.0.2.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4454.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4455.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4456.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:9BECD02DCBB1ECB439E121E1D52129E588191248
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4457.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Icecream PDF Candy Desktop PRO 3.15 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4458.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:53FB9EB826910E83794B93998C49103615F943CD
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4459.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Telegram Desktop 6.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4460.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:C366B98D7C296C4D505E3F258AAC4E895F41EE8F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4461.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:B2A7B41F874B40353160BAA1716B1D476085473C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4462.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:1B4679C98E763853AF685D22154667FF016A20E1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4463.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ WinToUSB Technician 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4464.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:E6FA15F356492CB4445AA1A4EE311F456952131C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4465.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831_2044-321866/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4466.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4467.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F5F8C1130B860064F74982AC266C0C637F0A08EB
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4468.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Diamond Cut Forensics Audio Laboratory 11.08 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4469.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:50B2702B69B14607A7261B1EB107FD3A4617936E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4470.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4978.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E0112C6488EFEE4885D6BE8FFF7A674FDF2F150
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4979.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Hallmark Card Studio 2023 Deluxe 23.0.1.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4980.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:38EE26BA21523DAE9523171D0719DD11C15422C7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4981.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ IObit Uninstaller Pro 15.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4982.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PGA Tour 2K23 (2022) [Multi] (1.0) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4983.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4984.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Smart AudioBook Player Pro v11.5.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4985.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C67F4B0FB60CC88BB345670C817BA580F00403FB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4986.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1339F0402C5215A341AFA2F60C5868D0C1E93BED
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4987.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:DBADFBFF0B61BBE07CD0D953D2EAB9360AD27B80
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4988.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:6B803A6A23AD75576981854397D869BF2849EDCF
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4989.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:40D68E6F6FB1A3472209074E33BDFFDBFC9A3ACC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4990.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:444D24D649C6AF31A5DDCC36B6A6B164D0E9408E
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4991.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6452B8C05913E5B8943C75D24687FC141AA0D186
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4992.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:68415F110BFF83267158E71B89FF732387281B9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4993.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adobe Dreamweaver 2021 21.6.0.15711 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4994.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B6E0488BAFB3785D0BCAC8ACC7426A7BE8E33557
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4995.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:98FA1E028F155BFC871F21CD2192240BA9F58243
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4996.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:52F56606C5887B43963D39875524A2A9DA824608
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4997.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4998.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:49FA68B1E274E9340F2B6F11BE87CD4AAAAA5338
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4999.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Purvpn 9.0 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5000.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ TikTok Private Plus v41.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5001.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Radiant Photo 2.1.0.756 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5002.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:857D81993A3F4171F21543B592BF2BF247FFE858
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5003.jpg" />
 </div>
 
 

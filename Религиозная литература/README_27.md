@@ -1,3 +1,78 @@
+###  Публикация: 1661176   (188970) от 14.09.2023
+
+Благовест | Призывай непрестанно Бога. По творениям преподобного Исаака Сирина (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений преподобного Исаака Сирина о молитве, взятых из его подвижнических слов. В своих творениях святой Исаак ясно показывает, что суть подвига и опора жизни христианина – молитва – устремление души к Богу, а в идеале – Богообщение. Молитва зажигает любовь и достигает в совершенном христианине безмерности, исполняя его (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A82D218E82F0E5F41B82FFB55254F1A1CEE151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661171   (188973) от 14.09.2023
+
+Блаженный Иоанн Мосх | Луг духовный (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188973.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Луг духовный» принадлежит к числу самых распространенных на Руси агиографических творений. Помимо описания различных событий и промыслительных для спасения случаев, в 219 главах данного творения также даются душеспасительные размышления и наставления подвижников, служащих для назидания каждого православного христианина. Вся книга свидетельствует об истинности Православия (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3455674D9372C01E77B814CD0EC06460811052B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657626   (192446) от 04.09.2023
+
+Сибирская Благозвонница | Сокровенное делание умно-сердечной молитвы (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует печальное заблуждение, будто к подлинной молитвенной жизни призваны исключительно монашествующие. Будь это верным, не сказал бы апостол всему фессалоникийскому собранию верующих: Непрестанно молитесь (1 Фес. 5, 17).
+
+Но как это можно – молиться беспрестанно, если жизнь человека есть череда самых разнообразных необходимых дел?
+(   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5C41DACE632BB75DD94EC8B3FA863C56B77C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657624   (192450) от 04.09.2023
 
 Благовест | Христианское отношение к ближним (2020) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +81,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192450.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192450.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:4D1AA82CC0E323DAAC8C9B77F3D627BF7C5709B1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192454.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192454.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:4758E91A34C5AF5C753A32BC3FB7E6B6D2C4BBFC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198523.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198523.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:85BC58C372A2DCB5DEE8A1DE4D2845F1873FCA9A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201037.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201037.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:F81A21DA781CA0601D52D8E30BD4E7D9BEDF4C0C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201370.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201370.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:585DC509BCE45F3DB118B50B370FDFF09E70953A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202701.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202701.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:D6A3E328AC5063C31F433CDC2F42E27B3C130D8B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203005.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:6A8E4805BB8762DB4A67B6B5C351ED580162E1E1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203008.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:53EB9D161D4A6E4A5F4190BC1393EEAEC6D81A48
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203036.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:0AA5B29FA91F35922F1A62C297E7B3D4075FD65E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203038.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203038.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:4365D14CC29FB4915917D9A17382E9CFC3C6D4EE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203277.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203277.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:104F2703F09D9EF33527E7B5CFA6C3003DF525EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203331.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203331.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:1806917056AE798D3108770E51FAA9832C427F37
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203375.jpg" />
 </div>
 
 
@@ -322,7 +397,7 @@ magnet:?xt=urn:btih:8904E7265B7B2F6F923F901EBF07D6CFD5F1F971
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203719.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203719.jpg" />
 </div>
 
 
@@ -346,7 +421,7 @@ magnet:?xt=urn:btih:0F51F86A24F4279FA40BF06640D30A1AA58D17B2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203765.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203765.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:C49667AF1580CA15A7849B57FD739B6112ADB56F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203777.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203777.jpg" />
 </div>
 
 
@@ -394,7 +469,7 @@ magnet:?xt=urn:btih:DE4BFDF48B388B4D693D36497E5F98C5E6F9329A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203975.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203975.jpg" />
 </div>
 
 
@@ -418,7 +493,7 @@ magnet:?xt=urn:btih:52EFDF17C560EBB3DBA1E152DA2CE2E533DBC657
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204632.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204632.jpg" />
 </div>
 
 
@@ -442,7 +517,7 @@ magnet:?xt=urn:btih:4A624552A93F6CF84616EEEC2CEF4C99BD921532
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204649.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204649.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ magnet:?xt=urn:btih:DBA3FB19A873A2262F1D61BFE4E5E0A9692C132D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204657.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204657.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:591B1E344F2DC2612A907A7F07E2ADD8FECCF104
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204939.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204939.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:5352CDA69814A95A3B8AD3FC57061C4FC11EEA18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204949.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204949.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:6ABA8698E70817F293032F7CA47E7360181F39E3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204950.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204950.jpg" />
 </div>
 
 
@@ -553,78 +628,6 @@ magnet:?xt=urn:btih:6ABA8698E70817F293032F7CA47E7360181F39E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42916382A2B8D2C2CD346132D0C0E1BF53070EB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654471   (205239) от 20.08.2023
-
-Владимир Крупин | История России в рассказах о святых (2021) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историю России нельзя представить без русских святых. Они являются свидетелями и подчас действующими лицами важнейших исторических событий нашей страны. В книгу известного православного писателя Владимира Крупина вошли рассказы о святых: равноапостольной княгине Ольге, блаженной Ксении Петербургской, праведном Иоанне Кронштадтском, патриархе Тихоне (Белавине) и других.Жанр: Духовное просвещениеИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40557ACEC270C622DD5C5692C92BC8BF17F91DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653487   (205432) от 16.08.2023
-
-Сибирская Благозвонница | Будьте святы (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святы будьте, ибо свят Я, Господь Бог ваш (Лев. 19, 2) – это заповедь еще Ветхого Завета, тем более она обязательна для нас, живущих уже во времена новой благодати. И действительно, уподобление своему Господу – естественный путь каждой верующей души, любящей Бога и стремящейся победить живущий в ней грех. Однако зло порой кажется всесильным, а святость – недостижимой (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66B9CC06703C33A1BFE066EEA955C1C4FBAA249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653485   (205444) от 16.08.2023
-
-Сибирская Благозвонница | Святая Гора и 100 афонских старцев (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святую Гору Афон и ее насельников можно уподобить свече, о которой Господь говорит в Евангелии: Вы – свет мира. Не может укрыться город, стоящий на вершине горы (Мф. 5, 14). Каждый раз, когда Афон переживал духовный расцвет, его свет распространялся по всему миру. Многие традиции богослужения и устава, книжности и духовного просвещения пришли в славянские земли и (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C752072688CED62C7BB3DF08A9436E2CE07FC0F0
 ```
 
 

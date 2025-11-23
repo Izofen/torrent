@@ -1,3 +1,85 @@
+###  Публикация: 1682841   (131195) от 08.12.2023
+
+The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 01
+Disc 02
+Disc 03Жанр: Alternative RockПродолжительность: 3CD, 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0475EA06D860B71392171BBCFD0187CFE6455DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682611   (131197) от 08.12.2023
+
+Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Insomniashes
+02		Empty Source
+03		Brutal Doom
+04		Lifeless(   Читать дальше...   )Жанр: Depressive Black MetalПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596418   (131198) от 30.12.2012
+
+The Bat! Professional 5.3.6 Christmas edition RePack (& portable) by KpoJIuK [MULTi / Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131198.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми
+свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные
+опции, которые понадобятся продвинутым пользователям.
+
+(   Читать дальше...   )Название программы: The Bat! Professional EditionЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682690   (131199) от 08.12.2023
 
 Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -6,7 +88,7 @@ Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131199.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ magnet:?xt=urn:btih:CCAF402B9ED500A08E7E455D83E2EB665DB756C3
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131200.jpg" />
 </div>
 
 
@@ -57,7 +139,7 @@ magnet:?xt=urn:btih:524E5B694090301DB3F2FDCBD2ED1A760508C737
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131201.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131202.jpg" />
 </div>
 
 
@@ -109,7 +191,7 @@ Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131203.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131205.jpg" />
 </div>
 
 
@@ -163,7 +245,7 @@ Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131207.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|image + .cue] <Heavy, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131209.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131210.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ Strike Master - Up for the Massacre (2006) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131211.jpg" />
 </div>
 
 
@@ -268,7 +350,7 @@ magnet:?xt=urn:btih:C0E1A6F0CC6CA72B65C6C5BD2DE472BD2C04EEB4
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131212.jpg" />
 </div>
 
 
@@ -292,7 +374,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131213.jpg" />
 </div>
 
 
@@ -318,7 +400,7 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131216.jpg" />
 </div>
 
 
@@ -342,7 +424,7 @@ TeraCopy Pro 2.3 beta 2 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131217.jpg" />
 </div>
 
 
@@ -368,7 +450,7 @@ TeraCopy Pro – утилита улучшает процесс копирова
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131218.jpg" />
 </div>
 
 
@@ -392,7 +474,7 @@ magnet:?xt=urn:btih:BB8C6AC2374C2A9DE99FCB74E866C1668729C77D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131219.jpg" />
 </div>
 
 
@@ -416,7 +498,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131220.jpg" />
 </div>
 
 
@@ -449,7 +531,7 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131221.jpg" />
 </div>
 
 
@@ -479,7 +561,7 @@ magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131222.jpg" />
 </div>
 
 
@@ -503,7 +585,7 @@ onOne Perfect Portrait 2.0 Premium Edition [Английский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131223.jpg" />
 </div>
 
 
@@ -529,7 +611,7 @@ OnOne Perfect Portrait 2 программа и плагин к Adobe Photoshop �
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131224.jpg" />
 </div>
 
 
@@ -553,7 +635,7 @@ magnet:?xt=urn:btih:C793457F0A346DB0910D49403D2D42035C8C63D0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131225.jpg" />
 </div>
 
 
@@ -580,7 +662,7 @@ magnet:?xt=urn:btih:370A5B7DE756C1C639BC46309FE89E18EA1A4A4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131226.jpg" />
 </div>
 
 
@@ -591,85 +673,6 @@ magnet:?xt=urn:btih:370A5B7DE756C1C639BC46309FE89E18EA1A4A4C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D01ACBAC0C824E1B853E1019BE23768DA1EB83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596375   (131227) от 30.12.2012
-
-Щеколда / Le Déclic (1985) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: ФранцияЖанр: Эротика, Комедия, ТриллерРежиссер: Жан-Луи РишарАктеры: Флоранс Герен, Жан-Пьер Кальфон, Берни Каби, Жерар-Антуан Юар, Фабрис Джоссо, Крофтон Хардестер, Жасмин Маймоне, Лиза Маркс, Джордж «Бак» Флауэр, Мария Форд, Дебра Ламб, Тони НэплсПеревод: Одноголосый закадровыйПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35139229EC18B239694BF38AEA7C3BB23E9A6800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582720   (131228) от 07.12.2023
-
-Повседневная жизнь бессмертного короля 3 | Xian Wang de Richang Shenghuo 3 | The Daily Life of the Immortal King 3 [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон приключений Ван Лина в Академии Культивирования. На этот раз нас сразу познакомят с новой героиней, приехавшей прямо с Солнечного острова (Японии) и решившей захватить власть во всём Хуасю (Китае). И первой своей целью она ставит для себя становления самой популярной крутышкой 60-ой Академии. Посмотрим, сможет ли она одолеть Сунь Жун или же в процессе (   Читать дальше...   )Производство: Китай / Студия Pb Animation Co. Ltd.Жанр: Комедия, школа, приключения, романтикаРежиссер: Чжу Бэнин, Ли ХаолинЯзык озвучки: Русский многоголосый, закадровый; Китайский
-- Viki, Paragon, Veda, Skyfinger (SHIZA Project)
-- Morgan, Dagor, Mariarti (Freedub Studio)Субтитры: Русские
-- (софтсаб на надписи)  (1-10) (SHIZA Project)
-- (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 20 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F6CD4A037DED84695922FBC03CBFC876D2A10D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680260   (131229) от 07.12.2023
-
-Яндекс.Практикум | Курс «Системный аналитик» (2022) WEB-DL [AD] [RU] [Части 8 из 8]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поможем освоить новую профессию с нуля за 9 месяцев.
-Что именно вы будете делать, когда станете системным аналитиком:
-✅ Собирать требования к программному продукту, обеспечивать их полноту и непротиворечивость
-✅ Разрабатывать прототипы пользовательских интерфейсов(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 32:39:10Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
 ```
 
 

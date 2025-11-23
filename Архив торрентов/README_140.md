@@ -6,7 +6,7 @@ NVIDIA GeForce Desktop Game Ready 566.36 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34845.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KMS Tools Lite Portable  by Ratiborus 05.12.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34870.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CyberLink PowerDVD Ultra 23.0.2319.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34877.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CE016C9674C7BCA9D850FC94827F9DF5517A8B71
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cher - Christmas (2023) Deluxe Edition, 2024, Warner Records [FLAC 24/44.1|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34919.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Any Video Downloader Pro 9.1.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34920.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FreeFileSync 13.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34925.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ CCleaner Pro: ПО для очистки 24.22.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34930.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.2 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34933.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ OBS Studio 31.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34937.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Display Driver Uninstaller 18.0.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34940.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Topaz Video AI 5.5.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34954.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Snappy Driver Installer Origin R773 | Драйверпаки 24.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34984.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ QOwnNotes 24.12.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35004.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RustDesk 1.3.5 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35014.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35038.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Antivirus Removal Tool 2024.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35042.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wondershare PDFelement 11.4.1.3253 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35050.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Duplicate File Finder Pro 2407 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35051.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35056.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ v2rayN 7.3.0 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35066.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ WinRAR 7.10 Beta 2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35087.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Steinberg - Cubase Pro 14 14.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35090.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ RegCool 2.018 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35109.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Desktop Calendar 3.19.213.6862 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35120.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ XtraTools Professional 24.12.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35122.jpg" />
 </div>
 
 

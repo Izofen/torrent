@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22645.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BCA40E165D12B266428F43E51133EFA0DD21222A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22785.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6238A14B069CE60A1CBF84FFC793E301FF6E5982
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22795.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4BA0F914ED706602FAA12F6B0FA5A183A2524612
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22895.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:29CDC0F9E7782ED2DB27C65F30E49C52FB9CB85F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23102.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23102.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:0412C0378980662F60CFCB453A7D593A23D3E03B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23106.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23106.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:35F50F31B4710EEC30E0333F9783C12EBFB704B7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23109.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:277DF29055F562D45C9AD015DE1DAD83FB15DD53
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23211.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23211.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:63895A2C9F6FC2D4AE32C718BC59BC57F35DB41D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23215.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:8FF36ED7D6B0AA34B48EC1A55D63334385B42620
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23318.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:F9CE7C770EA2C694D6034C37B7DAEE2D155DBDB3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23413.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:600200DC659332FDDE19118593A358919141FF45
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23414.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23414.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D90D7D1B9AF50C3B1B8B230C62A6ED8B3D4BEBFE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23420.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2D3475DF2860F4C7D0AA2CAADF19DBD1FDFA8F58
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23421.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:C21A3A8E8B071100A3E6CA545B18706E83908058
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23515.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:580DD0577E9182785AE0F0158825B5CBEA06C64C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23519.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23519.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:743FBC57A42912216C52D799B7005E00B36E3DE4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23524.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:12750E7C77EC7EB25A048932330E115EAD112046
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23526.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23526.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:479F70CAB3124816778D25BED6318C9311AE1C4C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23528.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23528.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:162D122A326420F15F861835F60CC227FF56E251
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23529.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:E193B0BD52040658DE048C012B9D6889266AACE9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23634.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23634.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:5FBF35051DCC3E96F1779C3B609C70BD451AD2DC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23835.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2FAEE8E8BFA2EEBD774A766FB1D67CB09DD78B99
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23951.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:196BCBDAE76A4D2D3683ACD7D63754D01FEC0AF2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24046.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:A932EE91AFA427164D873BE69AA14C9B49679D50
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24050.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:ABE4D67849ED7E3BB7C3B62413262988FFDAFC88
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24062.jpg" />
 </div>
 
 

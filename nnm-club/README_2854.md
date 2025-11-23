@@ -1,3 +1,79 @@
+###  Публикация: 470611   (83168) от 19.03.2012
+
+Worms: Reloaded / Worms 2: Armageddon + 7 DLC [Multi5/+] (RePack/1.0.0.475) 2010 | Fenixx
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет минуло с момента выхода Worms Armageddon, но пошаговый комический хаос продолжается вместе с Worms Reloaded, это полностью новое издание для PC через Steam. Worms Reloaded поддерживает игру до 4-х соперников онлайн, автономный режим мультиплеера на одном компьютере, голосовой канал, множество сумасшедшего нового оружия (возвращено некоторое знаковое оружие из Worms Armageddon), достижения, доски почета, все темы пейзажев с высоким разрешением, целый ряд блестящих карт фортов в новом режиме Forts, новый редактор ландшафтов, новые режимы игры, головные уборы, могилки и голоса (звуки).
+В довершение ко всему, есть также одиночная игра с компьютером, смертельные матчи (deathmatches), гонки, форты и головоломки. Наслаждайтесь новым High Definition полноцветным графическим движком, пересмотренная физика и карьера с новым компьютерным A.I. интеллектом с 7 типами сложности, начиная от легкого до очень трудного, компьютер стал очень умным и у него появились такие черты как мстительность, дерзость и "темные черты характера"! Игра также обладает различными вариантами настроек и включает в себя тысячи возможностей настройки для вашей команды червей, тонны игровых параметров и пользовательские уровни, поэтому вы можете играть в игру, как вы хотите!
+
+(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 SoftwaretЖанр: Strategy (Turn-based)Язык озвучки: русский, английский,немецкий, французский, итальянскийЯзык интерфейса: русский, английский,немецкий, французский, итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5793DB6892F92FA676D86EBCC75383506B3B4085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469985   (83169) от 19.03.2012
+
+Стивен Кинг | Под куполом [2009] [FB2,RTF]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая история о маленьком городке, который настигла БОЛЬШАЯ БЕДА. Однажды его, вместе со всеми обитателями, накрыло таинственным невидимым куполом, не позволяющим ни покинуть город, ни попасть туда извне. Что теперь будет в городке? Что произойдет с его жителями?2009Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6230E5C79F8AC7AA9E8B4CEC8620A5EAA8BBDDA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 417373   (83170) от 19.03.2012
+
+[Программа] (Android 1.5+) PhoneMyPC 2.0.3.6 /обновлено 19.03.12/
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спомощью этой программы можно управлять домашним компьютером из любого места.
+Клиент для ПК (на базе WindowsРазработчик: SoftwareForMe IncЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469983   (83172) от 19.03.2012
 
 [GameCube] Eternal Darkness: Sanity’s Requiem [NTSC][ENG][2002]
@@ -6,7 +82,7 @@
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83172.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83173.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83174.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83176.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ magnet:?xt=urn:btih:646720B81A5A20FCE904A1DD5CFE7CCA0D4FC532
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83177.jpg" />
 </div>
 
 
@@ -130,7 +206,7 @@ magnet:?xt=urn:btih:ADB5FAADD6614BA15E0A6F503C6B2D6E07F28554
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83181.jpg" />
 </div>
 
 
@@ -154,7 +230,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83183.jpg" />
 </div>
 
 
@@ -179,7 +255,7 @@ Windows7 Ultimate AUZsoft RED x64x86 v.8.12. [RUS]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83189.jpg" />
 </div>
 
 
@@ -205,7 +281,7 @@ Counter-Strike: Source v70 {09.02.2012} (P) [Multi11] 2004
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83190.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83191.jpg" />
 </div>
 
 
@@ -254,7 +330,7 @@ magnet:?xt=urn:btih:05E03B0DD0CDAB42BEC6C0F8E9F043565D3AC32A
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83193.jpg" />
 </div>
 
 
@@ -279,7 +355,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83194.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83195.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Ins
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83197.jpg" />
 </div>
 
 
@@ -358,7 +434,7 @@ magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83198.jpg" />
 </div>
 
 
@@ -382,7 +458,7 @@ Easter Eggztravaganza (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83200.jpg" />
 </div>
 
 
@@ -406,7 +482,7 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83201.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83203.jpg" />
 </div>
 
 
@@ -457,7 +533,7 @@ magnet:?xt=urn:btih:DC355D1D229D77908130C5C729D75B03E67CA7B3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83204.jpg" />
 </div>
 
 
@@ -481,7 +557,7 @@ magnet:?xt=urn:btih:7EBBA582AE524E4A33642277451E759D76551CDB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83206.jpg" />
 </div>
 
 
@@ -505,7 +581,7 @@ VA -  Erotic Bar and Chill Out Lounge 55.1 (2012) [MP3|320 kbps]<Chillout | Down
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83207.jpg" />
 </div>
 
 
@@ -538,7 +614,7 @@ magnet:?xt=urn:btih:081682FAB3BC26600BCD97B6522D9B900B2FDED6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83208.jpg" />
 </div>
 
 
@@ -562,7 +638,7 @@ magnet:?xt=urn:btih:7554B7C8366AE129202DD5D78CA8CC345619375A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83209.jpg" />
 </div>
 
 
@@ -573,96 +649,6 @@ magnet:?xt=urn:btih:7554B7C8366AE129202DD5D78CA8CC345619375A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01F1DDFC1563DD4C2D89FD3CAC209A4D114D77C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470617   (83210) от 20.03.2012
-
-[Wallpapers] Girls Wallpapers Mix (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA87D1AC9389537FC54BFCE44E056F4BA28881B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470681   (83211) от 20.03.2012
-
-VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vlada Crystal - Я Разрешаю Тебе
-02. Driu Mc Feat. Funky Inlite - Только Тебе
-03. Mc Zali - Облака (Kolya West Remix)
-04. Анастасия Коновалова - Люблю Тебя
-05. Дмитрий Колдун Feat. Alex Brashovean - Ray Of Light (Forever Mine)
-06. Сацура - Больше Чем Слова
-07. Music Hayk - Деньги И Слава
-08. Миша Романова - Невесомая
-09. Dj Party-Zan Feat. Nity - Нас Не Удержать (Radio Edit)
-10. K.Melody - Te Quiero2012Жанр: PopПродолжительность: 06:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF3BCE30DF3EB9E97CB003FB4B9681BC2584427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470701   (83212) от 20.03.2012
-
-VA - Protozoa 2.0 Interstellar Evolution (2012) [MP3|320 кб/с]<GOA Trance, Nitzhonot>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goalien - Discarded Entity (Part I) 06:40
-02. JBC Arkadii - Air 08:10
-03. Midi Rico - Explosions Wackier 06:58
-04. Zed Reactor - Vega Sector 08:02
-05. Dragun - Brave New World 07:05
-06. Ephedra - Time Machine 07:26
-07. Phargua - Digital Dew 08:00
-08. Ephedra - Landscapes From Heaven (Extended Version) 08:17
-09. Ion Vader - Liquidious Fleshbag 07:54
-10. Goalien - Discarded Entity (Part II) 08:222012Жанр: GOA Trance, NitzhonotПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FE73A7ED933D2F82086588A12AF1DD859D68CF
 ```
 
 

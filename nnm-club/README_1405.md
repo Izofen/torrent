@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D345D507271F37CE12383BA6EAF1F1F6B0329CED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36884.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ v2rayN 7.1.2 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36885.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C8F42CB335C50869EB30EA154A68BB97D0A69202
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36886.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:059E9C2C15437A0EE36CB86471BC106C14F1A4A6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36887.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Shotcut 24.11.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36888.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5EE73D502CBCB78D90B76BC3C58607B4CDB170E1
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36889.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ HDCleaner 2.083 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36890.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ IK Multimedia - TONEX MAX 1.8.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36891.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Speedtest от Ookla 5.5.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36892.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - OPIA (2024) Ultimae Records [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtem
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36893.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:8AB363D2B3687FC33B3F2FF89C9DDCF02CF4DCCC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36894.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:641D77519CC48DE3E2039C43CAA7B917E3560CF9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36895.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.11.17.1029) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36896.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:DBFF48AB42E4AB02E4804BCEB8E9A8F8618A65C1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36897.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8F39550404FF2619085FA2DF5F2405A2E79BE3CD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36898.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ v2rayN 7.0.9 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36899.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ ChessBase Mega Database 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36900.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Chess King 24 (2024) [Ru/Multi] (24.0.0.2400) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36901.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bandicam 8.0.0.2509 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36902.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ qBittorrent 5.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36903.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:068CDFF8F8155EBC2FC103591FB1D255E38BABF1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36904.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:AC01A5C7C2F49842DD7F6EED4422F055B42FB793
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36905.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E2C7B52225552740D49914D454B6FD7ADE51F3C7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36906.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Fritz 19 (2023) [En] (19.3) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36907.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:8EC7D4A8309189B28D4C9F39F41A73824A392025
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36908.jpg" />
 </div>
 
 

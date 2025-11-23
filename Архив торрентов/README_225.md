@@ -6,7 +6,7 @@ ElectroBox - Electronics v38 Mod by derrin [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52311.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EC791E8278AAF240F272927A86CD3C5C261DB73D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52324.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CCleaner Pro: ПО для очистки 24.12.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52348.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ JetBrains DataGrip 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52350.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ JetBrains GoLand 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52353.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FreeFileSync 13.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52357.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Imagine 1.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52368.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Plus Messenger (Telegram+) v10.13.1.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52376.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ JetBrains CLion 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52378.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Jetbrains WebStorm 2024.1.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52393.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.1.4 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52420.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ iTop Easy Desktop 2.5.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52423.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CrystalDiskInfo 9.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52431.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FBReader Premium v3.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52458.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52469.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CopyQ 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52472.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Luminar Neo 1.20.0.13512 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52478.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ English Galaxy v1.7.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52487.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D134FA3ABEB1CD5FDC03908BA10F62C43E44E0CA
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52504.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ PDF-XChange Editor Plus 10.3.1.387 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52510.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ PDF-XChange PRO 10.3.1.387 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52511.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BA55EA7E7E2824F8C1C03D95552636C4D542CFC4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52544.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ OCCT 13.0.1 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52561.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ RizomUV Virtual Spaces / Real Space 2024.0.58 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52562.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mozilla Thunderbird 115.12.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52576.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Wise Auto Shutdown 2.0.7.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52595.jpg" />
 </div>
 
 

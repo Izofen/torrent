@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11262.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10 [10.0.19045.6093], Version 22H2 (Updated July 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11263.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0FF2C8D074BCACB70F5771D6DF0E2801CCA7191C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11264.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11265.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sneaky Sasquatch v.2.0.5 (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11266.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11267.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Driver Easy Pro 7.0.2.1910 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11268.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:302B694B29645605E57CB5F11E4513A5E46F8070
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11270.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows 7 SP1 7601.27820 x64 3in1 by OneSmiLe [17.07.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11272.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CDC78BBC457E0A3D4E1745083C5FAE308622EA0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11273.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Everything But The Girl - Lullaby Of Clubland (2000) [FLAC|Lossless|tracks +.cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11274.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Big Boy Bloater - Dirty Disco Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11275.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11276.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Art Nation - Re-Revolution (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11277.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Don Felder - The Vault 1975-2025 Fifty Years Of Music (2025) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11278.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Nathan James - Hollywood Mortician (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11279.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11280.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Nad Sylvan - Monumentata (2025) Bonus Track Edition [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11281.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ David Starr - Must Be Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11282.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Tokimonsta - Eternal Reverie Remixes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11283.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Devilskin - Re-Evolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11284.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Blind Alice - Nothing Changes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11285.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11286.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ BigBlack Rhino - Supralove (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11287.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Eight In The Room - Eight In The Room (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11288.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Black Logos - The Devil's Kiss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11289.jpg" />
 </div>
 
 

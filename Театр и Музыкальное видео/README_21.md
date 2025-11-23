@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51557.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1BC94D9F7594D839BE7CD5CFBB0BDAAF6206758
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B6158C7C9B56B8AE60D60AEFF4EDF5F19BAE1749
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51576.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7396DABED6FF279B5A16031BC9D367B1AAA75FD9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51650.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:722B76C522C8E14849D5A0E27B52C8F6923B6C24
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51655.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51663.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:73E4A21A1CEE023FA8061BF001EB89A3D01F8D57
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51666.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1763403E0FE42887DADF7FE5ABE220DFC6F08A2D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51680.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:EC96888DE7E1D16779F692DF93832FBD3320D049
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52254.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:B96E82FA95F2A5DA418982A54C5CBEF56D8FBDA2
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52447.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4342A8E2377BA6AAF2271BC7AB6075753EEEC61A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52622.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:ACB79C4FC1EFF72E542D7612991D456709B2D5A5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52775.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52809.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52978.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52985.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52996.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:06A467652BEEE43A06520F015B5352425FB67609
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53090.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ the Dubliners: 40th Anniversary Concert (2002) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53148.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:AC244CCBD1DEF9995C7D82AE90EE4ECC019C2C2B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53292.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:AB0D56D9EA9C4AF8F85ADCEE8E7926E533AB408F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53540.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:AD9657E529D062076529EB1F7A2E19AADC59E96A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55306.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55332.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55339.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55436.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Emma Shapplin (1997-1999) DVDRip [MPEG2]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56653.jpg" />
 </div>
 
 

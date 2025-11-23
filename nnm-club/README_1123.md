@@ -6,7 +6,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A8618AC33675DAEED009173CF565FCDD808A0FD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29552.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29552.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Launcher for zapret 1.6 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29553.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29553.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FC4898275991B5969A46E420A062FE2B4269F4B9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29554.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29554.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ CyberYozh Academy, Евгений Ивченков, Алексей Гришин 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29555.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29555.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Acrobat Pro 2024.005.20392 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29556.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29556.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:EC4E3E16098A4410301F619598C89ECACA030DA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29557.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1FA3EABF8CE065A560BEBF57067799F0EB469D97
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29558.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows 10 Enterprise LTSC x64 21H2 (19044.5371) by Hawksoft [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29559.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29560.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F146F745F334D1180DE383815E012F624CCF257A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29561.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29562.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5F82B460CA42CBF7E468A3606D7BA3746C5C31B9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29563.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:2B148E5F9C352BDFC5A788C12893DF3C7F5F0BAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29564.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2B148E5F9C352BDFC5A788C12893DF3C7F5F0BAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29565.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29566.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0130C4CBC92FBE654D857DECE5654C0F2541AEE4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29567.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:C6CF26D2BF5A69803CEE779751A75EFEC14022F7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29568.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:E802FF1B8F5FA8A2AA00F9088D9C7092931DA9AA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29569.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29569.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:008F0FF04E2CF6F2195C214B7A991D4EB60B922A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29570.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:9CE64238D618B27C62E25F9EE6593982B3CF0828
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29571.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Halo Effect - March Of The Unheard (2025) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29572.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:99311A65BA95618FF9001441A55B801D4C77EF77
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29573.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29573.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:D57EC7961E89DA5E2DD752CF581AEB455554F3DA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29574.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29574.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:2593FCE47B09DCE09AE12D283A8F6DB7E73C46C5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29575.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29575.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:0808636F27E0452298FAC9EFC37458A3E8C36C56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29576.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29576.jpg" />
 </div>
 
 

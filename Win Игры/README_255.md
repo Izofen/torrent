@@ -6,7 +6,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171971.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171972.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bish Bash Bots (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172023.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172038.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Paranormal Files: Silent Willow 9 / Паранормальные явления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172056.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172153.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Transformers: Earthspark - Expedition (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172184.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172191.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172196.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172724.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ocean Pressure (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172726.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172748.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172750.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Garden In! (2023) [Multi] (1.0.8) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172753.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172764.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172784.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172903.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172909.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172924.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173093.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173105.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173124.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173128.jpg" />
 </div>
 
 

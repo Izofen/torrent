@@ -6,7 +6,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Legend Rock Ballads vol.1 - vol.3 (1996) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31269.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:54501A797742A1E8A27B91017DF64843A38CD094
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31270.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:979C91D66D808C461BC26C0B697B9AE38DF1CBE3
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31271.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:09318A6176BAC6DEE80B4511FCFF91FE3A781FD7
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31272.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Eagles - To The Limit: The Essential Collection (2024) Japanese Edition, 3 x CD,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31273.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3EA7BE7B5D0EB15FAC89AFDF4E42BBAC7C289585
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31274.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:A638AEED7BFD7E1A940A911776E4763576F8A4A5
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31275.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:6B747E160A58876328E8FD6018A8C368A1CE3390
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31276.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:38755C32723032B4E2A0EBDA0DAE3F2CC1BA2BF3
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31277.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:6C8C8431652A141A82D570A2C3A069958B03DD79
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31278.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:3CBCF4B1E6784148243276DAF1F01C802B762D80
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31279.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31280.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31281.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31281.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ PageEdit 2.4.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31282.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:993C965AF9F0B373FE82F9BF9D74B77AEA4FD3A1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31283.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31283.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:B7B18581478BC19C3C32F310CEAB4E166155D9AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31284.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31284.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31285.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31285.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.8.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31286.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:017EF2A7DD640CF3A0BB5A3F88AB527B26332958
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31287.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31287.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:88DE23ADA14EE2CE58363E7B86B9B108BED733A6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31288.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31288.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31289.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31289.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:179DD8E83C5F7C1F934FAD12175658471A477D0B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31290.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ FacePic - AI Face App v2.1.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31291.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31292.jpg" />
 </div>
 
 

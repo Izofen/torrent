@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82387.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9D313313658525CE12433DDBB08C8F63D8A37B7C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82388.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1BC88D6AA59F684622ADD3A1BE2A00559FD9668A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82391.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82394.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Devil's Train - Devil's Train (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82395.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82399.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:B7A40BDAA8E2990BB5AA30968BC6F49A96BE7E85
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82400.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:26AAEC4EA09A98CDB32E9BF30FC161919C02EAD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82404.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:B6F4981633E2C855261911F1A5C527FDE24BD656
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82405.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:66E84E677104CBE49DA5DECA5AEBB6810683F750
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82407.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:66E84E677104CBE49DA5DECA5AEBB6810683F750
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82410.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Selfplayers - Vibrations (2012) [MP3|320 кб/с]<reggae, ragga-jungle, electron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82412.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C9DD169EBAE9760D81CB69D983C062C9C99A5213
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82413.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Mozilla Firefox 12.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82417.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82420.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5B10AC2D9F8CE4A69878869C2043A939C9F0D547
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82429.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:EC053AFCC169F42FB3EE675621545B8A6AF964C1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82439.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:A94E5C45B0A4024D404BA0BDC6B18AD95B6DBF0F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82446.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:080734693CF9211D6A0F0F35776AF26650BFDAB3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82447.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:954AB706769564E3A3E65E352297D3EA69DE43B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82451.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:CEC8F06F4568D23DE212C5AD3792C6D41463D233
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82468.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:CEC8F06F4568D23DE212C5AD3792C6D41463D233
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82469.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F9F702229E510619006F671DDF1A3648E9F3FEF5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82478.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F9F702229E510619006F671DDF1A3648E9F3FEF5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82493.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:81EF82B225F930D6883A49442B759A2BA29734A9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82494.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Photo! 3D Screensaver 1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82503.jpg" />
 </div>
 
 

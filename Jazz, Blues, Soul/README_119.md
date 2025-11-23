@@ -6,7 +6,7 @@ Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131535.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131562.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Cafe R&B - 4 Альбома (1998 - 2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131568.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Scott Henderson, Steve Smith, Victor Wooten - Vital Tech Tones (1998) [WavPack|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131613.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131850.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131852.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131864.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Cee Cee James - 3 Альбома (2008 - 2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132062.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132081.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132091.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Jerry Lee Lewis - The Platinum Collection (2006) [FLAC|Lossless]<Rock'n'Roll>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132120.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Miss Li - Singles and Selected (2012) [FLAC|Lossless]<Indie Pop, Soul, Vocal Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132132.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Clifford Jordan - Highest Mountain (1975 - 1978) 2CD, 1999, Camden Deluxe [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132135.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Lowell Hopper - Soul Fingers (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132137.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Anni Piper - 4 Альбома (2004 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132138.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132146.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Paul deLay Band - Heavy Rotation [HDCD] (2001) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132160.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Frank Wess Johnny Coles - Two At The Top (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132206.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132416.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132702.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132771.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133015.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Chet Atkins with Tommy Emmanuel - The Day Finger Pickers Took Over The World (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133067.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133095.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Robben Ford - Night In The City (Live) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133137.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133138.jpg" />
 </div>
 
 

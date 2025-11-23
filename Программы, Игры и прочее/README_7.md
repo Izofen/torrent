@@ -6,7 +6,7 @@ Happy Color® – игра раскраска v2.19.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12467.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ inShot / Фото и видеоредактор v2.141.1494 Mod by Mixroot [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12664.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12791.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12978.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13035.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13046.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13175.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ HDRezka TV v1.4.0 Mod by App Rezka TV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13205.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Photo Studio PRO v2.8.2.4360 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13361.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13803.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13899.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13909.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ EOBD Facile: OBD 2 авто сканер v3.76.1110 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13918.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Translate AI - Camera & Voice v2.0.8 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13929.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13932.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CCleaner Pro: ПО для очистки 25.12.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14024.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sipnetic v1.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14185.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Human Anatomy Atlas v2026.00.019 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14248.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14509.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14536.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:6F88237713CB88504CC5F44FE46DCFB7D684EDC2
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14559.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14561.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14574.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Solid Explorer File Manager v2.8.63 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14757.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14826.jpg" />
 </div>
 
 

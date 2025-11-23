@@ -6,7 +6,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85467.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Mario Biondi And The Unexpected Glimpses - Due (2011) [FLAC|Lossless]<Jazz, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85880.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85883.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Houston Person - In A Sentimental Mood (2000) [FLAC|Lossless]<Hard-Bop, Post-Bop
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86079.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87306.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87372.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87413.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87938.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87952.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87975.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88157.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88949.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89372.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89381.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89632.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90582.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90789.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90801.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91421.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93299.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93319.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93363.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93408.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93428.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93453.jpg" />
 </div>
 
 
@@ -791,7 +791,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93517.jpg" />
 </div>
 
 

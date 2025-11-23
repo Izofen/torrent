@@ -6,7 +6,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138511.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138574.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139263.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139594.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139799.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139928.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5817D7A50BD927C71961F66A5163DE90EB897F50
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140000.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140005.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142056.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142903.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142949.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142974.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142990.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142996.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143304.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143482.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143655.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143948.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:1A46C889D033AD095FD271509551B749D7685FBF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144181.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144351.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145478.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0041384E45F6D41FC7200F0E9F1C13EB07EC42B4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146009.jpg" />
 </div>
 
 

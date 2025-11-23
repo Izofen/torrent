@@ -1,3 +1,76 @@
+###  Публикация: 970773   (137255) от 31.12.2015
+
+Genymotion 2.6.0 [En]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Genymotion - быстрый эмулятор Android, который включает в себя настроенные образы Android (x86 с аппаратным ускорением OpenGL), идеальный для тестирования приложения. Этот проект вырос из старого AndroidVM, и в сравнении с ним Genymotion имеет новый дизайн плеера, установщик и многое другое.
+Как говорят разработчики, цель продукта - заменить эмулятор Android от Google (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23ECDC9049D0AB97DE133637BC6AC4C81CD5278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088625   (137256) от 31.12.2016
+
+Kalaban (2016) [En] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137256.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в 1995 году, в альтернативной версии истории Финляндии. Главный герой игры Боб - отшельник и эмигрант с США, который переехал жить в Финляндии. События происходят в маленьком городке на западном побережье, где пробудились таинственные силы. Боб должен выяснить, что происходит и узнать, кто или что стоит за всем этим. Игра сталкивает вас с (   Читать дальше...   )Тип издания: RepackРазработчик: Rayhouse ProductionsЖанр: Arcade, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436416   (137257) от 31.12.2020
+
+Растровый клипарт - Eye makeup stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макияж, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4724x4724-7394x7280
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B3E900FC04EE10E05942B75C8CB79983FA9D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679391   (137258) от 25.11.2023
 
 В ожидании чуда / Expecting a Miracle (2009) WEB-DL [H.264/1080p] [AVO]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137258.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137259.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137260.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137261.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137262.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Discovery. Восходы / Sunrise Earth (2004-2008) [1080p/i] 17*Blu-ray
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137263.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:B58AA421C31A600D4E65B18981ABA366B2518966
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137264.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:A7A8EB26B32E00B6229C0F67D3FE453294F35BBB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137265.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ magnet:?xt=urn:btih:643636E9639A6F89C47019404B23F51547B3DB76
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137266.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ magnet:?xt=urn:btih:9F41682AB064E452969A349331824B37F185BD2E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137267.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ magnet:?xt=urn:btih:E6EC515244AFD58904D2BBC14838FA31BB734AA2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137268.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ The Evil Within (2014) [Ru/Multi] (30.12.2015/dlc) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137269.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ magnet:?xt=urn:btih:2D72EC63881CBA6B8ED8131F85C44B99BC401010
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137270.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ magnet:?xt=urn:btih:1DC1CF438F9D79C0969AB962CD721B3C9DE73ED6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137271.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:5E6F525021875B0F86A36A228051705A086F687C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137272.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:531AE857BD02CC38B5796A8060B6A1964386AEF3
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137273.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:44C8E9101767451616687E7A4DC4E3BC1E0B83DA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_137274.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_137274.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Adobe Photoshop Touch 1.7.7 [Ru/Multi] - Фотошоп для планшето�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137275.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:A534CBAF7AFEA89DFEE5E08A80E0BEE53CACDF6C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137276.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:FE95E01B718221CF45A70280275464D89A9407BD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137277.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Vaccine Rebirth (2023) [Multi] (1.3.4) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137278.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:C77C7F6F6E6BCB41DB713C4363CC3D926C32DFFA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137279.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ magnet:?xt=urn:btih:301B1B779A36D64CF20B6BDBC64DDC7C86D7209F
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137280.jpg" />
 </div>
 
 
@@ -552,86 +625,6 @@ magnet:?xt=urn:btih:301B1B779A36D64CF20B6BDBC64DDC7C86D7209F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A330853C7EF8D8356C7FA5DEE4DFB3E47D7AE13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436340   (137281) от 31.12.2020
-
-Векторный клипарт - Merry Christmas Santa Claus elements and themed painted flat illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-19 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBECEFE492A447AFF1062364454EA776795D7988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601463   (137282) от 31.12.2022
-
-Борис Гребенщиков - Песни Бардов (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Элегия
-2. Примета
-3. Песенка о Солдатских Сапогах
-4. Неистов и Упрям(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25273673E8FC0544B3165E9BFC1F5C8C7C90121D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088563   (137283) от 31.12.2016
-
-VA - District of Trance Vol. 2 (Compiled & Mixed by Lazyra, Pilligrim & Deeper) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Atmospheric Breaks, Progressive Breaks>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZANIO - Will (Elevate & Raggapop Inc Remix) (6:28)
-02. Yuriy From Russia - Keep Your Head Down (Original Mix) (7:50)
-03. Bring Bliss & Sonya P. - Wish the Night (Stas Isometrica Remix) (6:05)
-04. Platunoff - The Time To Go (Original Mix) (7:12)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Atmospheric Breaks, Progressive BreaksПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F3C037623534BEACC0608FABD344DD3751C083
 ```
 
 

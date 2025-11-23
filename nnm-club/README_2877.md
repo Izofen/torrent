@@ -1,3 +1,84 @@
+###  Публикация: 473107   (84247) от 25.03.2012
+
+Как все / Comme les autres (2008) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что не хватает респектабельному французу в сорокалетнем расцвете сил? Деньги — есть, дом — есть, положение в обществе — есть, культурный и разнообразный досуг — есть, любовь — есть, да и все родственники и друзья давно привыкли, что он -. .. гей, много лет живущий в паре с другим мужчиной. Однако, оказалось, не хватает объекта для тёплой родительской заботы — своего ребёнка. И жажда приложения нерастраченных родительских сил может заставить пойти его на многое — даже бросить любимого и ввязаться в сомнительную авантюру с незаконной иммигранткой — ведь законного способа стать отцом у него нет. Неужели у такой истории может быть хороший исход?Жанр: Драма, Мелодрама, КомедияРежиссер: Венсан Гаренк / Vincent GarenqАктеры: Ламбер Вильсон, Пилар Лопес де Айяла, Паскаль Элбе, Анн Броше...Перевод: Двуголосый закадровыйПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92CA1F84EE8593E29FC4BBB476554DE97309C03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472341   (84249) от 25.03.2012
+
+VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84249.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Алексей Брянцев - Я буду рядом
+002 Ирина Круг - За то что ты есть
+003 Мафик - Босота
+004 Ильдар Южный - Ты моё всё
+005 Жека - Моя любовь
+006 Арматура - Березники
+007 Владислав Медяник - Тень-день
+008 Александр Маршал - Беззаботный
+009 Леонид Телешев - Девочка на белом Мерседесе
+010 Виктор Калина - Курю у окна(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DACB32FF8F9FDFF1DFE3830FA2935DB10D216A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472680   (84251) от 25.03.2012
+
+[Картинки] Фото знаменитости/Нонна Гришаева
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нонна Валентиновна Гришаева — российская актриса театра, кино и телевидения, комедиантка, телеведущая и певица. Заслуженная артистка Российской Федерации (2006).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08A2E03A50B8CA3ED1452872B939E1AE8D3BFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473016   (84252) от 25.03.2012
 
 Реликт / The Relic (1997) BDRip
@@ -6,7 +87,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84252.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:F37775FFECD07F43DBAF8D2470F599AE71F69568
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84253.jpg" />
 </div>
 
 
@@ -56,7 +137,7 @@ magnet:?xt=urn:btih:519ADA56CC407971D904A3E940420E88080B10D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84254.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84255.jpg" />
 </div>
 
 
@@ -106,7 +187,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84256.jpg" />
 </div>
 
 
@@ -130,7 +211,7 @@ magnet:?xt=urn:btih:503CE7D43C78D225EAF4A6881CDF90B410BD2005
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84262.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ magnet:?xt=urn:btih:503CE7D43C78D225EAF4A6881CDF90B410BD2005
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84263.jpg" />
 </div>
 
 
@@ -179,7 +260,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84264.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84266.jpg" />
 </div>
 
 
@@ -229,7 +310,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84267.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84272.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84275.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84276.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84277.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ magnet:?xt=urn:btih:C2E5693FFA379E2E8EFCC3C2C8E36B8C26AFAF2F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84279.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ magnet:?xt=urn:btih:5253296094BC424649CF7D689730A96460A4E1C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84280.jpg" />
 </div>
 
 
@@ -412,7 +493,7 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84282.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84284.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84285.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84287.jpg" />
 </div>
 
 
@@ -518,7 +599,7 @@ magnet:?xt=urn:btih:55C99BCB8454F9F0BA0325D76DC986E81C2EBDEC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84288.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ magnet:?xt=urn:btih:B8CE91F1230738E0C4F8641C06E08C9F23D17FF2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84289.jpg" />
 </div>
 
 
@@ -566,97 +647,13 @@ magnet:?xt=urn:btih:B18780FEBACDE0EA6C08B4061E5D86AE772E6D37
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84290.jpg" />
 </div>
 
 
 ###  Подробнее
 
 На захолустном медицинском складе хранились контейнеры с зомби, по ошибке попавшие туда много лет назад. В один далеко не прекрасный день герметичность упаковки была нарушена, ядовитый газ вырвался наружу, и вот уже мертвецы с соседнего кладбища покидают свое тихое пристанище, чтобы полакомиться мозгом живых...Жанр: Ужасы, КомедияРежиссер: Дэн О’БэннонАктеры: Клу Гулагер, Джеймс Карен, Дон Кэлфа, Том Мэтьюз, Беверли Рэндольф, Джон Филбин, Джуэл Шепард, Мигель А. Нуньес мл., Брайан Пек, Линни КуиглиФормат: MKVПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473078   (84291) от 25.03.2012
-
-Ария - Герой асфальта 20 лет дубль 2 в Санкт-Петербурге! (2010) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Последний закат
- 03. Отшельник
- 04. Колизей
- 05. Беги за солнцем
- 06. Крещенье огнем
- 07. Антихрист
- 08. Свет былой любви
- 09. Кровь королей
- 10. На службе силы зла(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 01:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156D9B8AF85C71A2356DFA9968C87FE4490C12B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473065   (84294) от 25.03.2012
-
-До первого снега / First Snow (2006) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока чинили машину Джимми, так некстати сломавшуюся посреди дороги, он, чтобы скоротать время, решил зайти к старику-предсказателю. От него Джимми узнал, что вскоре дела его пойдут в гору, а самому ему суждено умереть — сразу после того, как выпадет первый снег. Джимми не воспринял слова старика всерьез, но каково же было его смятение, когда предсказания начали сбываться! И поскольку температура неуклонно понижается, он не может не думать о самом главном и зловещем пророчестве…Жанр: Триллер, ДрамаРежиссер: Марк ФергусПродюсер: Брайан Ферст, Боб Яри, Шон Ферст, ...Актеры: Гай Пирс, Пайпер Перабо, Уильям Фихтнер, Стивен Майкл Квезада, Дж. К. Симмонс, Николас Бэллас, Рик Гонсалес, Дэвид ХаусПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскиеПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472504   (84295) от 25.03.2012
-
-Angel Voices. Libera in Concert(2007) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы постоянно слушаем музыку, но мы даже не задумывались о том, что есть церковный хор, который как показалось на первый взгляд не отличается от остальных. Но, что мы видим это не просто кучка подростков поющих церковные песнопения, это группа детей профессионально занимающихся музыкой и вокалом. Они дают понять нам, что музыка это не просто слова и мелодия, а это отголоски нашей души. Ив каждой новой песне мы слышим их по разному. Libera — это то к чему стремится каждый 2-ой человек планеты — спокойствие и душевный покой.
-
-Этот концерт дает понять нам, что все к чему мы стремимся это покой и мир в наших сердцах.
-Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАктеры: Jonathan Barrington, Tiarnan Branson, Oliver Cole, Tom Cole, Liam Connery, Ben Crawley, Tom Cully, Edward Day, Steven Geraghty, Michael Horncastle, Michael Horncastle, Alexander Leggett, Sam Leggett, Zack Lockett, Joshua Madine, Conor O'Donnell, Callum Payne, Fiona Pears, Benedict Philipp, Robert Prizeman, Joseph Snelling, Michael Vereycken, Jakob WoodПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 0:55:01
 
 ## Скачать торент
 ```bash

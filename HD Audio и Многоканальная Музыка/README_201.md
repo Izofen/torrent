@@ -1,3 +1,110 @@
+###  Публикация: 1665746   (180956) от 02.10.2023
+
+October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180956.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Marras I
+A2 Marras II
+A3 Marras III
+A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665649   (181262) от 01.10.2023
+
+Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI Records Ltd. [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181262.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Вернись К Тому, Кого Любишь • Lay Back In The Arms Of Someone
+A2 Мне Грустно От Чего-то • Something's Been Making Me Blue
+A3 Если Ты Думаешь, Что Любишь Меня • If You Think You Know How To Love Me
+A4 Передай По Кругу • Pass It Around(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665675   (181438) от 01.10.2023
+
+Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+DISC 01
+DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 2CD, 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665581   (181450) от 01.10.2023
+
+Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Videotheque [00:03:50]
+02. Causeway [00:03:56]
+03. LA Dreamers [00:04:09]
+04. Fade Me Out [00:03:52](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665539   (181468) от 01.10.2023
 
 KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +113,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181468.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181497.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181528.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181553.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181553.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181557.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181557.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181566.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181566.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181570.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181570.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181583.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181583.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181585.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181585.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181600.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181600.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181626.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182129.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182215.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182242.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182244.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182244.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182262.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182262.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182286.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182286.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ Alter Bridge (Creed, Tremonti) - Studio Albums (7 releases) (2004 - 2022) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182296.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182296.jpg" />
 </div>
 
 
@@ -516,7 +623,7 @@ Code Orange - The Above (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, h
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182361.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182361.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_182423.jpg" />
 </div>
 
 
@@ -570,7 +677,7 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182425.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182425.jpg" />
 </div>
 
 
@@ -584,114 +691,6 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665430   (182519) от 30.09.2023
-
-Heldmaschine - Flachenbrand (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown (4:19)
-02. Monoton (5:46)
-03. Übermensch (3:22)
-04. Stumme Schreie (4:07)(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAFB081372D2F073B90DFBE29C2AF71E0CB0B23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665191   (182527) от 30.09.2023
-
-Don Letts - Outta Sync (2023) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <punk reggae>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outta Sync [00:04:31]
-02. Something Coming Off (feat. Hollie Cook) [00:04:01]
-03. The Universe Knows What You've Done (feat. John Cusack) [00:04:14]
-04. Touch (feat. Gaudi) [00:04:03](   Читать дальше...   )Жанр: punk reggaeПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3B1127776711B473887F1E4EF03D849614D0CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665401   (182548) от 30.09.2023
-
-Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Ambition (3:23)
-02. Suffocare (3:40)
-03. Ungrateful (3:06)
-04. Seed Of Death (4:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0796BAF4C15E5ABA337A250CD5307BD3A712AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665432   (182578) от 30.09.2023
-
-Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <proto-punk, psychedelic rock, rock and roll, shock rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade Away (2:45)
-02. Settle Down (2:12)
-03. Scream for Death (1:50)
-04. The Game (3:23)(   Читать дальше...   )Жанр: proto-punk, psychedelic rock, rock and roll, shock rockПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
 ```
 
 

@@ -6,7 +6,7 @@ Minimal Audio - Effect Bundle 2024.11 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37688.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PrivaZer Pro 4.0.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37700.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ USB Device Tree Viewer 4.4.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37708.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ WinRAR 7.10 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37718.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ DNS Changer 2.3.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37728.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ StartAllBack 3.8.13 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37748.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Duolingo: изучай языки 6.6.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37755.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ IK Multimedia - T-RackS 6 MAX 6.1.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37756.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ QOwnNotes 24.11.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37762.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Display Driver Uninstaller 18.0.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37779.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ GoldWave 7.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37782.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AntiPlagiarism.NET 4.135.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37784.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Auslogics Disk Defrag Pro 12.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37809.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PicPick Free+Pro 7.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37815.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Auslogics SSD Optimizer 2.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37821.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ StartAllBack 3.8.13 build 5197 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37835.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16212297 Patch 1/dlc) Repack 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37849.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.1.42.0) Repack Decepticon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37852.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:95CFC178FBC3A6A935F5D0DD55253850B6F35095
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37856.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8432458FBA0D3C6872798CC4BD704B86B57BE1E8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37874.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:06F199D39C0F7B86D0BDB739EA01103266077CA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37897.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Vivaldi 7.0.3495.11 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37899.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Antivirus Removal Tool 2024.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37905.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ iFind Data Recovery 9.7.14.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37908.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PDFCreator 5.3.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37915.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C0F3FD2A012EA8204EDC4366515BD968433F2A2B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37916.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1697470   (118950) от 06.02.2024
+
+Sandboxie plus 1.12.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21240A39C5292AF3D70AD67A223E23DD0170D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697393   (118951) от 06.02.2024
+
+BurnAware Professional 17.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118951.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64917104BC2A22BA2AC1E52FE607252EF1A386A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697406   (118952) от 06.02.2024
+
+IceCream Ebook Reader Pro 6.46 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8D21C0B231A7171DF6F70F3ADE936EBFDBD75A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697413   (118953) от 06.02.2024
 
 Icecream Video Editor Pro 3.16 [Multi/Ru]
@@ -6,7 +78,7 @@ Icecream Video Editor Pro 3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118953.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:C8440A0AFE2D2E65140A6F0A3FD043FBC196F154
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118954.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118955.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118956.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ XYplorer 25.50.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118957.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118958.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:203A05EAD67C8EA34BA73DAF3F288BFCCFCE6594
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118959.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:D43B59823708F9D1CC835887A01608C77C6D0A8A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118960.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:68BAA4D72326A449DE551D5423F00F4F14233B89
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118961.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:3C694A964BDBEDF1BC369E0388B1C0477B335003
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118962.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ magnet:?xt=urn:btih:8235BA52192198595CDB107F945A28EC903E9BD5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118963.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ magnet:?xt=urn:btih:DA7287C697616A806AC2AEE19A00E8CE98E56224
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118964.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:8D13DEA80BEF0723FE62B8F16057D077D1B51C6F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118965.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ magnet:?xt=urn:btih:71462D2C1AB90B645B025BC66F190584AAB47BCE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118966.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ QOwnNotes 24.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118967.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ Master PDF Editor 5.9.82 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118968.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:36FF217E72EF4AF26D66F5DDA53136A7764956B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118969.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ Qian Han, Nick Aleks,Ben McCarty, Daniel Graham etc. | Some cybersecurity books 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118970.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118971.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ WinCatalog 2024.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118972.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ KStars 3.6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118973.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ Firefox Browser 122.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118974.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ magnet:?xt=urn:btih:935ACC91F1FC60F1E5057B617A17DE8F42CD8ED9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118975.jpg" />
 </div>
 
 
@@ -559,81 +631,6 @@ magnet:?xt=urn:btih:935ACC91F1FC60F1E5057B617A17DE8F42CD8ED9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F5E57416816BF175B3891179CBC73940197F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697354   (118976) от 06.02.2024
-
-VA - A State of Trance 2024 - DESTINATION (The Official Album) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren, Ferry Corsten, Rank 1 & Ruben de Ronde - Destination (A State of Trance 2024 Anthem) (Extended Mix) [6:16]
-02. MORTEN & Theresa Rex - All In (Extended Mix) [4:04]
-03. HI-LO - BONZAI (Extended Mix) [6:12]
-04. Ferry Corsten - Yes Man (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 05:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDB6C1C4EA63F649BBA45C90524F03C31FFB72F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697416   (118977) от 06.02.2024
-
-EF Commander 24.02 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118977.jpg" />
-</div>
-
-
-###  Подробнее
-
-EF Commander  — замечательный двухпанельный файловый менеджер с почти неограниченными возможностями, простой в использовании и крайне нетребователен к ресурсам компьютера. Используется для управления файлами самых разнообразных типов и форматов, выполнен в стиле Total Commander, но несколько отличающийся от последнего функциями и интерфейсом.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5304A05117FA034990C9D1FB1696E2E9784D4A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697412   (118978) от 06.02.2024
-
-Вел Павлов | Высшая Речь (Книга 2). Последний реанорец (Том II) (2024) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я - Зеантар Ар-Ир Ор'Реанон. Убийца, мститель, кто-то даже называл Линчевателем и Жнецом Бездны. Но по своей натуре я искупитель, носитель Высшей речи и последний в своем роде реанорец. Я убивал, уничтожал, истреблял, испепелял и стирал с лица Мерраввина целые города и народы. Во имя мести и искупления. Но не зря любят философствовать замшелые пеньки из расы людей, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Неофициальное изданиеПродолжительность: 09:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50133CD1AD61DA76DC9CFDEBFC2A2107BBCD94AC
 ```
 
 

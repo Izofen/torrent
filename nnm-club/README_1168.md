@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ascold Flow | Граф Берестьев (Книга 3). Законы Рода 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30722.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D21378DF9179E95163374875DCDF96A27D48B348
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30723.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:65CDCA474CB4AA531488719C198AF196CD8FAB2C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30724.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30724.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:00F6E301E0E1BDF1279EC5007E791D7793769B13
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30725.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:54E00CB517A6628D12DFF6BED7ED41190468A391
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30726.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3A34DA40F1D036867DD702C69EE94881B5CB4E44
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30727.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E059F2074C261C21C86AC63DECFE0C4954015C25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30728.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30729.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Шансон премьера 2025 январь (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30730.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Magic Eraser / Магический ластик v2.17.0 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30731.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ascold Flow | Граф Берестьев (Книга 2). Законы Рода 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30732.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:EC1D93086DDBBFCE0F7FAC82A2732103860A387A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30733.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:8BC2A920055F6BC882579E5360960FDD1B256146
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30734.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Chillout Winter Session 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30735.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5EC435D29A0CA727901183B0827912DC25933272
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30736.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Resize Me! Pro v2.3.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30737.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:94DB89DC2F6058FE353348ADF82C105ADEB0814A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30738.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30738.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:71F9F8E74B93DFEB16653CE20E0A3835086431F2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30739.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:00D46AF19A9CA84C003C9F7EF142F615E6C71323
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30740.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30740.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Leprous - Melodies Of Atonement (2024) 2xCD, Deluxe Edition, Limited Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30741.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30741.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30742.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Whom Gods Destroy - Insanium (2024) 2 x CD [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30743.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30743.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ KiCad 8.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30744.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30744.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:00ECDD50909A8B0AAE38893EA930C9707E038E06
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30745.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30745.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Among Ashes (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30746.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30746.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Solid Explorer File Manager v2.8.60 + Plugins Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24257.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FE2369BAE7F0B3AB98DBA2605C00917F42F6DB2D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24258.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24258.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:818A0410DB1A47B17BA98BC3F8015BCB97E043E7
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24259.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Firefox Browser 136.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24260.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24260.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MobiPDF: Редактор и сканер PDF  v11.3.266927 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24261.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:02C9B1B2A4901BC0FD9E7457A15DF39DCA9C0239
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24262.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24262.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A1E0B64727C44990EF26100CB00DF85A511B86DE
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24263.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24263.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:216CD35346F1C916DF1A7A81824731D61965E422
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24264.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:47266DC05ABA3760880BAD94F0F9517ACEC3D4F4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24265.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9D0F45667B5AB429892E8EBA91C1C676950E5F33
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24266.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24267.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Revo Uninstaller Mobile v3.4.111G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24268.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24268.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:0E3E675353E1050ED2610F57D4B63D23E9069C05
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24269.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F89DD3A7DAE436422C8CD4C495ABEBA7EF1E7684
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24270.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ StartAllBack 3.9.6 build 5261 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24271.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:836C552E6F48BB2B285120E2D38F7C000F245063
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24272.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24272.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows Server [10.0.25398.1486], version 23H2 (Updated March 2025) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24273.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.3.10 Gold
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24274.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24274.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Udemy, Marcello Pattarin | 3ds max Workflow Game PBR Complete Course (2025) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24275.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4910D164E90A1DF7492D78F2FFF1AF5872B17ECD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24276.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ GIMP 3.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24277.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24277.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:7091A791C5DA2AC5396A0730CA49736C1A82DA3E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24278.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:416EB085E78F53E29BC02CE8BCC1679C48EE14DF
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24279.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24279.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:147E1721DE389F9D948A745AE2CB69CBB04FE3D8
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24280.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ FBReader Premium v3.8.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24281.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24281.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:1F136522EE26A6560F7A4EA2E00EB156BB6F56B4
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24282.jpg" />
 </div>
 
 

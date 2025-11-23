@@ -6,7 +6,7 @@ NIUBI Partition Editor 9.9.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132380.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:80779330D01FE0D12604BE630CB27B659D1DCAA6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132405.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Boot CD USB Sergei Strelec 2013 v.1.1 (2012) (Pусский + Aнглийски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132415.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Toddler Keys 0.97 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132431.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Uninstall Tool 3.2.2 Build 5289 Final Repack (& Portable) by D!akov [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132432.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Digital Anarchy: Beauty Box Video for AE & Premiere (Windows) 2.0.4 [Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132437.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132439.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132440.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:746115E258C82B662F283784D664CB34B40E73DE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132441.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Malwarebytes Anti-Malware 1.70.0.1100 Final [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132446.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Stickies 7.1e [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132457.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ uTorrent Pack 1.2.3.79 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132465.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Reg Organizer 6.0 Beta 4 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132480.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Redeemer Live DVD v.12.1212.46 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132482.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Rainlendar Pro 2.11 Build 128 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132506.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VLC Media Player 2.0.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132537.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ qBittorrent 4.6.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132542.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Paint.NET 5.0.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132544.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ TeleInet 1.51 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132560.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ IncrediMail 2 Plus 6.39 Build 5245 Final RePack by uk10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132579.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Psiphon Pro 391 Mod by AzadNet [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132581.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mac Blu-ray Player 2.7.4.1092 Portable by Invictus [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132587.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Melon VPN - Secure Proxy VPN 7.9.612 Mod By AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132592.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Transmission for Linux 4.0.4 (24077e3511) [x32, x64] (tar.xz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132594.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MKVToolNix 81.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132596.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Text Edit Plus 13.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132607.jpg" />
 </div>
 
 

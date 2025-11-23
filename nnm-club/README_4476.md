@@ -1,3 +1,78 @@
+###  Публикация: 970835   (138439) от 31.12.2015
+
+VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Dream Theater - A Fortune in Lies
+02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679550   (138440) от 25.11.2023
+
+Tempomate 4.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tempomate - умный и красивый метроном.Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2016-2022 René LasseronПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F8792AD118478DAB7E14FA85BD7F27FE5B0D6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283410   (138443) от 30.12.2019
+
+КВН-2019. Высшая лига (2019.12.30) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD32A6C9F98808A2884BA0DF63D7C7E1F99D70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195933   (138444) от 31.12.2017
 
 Журнал | Знание-сила №1 (январь 2018) [PDF]
@@ -6,7 +81,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138444.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:5D610B144FEF306FE24F7B7A773EECE31F7E377B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138445.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138446.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Coach Guitar v1.1.6 Premium [Ru] - Играть на гитаре, Songs, Tab, C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138447.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138449.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:90FAD1E93CF290948C46F0FB78B51D4B326782EC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138450.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:8958B7D1AD096BE304AAFEE2D51A2081F91A8EE2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138451.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:C828D50C8C73FC314D0E37D26EDFCCF24C1CC577
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138452.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:D25F80DF7B9EA0F311ACB92E4D8CBA874A2A03EF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138455.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:BC5B39078F25B789E99B0AFD5C233B6D3F5D3AD0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138456.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:C46E2AD20F6CF5A4BBE24C0F02CD2E9F927EF649
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138457.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ Lungo 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138458.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:7B108AE973B899BF08BE56A1AB60687054DA5CD1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138459.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138460.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138461.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:F7259B7B9E0830E399F208332F8D47BCD07CC77F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138462.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ magnet:?xt=urn:btih:3A027BE2E05D53564772DE6A3B19B90A8661AD1F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138464.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:61CE7B7A0601DD829A3F6FBC782EC88EDDCF1700
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138465.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ magnet:?xt=urn:btih:61CE7B7A0601DD829A3F6FBC782EC88EDDCF1700
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138466.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264/1080p-LQ] [Line,
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138467.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264/1080p-LQ] [Line,
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138468.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ magnet:?xt=urn:btih:C99F0B04CBA78B1B0D24DDCE8547FF911C3F4043
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138469.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:3A848B33F598C0C6AED06E233FC26374D0137A41
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138470.jpg" />
 </div>
 
 
@@ -562,78 +637,6 @@ magnet:?xt=urn:btih:3A848B33F598C0C6AED06E233FC26374D0137A41
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C36D75EA6E4AD33C01CA423B3A05E64ADA5E0F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968718   (138471) от 31.12.2015
-
-Василий Ефимов | В плену фиолетовых зеркал (2015) [PDF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умерев на поле боя, Винсент попадает в клетку из фиолетовых зеркал. Прожитая жизнь была лишь этапом в обработке сознания, и неизвестно, сколько ещё ждет впереди. Он постоянно сопротивляется, даже когда у него забирают память и когда силы его на исходе. Винсент готов шагнуть в бездну и вытерпеть любую боль ради свободы, которой его лишили. Лишили с помощью фиолетовых (   Читать дальше...   )Жанр: Ужасы и Мистика, Киберпанк, Научная фантастика, Боевики: Прочее, ТриллерыФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFEB4993E4498C3711A74D08F2B06A0F45710CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272910   (138472) от 30.12.2018
-
-The Elder Scrolls IV: Oblivion - Game of the Year Edition Deluxe (2006) [Ru] [macOS Cider]
-
->>Игры для macOS
->>Strategy, RPG для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138472.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls IV: Oblivion - Game of the Year Edition Deluxe является одной из лучших RPG в истории. Шагните в самый яркий и проработанный игровой мир. Вы можете пойти только по основной сюжетной линии или погрузиться в этот мир с головой и найти для себя множество интересных и разнообразных заданий. Также Game of the Year Edition включает дополнения Knights (   Читать дальше...   )Тип издания: macOS CiderРелиз состоялся: 2006Разработчик: Bethesda Game StudiosПоддерживаемая ОС: 10.5.8 +Жанр: RPG, Adventure, FantasyЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8C5152722796A994E95BFA8D1007F80CC0276F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854688   (138473) от 31.12.2014
-
-Ягуар (1986) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138473.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ягуар" - фильм чилийского кинорежиссёра Себастьяна Аларкона, снятый в жанре социально-политической драмы на базе киностудии Мосфильм (СССР) в 1986 году. Картина создана по сюжету романа Марио Варгаса Льосы "Город и псы" (но содержит ряд принципиальных отличий от литературной основы). Действие происходит в вымышленном государстве, у власти которого (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Себастьян-Рамон Аларкон-РамиресАктеры: Сергей Векслер, Бахром Акрамов, Адель Аль-Хадад, Игорь Верник, Сергей Газаров, Ислам Казиев, Артем Каминский, Владимир Татосов, Нина Тер-Осипян, Янина Хачатурова, Всеволод Шиловский, Сергей ШкаликовПродолжительность: 01:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A148D0641B9D23D1187F65C23C0B20DE3E8DC3F6
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1683698   (128237) от 12.12.2023
+
+О.А. Морозова | Интеграция корпоративных информационных систем (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются современные подходы к разработке интеграционных решений. Обосновывается стратегическое значение интеграции информационных систем для преобразования бизнеса, приводится классификация интеграционных задач, формулируются критерии выбора интеграционного решения, проводится обзор базовых технологий и стандартов, используемых при разработке интеграционных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Финансовый университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C65A143D8CC3BD8E40EC58504259369A2090570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683776   (128238) от 12.12.2023
+
+Михаил Лермонтов | Герой нашего времени (Аудиоспектакль) (2008) [MP3, Сергей Бурунов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Театральный фонограф».
+Представленный на диске аудиоспектакль по роману М.Ю. Лермонтова «Герой нашего времени» записан в лучших традициях «Театра у микрофона». В записи принимали участие известные артисты, многие из которых полюбились слушателям именно по работам в радиопостановках и аудиоспектаклях.
+В спектакле сохранены все сюжетные линии, и текст романа (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: VOX records, 1С-ПаблишингПродолжительность: 06:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADE9F396FA304F357568219634F22D7326ED2DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683753   (128239) от 12.12.2023
+
+VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Around Me (4:35)
+02. Lo Greco Bros - Bella M'Briana (4:23)
+03. David Florio - Lost Numbers (5:21)
+04. Papik - Feelings (4:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D0BC4FF60A798E58B187689612FF13CA448AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683863   (128240) от 12.12.2023
 
 Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian[FLAC|Lossless|WEB-DL|tracks] <Synthpop,  daft punk, disco, retrowave>
@@ -6,7 +83,7 @@ Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128240.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:73F024A2B5E211125464AAF0FF1EAB0EEB333ADC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128241.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:8A17E94599D30B280F8ADA1A8CFABB1DC9764FA0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128242.jpg" />
 </div>
 
 
@@ -81,7 +158,7 @@ magnet:?xt=urn:btih:25C883B1FF1FA99C2BCFC5DE1E5685B7E2D1ECB2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128243.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ magnet:?xt=urn:btih:7C50B9409D0F213B84499E9BFDEF3ACED83DEE9F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128244.jpg" />
 </div>
 
 
@@ -130,7 +207,7 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128245.jpg" />
 </div>
 
 
@@ -157,7 +234,7 @@ magnet:?xt=urn:btih:05733FC1C18A62F3310798A496AF077A3BB626E8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128246.jpg" />
 </div>
 
 
@@ -181,7 +258,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128247.jpg" />
 </div>
 
 
@@ -208,7 +285,7 @@ magnet:?xt=urn:btih:66DDB1E1E7991FAE93250C97B386BF7627145CA0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128248.jpg" />
 </div>
 
 
@@ -235,7 +312,7 @@ Off Grid - Reign Of The Architect (2023) [MP3|320 Kbps] <Progressive Rock, Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128249.jpg" />
 </div>
 
 
@@ -262,7 +339,7 @@ magnet:?xt=urn:btih:49267584EA2F04A250ACB6AFCCA9DC866E579CB8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128250.jpg" />
 </div>
 
 
@@ -288,7 +365,7 @@ VA - Selection 2023 [MP3|320 Kbps] <Psy, Goa Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128251.jpg" />
 </div>
 
 
@@ -315,7 +392,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128252.jpg" />
 </div>
 
 
@@ -342,7 +419,7 @@ Glarysoft Malware Hunter PRO 1.176.0.796 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128253.jpg" />
 </div>
 
 
@@ -367,7 +444,7 @@ OCCT 12.1.13 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128254.jpg" />
 </div>
 
 
@@ -391,7 +468,7 @@ magnet:?xt=urn:btih:B31500A3E75C1FC390173FDC4A4051A86B8C208B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128255.jpg" />
 </div>
 
 
@@ -415,7 +492,7 @@ magnet:?xt=urn:btih:AEF0C51053CAF7650A00BB0F34B4AA40C3D537C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128256.jpg" />
 </div>
 
 
@@ -441,7 +518,7 @@ magnet:?xt=urn:btih:463EC57C16691B1A1D15C30280E1B33B2D8A02AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128257.jpg" />
 </div>
 
 
@@ -467,7 +544,7 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128258.jpg" />
 </div>
 
 
@@ -494,7 +571,7 @@ Faniz - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128259.jpg" />
 </div>
 
 
@@ -521,7 +598,7 @@ magnet:?xt=urn:btih:C8531F1EEA8F6BD6E032479E2EA5050E56882630
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128260.jpg" />
 </div>
 
 
@@ -545,7 +622,7 @@ David Gilmour - Rattle That Lock (2015) Japanese Edition, Reissue, 2020, Sony Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128261.jpg" />
 </div>
 
 
@@ -572,7 +649,7 @@ magnet:?xt=urn:btih:FFA4674CA93940E5FB45ACDC2DE003C0660D5A73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128262.jpg" />
 </div>
 
 
@@ -584,86 +661,6 @@ magnet:?xt=urn:btih:FFA4674CA93940E5FB45ACDC2DE003C0660D5A73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5494539E3E831A4F90E443F15CF512C8A3DF2B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683742   (128263) от 12.12.2023
-
-Artefactoschool, Константин Стерхов | Пора цветения (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Насладитесь акварелью и напишите 4 полноценные картины, которые украсят Ваш интерьер или будут прекрасным подарком для близких.
-Константин Стерхов научит не просто рисовать, но и думать как художник!
-Чему Вы научитесь на курсе?
-- Писать цветы в различных ситуациях: по отдельности, в соцветиях и в пейзаже(   Читать дальше...   )Производство: ArtefactoschoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:37:37Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BA0EF36C706F48628C0F057A6F0887E784C457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683690   (128264) от 12.12.2023
-
-Александр Изотов | Нулевой мир (Книга 7). Мера человек: Выбор (2023) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128264.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мера человек: Выбор» – роман Александра Изотова, седьмая книга цикла «Нулевой мир», жанр боевое фэнтези, героическое фэнтези, попаданцы.
-
-Я стал слишком заметен, получив во враги высших существ. За мной охотятся и бог, и дьявол, поэтому оракулы опережают меня, предугадывая практически каждый мой шаг своими предсказаниями. Вот только хитрость никто не отменял. Жёлтый (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD78BCB36349BD67E97588E57177ACC27B625AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683702   (128265) от 12.12.2023
-
-Антон Буткевич | Моя Космическая Станция (Книга 7). Битва Преемников. Том 2 (2023) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Битва Преемников. Том 2» – роман Антона Буткевича, седьмая книга цикла «Моя Космическая Станция», жанр РеалРПГ, постапокалипсис, космическая фантастика.
-
-Глобальное задание набирает обороты, а настоящие замыслы высших существ постепенно просачиваются и становятся достоянием общественности.
-(   Читать дальше...   )Жанр: Космическая фантастика, Постапокалипсис, РеалРПГИздательство: ИДДКПродолжительность: 13:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E17F4D28B48433A09E615000450AA14B5196A0
 ```
 
 

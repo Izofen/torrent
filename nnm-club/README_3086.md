@@ -1,3 +1,93 @@
+###  Публикация: 474244   (98137) от 31.03.2012
+
+DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nero – Guilt (DallasK Remix)
+2. Felguk - Bassive (Original Mix)
+ 3. 2-4 Grooves feat. Amina - Melodie (Extended Mix)
+4. Inna feat. Flo Rida - Club Rocker (Mike Candys Extended Mix)
+5. Flo Rida - Good Feeling (J.O.B. Remix)
+6. DJ Antoine - Welcome To St.Tropez (Mike Candys After Summer Bootleg Mix)
+ 7. DJ Antoine - Every Breath You Take 2012 (Voodoo & Serano Remix)
+ 8. Marq Aurel & Beatbreaker feat. Nate Monoxide - Road Rat (Major Tosh Remix)
+9. Pitbull feat. Ne-Yo & Nayer - Give Me Everything Tonight (Danny Rush Remix)
+ 10. Sean Finn - Show Me Love 2012 (Rockstroh Remix)(   Читать дальше...   )12.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476134   (98138) от 31.03.2012
+
+Журнал | Благоустройство №2 [2012 март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто создает уют. Основная цель — помочь сориентироваться потребителю на рынке товаров и услуг в области благоустройства жилья, то есть — посоветовать, направить, разъяснить, дать оценку и помочь при выборе. Для этого мы привлекаем к сотрудничеству экспертов в области ремонта, строительства и дизайна.2012 мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475957   (98139) от 31.03.2012
+
+VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ural Djs & Letichev Sky Feat. Aruba Ice - Пленники Любви (Dj Solovey Remix)
+02. A.Shine - Я к тебе (House Massive mix)
+03. IKA - Задыхаюсь без тебя (DJ NIGHT remix)
+04. Гости Из Будущего - Мой Baby (Ruslan Maiamix Remix)
+05. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix)
+06. Mixi - До Рассвета (Dj Solovey Remix)
+07. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
+08. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
+09. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
+10. Fillin - Добрый Вечер Мой Город (Dj Xm Electro Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476158   (98140) от 31.03.2012
 
 [Wallpapers] Best Wallpapers Pack 12
@@ -6,7 +96,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98140.jpg" />
 </div>
 
 
@@ -34,7 +124,7 @@ VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|25
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98141.jpg" />
 </div>
 
 
@@ -67,7 +157,7 @@ magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98143.jpg" />
 </div>
 
 
@@ -91,7 +181,7 @@ VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98144.jpg" />
 </div>
 
 
@@ -124,7 +214,7 @@ magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98145.jpg" />
 </div>
 
 
@@ -157,7 +247,7 @@ magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98149.jpg" />
 </div>
 
 
@@ -181,7 +271,7 @@ VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98150.jpg" />
 </div>
 
 
@@ -214,7 +304,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98151.jpg" />
 </div>
 
 
@@ -247,7 +337,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98152.jpg" />
 </div>
 
 
@@ -273,7 +363,7 @@ Excess Luggage - Hand Luggage Only (2011) [FLAC|Lossless]<Bop, Post-bop, Soul-ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98153.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98153.jpg" />
 </div>
 
 
@@ -304,7 +394,7 @@ Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98154.jpg" />
 </div>
 
 
@@ -337,7 +427,7 @@ magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98155.jpg" />
 </div>
 
 
@@ -365,7 +455,7 @@ magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98156.jpg" />
 </div>
 
 
@@ -389,7 +479,7 @@ VA - Klubnye novinki Vol.54 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98157.jpg" />
 </div>
 
 
@@ -422,7 +512,7 @@ VA - Клубные Новинки Vol.57 from AGR (2012)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98158.jpg" />
 </div>
 
 
@@ -455,7 +545,7 @@ VA - House Vip (25.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98160.jpg" />
 </div>
 
 
@@ -488,7 +578,7 @@ magnet:?xt=urn:btih:60AEAB2A494ECB1541157A9849FAB8BD81DFB5CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98161.jpg" />
 </div>
 
 
@@ -516,7 +606,7 @@ magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98162.jpg" />
 </div>
 
 
@@ -544,7 +634,7 @@ magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98164.jpg" />
 </div>
 
 
@@ -572,7 +662,7 @@ VA - House Vip (26.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98166.jpg" />
 </div>
 
 
@@ -605,7 +695,7 @@ DJ Kocmoc - Dutch compilation vol.1 (14.03.2012) [MP3|320 кб/с]<Dutch House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98167.jpg" />
 </div>
 
 
@@ -638,7 +728,7 @@ VA - House Vip (24.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98168.jpg" />
 </div>
 
 
@@ -671,7 +761,7 @@ magnet:?xt=urn:btih:5E505B4578C129DF158FAAB0D021163BA02D22FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98169.jpg" />
 </div>
 
 
@@ -686,96 +776,6 @@ magnet:?xt=urn:btih:5E505B4578C129DF158FAAB0D021163BA02D22FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176EB163DBDA308733BBC759C1E788715A0A9FBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475757   (98170) от 31.03.2012
-
-VA - Горячая 200ка@Ru (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Каста - Такое Чувство
-002. San J & В. Дайнеко - Перезвони
-003. Непара - В Облаках
-004. Батишта - Перелестни Страницу (Только Так)
-005. Джиган feat. Ж. Фриске - Ты Рядом
-006. Ika - Дорогой Мой (DJ Vengerov Remix)
-007. DJ Smash - Можно Без Слов (DJ Smash vs Yoko Remix)
-008. А. Седокова - Love U (Graver&kerim Muravey Remix)
-009. Пачуля (Pachulya) - Ты Же Все Знаешь
-010. Ради Славы - Стану Снегом(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A75048C4A4ED6E4A366E75D02B2100CB507765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476467   (98171) от 31.03.2012
-
-VA - MAXI. Super Dance на Maximum FM (2012) [MP3|192 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ThomTree - When The Sun Comes Out (Justin Corza meets Greg Blast Edit) (3:32)
-2. Temple One Feat. Neev Kennedy - Love The Fear (Eximinds Remix) (7:53)
-3. Stefy De Cicco ft. Dhany - Deep Down Inside Of You (Elegance Ext. Mix) (6:26)
-4. Rob Mayth - Another N8(Exclusive Edit) (3:33)
-5. Rihanna - S&M (DJ Kez & Nexboy Remix) (5:31)
-6. Rene De La Mone & Slin Project - 2012 (Get Your Hands Up)(Topmodelz Edit) (3:22)
-7. Power Play - Wole Ole ( Oj Tam Oj Tam 2 ) (5:06)
-8. Pitbull feat. Flo Rida - Move Shake (4:38)
-9. Young London - Let Me Go (DJ Solovey Remix) (5:02)
-10. Tradelove - Pum Back (Original Mix) (5:46)2012Жанр: Pop,DanceПродолжительность: 08:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475393   (98172) от 31.03.2012
-
-Юджин Пеппероу | Открыватель талантов [1991] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Пеппероу (1991Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
 ```
 
 

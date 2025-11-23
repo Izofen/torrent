@@ -1,3 +1,77 @@
+###  Публикация: 1824698   (136961) от 15.10.2025
+
+Миссия невыполнима: Финальная расплата / Mission: Impossible - The Final Reckoning (2025) BDRip [H.265/2160p] [4K, HDR10, 10-bit] [IMAX]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент Итан Хант и его команда отправляются на поиски затонувшей российской подводной лодки «Севастополь», на которой находится инновационный искусственный интеллект «Entity», угрожающий существованию человечества. Смертоносный ИИ захватил контроль над оружием массового поражения по всему миру, и Ханту необходимо проникнуть в исходный код «Entity», чтобы обезвредить (   Читать дальше...   )Производство: США, Великобритания / Paramount Pictures, Skydance Media, TC ProductionsЖанр: боевик, триллер, приключенияРежиссер: Кристофер МаккуорриАктеры: Том Круз, Хейли Этвелл, Винг Реймз, Саймон Пегг, Эсай Моралес, Пом Клементьефф, Генри Черни, Хоулт МакКаллани, Джанет МакТир, Ник ОфферманПеревод: Дублированный (Videofilm Int., Red Head Sound, Jaskier)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1F32B0740515E774129493753AC95D1EFACE1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824714   (136962) от 15.10.2025
+
+RapidRAW 1.4.2 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый, неразрушающий и ускоряемый на GPU редактор изображений RAW, созданный с учетом производительности.
+
+RapidRAW — это современная высокопроизводительная альтернатива Adobe Lightroom®. Она обеспечивает простое и эффективное редактирование в лёгком пакете (менее 20 МБ) для Windows, macOS и Linux.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808B3FB3C6C11A66B256B86F011FE61CFCF14CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824712   (136963) от 15.10.2025
+
+4K Video Downloader+ 25.3.3.0232 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136963.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED0F3CEA3302417092DF58DAD7C1C37175D3DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824710   (136964) от 15.10.2025
 
 reaConverter Pro 8.0.145 [Multi/Ru]
@@ -6,7 +80,7 @@ reaConverter Pro 8.0.145 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136964.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:2F60486FA8BDF2F350D2A9F32DBA3269DF44AFE0
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136965.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:A9DD14EA096044FEF5BFD712401468DD55386ECC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136966.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136967.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136968.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.2 Build 10 RePack by KpoJIuK [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136969.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136970.jpg" />
 </div>
 
 
@@ -180,7 +254,7 @@ VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136971.jpg" />
 </div>
 
 
@@ -207,7 +281,7 @@ magnet:?xt=urn:btih:9CE76408B6B2A5FF26E28956923FB264BB2AFB77
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136972.jpg" />
 </div>
 
 
@@ -231,7 +305,7 @@ magnet:?xt=urn:btih:3207B7FA4F995ABDBC8F161BFEF618867D7229EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136973.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ magnet:?xt=urn:btih:E544A121BA13C1B5776115631039662541602A14
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136974.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ magnet:?xt=urn:btih:D1EF04C0CAC2DB2C6CC1078C30020E8515C5DA84
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136975.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ RustDesk 1.4.3 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136976.jpg" />
 </div>
 
 
@@ -329,7 +403,7 @@ magnet:?xt=urn:btih:B6E074CF0DB1551727909E00CF6895DCD0064F80
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136977.jpg" />
 </div>
 
 
@@ -355,7 +429,7 @@ magnet:?xt=urn:btih:10D8D4D3A9DDB59A4F693A649EE255117273D0E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136978.jpg" />
 </div>
 
 
@@ -381,7 +455,7 @@ magnet:?xt=urn:btih:C86D6A94D4081DABF6CFAB5165DA41624BD5B02F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136979.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ magnet:?xt=urn:btih:996C0315024BF59ABCCDABA0BC5D205C4B9E9C20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136980.jpg" />
 </div>
 
 
@@ -434,7 +508,7 @@ magnet:?xt=urn:btih:00E948027C81C041662C8068A5824896C3EDC972
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136981.jpg" />
 </div>
 
 
@@ -460,7 +534,7 @@ magnet:?xt=urn:btih:9BF652259D993DAFF187A0F7413A64EB63DA7F31
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136982.jpg" />
 </div>
 
 
@@ -484,7 +558,7 @@ magnet:?xt=urn:btih:DCEF2DC6C69B55D98A1726A86CD5646483385B06
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136983.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136984.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:0F87587ED727A14B9E691ACFAFC1614A11513414
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136985.jpg" />
 </div>
 
 
@@ -562,7 +636,7 @@ magnet:?xt=urn:btih:0F79D9C424C2DD4293C3AE2B4A54D9CFE7A24D1D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136986.jpg" />
 </div>
 
 
@@ -573,79 +647,6 @@ magnet:?xt=urn:btih:0F79D9C424C2DD4293C3AE2B4A54D9CFE7A24D1D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389B0B90E0117F3A97AB037323FF2B45D47D4972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825615   (136987) от 17.10.2025
-
-The Legacy (2025) [Ru/Multi] (0.4971) Repack FitGirl
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136987.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Legacy - это кооперативное выживание в жанре хоррор. В 1990 году на наш родной город пало проклятие, наш дедушка, местный мольфар и маг, по зловещей традиции - раз в 66 лет должен принести в жертву тёмным лесным силам одного из своих потомков, но он не смог этого сделать, поэтому отправил меня, двух братьев и сестру в столицу, чтобы уберечь нас от проклятия. (   Читать дальше...   )Тип издания: RepackРазработчик: Second RealityЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C119B728BBBBCC7AEB8AC1DDA173354A226D980D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824888   (136988) от 16.10.2025
-
-O&O Defrag Professional 30.0 Build 1065 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136988.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4504A44B996BDDCF689051630578A7D74F3F7F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824885   (136989) от 16.10.2025
-
-MediaHuman YouTube Downloader 3.9.17 (1410) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136989.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA40FD284C289BB9A829A202C7900C393A71A4D
 ```
 
 

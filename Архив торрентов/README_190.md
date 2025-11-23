@@ -6,7 +6,7 @@ LibreOffice 24.8.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NVIDIA GeForce Desktop Game Ready 560.94 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftMaker Office Professional 2024 Rev. S1218.0824 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45396.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AnyDesk 8.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45397.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:03C975B025E7FFFD62ADC20CCD6A50D21A47DDF6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45398.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AIMP 5.30 Build 2563 RePack (& Portable) by elchupacabra (Extended + Standard) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45400.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Spotify 1.2.44.405 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45402.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.10 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45412.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AIMP 5.30 Build 2563 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45434.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (2408) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45436.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ashampoo UnInstaller 15.00.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45437.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HDCleaner 2.079 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45438.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Enigma Virtual Box 11.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45439.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Fast Screen Recorder 2.1.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45443.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ K-Lite Codec Pack Update 18.5.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45448.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E3C4B6A80D4E9385C86ED00C953AEBF78F18CDF1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45450.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:033F4DE69B32AE008049E99E7896D4CC3A7B4860
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45451.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Ant Download Manager Pro 2.14.0 Build 88304 (x32) / Build 88305 (x64) RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45452.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:00CC901079D3822D569C9CF7A67F6917C44DED73
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45454.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ashampoo UnInstaller 15.00.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45455.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ YT Downloader 9.10.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45458.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Macrorit Partition Expert 8.2.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45474.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ FastStone Capture 10.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45481.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Win Movie Maker 2024 9.9.9.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45482.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Enigma Virtual Box 11.00 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45490.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CrystalDiskInfo 9.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45496.jpg" />
 </div>
 
 

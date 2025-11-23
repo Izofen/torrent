@@ -6,7 +6,7 @@ VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4697.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4824.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:12C26B2D0A4907F233C3AA675A54A6ECEA20C277
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4966.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4969.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:5CD226A6B1796186995F445C6B3F5659430D0E45
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5142.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:5952DA98F72D76F493F307C62811ED62E37A5FCD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5145.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:75AD9A2718469FEDD9BD3FD23CAC958A4769BC12
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5184.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6012.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6918.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Saragossa Band - Original Hits & Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7715.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7769.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8680.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8936.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Po
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9221.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9735.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9739.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9750.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:2198C8E46BF1482A9AD07E6EE6FC4EFA0D68879F
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9838.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Песни на музыку Алексея Рыбникова 1-2 (2014,20
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9853.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C9D64A43A5416746861BC78D15F0F406A7C10BA8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9952.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10060.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10073.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10079.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Blue System - Album Collection 13CDs (1987-1997) 1st German Press [APE|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10186.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ C.C. Catch - Classics (1989) 1st German Press [APE|Lossless|image + .cue] <EuroD
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10284.jpg" />
 </div>
 
 

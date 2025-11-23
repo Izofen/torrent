@@ -6,7 +6,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition, Rubicon Music [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123067.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Temperance - Limitless (2015) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123069.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123089.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123092.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Damian Wilson and Adam Wakeman - Can We Leave The Light On Longer? (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123095.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ruthless - The Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123100.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Emil Bulls - Love Will Fix It (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123106.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nobody's Fool - Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123131.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123236.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123239.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Scanner - The Cosmic Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123247.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123252.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stone System - The old man within (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123271.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123280.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:232E2FDD7367ACF3E08988A2EDD61558724D68D4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123286.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123385.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123394.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123395.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123398.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123399.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sad Whisperings - Return to Autumn (2023) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123401.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sad Whisperings - Sensitive to Autumn (1993) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123402.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Regime - Demo 1991 + 3 (2013) Compilation [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123403.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123409.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123418.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Russell & Guns - Medusa (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123421.jpg" />
 </div>
 
 

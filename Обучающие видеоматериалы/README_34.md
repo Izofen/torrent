@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115431.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ai-Centr, Роман Кумар Виас, Кирилл Макушкин | ChatGP
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115447.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stepik, Сергей Балакирев | Добрый, добрый Django с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115452.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115586.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:FE471441B879E0404A96AD2FB79EBA6ADF29B94D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115612.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:F281E7CEC4107289B04B920FE563A4CA3E0F25EC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115625.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115647.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115662.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Udemy, Maksim Skachko | Базовый курс по строительной м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115772.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115948.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116264.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:23D01DC52E54DF419B621F3F4990487F697FF2EF
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116284.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:57A8E0B2B0DCAEB3BB9594120EE32B2D59C0054E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116457.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116458.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116466.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:847E82C4CE6EA796E2A7BC3C7C57FD619B7B6075
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116469.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116786.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116939.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Comp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116962.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116963.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116964.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116971.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116984.jpg" />
 </div>
 
 

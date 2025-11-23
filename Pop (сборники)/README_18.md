@@ -1,3 +1,57 @@
+###  Публикация: 1084624   (218818) от 19.12.2016
+
+VA - Попсовая соточка на Hit fm. Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Пьер Нарцисс - Просто Набери 3:37
+002.Indila - Run Run 3:45
+003.Medas Feat. Кейс - Рутина 3:27
+004.Mainstream One - Танцы В Ночи 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D901F30F5C24D07FB1C8F9FFDAEEEA52459A8BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585779   (218833) от 24.10.2022
+
+Michael Jackson - Playlist Halloween (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thriller [05:57]
+02. Blood On The Dance Floor [04:13]
+03. Behind the Mask [05:02]
+04. Dirty Diana [04:41](   Читать дальше...   )Жанр: PopПродолжительность: 03:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84D5FBCAF287FE6E0265CD850893DA5D0EABCEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514136   (218888) от 02.12.2021
 
 VA - Hit Music, зима 2021 (2021) от Мяу [MP3|320 Kbps] <Pop>
@@ -6,7 +60,7 @@ VA - Hit Music, зима 2021 (2021) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218888.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218888.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ VA - Снегопад новинок Выпуск №2 (2016) [MP3|256 Kbps] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218897.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218897.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ VA - German Top 50 Official Dance Charts 16.12. (2016) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218925.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ No Angels - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219113.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219113.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219594.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219594.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ VA - Русские свежаки радиостанций. Топ новино
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220144.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220144.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ VA - Новогодняя дискотека Русского радио (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220564.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220564.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ VA - Новогодний Союз (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220596.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220596.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ VA - Cборник популярной музыки (2012) [MP3|320 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220815.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ VA - Зимний Hit (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220850.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220850.jpg" />
 </div>
 
 
@@ -288,7 +342,7 @@ VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221014.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221014.jpg" />
 </div>
 
 
@@ -315,7 +369,7 @@ VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221069.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221069.jpg" />
 </div>
 
 
@@ -342,7 +396,7 @@ VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221130.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221130.jpg" />
 </div>
 
 
@@ -369,7 +423,7 @@ VA - Радио Шторм - NeРусский Шторм - 82 (2012) [MP3|320 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221458.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ VA - Happiness In The Air (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221490.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221490.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ magnet:?xt=urn:btih:1269C1CAB957C0C5A712367FC74F8DEBCA3A84AB
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224647.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224647.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ VA - Fresh Pop 4 (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224994.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224994.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ VA - Рождество Новые песни 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225040.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ VA - German Top 100 Single Charts 29.11.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227485.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227555.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227555.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ VA - Die Offiziellen Deutschen Party & Schlager Charts 10.12.2018 (2018) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228146.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ VA - Romantic Feelings (2020) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229091.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229091.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ VA - Grand Disco Mixer (2020) [MP3|320 Kbps] <Disco, Dance, Remix, Nu Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229149.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229149.jpg" />
 </div>
 
 
@@ -645,7 +699,7 @@ VA - New Dance Musical Releases (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229507.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229507.jpg" />
 </div>
 
 
@@ -659,60 +713,6 @@ VA - New Dance Musical Releases (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD856C029E7322D91D5544A939C52DBD7D470451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268189   (229703) от 09.12.2018
-
-VA - New Music Releases Week 48 of 2018 (2018) [MP3|320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Code - Moments
-002. Emily Burns - Damn Good Liar
-003. Kaskade, Soran - Jingle Bells
-004. Cedric Gervais - Do It Tonight (Tom Staar Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 08:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E614218FD39F1804878F67B6BAFF911E3F3F195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964660   (229724) от 12.12.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 20 (2015) [MP3|128 - 320 кб/с]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb The Beach - Bomb The Beach (06:44)
-02. Hazell Dean - The Say It's Gonna Rain (The Zulu Mix) (07:12)
-03. P. Lion - Happy Children (Extended Version) (05:38)
-04. Monte Kristo - Don't Stop Me Now (03:22)(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 06:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F22AAAB295F376BD6D71236AE2E1A569AE7EA42
 ```
 
 

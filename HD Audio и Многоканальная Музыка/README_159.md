@@ -6,7 +6,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113457.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113471.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Перекати-поле. Песни на стихи Лидии Козло
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113477.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113482.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113485.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:07FF036A33F75547D3C0F880BC92229AA32F309A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113488.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113493.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113506.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ M.O.D - U.S.A. for M.O.D (1987) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113536.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Darkthrone - A Blaze in the Northern Sky (1992) Reissue, 2009, Peaceville [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113537.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:680077D83BA132D0C3704C8609291041C7621546
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113564.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Леонид Дербенев - Треугольное солнце (Роб
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113567.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Играй ещё - Keep On Playing (1981) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113571.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Мир песни (1 серия) (1973) [FLAC 24/192|Lossless|tracks] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113587.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Летная погода. Песни на стихи Михаила Тан
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113593.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ngguitarboy - Woolabaloola (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113616.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113623.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113624.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113629.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113632.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113642.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113645.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113652.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113655.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Вот какая любовь. Песни Романа Майорова (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113660.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113668.jpg" />
 </div>
 
 

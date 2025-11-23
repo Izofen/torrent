@@ -1,3 +1,75 @@
+###  Публикация: 1525133   (130252) от 19.01.2022
+
+Ад Данте: Анимированный Эпос / Dante's Inferno: An Animated Epic (2010) Blu-ray [H.264/1080p] [Custom]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данте проходит через круги Ада и сражается с демонами, тварями, монстрами и даже с самим Люцифером, чтобы спасти свою возлюбленную Беатриче.Производство: Япония, США, Сингапур, Южная Корея / Film Roman, Dong Woo Animation Co. Ltd., Electronic Arts (EA), Visceral Games, Production IG, Starz.Жанр: Рисованная анимация, ужасы, для взрослых.Актеры: Грэм МакТавиш, Ванесса Бренч, Питер Джессоп, Стивен Блюм, Марк Хэмилл, Виктория Теннант, Кевин Майкл Ричардсон, Шарлотта Корнвэлл.Перевод: Многоголосый профессиональный, многоголосый любительский, одноголосый любительский.Язык озвучки: Русский, английский.Субтитры: Русские, английские, болгарские, венгерские, польские, румынские, чешские, словацкие, исландские, греческие, арабские, иврит.Продолжительность: 01:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1BEB7ECF50830FEC824EE313211DE35F2C507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525268   (130254) от 19.01.2022
+
+HitmanPro 3.8.28 Build 324 RePack by Umbrella Corporation [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130254.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitmanPro обнаруживает, идентифицирует и удаляет вирусы, шпионские программы, трояны, руткиты и другие вредоносные программы. Утилита использует собственный движок поведенческого анализа и экспертизы файлового кластера, а также инновационную облачную технологию проверки с помощью антивирусных баз данных SophosLabs, Kaspersky и Bitdefender. Сканер HitmanPro обнаруживает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие ...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816EB94DB30D6648E421F78EBF297E4DF90FAE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524707   (130255) от 19.01.2022
+
+Аркейн / Arcane: League of Legends (2021) WEB-DLRip [H.265/1080p] (сезон 1, серии 1-9 из 9) [hand made 60fps]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130255.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в утопическом краю Пилтовере и жестоком подземном мире Зауне и рассказывает о становлении двух легендарных чемпионов Лиги и о той силе, что разведёт их по разные стороны баррикад.Производство: США, Франция / Riot Games, Fortiche ProductionЖанр: Мультфильм, фантастика, фэнтези, боевик, драмаРежиссер: Паскаль Шаррю, Арно Делорд, Жером КомбеАктеры: Хейли Стайнфелд, Кевин Алехандро, Джейсон Спайсэк, Токс Олагундойе, Джейби Бланк, Гарри Ллойд, Миа Синклер Дженнесс, Реми Хай, Дэйв Митчелл, Амира ВэннПеревод: Дублированный (Iyuno-SDI Group)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76E3776369FD74082176F82C55FF66555F3F9F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489702   (130256) от 02.05.2012
 
 Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
@@ -6,7 +78,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130256.jpg" />
 </div>
 
 
@@ -37,7 +109,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130257.jpg" />
 </div>
 
 
@@ -64,7 +136,7 @@ Comcast объявляет о первом в мире испытании мод
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130260.jpg" />
 </div>
 
 
@@ -88,7 +160,7 @@ Comcast объявляет о первом в мире испытании мод
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130261.jpg" />
 </div>
 
 
@@ -117,7 +189,7 @@ magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130262.jpg" />
 </div>
 
 
@@ -141,7 +213,7 @@ VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130263.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130265.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130266.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ VA - Sun & Chill, Vol. 3 (2015) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130269.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130270.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ VA - Sun & Chill, Vol. 4 (2019) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130271.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ VA - Pure Deluxe 3 (2014) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130273.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130274.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ FSNotes 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130275.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ For Found Future - Ambient Story (An Electronic Downbeat Journey from Chill to L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130276.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ VA - Sun & Chill, Vol. 2 (2014) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130277.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Shanti People - Urban Mantras (2015) [AAC|~295 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130278.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ VA - Deep Relaxation 2k22 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130279.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Downie 4 v4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130280.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130282.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ DeepChord Presents Echospace - [LIVE] (2010) [MP3|320 кб/с]<Dub Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130283.jpg" />
 </div>
 
 
@@ -591,7 +663,7 @@ TunesKit Video Cutter 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130284.jpg" />
 </div>
 
 
@@ -615,7 +687,7 @@ Feeder 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130286.jpg" />
 </div>
 
 
@@ -627,81 +699,6 @@ Feeder - это полнофункциональное приложение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BD10166D6C280B2BE877E689A5A60ACA797E74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524944   (130288) от 18.01.2022
-
-Library Monkey Pro 3.2.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Library Monkey Pro предоставляет полный набор звуковых инструментов для современных, быстро меняющихся производственных сред. Управляйте бесчисленными активами с помощью расширенного менеджера библиотек, создавая наборы и смарт-наборы, вызывайте недавние поисковые запросы, создавайте несколько подборок и многое другое. Скопируйте свои библиотеки компакт-дисков с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2022 Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974CDBFBBA07F9A0A7BBD1489C59F76AF2D600EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524982   (130290) от 18.01.2022
-
-MacClean360 5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130290.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacClean360 - удобный и безопасный уборщик вашего Макинтоша. Приложение все-в-одном для чистки вашего Мака. Он автоматически сканирует каждый уголок вашего Maка, находит все нежелательные файлы и удаляет их в 1 клик. Все данные визуально сортируются по различным категориям, что дает возможность наглядно оценить, где можно выиграть сотню-другую мегабайт произведя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524775   (130292) от 18.01.2022
-
-VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francois Maugame - Ocean (6:04)
-02. Yu Namikoshi - Sencitive (2:36)
-03. Ann Grace - From The Deep (5:41)
-04. Mark Dwane - Codex (8:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
 ```
 
 

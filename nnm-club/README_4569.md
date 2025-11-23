@@ -1,3 +1,155 @@
+###  Публикация: 1678889   (141495) от 23.11.2023
+
+Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина Силанова | Legal Design (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составить лаконичный меморандум для клиента и убедительно представить аргументы в суде – рутинные задачи, однако простые они лишь на первый взгляд. Достигнуть в них совершенства помогут не только юридические знания, но и техники Legal Design.
+Legal Design – это наиболее эффективная модель организации и презентации юридического решения конкретной задачи.
+Лекторы курса (   Читать дальше...   )Производство: Legal AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:35:49Реклама: Вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE920C2161C3C7574DF8EC9901E84BEB0943E8F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060632   (141497) от 29.12.2016
+
+Counter-Strike 1.6 Green Edition (2015) [Ru] (1.1.2.6/pv48/b4554) Repack Vin4
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike (от англ. - «Контрудар»; сокр. CS или КС, разг. - контра) - культовая серия компьютерных игр в жанре командного шутера от первого лица, основанная на движке GoldSrc, изначально появившаяся как модификация игры Half-Life. Из серии самая популярная - Counter-Strike 1.6. Основная идея игры - противостояние двух команд - террористов (Terrorist, T) и спецназа (   Читать дальше...   )Тип издания: RepackРазработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272803   (141499) от 29.12.2018
+
+Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (1956) 2CD, 1995, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141499.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Monaco [6:44]
+02. 'Round About Midnight [7:46]
+03. Mexico City [6:02](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3196674ED44C8301B0AF1A3B3F726A6C91559A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970461   (141500) от 30.12.2015
+
+VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Вестов - Слеза упала в кофе
+002. Андрей Язвинский - Магнит
+003. Геннадий Ура - Мужская Дружба
+004. Рома Рязанский - Ветерок(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85FD0022EDC9532ADDEDE2A2C6945CA43B15ABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520453   (141501) от 28.12.2021
+
+Василий Маханенко | Клан медведя (Книга 2). Чародей (2021) [MP3, Игорь Ященко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инициация завершена, но Лег понимает – ему предстоит доказать выданный тотемом аванс. Впереди юношу ждёт трудная дорога в опасные земли. Но те, кто желает править Северной империей, не дремлют. И Легу приходится решать, что для него важнее – личное развитие или целостность огромного государства. Хотя может статься, что одно без другого не имеет права существовать, (   Читать дальше...   )Жанр: Городское фэнтезиПродолжительность: 08:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1566B2AD31FDC06C5E176BBDB7A0614393626E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851945   (141502) от 29.12.2014
+
+Windows 8.1 with Update 3 [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 with Update - Оригинальные образы от Microsoft MSDNЯзык интерфейса: Український
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA06BCECF51F4913680A10FB8E783EF06FD2911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272773   (141503) от 29.12.2018
 
 VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +158,7 @@ VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141503.jpg" />
 </div>
 
 
@@ -33,7 +185,7 @@ magnet:?xt=urn:btih:62B638F634703BBBD6BC584D28EE1EE91CAE3EEB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141504.jpg" />
 </div>
 
 
@@ -57,7 +209,7 @@ magnet:?xt=urn:btih:79FDF21D283AFA9549BEB349A08CDBA0982336CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141505.jpg" />
 </div>
 
 
@@ -83,7 +235,7 @@ Polarity 7.2.2 Build 647 [En] (Online-Installer)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141506.jpg" />
 </div>
 
 
@@ -107,7 +259,7 @@ NetLimiter 5.3.6.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141508.jpg" />
 </div>
 
 
@@ -131,7 +283,7 @@ magnet:?xt=urn:btih:49F17EB8007CB01792C7109980E061F51788FE25
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141510.jpg" />
 </div>
 
 
@@ -155,7 +307,7 @@ Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141511.jpg" />
 </div>
 
 
@@ -182,7 +334,7 @@ magnet:?xt=urn:btih:23CD57BA6AB6F7D6AD7B5CACD6EB6D2CC0305461
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141512.jpg" />
 </div>
 
 
@@ -206,7 +358,7 @@ VA - Rock Blues Ballads Compilation (2021) [MP3|320 Kbps] <Rock, Blues, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141514.jpg" />
 </div>
 
 
@@ -233,7 +385,7 @@ magnet:?xt=urn:btih:23F28802446F0912C687781A9213444CACEB481E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141515.jpg" />
 </div>
 
 
@@ -258,7 +410,7 @@ VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141517.jpg" />
 </div>
 
 
@@ -285,7 +437,7 @@ magnet:?xt=urn:btih:7620B287C67DD70F04AF7F538760E8345CCB3940
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141519.jpg" />
 </div>
 
 
@@ -309,7 +461,7 @@ CoolUtils Total Image Converter 8.2.0.229 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141521.jpg" />
 </div>
 
 
@@ -333,7 +485,7 @@ magnet:?xt=urn:btih:8C6E7685C055E50677C94FDC6E2A01A5AC2A2689
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141522.jpg" />
 </div>
 
 
@@ -357,7 +509,7 @@ magnet:?xt=urn:btih:E6B6A1818A10243A89EBB73C454175786DEBA424
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141523.jpg" />
 </div>
 
 
@@ -383,7 +535,7 @@ magnet:?xt=urn:btih:7FA4744E3C0DFC4FAF6465A1AE8BB14E9DC28EDD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141524.jpg" />
 </div>
 
 
@@ -407,7 +559,7 @@ Pixies - Doolittle (1989) SACD, Remastered, 2008 Mobile Fidelity Sound Lab [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141525.jpg" />
 </div>
 
 
@@ -434,7 +586,7 @@ DIGI Clock Widget Plus 3.0.1 Mod by Katafrakt [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141527.jpg" />
 </div>
 
 
@@ -458,7 +610,7 @@ Donemax Disk Clone 2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141528.jpg" />
 </div>
 
 
@@ -482,7 +634,7 @@ magnet:?xt=urn:btih:6F23195F640A74462D070DFD22AE0B95D027FD5C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141529.jpg" />
 </div>
 
 
@@ -493,154 +645,6 @@ magnet:?xt=urn:btih:6F23195F640A74462D070DFD22AE0B95D027FD5C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC479B74FD2A45FD967EF720274D23A3DF687BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088062   (141531) от 29.12.2016
-
-Глубоководный горизонт / Deepwater Horizon (2016) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер-электрик Майк Уильямс наслаждается жизнью по утрам со своей красавицей-женой, гоняет маленькую дочку по матчасти бурильных установок и готовится отбывать трудовую вахту на нефтяной платформе "Глубоководный горизонт" в Мексиканском заливе. Он еще не знает, что вместо мирного сна в подсобке его ожидает филиал ада на земле во время самого крупного (   Читать дальше...   )Производство: Гонконг, СШАЖанр: Боевик, Триллер, ДрамаРежиссер: Питер БергАктеры: Дилан О’Брайен, Марк Уолберг, Курт Рассел, Кейт Хадсон, Джон Малкович, Джина Родригез, Итан Сапли, Дуглас М. Гриффин, Сью-Линн Ансари, Брэд ЛелэндПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D768CEC75599CF9CED8A3FC64DBBF9C79DADE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970500   (141532) от 30.12.2015
-
-Клан ювелиров. Возмездие (2015) WEB-DLRip [H.264/1080p-LQ] (сезон 5, серии 1-20 из 20)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141532.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире больших денег, лжи и интриг опасность грозит каждому, кто осмелится пойти наперекор установленным правилам игры. Однажды, в эпицентр противостояния двух враждующих ювелирных кланов попадают отчаянные влюбленные Зоя и Тимур. Вступив в схватку с самой судьбой, и не раз заглянув в лицо смерти, они будут бороться за свое право на счастье.Производство: Украина / Канал "Украина", "Front Cinema"Жанр: мелодрама, детективРежиссер: Дмитрий ГольдманАктеры: Наталия Денисенко, Андрей Фединчик, Константин Данилюк, Вячеслав Довженко, Валерия Ходос, Светлана Зельбет, Виктория Смачелюк, Елизавета Зайцева, Алексей Череватенко, Лилия Яценко и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA944F2361BEA6CD3931E9BAD611856936E45BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348737   (141533) от 29.12.2019
-
-Наталия Басовская | Великие женщины (2018) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятные биографии самых важных женщин в истории, рассказанные Наталией Басовской. Великие женщины, изменившие наш мир, любили и умирали, страдали и радовались как самые обычные люди. Все их тайны приоткрывает перед читателем знаменитый историк. Кто был более жесток, чем Тамерлан? Кого на самом деле любила Нефертити? Почему старый Китай закончился при Императрице (   Читать дальше...   )Жанр: Всемирная история, Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE21BE116A35E5A0488FE2463498EE1AE468A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272774   (141534) от 29.12.2018
-
-VA - FSOE UV - Best of (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Scott Bond & Charlie Walker - Shadow (Paul Thomas Remix)
-02. Paul Thomas & Funkagenda - Underground (Original Mix)
-03. Aly & Fila & Ferry Corsten - Camellia (Dmitry Molosh Remix)
-04. Paul Thomas & Katherine Amy - Sweet Harmony (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB95FADAF59EA98FC00BC0FBDACFFB00A0E87F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435800   (141537) от 29.12.2020
-
-Анастасия Логинова | Гувернантка с секретом (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141537.jpg" />
-</div>
-
-
-###  Подробнее
-
-От судьбы не уйдешь. У Лидии теперь пятеро подопечных, самая милая из которых – это трехлетняя крошка, еще не поступившая в ее распоряжение. Зато прочие отпрыски семейства Полесовых скучать не дадут: неугомонные восьмилетние близнецы проказничают без устали, тринадцатилетний брат совсем не без оснований прозван «Митрофанушкой», а старшая их сестра влюбилась в совершенно (   Читать дальше...   )Жанр: Исторические детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DE71716EB28A4928A5E6A01A563D7A32DA80C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195519   (141538) от 29.12.2017
-
-Морской волк (1990) SATRip (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141538.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённого романа Джека Лондона.
-Молодой литератор Хэмфри Ван-Вейден решил навестить друга. На пароме «Мартинес» он отплывает из Сан-Франциско на другую сторону залива. В тумане паром сталкиваются с большим судном и за считанные минуты тонет. Оказавшись в воде, Хэмфри быстро обессилел. Спасение пришло неожиданно. С проходящей мимо шхуны случайно заметили (   Читать дальше...   )Производство: СССРЖанр: драма, мелодрама, приключенияРежиссер: Игорь АпасянАктеры: Андрей Руденский, Любомирас Лауцявичюс, Елена Финогеева, Николай Чиндяйкин, Алексей Серебряков, Мартиньш Вилсонс, Виктор Гайнов, Рудольф Мухин, Анатолий Сливников и др.Продолжительность: 01:29:41 + 01:04:20 + 01:00:55 + 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46025CD37C621B84B50439BE78D146265D6CEA1
 ```
 
 

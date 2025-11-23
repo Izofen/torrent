@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mary’s recipes: рецепты, меню v5.0.2 Mod by Alex.Strannik [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35292.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Partition Assistant Technician Edition 10.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Movavi Video Editor 25.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35296.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Glary Utilities Pro 6.19.0.23 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35323.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WizTree Enterprise 4.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35324.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Listen Audiobook Player v5.2.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35330.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Relax Rain: sleeping sounds v7.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35332.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PictureThis - Plant Identification v5.0.15 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35333.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ GeoGebra 6.0.869.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35338.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wondershare UniConverter Ultimate 16.0.4.86 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35353.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Aiseesoft Video Converter Ultimate 10.8.86 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35354.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:43DDF25F5644ED5D1D6915824A171B6FAAF575B9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35357.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Topaz Gigapixel AI 8.0.4 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35358.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VMware Workstation 17 Pro 17.6.1 Build 24319023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35364.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ FliFlik KlearMax for Photo 2.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35367.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Magic Eraser / Магический ластик v2.15.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35423.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:27C93B18A2B3C2E824575869652CB40849040F39
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35424.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9E09739340FA3EBB12C51966C1E3233815CE4DAC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35451.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Steinberg - HALion 7 7.1.20 STANDALONE, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35457.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35470.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ NewPipe v0.27.4 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35475.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Revo Uninstaller Pro 5.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35494.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Balabolka 2.15.0.883 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35503.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vivaldi 7.0.3495.20 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35523.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Notepad++ 8.7.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35527.jpg" />
 </div>
 
 

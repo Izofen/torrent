@@ -6,7 +6,7 @@
 >>Беседка Талантов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_336.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141962.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151262.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151603.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224435.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224435.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224564.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224564.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F6A0D5ADB6574F4B7E777ACB061C08C21BB54A05
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255626.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255626.jpg" />
 </div>
 
 

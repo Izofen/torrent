@@ -1,3 +1,78 @@
+###  Публикация: 1823427   (125762) от 11.10.2025
+
+Аарон Максвелл | Мощный Python (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стать экспертом в создании сложных и мощных приложений на Python, не тратя время на повторение уже известных основ или перечисление ненужных функций? Аарон Максвелл фокусируется на первопринципах Python, которые действуют подобно катализаторам для всего остального: достаточно получить 5 % знаний в области программирования, чтобы остальные 95 % подтянулись автоматически.Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: Sprint BookФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1AF8E65C35267F8F2F5E6CF1E584F66B3B42E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823440   (125763) от 11.10.2025
+
+Asya-Design, Александра Бавыкина | Курс по 3D визуализациям в Archicad (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались, сколько вы сможете сделать проектов за месяц? Вы будете делать дизайн-проект в разы быстрее. С курсом по 3D визуализации вы сможете зарабатывать больше.Производство: Asya-DesignЖанр: видеокурс, обучающий курс, графика, дизайнЯзык озвучки: русскийПродолжительность: 13:02:17Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823445   (125764) от 11.10.2025
+
+Валентина Паевская | Финансовая грамотность (2025) WEB-DL [RU]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Обучающее Видео для родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша семья нуждается в системе финансовой грамотности, если:
+Вы хотите, чтобы ваш ребёнок вырос не просто потребителем, а человеком, способным строить своё финансовое будущее.
+Вы опасаетесь, что в 25 лет ваш подросток будет полностью зависеть от вас и жить на ваши средства.
+Вы стремитесь быть уверенными, что ваш ребёнок сможет самостоятельно управлять своими расходами, (   Читать дальше...   )Жанр: вебинар, финансы, воспитание детейЯзык озвучки: русскийПродолжительность: 04:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65120F685C9D92CAEAC57CE9FE992D06A5B08EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823453   (125765) от 11.10.2025
 
 Mötley Crüe - From The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal, Hard Rock>
@@ -6,7 +81,7 @@ Mötley Crüe - From The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Glam Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125765.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:E9FA4BC69D0FF667C454F3872EF2E327AEA58948
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125766.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:933B82BBD80309111B8B6D484DCBEB79897ACCCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125767.jpg" />
 </div>
 
 
@@ -82,7 +157,7 @@ Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125768.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ PicWish: AI Photo Editor v2.2.0 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125769.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ magnet:?xt=urn:btih:61B493DD8119A0F1739121EF2DB4BB395AB6ABE4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125770.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:2C5DA2E2117F08DCA6783B5B9A9A957B97819DFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125771.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:92DB704ECA349379626A3CE547905688A0521A09
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125773.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:F8CA686BC7110C173D412BB73B0EF189EA8922B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125774.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ magnet:?xt=urn:btih:3BD8A0CC565B63AAAA0DB965B401D40B040B1493
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125775.jpg" />
 </div>
 
 
@@ -275,7 +350,7 @@ magnet:?xt=urn:btih:B96255E083B7D3C01B0709BF86E4DDC9326CE34C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125776.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ magnet:?xt=urn:btih:8E5111E6D7AB0CF7EAFE7E6ED683774F3F9C4D7F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125777.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:4D9D88497985F09EA9359019EA7C2DD246F3F060
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125778.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:2905B68A604733D5057F25269576E5A8D0F5AFA3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125779.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:2A115C0CB4CC3C958D17263943E2E8251D705B7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125780.jpg" />
 </div>
 
 
@@ -395,7 +470,7 @@ magnet:?xt=urn:btih:E79FB079D849DEC23B08BC5C1B4CDBFC276FBCCE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125781.jpg" />
 </div>
 
 
@@ -419,7 +494,7 @@ magnet:?xt=urn:btih:8C46FC720D9E64DA6ABFA358CEA20966A6CEA197
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125782.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:D9660B867817CF8EE2ED169A2D142FBB35B9E1EF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125783.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ Testament - Para Bellum (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125784.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ magnet:?xt=urn:btih:5BFC01A77F466448133FBB75D68278815E002262
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125785.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:2799BA8DABEF8EA76A4E803E39804ECE46400BF7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125786.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ VA - ЕвроХит Топ 40 Europa Plus 10.10.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125787.jpg" />
 </div>
 
 
@@ -556,79 +631,6 @@ VA - ЕвроХит Топ 40 Europa Plus 10.10.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7F3955F57ABC3686562F2B6BF5688823A759A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823288   (125788) от 11.10.2025
-
-Аманда Падоан, Питер Цукерман | Смертельный спуск. Трагедия на одной из самых сложных вершин мира - К2 (2023) [MP3, Максим Гамаюнов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вершина К2, или Чогори, из-за чрезвычайной сложности восхождения получила название «Дикая гора». Ее высота составляет 8611 метров - это самый северный восьмитысячник мира и третья вершина после Аннапурны и Нанга-Парбат по показателю смертности.
-В августе 2008 года 11 альпинистов из нескольких экспедиций погибли на восхождении - такого количества жертв за один сезон (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 09:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB12A2514A1E4C7682FC23D239A9CC6EF6BCEE02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823294   (125789) от 11.10.2025
-
-Игорь Незовибатько | Энергия чувств – энергия успеха (2009) [MP3, Игорь Незовибатько]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125789.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Энергия успеха» - тренинг личностного роста. Энергия – это способность к действию. Энергия чувств – энергия действий. Управление своей энергией и своими чувствами – это управление своей жизнью и окружающим миром. Искусство управлять своими эмоциями и чувствами в реальных жизненных ситуациях. Умение жить и работать энергично, легко и радостно.Жанр: ПсихологияИздательство: Студия Видео-8Продолжительность: 06:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EC810D7A82A44B10E0F8B9AB753037692E2643
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823290   (125790) от 11.10.2025
-
-Михаил Пелехатый, Евгений Спирица | Боевое НЛП: техники и модели скрытых манипуляций и защиты от них (2021) [MP3, Александр Карлов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто не действует на человека так, как слово! Оно заставляет нас радоваться и смеяться, сворачивать горы и творить чудеса. Или может погрузить нас в глубокую печаль, заставить потерять силы, а иной раз и самого себя. Боевое НЛП представляет собой набор самых жестких и опасных методов управления поведением людей и доступно всем. При этом чаще всего приемы боевого (   Читать дальше...   )Жанр: Саморазвитие, личностный рост, техники влиянияИздательство: ПитерПродолжительность: 05:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9594E4B655C92F224306FD1FBCFE2863D52F1BD0
 ```
 
 

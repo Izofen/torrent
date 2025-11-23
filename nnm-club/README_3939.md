@@ -1,3 +1,75 @@
+###  Публикация: 1693142   (122096) от 19.01.2024
+
+Грань будущего / Edge of Tomorrow (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122096.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалёком будущем раса инопланетян вторгается на Землю. Никакая армия в мире не может противостоять им. Майор Уильям Кейдж умирает в бою, но случается невозможное — он оказывается во временной петле. Раз за разом он попадает в один и тот же бой, сражается и умирает снова и снова. И каждое повторяющееся сражение приближает его к разгадке того, как победить врага.Производство: США, Канада / Warner Bros, Village Roadshow PicturesЖанр: фантастика, боевик, приключенияРежиссер: Даг ЛайманАктеры: Том Круз, Эмили Блант, Билл Пэкстон, Брендан Глисон, Ноа Тейлор, Джонас Армстронг, Тони Вэй, Кик Гарри, Франц Драмех, Драгомир МрсичПеревод: Дублированный (Лицензия)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE161E57588F7DEF384E3F25EF14C959D27477E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356513   (122097) от 19.01.2024
+
+Рамки - Фоторамки на все случаи жизни [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разархивированный согласно требованиям действующих Правил материал релиза Рено ® Рамки - ФотоРамкиФормат: PSDРазрешение файлов: 2480x1772, 2557x2502, 4655x4655
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C50DA524F327B22FB3BB524F1A539C019BED8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693054   (122098) от 19.01.2024
+
+Клипот (2024) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе N по обвинению в осуществлении экстремистской деятельности арестованы несколько молодых людей. Современная художница, выпускник западного вуза, социальная активистка, дочь губернатора. СМИ обвиняют органы в произволе. Следствие работает с подозреваемыми. Раевский на пути в аэропорт знакомится с юной послушницей Натальей и, заинтригованный полным отсутствием (   Читать дальше...   )Производство: Россия / Грин Скрин Продакшн, ИРИЖанр: детектив, триллерРежиссер: Сергей АрлановАктеры: Евгений Романцов, Иван Мулин, Олег Гаас, Карина Александрова, Женя Евстигнеева, Полина Ауг, Виталийс Семёновс, Сергей Ренсевич, Дарья Котрелёва, Данил СтекловСубтитры: отсутствуютПродолжительность: ~00:54:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D811AD650C88AEF67E00D50638BCE77CECE7A9ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495476   (122099) от 19.01.2024
 
 А.С. Пушкин | Евгений Онегин [Раритет] (1908, 1918) [PDF]
@@ -6,7 +78,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122099.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:352BCEADD69385199465DCAC5D5BAE23E860F8D1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122100.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122101.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:4A8F532D7CF0215249A9ECC5D2D7FE6B40B0EAB2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122102.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:369088334CC9F71B132DA9D944F373DBB847CD49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122103.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:3E072126EBB7A5F506896B671402E5B3682E9D44
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122104.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:C56559D930E6BA27C22709CA175AE6FCBD03E00A
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122105.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:9A8D8A325B3EE0F5101FC5A4E75F0DA75FFAAE49
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122106.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122106.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122107.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ The Bat! Professional 11.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122108.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:51C94E3D04FDEB78EE63535BC33EBE0970E242CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122109.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:13A83ED4316889604A907730DE857F1CBD10693C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122110.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122111.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:A70E43FC2CC542FD672EAF8054CC0E81FC267678
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122112.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:92ED2A90AB6BF5795002245196F86EB787A33C9A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122113.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 01.2024 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122114.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:1E98508211086A1A6BBA8BEF7414AE1C36E5DED6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122115.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:4EEE68A5E443F76083F003560B5CA09D67FD4EDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122116.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:4C56DA55AD3DB5B0C9CBE0B367001215ADE1FF9E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122117.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:140A7DC031A4E7998DBDA2CF79B1B8C268F78026
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122118.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:9507A50D1903EDE1DF4C79DBCC7AAFFFD7246D03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122119.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ Kaspersky Free 21.16.6.467 Repack by LcHNextGen (19.01.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122120.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:2573D1E0A6290FBDC4D92C2E647CE90BBFC911BA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122121.jpg" />
 </div>
 
 
@@ -560,81 +632,6 @@ magnet:?xt=urn:btih:2573D1E0A6290FBDC4D92C2E647CE90BBFC911BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760572AFA52A2FC6B35D299CF3DC9772B068D8AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691578   (122122) от 19.01.2024
-
-Третий лишний / Ted (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) HDRezka Studio
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1993 году в доме Беннетов поселился непоседливый и чрезвычайно неприличный плюшевый медведь по имени Тед. Этот персонаж хотя и вовлекает своего лучшего друга в различные передряги, но становится для шестнадцатилетнего парня самым близким существом на свете. Игрушечный зверек помогает родителям приятеля решать бытовые вопросы и вдохновляет членов семейства на всякие (   Читать дальше...   )Производство: США / Fuzzy Door Productions, Media Rights Capital, MRC Television, Universal Content Productions (UCP)Жанр: КомедияРежиссер: Сет МакфарлейнАктеры: Сет Макфарлейн, Макс Буркхолдер, Джорджиа Уигэм, Аланна Юбак, Скотт Граймз, Ara Hollyday, Liz Richman, Marissa Shankar, Пенни Джонсон, Charly JordanПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0722F96461C487FF80656627240A0DCD710AFA3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116965   (122123) от 19.01.2024
-
-Вася Обломов - 6 Albums, 24 Singles, 1 Live, 1 Compilation (2011-2024) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский музыкант, вокалист, поэт, композитор и музыкальный продюсер. Основатель и лидер группы «Чебоза». Более известен как Вася Обломов в связи с созданием одноимённого музыкального проекта. Один из основателей и участник музыкально-поэтического проекта «Господин хороший».2011 - Повести и Рассказы
-2012 - Стабильность
-2013 - Ломки
-2014 - Многоходовочка!(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 09:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F52D22F218B1BA38A77C2BB7188B7E215FD6036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693050   (122124) от 19.01.2024
-
-Приглашение на убийство / Invitation to a Murder (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер-затворник приглашает шестерых, казалось бы, случайных незнакомцев в свое островное поместье на юге Англии. Начинающий детектив Миранда Грин находит таинственное приглашение слишком заманчивым, чтобы отказываться от него. Когда еще один гость оказывается мертвым, Миранда должна разобраться в злонамеренном заговоре.Производство: Франция, ACE Entertainment, Ari ProductionsЖанр: триллер, детективРежиссер: Стивен ШимекАктеры: Миша Бартон, Крис Браунинг, Бьянка А. Сантос, Джиллз Мэттхи, Грэйс Линн Кунг, Шеймус Девер, Джеймс Урбаняк, Эми Слоун, Алекс Хайд-Вайт, Кларк КармайклПеревод: Дублированный (Позитив)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, ФранцузскиеПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FBAABA4CACCDA4A836CA0643A2893DC16DBF39
 ```
 
 

@@ -6,7 +6,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:61FC4EED596D4933F759C20418FE8BF9D91603E4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173076.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173078.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:477892DB7D78EDCC291C4D2AE2F6401DEECBC14A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173079.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0BFE1166F1AAEDD8D09CEF774AF7F8D9113BD432
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173081.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:0D061CDFED4DDD9B040A26210F98B2BA0D0E73B0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173083.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:51FDB4251661DFE3E0B7356AD5190A0F9D7A0477
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173088.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C0B188B864333420F6CAA747E2457441A733140F
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173091.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:0E9AC6E89EEE18BEAA33279FCB4AE5700BD0A322
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173094.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4AC4D4ED3B148B5C9F25EC889A1B6989A03F0589
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173095.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:26CBF8B9B0BDE93FCA77CB32835CA0529B3B48B9
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173098.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C9F6BEB43D541FE54E100952697BCAFE373DAD17
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173099.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0F0E82AA1F76789078E3D0DA7A478B17B6E38086
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173104.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:4C24175AD5B2B9B5953A0434243E881ADAC2BE00
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173112.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:D4D48015F6FCBF192BB4B579972CBA1F3ABCD213
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173115.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:93FDD2FA6F573E0E23E528B039C097DDC574AB15
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173134.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Udemy, Meta Brains | ChatGPT Coding Express: Fast-Track Coding with ChatGPT (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173136.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:5B9EEECD62FEEEF7EA50F17C58DA8BA1EE1D5988
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173144.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:4A85C1E8E4F44E6244A3FD817B9489B38ACA380C
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173151.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:64403AB1BF53241505EFA90A266E8D0F8A5A1531
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173152.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:FC60416EE0BF7000F0E964CFF1E33A73260D76E1
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173157.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:FDA7A9E39E24D7EFA36DAC5E11C54A17B2BC4677
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173276.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9FFD0381B3C2285031CAD5E220844B17E2C4D165
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173279.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:EF08C3C72E3D778072E4B076BDEC06A0C3975AEC
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173303.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:69CD14BAE9396A1005A78D6751032B50967207AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173477.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173511.jpg" />
 </div>
 
 

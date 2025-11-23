@@ -1,3 +1,79 @@
+###  Публикация: 1835785   (251900) от 
+
+Табата ®. Интервальные тренировки / Tabata Training v4.10 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение-помощник для высокоинтенсивных интервальных тренировок. Иллюстрации. Обширная база упражнений. Возможность создавать собственные тренировки. 4 минутная тренировка заменяет час в тренажерном зале. Табата - это высокоинтенсивный интервальный тренинг:
+• 20 секунд интенсивной тренировки
+• 10 секунд отдыха
+• повторить 8 разТип издания: PremiumРелиз состоялся: 06.11.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835784   (251902) от 
+
+Кегель тренажер v10.2.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплекс несложных упражнений и ежедневные напоминания - вот простой способ укрепить мышцы тазового дна! Вам надоело выполнять одни и те же упражнения и чувствовать, что результаты не улучшаются? В этом приложении 10 различных тренировок, это означает, что у вас всегда есть возможность выбрать новый комплекс. Быстро и легко - все упражнения длятся от 30 секунд до (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.11.2025Разработчик: Olson Applications LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835759   (251904) от 
+
+Начни бегать v5.13 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_251904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный помощник для желающих начать тренироваться посредством бега и спортивной ходьбы. Подборка готовых планов упражнений. Возможность создания собственного плана занятий. Статистика тренировок.
+Начать бегать? Легко! Не думай о дистанции, темпе, скорости. Все это потом. Слушай инструкции и беги так, как тебе комфортно. Не фокусируйся на технике бега. Самое важное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.11.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634539   (252124) от 21.05.2023
 
 2ГИС | 2GIS for Android 6.20.0.510.14 [Ru/Multi]
@@ -6,7 +82,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252124.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252124.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252293.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252293.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252296.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252296.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252297.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252297.jpg" />
 </div>
 
 
@@ -105,7 +181,7 @@ Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252299.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252299.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252300.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252300.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252356.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252356.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ RAR for Android v7.20 build 128 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252439.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252439.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ magnet:?xt=urn:btih:B47A89BB2395ABE32BB42AA1C552C3FB277B9D26
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252801.jpg" />
 </div>
 
 
@@ -226,7 +302,7 @@ Dr.Web Security Space Life v12.9.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254696.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254696.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254906.jpg" />
 </div>
 
 
@@ -275,7 +351,7 @@ vpnify - Безлимитный VPN 2.0.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254940.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254940.jpg" />
 </div>
 
 
@@ -299,7 +375,7 @@ FBReader Premium – Favorite Book Reader v3.1.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255557.jpg" />
 </div>
 
 
@@ -324,7 +400,7 @@ magnet:?xt=urn:btih:0B948831F53BDA7D884E7C50935F5E670C9ACE62
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256589.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256589.jpg" />
 </div>
 
 
@@ -348,7 +424,7 @@ Vanced Tube v5.5.80.151 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256599.jpg" />
 </div>
 
 
@@ -372,7 +448,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256605.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256605.jpg" />
 </div>
 
 
@@ -396,7 +472,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256609.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256609.jpg" />
 </div>
 
 
@@ -420,7 +496,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256625.jpg" />
 </div>
 
 
@@ -444,7 +520,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256682.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256682.jpg" />
 </div>
 
 
@@ -468,7 +544,7 @@ SnapEdit - AI photo editor v7.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256683.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256716.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256716.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256717.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256727.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256727.jpg" />
 </div>
 
 
@@ -551,78 +627,6 @@ magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837268   (256728) от 16.11.2025
-
-PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 14.11.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837233   (256733) от 16.11.2025
-
-Йога на стуле v1.0.9 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение «Йога на стуле» для пожилых – простые и безопасные движения для улучшения гибкости, баланса и силы! Присоединяйтесь к нашему персонализированному 30-дневному плану йоги на стуле с мягкими и низкоударными движениями, которые помогают снизить риск падений, укрепить мышцы, поддерживать контроль веса и улучшить общее самочувствие.Тип издания: PremiumРелиз состоялся: 14.11.2025Разработчик: EZ HealthПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837380   (256734) от 16.11.2025
-
-Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 16.11.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 450802   (75549) от 11.02.2012
+
+VA - Мультконцерт. Антология Детского Шлягера (2006) [MP3|320 kbps]<Детские песни из мультфильмов>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детские песниПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C8E739FEF0ACFBADB283CB8979DBB78D3A3E0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450581   (75552) от 11.02.2012
+
+Графиня де Монсоро (1997) 2хDVD9 (26 серий из 26)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю любви красавицы Дианы и самоотверженного графа де Бюсси. Франция эпохи религиозных войн между католиками и гугенотами. Во главе гугенотов — Генрих Наваррский. Католиков возглавляет воинственная семья герцогов де Гизов. Король Генрих III, изнеженный любитель роскоши и развлечений, не способен управлять страной. Он окружил себя фаворитами (   Читать дальше...   )Производство: РоссияЖанр: Драма, Мелодрама, ИсторияРежиссер: Владимир ПопковАктеры: Александр Домогаров, Габриэла Мариани, Юрий Беляев, Евгений Дворжецкий, Алексей Горбунов, Кирилл Козаков, Екатерина Васильева, Юрий Яковлев, Анна Дубровская, Лев Дуров, Дмитрий Марьянов, Борис Клюев, Борис Иванов, Игорь Ливанов, Дмитрий Певцов, Евгений Стычкин, Екатерина Стриженова, Владимир Долинский, Сергей Виноградов, Сергей Варчук, Тимофей Федоров, Леван Мсхиладзе, (   Читать дальше...   )Продолжительность: 26 х ~ 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450852   (75556) от 11.02.2012
+
+Алексей Пехов | Крадущийся в тени [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вор и герой – понятия несовместимые? Как бы не так! Когда приходится делать нелегкий выбор между топором палача и Заказом на небольшую прогулку в мрачные могильники эльфийских лесов, трезвомыслящие люди выбирают топор палача, а герои, такие, как Гаррет, решают бросить кости и, надеясь, что выпадут шестерки, рискнуть. Ведь всего-то надо пробраться в заброшенную башню (   Читать дальше...   )Жанр: Фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ECA1AEAD6C119FF4311B748DE127B939D2C4C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450584   (75558) от 11.02.2012
 
 Мушкетеры / The Three Musketeers (2011) [H.264/720p-LQ] BDRip
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75558.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:A666B7908853CF4FECC461A797CC096A5B6553ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75561.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Frances de la Tour, Майкл Гэмбон / Michael Gambon, Том Уэйтс 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75562.jpg" />
 </div>
 
 
@@ -85,7 +157,7 @@ magnet:?xt=urn:btih:308365C323BE96FC7A9CE0707771BEDF56507BFF
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75565.jpg" />
 </div>
 
 
@@ -109,7 +181,7 @@ magnet:?xt=urn:btih:7D9FB242E9CFB8B2B0F280B20104BC36A220C157
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75568.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75569.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75574.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75575.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ magnet:?xt=urn:btih:CD7B48B540249D117586BAD3CEC83B9C1840005B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75576.jpg" />
 </div>
 
 
@@ -235,7 +307,7 @@ TuneUp Utilities 2012 Build 12.0.3010 Final RePack + Portable by KpoJIuK [RUS, E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75585.jpg" />
 </div>
 
 
@@ -260,7 +332,7 @@ TuneUp Utilities 2012 - новая версия большого набора в
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75591.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ TuneUp Utilities 2012 - новая версия большого набора в
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75596.jpg" />
 </div>
 
 
@@ -310,7 +382,7 @@ uTorrent Portable x64 uTorrent 3.0 64-bit 25570 [Мульти/русский.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75597.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ uTorrent Portable x64 uTorrent 3.0 64-bit 25570 [Мульти/русский.]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75604.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:DEA2696B4A7B76A2C694BC86245377021FE498F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75606.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ magnet:?xt=urn:btih:BA667529263058D679AD44D56EB9E5B140088DD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75609.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:BA667529263058D679AD44D56EB9E5B140088DD7
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75627.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ magnet:?xt=urn:btih:5ECA69DCFC963640CC04DAA01A808629EBDCB7DC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75641.jpg" />
 </div>
 
 
@@ -458,7 +530,7 @@ magnet:?xt=urn:btih:B693A81FDE5F26420CAD0C73B8FAE87907B54CA4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75650.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ magnet:?xt=urn:btih:1F888C4BE4F2FDB5515FA0B117E110DD0A364234
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75656.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75661.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75664.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:E3276132B994C2B3122E48322BE28E8CA40F1F4B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75670.jpg" />
 </div>
 
 
@@ -571,85 +643,6 @@ magnet:?xt=urn:btih:E3276132B994C2B3122E48322BE28E8CA40F1F4B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F83648E7207B962C5D14A8743245820753288E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 137974   (75674) от 12.02.2012
-
-Письма c Иводзимы / Letters from Iwo Jima (2006) DVD-9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Февраль 1945-го. Война в Европе подходила к концу, а на тихоокеанском направлении она была в самом разгаре. Островок Иводзима стал для США последним плацдармом на пути к Японии, и битва за него стала одним из самых кровопролитных сражений кампании.
-Этот фильм показывает нам битву за остров глазами японских солдат и офицеров, которые до последней капли крови защищали свою землю и погибли во славу Японской Империи.
-"Битва за Иво Дзиму" (Иво Джима) стал второй частью условной диалогии К.Инствуда (Первая часть диалогии:Жанр: Военный, ДрамаРежиссер: Клинт ИствудАктеры: Кен Ватанабе, Кадзунари Ниномия, Шидо НакамураПеревод: Многоголосый закадровыйПродолжительность: 02:20:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450660   (75676) от 12.02.2012
-
-Мешки для трупов / Body Bags (1993) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм мастеров жанра (Джона Карпентера и Тоуба Хупера) состоит их трех историй ("Заправка", "Волосы" и "Глаз"), которых объединяет одно - СМЕРТЬ.
-
-ВЖанр: Ужасы, ТриллерРежиссер: Джон Карпентер / John Carpenter, Тоуб Хупер / Tobe HooperАктеры: Джон Карпентер, Уэс Крейвон, Том Арнольд, Тоуб ХуперПеревод: Многоголосый синхронный + Три авторских(Горчаков, Дохалов, Пронин)Продолжительность: 01:28:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450512   (75683) от 12.02.2012
-
-BBC: Век эгоизма. Часть 2 – Конструирование согласия / The Century of the Self. Part 2 - The Engineering of Consent (2002) TVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это – история о том, как идеи Зигмунда Фрейда о бессознательном были использованы элитой в послевоенной Америке, чтобы проводить эксперименты над массами людей и управлять ими. Политики и их советники пришли к убеждению, что Фрейд был прав, предполагая, что глубоко внутри каждого человека скрыты опасные иррациональные желания и страхи. Они были убеждены, что именно высвобождение этих инстинктов привело к варварству в
-нацистской Германии.
-Чтобы никогда не допустить повторения подобного, они начали поиски методов, позволяющих контролировать этого врага, скрытого в недрах человеческого сознания. В центре нашей истории находятся дочь Зигмунда Фрейда, Анна, и его племянник Эдвард Бернейс, который изобрел профессию пиарщика. Их идеи были использованы американским правительством, крупным бизнесом и ЦРУ, чтобы разработать приемы контроля и управления сознанием людей в Америке.
-Стоящие у власти верили, что единственным методом, который мог бы заставить демократию работать и привести к стабильному обществу, было подавление (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6F93839082039765350811EBF4264EF1F3BDB5
 ```
 
 

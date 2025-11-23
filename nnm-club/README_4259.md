@@ -1,3 +1,79 @@
+###  Публикация: 596401   (130922) от 31.12.2012
+
+Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 кб/с]<R&B\Boogie\Jazz\Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиан Miles "Jools" Holland, кавалер Ордена Британской империи ,(родился 24 января 1958), английский пианист, руководитель оркестра, певец, композитор и телеведущий.  Он был одним из основателей группы Squeeze и его работа привлекла его со многими художниками, в том числе Стинг , Эрик Клэптон , Марк Нопфлер(   Читать дальше...   )Список альбомов:
+
+2010-Rockinghorse
+2011-Jools Holland & Friends
+2012-The Golden Age Of SongЖанр: R&B \ Boogie \  Jazz \ BluesПродолжительность: 03:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682496   (130923) от 08.12.2023
+
+Арабские учёные придумали солнечную башню, которая будет давать электричество днём и ночью
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа учёных из Иорданского технического университета им. Аль-Хусейна и Университета Катара смоделировала «солнечную» башню высотой около 200 м, которая смогла бы вырабатывать электроэнергию не только днём, но также и ночью. Вертикально ориентированные турбины в башне будут приводить в движение восходящий и нисходящий потоки воздуха, работая, таким образом, круглосуточно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682651   (130925) от 08.12.2023
+
+Лукавый / Lord of Misrule (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Натуральное хозяйство, дом, окруженный вековыми деревьями - подлинная мечта уставшей от столицы семьи. Здесь, в уютном городке, где все друг друга знают, они готовятся встретить овеянный легендами языческий праздник. В самый разгар торжества исчезает дочка - но кажется, никто не спешит ее искать. Где-то глубоко в чаще леса оживает (   Читать дальше...   )Производство: США / BCP Asset Management, Bigscope Films, REP Productions 12Жанр: ужасыРежиссер: Уильям Брент БеллАктеры: Таппенс Мидлтон, Ральф Айнесон, Мэтт Стокоу, Алекса Гудолл, Розалинд Марч, Джейн Вуд, Энтон Саундерс, Роберт Гудман, Люк Айнесон, Дэвид ЛэнгхэмПеревод: Дублированный (Pride Production)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259BB1831838058EC37DAB1DB5D49C8B1E300175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682228   (130927) от 08.12.2023
 
 "ГЛОНАСС" в 2024 году запустит сервис по поиску угнанных автомобилей
@@ -6,7 +82,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130927.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130929.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:E6E836A6A82291B10929C644E6307FCA76C6A5E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130930.jpg" />
 </div>
 
 
@@ -78,7 +154,7 @@ PGWare PCBoost 4.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130931.jpg" />
 </div>
 
 
@@ -102,7 +178,7 @@ Incredible Mixed Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130932.jpg" />
 </div>
 
 
@@ -126,7 +202,7 @@ magnet:?xt=urn:btih:28D685E9EB99FAC18ED7BD4D5793A9322E0FFE4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130933.jpg" />
 </div>
 
 
@@ -150,7 +226,7 @@ Krita 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130934.jpg" />
 </div>
 
 
@@ -175,7 +251,7 @@ magnet:?xt=urn:btih:C3DBC9348B478B0701C1BDBF012A8CE44EA9D028
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130936.jpg" />
 </div>
 
 
@@ -199,7 +275,7 @@ magnet:?xt=urn:btih:306C8DAB280C1B1DAAF61101E3B69BBC47271944
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130938.jpg" />
 </div>
 
 
@@ -224,7 +300,7 @@ Doug MacLeod - Brand New Eyes (2011) [FLAC|Lossless]<Blues, Acoustic>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130941.jpg" />
 </div>
 
 
@@ -257,7 +333,7 @@ Doug MacLeod - Brand New Eyes (2011) [FLAC|Lossless]<Blues, Acoustic>
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130942.jpg" />
 </div>
 
 
@@ -281,7 +357,7 @@ magnet:?xt=urn:btih:E6F44F9560CB66892ED7A2BA2DBA1FBC9755CA20
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130944.jpg" />
 </div>
 
 
@@ -306,7 +382,7 @@ magnet:?xt=urn:btih:B0E56AEBC655FD77FAADBF9D8888017364416B50
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130946.jpg" />
 </div>
 
 
@@ -330,7 +406,7 @@ magnet:?xt=urn:btih:65978EDB6C6E0A7FA2108ECEEC3065B0400B2D6A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130948.jpg" />
 </div>
 
 
@@ -354,7 +430,7 @@ Transmission 4.0.5 (a6fe2a64aa) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130949.jpg" />
 </div>
 
 
@@ -379,7 +455,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130950.jpg" />
 </div>
 
 
@@ -403,7 +479,7 @@ magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130951.jpg" />
 </div>
 
 
@@ -427,7 +503,7 @@ magnet:?xt=urn:btih:D7F564ED98A17B3EA9500E4326A09CE2D0C4E9EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130952.jpg" />
 </div>
 
 
@@ -451,7 +527,7 @@ magnet:?xt=urn:btih:D7F564ED98A17B3EA9500E4326A09CE2D0C4E9EF
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130953.jpg" />
 </div>
 
 
@@ -475,7 +551,7 @@ VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130954.jpg" />
 </div>
 
 
@@ -508,7 +584,7 @@ magnet:?xt=urn:btih:7791844848A37971D056BD0ADABB1A7B21466851
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130955.jpg" />
 </div>
 
 
@@ -532,7 +608,7 @@ magnet:?xt=urn:btih:BCFDFBDF029C66C261FDD63A59D2F0D69BBFCE72
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130957.jpg" />
 </div>
 
 
@@ -556,7 +632,7 @@ magnet:?xt=urn:btih:544D954D974F771AEB2D641A2DBD6C52E6B562C9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130959.jpg" />
 </div>
 
 
@@ -567,79 +643,6 @@ magnet:?xt=urn:btih:544D954D974F771AEB2D641A2DBD6C52E6B562C9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41726B3148DDC46638795475A6542AB2722E726A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677249   (130960) от 08.12.2023
-
-Viber 21.4.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
-Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682640   (130963) от 08.12.2023
-
-Анатомия падения / Anatomie d'une chute / Anatomy of a Fall (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь успешной писательницы Сандры Войтер переворачивается после загадочной смерти мужа. Ей предъявляют обвинение в убийстве. Однако чем дальше ведется расследование, тем больше всплывает подозрительных обстоятельств.Производство: Франция / Auvergne Rhône-Alpes Cinéma, Canal+Жанр: Триллер, драма, криминалРежиссер: Жюстин ТриеАктеры: Сандра Хюллер, Сванн Арло, Мило Машадо Гранер, Антуан Райнарц, Сэмюэл Тейс, Дженни Бет, Саадиа Бентайеб, Камилль Рутерфорд, Анн Ротгер, Софи ФийерПеревод: Многоголосый профессиональный (Alphaproject)Язык озвучки: РусскийСубтитры: Английские (hardsub)Продолжительность: 02:29:06Реклама: Присутствует баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596478   (130964) от 31.12.2012
-
-Рисованная графика - Artworks by Live4ArtInLA
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора под ником Live4ArtInLA.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
 ```
 
 

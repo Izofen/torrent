@@ -1,3 +1,75 @@
+###  Публикация: 486594   (100337) от 23.04.2012
+
+Bob Berg - 4 альбома (1990-2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_100337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486826   (100340) от 23.04.2012
+
+Sexy Anime Girls
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.Разрешение файлов: Разное.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0ED9F2930E65E596BB9FBDD26C2717C311967A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486829   (100342) от 23.04.2012
+
+[EN] Коэффициенты / The Odds (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100342.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Дессон (Tyler Sohnson) находит своего лучшего друга и компаньона по нелегальным играм Барри (Callum Worthy) повешенным в его гараже. Хотя Барри по уши в долгах, ничего не указывало на то, что он может покончить жизнь самоубийством. Дессон начинает собственное расследование и должен закончить его прежде, чем пострадает еще кто-нибудь из его друзей. Пистолет, таинственная смерть, портфель с деньгами, карусель персонажей с непроницаемыми лицами, туго сжатый острый сюжет и вывод, что игра гораздо более сложный процесс, чем это может показаться на первый взгляд.Жанр: Криминал, ДетективРежиссер: Саймон ДэвидсонАктеры: Тайлер Джонстон, Джулия Максвелл, Кэлам Уорси, Роберт МолониПеревод: ОтсутствуетПродолжительность: 01:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AA03857561B0C359DF014449160B0F138E7ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487157   (100346) от 23.04.2012
 
 Анна Селби | Гимнастика от стресса [2012] [PDF]
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100346.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:80B01C1AC2F1CF42E82C1ED8E4210DF82133273F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100347.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:AE7975E6CB4B91CB43D8940D5CF5DEA323CBB130
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100348.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100350.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100350.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Cattle Decapitation - The Harvest Floor (2009) [FLAC|Lossless]<Brutal Technical 
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100356.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ magnet:?xt=urn:btih:C994F6C67BEFAC3B6D42749F0A2CDB66A52A08FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100358.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100358.jpg" />
 </div>
 
 
@@ -162,7 +234,7 @@ magnet:?xt=urn:btih:C994F6C67BEFAC3B6D42749F0A2CDB66A52A08FD
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100362.jpg" />
 </div>
 
 
@@ -195,7 +267,7 @@ magnet:?xt=urn:btih:40817D6BC54C79B2A96598E7B6B49A7752FB7CE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100371.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:97D3A03450511D62CFCFC5F2F7C38B545248FD70
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100372.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:F99ADA6D1EC04000253166705794F0DAB452DFF4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100374.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ magnet:?xt=urn:btih:69F9E9928EB7B9560A2E0121E117311D9E747147
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100376.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:8800818E4E0144A71F35D0ABEA9C5F17C3293E5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100380.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:2CAB754ED72FDE41831B53764AAC5091E112957C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100382.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:0B1550822D08BABD236F4D0146CB74763DF1C1A5
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100383.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:FD656588E966367AA7F94A50433485084E12F18F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100384.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:3F7B93109E36089C3C05EAAB8CBE157CAF2A490F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100387.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:6DA97D392E5D2478D42C17EF86B42B90ED9D1DE4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100388.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Flowers Wallpapers
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100389.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:0AB6994B530052EE99BC062C9F7BF82543A65161
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100390.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ VA - Sense Of Trance #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100392.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ VA - Хиты на радио клубнячек и попса vol.9 (2012) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100393.jpg" />
 </div>
 
 
@@ -564,7 +636,7 @@ magnet:?xt=urn:btih:164EF86350B7353E79BFCACCDE25D3EFAC16CC1A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100395.jpg" />
 </div>
 
 
@@ -588,94 +660,13 @@ Mozilla Thunderbird 10.0.4 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100399.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100399.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487542   (100403) от 24.04.2012
-
-[Wallpapers] Best HD Wallpapers (25.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFA57CF6484CCBB437AF0559C41E53B6E02A2CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487239   (100404) от 24.04.2012
-
-Adamantine - Chaos Genesis (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chaos Genesis
- 2. Mechanical Empire
- 3. Death Comes To Us All
- 4. ... Of Hatred and Immortality
- 5. Poisoning The Well
- 6. Generation Of Saviours
- 7. Dying God
- 8. Nocturne
- 9. The Age Of Golden Trees
-10. As The World DiesЖанр: Thrash MetalПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54E4D3131551C30AA76516CDD0EE8016B3CB2FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487402   (100406) от 24.04.2012
-
-Вкycныe блюдa из кapтoфeля [2008] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом кулинарном руководстве каждая домохозяйка найдет рецепты лучших традиционных блюд из картофеля, известных во всем мире. Добавляя этот всеми любимый продукт, можно приготовить множество блюд: супы, салаты, гарниры, запеканки и др. Закуска ли это или основное блюдо, картофель подходит для любого семейного события.Формат: DJVU
 
 ## Скачать торент
 ```bash

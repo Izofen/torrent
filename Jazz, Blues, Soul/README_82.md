@@ -6,7 +6,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109458.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Steve Kuhn Trio - Looking Back (1990) Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Malachi Thompson - New Standards (1994) Delmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109517.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Buck Hill - Relax (2006) Severn Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109553.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lincoln Center Jazz Orchestra & Wynton Marsalis - Don't Be Afraid... The Music o
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109555.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gonzalo Rubalcaba - Discovery: Live At Montreux (1991) Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109557.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Buck Hill - Capital Hill (1990) Muse Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109558.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Patricia Manion - Blues 365 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109562.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mike Clark Band - 0-60 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109564.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris BadNews Barnes - BadNews Travels Fast (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109566.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nino Grandi Band - The Tales of the Wild Cat (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109567.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nick Evans Mowery - Midnight Faces (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109571.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Larry Sargent - The Mystery of the Vesica Piscis (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109572.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Baerum (Bærum) Blues Band - Going Wrong (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109573.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Big Dave McLean - This Old Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109574.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ PJ O'Brien - Jefferson Blues (2012) 2024 jefferson records [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109576.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109587.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Alex Voysey - Blues In Isolation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109615.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109616.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109617.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Andy Lindquist - Resuscitated (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109636.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109641.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109648.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kenny Barron - Wanton Spirit (1994) Verve [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109661.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ George Shearing & Brian Torff - Blues Alley Jazz (1979) 1989, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109669.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Kenny Barron - Things Unseen (1995) 1997, Gitanes [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109672.jpg" />
 </div>
 
 

@@ -1,3 +1,52 @@
+###  Публикация: 1088402   (140919) от 30.12.2016
+
+iSoftPhone Pro 4.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140919.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSoftPhone - удобный клиент для IP-телефонии
+iSoftPhone - программа представляет весьма оригинальный VoIP-клиент для Mac OS X. Интерфейс программы выполнен в виде телефона. iSoftPhone обеспечивает отличное качество голосовой связи. При этом программа довольно проста в настройке, имеет встроеную адресную книгу, а так же позволяет создавать виртуальную частную телефонную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 декабря 2016Разработчик: Xnet CommunicationsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970416   (140926) от 30.12.2015
+
+Torch Browser 45.0.0.10802 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torch Browser - браузер на платформе Chromium с расширенными возможностями: прямо из браузера можно будет скачать файл с торрента, сохранить видео, ускорить загрузку файлов, поделиться ссылками и т.д. Кроме этого, в Torch Browser встроены функции безопасности, призванные защитят пользовательские данные, а также обеспечить приватность деятельности в интернете.Язык интерфейса: Русский, Английский и Другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7697E6F54F8F04322D48A85EC0FE75CDD7AE4649
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435827   (140931) от 29.12.2020
 
 Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада пожарных (ТВ-2) [2020, TV, 24 из 24] WEB-DL 1080p raw
@@ -6,7 +55,7 @@ Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140931.jpg" />
 </div>
 
 
@@ -30,7 +79,7 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140936.jpg" />
 </div>
 
 
@@ -54,7 +103,7 @@ Bulk Image Downloader Lite 5.86.0.0 repack by Wadimus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140937.jpg" />
 </div>
 
 
@@ -78,7 +127,7 @@ PDF Expert 2.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140943.jpg" />
 </div>
 
 
@@ -104,7 +153,7 @@ Cradle Orchestra - Transcended Elements (2010) [FLAC|Lossless|tracks + .cue] <Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140950.jpg" />
 </div>
 
 
@@ -131,7 +180,7 @@ Metadata Converter Pro for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140955.jpg" />
 </div>
 
 
@@ -155,7 +204,7 @@ Performance Index 64 Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140960.jpg" />
 </div>
 
 
@@ -179,7 +228,7 @@ magnet:?xt=urn:btih:9F355C95AB4218FAF4483C4028DA75DD9E17B79F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140966.jpg" />
 </div>
 
 
@@ -204,7 +253,7 @@ Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140974.jpg" />
 </div>
 
 
@@ -230,7 +279,7 @@ Risssing - The Four Seasons (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140975.jpg" />
 </div>
 
 
@@ -257,7 +306,7 @@ magnet:?xt=urn:btih:7FAAC4E1830F44ED14E9F10A20C82793C52EA872
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140987.jpg" />
 </div>
 
 
@@ -284,7 +333,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.4 Build 4969 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140988.jpg" />
 </div>
 
 
@@ -308,7 +357,7 @@ magnet:?xt=urn:btih:639C4540813B0E8511DB1ABC0D7D5AF14F158B38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141001.jpg" />
 </div>
 
 
@@ -332,7 +381,7 @@ Margenta & Андрей Кустарёв - Дым. Крепости. Волк. (
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141004.jpg" />
 </div>
 
 
@@ -359,7 +408,7 @@ magnet:?xt=urn:btih:90F38C1EB199588B793B273F87D29EDFFB949D7F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141006.jpg" />
 </div>
 
 
@@ -386,7 +435,7 @@ Cradle Orchestra - Velvet Ballads (2009) [FLAC|Lossless|tracks + .cue] <Hip-Hop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141010.jpg" />
 </div>
 
 
@@ -413,7 +462,7 @@ magnet:?xt=urn:btih:63D0353E097EDC34866C7CFAA1323D897FB07B3F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141019.jpg" />
 </div>
 
 
@@ -437,7 +486,7 @@ magnet:?xt=urn:btih:7AAB0E959C6D73F726BFC2F4ECB147B6CF0AB559
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141025.jpg" />
 </div>
 
 
@@ -461,7 +510,7 @@ magnet:?xt=urn:btih:6F5094D7DE31B911C652C31AA3234FE2F07EFAE0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141027.jpg" />
 </div>
 
 
@@ -485,7 +534,7 @@ magnet:?xt=urn:btih:9866EDFEC5196133586B714AD3D260714A3B436E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141050.jpg" />
 </div>
 
 
@@ -510,7 +559,7 @@ vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141061.jpg" />
 </div>
 
 
@@ -534,7 +583,7 @@ News Explorer 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141070.jpg" />
 </div>
 
 
@@ -561,7 +610,7 @@ Gallery for VK 1.4 [Ru/En] (авторская раздача)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141080.jpg" />
 </div>
 
 
@@ -588,7 +637,7 @@ JetBrains PyCharm Professional for Mac 2023.2.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141081.jpg" />
 </div>
 
 
@@ -599,54 +648,6 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EBA34D780049B1BCA3A914D73465A155B60F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435684   (141087) от 29.12.2020
-
-DesktopSnowOK 5.11 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавить немного ощущение зимней магии с помощью DesktopSnowOK - небольшой утилиты, которая украшает рабочий стол падающими снежинками . Программа легко настраивается, не требует установки. Количество снежинок, которые одновременно появляются на экране можно менять. Минимально количество - 5, максимальное 64. Нужно отметить, что количество снежинок близкое к 30 создает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC55202DEB193C1F565BD06AB2A98EE5BE85F43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970539   (141093) от 30.12.2015
-
-Wise Care 365 Pro 3.95.353 Final RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F4468ACFB6327F073515B2F15E8B30DB76CD23
 ```
 
 

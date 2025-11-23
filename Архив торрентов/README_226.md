@@ -6,7 +6,7 @@ OpenVPN 2.6.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52602.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Bridge 2024 14.1.1.274 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52604.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tor Browser Bundle 13.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52605.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Gigapixel AI 7.2.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52615.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ R-Studio Network 9.4 Build 191329 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52617.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8CA7FAC114C9CAFA98875FEC5EDDC72B5C90572C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52626.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Internet Download Manager 6.42 Build 12 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52632.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8C9E0D3BB978A36EB332E21A5D27FFF0E2E5BC12
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52639.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ USB Device Tree Viewer 4.3.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52668.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Firefox Browser 127.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52669.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Vivaldi 6.8.3381.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52672.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Brave Browser 1.67.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52673.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ventusky: Прогноз погоды v36.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52674.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Photo Lab PRO v3.13.14 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52676.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:BCC258B40D35630D119C49222CB207CE169731CA
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52678.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Kdenlive 24.05.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52680.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Opera GX 109.0.5097.142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52685.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:0C939D090B3D4F90E10950B1E5B24F0C7462AA94
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52691.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:65F0F3A0CADD8E21264EBC5B2B092A37971874DA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52692.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ iFind Data Recovery 9.1.4.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52715.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:2EB332FD02A8E721E8273AE771C0A142EFC47AE7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52717.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Display Driver Uninstaller 18.0.7.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52725.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ CorelDRAW Technical Suite 2024 25.1.0.269 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52729.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ CCleaner 6.25.11093 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52735.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Premiere Pro 2024 24.5.0.57 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52750.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Adobe Photoshop 2023 24.7.4.1251 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52754.jpg" />
 </div>
 
 

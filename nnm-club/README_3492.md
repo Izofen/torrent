@@ -1,3 +1,81 @@
+###  Публикация: 1719858   (110474) от 01.05.2024
+
+Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2023-2024. 1/2 Финала. Бавария (Германия) - Реал (Мадрид, Испания) (30.04.2024)
+СУДЬЯ Тюрпен Клеман (Улинс, Франция)
+Судья на линии 1: Дано Николя (Франция)
+Судья на линии 2: Пажес Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч! ФутболЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70807BBC8DD716AAF14816AFB7CA4CBAF2D79B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719966   (110475) от 01.05.2024
+
+Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озора Хироши изобретает Мол, устройство, которое делает пользователя непобедимым. Однако его планы стать супергероем недолговечны, когда его сестра Мирай случайно меняет конфигурацию костюма. Теперь она сама вынуждена в одиночку спасти Токио от злого Машингала и его банды андроидов, состоящих исключительно из женщин.Производство: Студия AICЖанр: приключения, комедия, фантастикаРежиссер: Китадзумэ ХироюкиПеревод: LexThornЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325C744EE2464345DD9695B72AAF8B8AE929BE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719616   (110476) от 01.05.2024
+
+Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Punjab of Java Po' [5:29]
+02. Big Girls [5:42]
+03. Falling in Love with Love [6:32]
+04. 7th Avenue [5:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5425FBE4D44D2DD6B8C864FE94CEEEBD04B51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719535   (110477) от 01.05.2024
 
 The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
@@ -6,7 +84,7 @@ The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110477.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110478.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:53AE5CD30C5F3062EC4611EB0D8A4F42083E0BD9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110479.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Niels van Gogh - Miami (2023) [FLAC|Lossless|tracks] <EDM, Club House, Dance-Pop
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110480.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ magnet:?xt=urn:btih:B1961573AA870C2D5969CE922688C445A6A47F06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110481.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110482.jpg" />
 </div>
 
 
@@ -161,7 +239,7 @@ Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110483.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110484.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Apenheart - Realizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jaz
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110485.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110486.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Amon Duul II - Yeti (1970) Japanese Edition, Reissue, Remastered, 2005, Belle An
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110487.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ magnet:?xt=urn:btih:C1904BA50363A58F4ADE3487066CB8F35208D082
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110488.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Burning Black - Resilience of a Broken Heart (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110489.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ ACOD - Versets Noirs (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110490.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Vesperian Sorrow - Awaken The Greylight (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110491.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ Alchemist - Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110492.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110493.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110494.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ magnet:?xt=urn:btih:537F22DCBBD582D7AEA5364324B37E0011E7533B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110495.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ VA - Ibiza Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110496.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ magnet:?xt=urn:btih:AD380DA80357897E993BC9768BD9095C0BDAC4BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110497.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ Opera GX 109.0.5097.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110498.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110499.jpg" />
 </div>
 
 
@@ -596,79 +674,6 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E7A18339D39593BD48C8678BC86B45D3EBB9BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719762   (110500) от 30.04.2024
-
-Adobe InCopy 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-Adobe InCopy позволяет авторам и редакторам текстов (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54DE0C710B1A892B0395F7B4D52F4D75D088EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719601   (110501) от 30.04.2024
-
-Firefox Browser 125.0.3 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D607EB902C8B7B8773D61579F9AFA91C201B74C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719806   (110502) от 30.04.2024
-
-Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022, Movie] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые полчаса фильма - это пересказ (краткий, но дословный) первых сезонов сериала так, что может создаться впечатление нудного повторения. Но наберитесь терпения! После 30-й минуты и до конца фильма (т.е. на протяжении еще часа экранного времени) перед нами разворачивается довольно интересная история отношений родителей Хонды Тору. Впервые мы видим её отца, больше (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: повседневность, романтикаРежиссер: Ибата ЁсихидэПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C001348607DFD77D026981797346D12D5B7F85
 ```
 
 

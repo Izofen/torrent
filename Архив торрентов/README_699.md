@@ -1,3 +1,78 @@
+###  Публикация: 969666   (146839) от 27.12.2015
+
+NewWeather 2.3 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146839.jpg" />
+</div>
+
+
+###  Подробнее
+
+New Weather - это погодный информер с перекидными часами и различной графикой для отображения текущего состояния погоды. Данные о прогнозе погоды предоставляются FORECA с помощью сервиса Яндекс.Погода.Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7853E6F49389C62FF893A8D17B40AA6F6D58EBF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519812   (146845) от 25.12.2021
+
+Comodo Dragon 96.0.4664.110 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comodo Dragon - быстрый универсальный браузер на базе технологии Chromium (на основе которой создан, в том числе и браузер Google Chrome) с дополнительными функциями, повышающими безопасность и конфиденциальность. Обеспечивает повышенную конфиденциальность, превосходящую технологии Chromium, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C184DDBD0011808BFDA2E33090B8D27DDCF05986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087437   (146860) от 27.12.2016
+
+URL Manager Pro 4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146860.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 декабря 2016Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.6.9 +Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0B606EE8B57553EF27D23285AA24F8B71CC070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 739508   (146867) от 28.12.2013
 
 Журнал | Моя прекрасная дача №1 (январь 2014) [PDF]
@@ -6,7 +81,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146867.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:45452DBBA61D17DD048A4578001E6ADE76818A04
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146887.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Internet Download Manager 6.36 Build 1 RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146888.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:F6517BC654283CD36F82D6BE36388AD49C8ACC2C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146893.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:6B54D02179BB52384BF15BFD0C14B838A458AD84
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146904.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Steinberg Nuendo 13.0.10.123 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146906.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Soft Organizer Pro 7.40 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146913.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ All language translate app v1.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146919.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:6652EF65B4B4E3882A41FB53AD6625CE9809364C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146926.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:8886A76B35FEAC0DD6D802CF039C2156BB62DB43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146932.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ BLAME! | Блам! [2017, Movie] BDRemux 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146939.jpg" />
 </div>
 
 
@@ -272,7 +347,7 @@ Aiseesoft Video Converter Ultimate 10.7.32 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146949.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ VA - Trance Collection by Yeiskomp Records Vol.1 (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146962.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ The Bat! Professional 9.0.16 christmas [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146963.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ WSCC (Windows System Control Center) 7.0.0.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146966.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ WinTools.net Premium 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146979.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ Total Commander 11.02 (19.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146981.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ magnet:?xt=urn:btih:3FDDF294A7A13BFD30BB31E7589CD2A96E958610
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146988.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ mp3DirectCut 2.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146989.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ magnet:?xt=urn:btih:0656757F0F5368908347C44F88A954F77B596BC8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146992.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:B4CF0858E2D61E367B674B990E971712B015F5A5
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146998.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ Wise Care 365 PRO 6.1.4.601 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146999.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ Movavi PDF Editor 3.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147007.jpg" />
 </div>
 
 
@@ -551,79 +626,6 @@ Movavi PDF Editor 3.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7632FFF2EBB7E02DBF152859DB7D5FEFC5CCA015
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678240   (147009) от 20.11.2023
-
-ФотоМОНТАЖ 2.31 (x64) Portable by 7997 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147009.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMS ФотоМОНТАЖ – редактор фото с поддержкой слоев. Вы сможете освоить профессиональную ретушь лица, соединить несколько изображений, убрать лишние объекты, заменить фон и улучшить качество снимков.
-Содержит 180+ объектов и текстур, современные фильтры и 3D LUT. Можете сделать коррекцию тона и освещения автоматически или вручную.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7608CAA78CBB8B6388F1E7970CF809F2A349F72E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678221   (147011) от 20.11.2023
-
-CrystalDiskInfo 9.2.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147011.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D79145F099F908996FB715C8A0EF238E983C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969559   (147035) от 27.12.2015
-
-7-Zip 15.12 Final RePack (& Portable) by D!akov (27.12.2015) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147035.jpg" />
-</div>
-
-
-###  Подробнее
-
-7-Zip - очень хороший и качественный архиватор, который превосходит многих конкурентов и поэтому все больше пользователей останавливают выбор именно на нем. Забота разработчика программы проявляется в распространении 7-Zip по всему миру, переводу программы на 87 языков мира, среди которых есть и русский.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922043BA86EFD580365A85AA4D006BA3762A74F7
 ```
 
 

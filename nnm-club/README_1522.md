@@ -6,7 +6,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39926.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E536F867C917A5B5DF265D5FF402183A02EC642
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39927.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1E536F867C917A5B5DF265D5FF402183A02EC642
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39928.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adobe Photoshop 2025 26.0.0.26 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39929.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39930.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9654A0FA823CCD4B24316C82BEC3D0D5092921E0
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39931.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B7324BFCC33CB3D4EF62DEB0D8DBB820E1290A98
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39932.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:968322FAE7BDA8BE6922A6C94E8E83E500ECF869
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39933.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Call of Duty: Black Ops II (2) (2012) [Ru/En] (1.0.0.1 Update 3/dlc) Repack Othe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39934.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:96A8E052C09F7A4BE5C14F675498A593B046020F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39935.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:97B1692B7D837C531DCC2F041F271F7C6ED152F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39936.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:DE88986308B88481EE8F76CAFEDAEE2095355594
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39937.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D54C208A4A5CC077A6BF31AFD540B1F5B836EBCF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39938.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39939.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Elf-san wa Yaserarenai | Plus-Sized Elf | Эльф не может похуде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39940.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:769AFC21D6C4BE0D39A0205AFCF1552E4A3D3B82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39941.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:551388C3959A3437DBE204A25C1388669D4AA939
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39942.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:1EBD1DB43DAD513973B88472B282DD12AD613930
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39943.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5882D3B173D165B1F519616932B3A97F20C5BF91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39944.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39945.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:69B753ACA1F46EF974498C8FED0674D8A4FEBFD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39946.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:4027B11AFFB74D08D5657B6B3534E7CEE628DA6E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39947.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:91B22B52D4BADA4E14AA61610DF535BCFB51125C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39948.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Excite Audio - Bloom Palette Object 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39949.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Константин Ступин. Трибьют. Часть 3 (2024) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39950.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ocenaudio 3.14.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39951.jpg" />
 </div>
 
 

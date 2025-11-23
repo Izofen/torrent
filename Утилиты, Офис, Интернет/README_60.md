@@ -1,3 +1,75 @@
+###  Публикация: 1642884   (210257) от 29.06.2023
+
+DVDFab StreamFab 6.1.2.8 (x64) RePack (& Portable) by xetrin [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210257.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab StreamFab - это наиболее полное решение для скачивания видео, позволяющее загрузить видео с сайта Amazon Prime, Netflix, Hulu, Disney +, HBO и 1000 + других потоковых сайтов. DVDFab StreamFab позволяет загружать видео в формате HD 720p или Full HD 1080p. Кроме того, у вас есть возможность загрузить видео с аудиоканалами EAC3 5.1, AC3 5.1 или AAC 2.0.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A5614CDA4E4DB6E64F4B1B86E32D9E2F31A742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603820   (210287) от 11.01.2023
+
+CyberLink Screen Recorder Deluxe 4.3.1.25422 RePack by PooShock [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210287.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink Screen Recorder 4 обеспечивает надежный захват рабочего стола и потоковую передачу видео в одном приложении. Комментаторам игр и создателям онлайн-контента больше не нужно манипулировать несколькими приложениями или службами для многопотокового видео или редактирования снимков рабочего стола для публикации на YouTube или Facebook. Screen Recorder сочетает (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F094D6F7F616A86970EB6E6B5A94CC370F7955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603675   (210375) от 10.01.2023
+
+Driver Booster Pro 10.2.0.110 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C726973C621802219FE7C5B94223BCD89ACB86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640899   (211018) от 19.06.2023
 
 CPUID HWMonitor Pro 1.52.0 (x64) Portable by FC Portables [En]
@@ -6,7 +78,7 @@ CPUID HWMonitor Pro 1.52.0 (x64) Portable by FC Portables [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211018.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211018.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ AntispamSniper for The Bat! & Voyager 3.3.5.3 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211022.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211022.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Product Key Explorer 4.3.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211801.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ CleanMyPC 1.12.2.2178 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211803.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211803.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Office Timeline Pro 6.07.06.00 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211942.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ YT Downloader 9.17.16 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212125.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Screaming Frog SEO Log File Analyser 6.4 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212131.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212131.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Tor Browser 15.0 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212170.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212170.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ MyPhoneExplorer 2.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212171.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212171.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ ManicTime 2025.3.0.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212192.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212192.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Wondershare PDFelement 12.0.8.3784 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212197.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212197.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Google Chrome 142.0.7444.60 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212235.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Flyoobe 1.41 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212246.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212246.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ iTubeGo YouTube Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212268.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212268.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Glary Utilities Pro 6.33.0.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212271.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212271.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ W10Privacy 5.3.0.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212273.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212273.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ Opera One 123.0.5669.23 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212380.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ Screaming Frog SEO Spider 23.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212391.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212391.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ Revo Uninstaller Free 2.6.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212408.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ TechSmith Camtasia 25.2.4 Build 12581 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212441.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212441.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ O&O ShutUp10++ 2.1.1015 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212445.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212445.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ FurMark 2.10.2.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212457.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212457.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ TechSmith SnagIt 2025.4.0 Build 8498 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212497.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ Snagit предлагает неограниченные возможности 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C2CD58BBE379388B8379D0E99D1CC313027C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560262   (212998) от 28.06.2022
-
-Windows 11 Disable Or Restore Rounded Corners Portable 1.0.0.3
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 приносит много новых визуальных улучшений, и пожалуй одной из самых заметных особенностей являются закругленные углы вокруг окон. Хотя закругленные углы в проводнике, стороннем программном обеспечении и браузерах выглядят хорошо, некоторым пользователям Windows 11 эти изменения могут не понравиться, и они захотят отключить закругленные углы вокруг окон. (   Читать дальше...   )Язык интерфейса: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ECEB47F95017182848ECA279F6EDDD4FB273D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300553   (213353) от 14.06.2022
-
-Registry Clean Expert v4.83 [En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Registry Clean Expert - программа для сканирования реестра на предмет неправильной или устаревшей информации. Благодаря изменению таких данных в реестре система начинает работать быстрее и без ошибок. Программа имеет опцию резервного копирования и восстановления реестра на случай, если система даст сбой. Кроме этого, используя Registry Clean Expert, вы можете управлять (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4497510CB21CAC9A748556EC6F59EBDCD95D7BE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832255   (213421) от 30.10.2025
-
-PrivaZer Pro 4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213421.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C13F2C35359832F55621295F6FA390E1815F324
 ```
 
 

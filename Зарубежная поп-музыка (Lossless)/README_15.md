@@ -6,7 +6,7 @@ ABBA - The Definitive Collection (2001) [FLAC|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147013.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147162.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147245.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147383.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147414.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147681.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147707.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147976.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Glory of Love: Classic Love Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148098.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148566.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148751.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148910.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149071.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149107.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149228.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149357.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149916.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Ja
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150649.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150670.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150717.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150794.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150971.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151472.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151735.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Li
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152469.jpg" />
 </div>
 
 

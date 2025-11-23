@@ -1,3 +1,77 @@
+###  Публикация: 1697605   (118846) от 07.02.2024
+
+ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Reviver – это приложение, которое просканирует вашу систему на предмет устаревших драйверов и предложит их обновить. Сканирование производится по одной из самых больших баз драйверов, что гарантирует поддержку очень многих устройств. С использованием Driver Reviver все ваши устройства ПК будут работать максимально быстро и эффективно. Устаревшие драйвера могут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C05672997994F0ED9B04D2A6E38F95AF2B87BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697558   (118847) от 07.02.2024
+
+Американское чтиво / American Fiction (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известного писателя и профессора литературы Телониуса «Монка» Эллисона критикуют за то, что его работы «недостаточно чёрные». В попытке завоевать внимание аудитории он пишет анонимный роман, вобравший в себя все стереотипы о темнокожем населении США. Книга моментально становится сенсацией, и теперь Монку придётся лично мириться с масштабными последствиями.Производство: США / 3 Arts Entertainment, Media Rights Capital, Metro-Goldwyn-Mayer (MGM)Жанр: драма, комедияРежиссер: Корд ДжефферсонАктеры: Джеффри Райт, Трэйси Эллис Росс, Исса Рэй, Стерлинг К. Браун, Джон Ортис, Эрика Александр, Лесли Аггамс, Адам Броди, Кит Дэвид, Окьерете ОнаодованПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072A0E98C8BB9D39EE2759CA26E824EA6F913B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697657   (118848) от 07.02.2024
+
+Олег Сапфир, Алексей Ковтунов | Идеальный мир для Лекаря (Книга 7) (2024) [MP3, Александр Башков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории про лекаря из другого мира.
+Нет смысла пересказывать в аннотации события из предыдущей части.
+Да и спойлерить, что будет в этой не буду...Жанр: Боевое фэнтези, Бояръ-АнимеИздательство: Author TodayПродолжительность: 07:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4523CADED4BA2B38968810F40B7F53CEC77F27AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697707   (118849) от 07.02.2024
 
 Всемирный потоп / The End We Start From (2023) WEBRip [MVO] [AD]
@@ -6,7 +80,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118849.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118850.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ AutoRuns 14.11 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118851.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ WinNTSetup 5.3.3b Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118852.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:4CA1837A4A3A83F38A74F5A1EEC8252EDCB9ABBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118853.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ magnet:?xt=urn:btih:E19215D028D8EEFFB851AB63B209F6E949AF1BB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118854.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ DxO PhotoLab Elite 7.4.0 build 151 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118855.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:06F00357F301C3C1A9D85B15E8B7891222057CBA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118856.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:752DA6FA78E9434012DD6C06FC48E47204118AB9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118857.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ magnet:?xt=urn:btih:27BBFBB4AD7B5564A8DF018840A48432F5EA4E8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118858.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ magnet:?xt=urn:btih:974635F57C8F05BC65DBFFFFF823EDE118791082
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118859.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ magnet:?xt=urn:btih:974635F57C8F05BC65DBFFFFF823EDE118791082
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118860.jpg" />
 </div>
 
 
@@ -297,7 +371,7 @@ magnet:?xt=urn:btih:BD7E11DCA0FA73AFFB223D236465039CB223AFAB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118861.jpg" />
 </div>
 
 
@@ -321,7 +395,7 @@ magnet:?xt=urn:btih:82F321C6F7CF9C4002995B966CD283D28BC96B8B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118862.jpg" />
 </div>
 
 
@@ -345,7 +419,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118863.jpg" />
 </div>
 
 
@@ -369,7 +443,7 @@ magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118864.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ magnet:?xt=urn:btih:6914244E1BE9E079F1B9AE56C4A80B83766B2B7B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118865.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118866.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118867.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:2E526314D4F7FFA98D9D51B8F323942DB55DAFCF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118868.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:15E2D6CB4F36A7785C50011BFE9B71F2A9333B11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118869.jpg" />
 </div>
 
 
@@ -514,7 +588,7 @@ Stray - 14 Albums (1970 - 2017) 20 CD [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118870.jpg" />
 </div>
 
 
@@ -541,7 +615,7 @@ magnet:?xt=urn:btih:832E558FA4A73B006FA121D28FCEEF2F0C67AA3B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118871.jpg" />
 </div>
 
 
@@ -553,78 +627,6 @@ magnet:?xt=urn:btih:832E558FA4A73B006FA121D28FCEEF2F0C67AA3B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A1710E8498575CAB2CFDCC65659C6DDCEA1CDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691801   (118872) от 07.02.2024
-
-Цветы для Элджернона / Цветы для Алджернона / Des fleurs pour Algernon (2006) WEBRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элджернон — это мышь, которой в лабораторных условиях повысили уровень интеллекта. Вдохновленные успехом ученые-экспериментаторы решают опробовать свое открытие на людях. Их пациентом становится умственно отсталый Шарль. Эксперимент удается, и Шарль начинает жить нормальной жизнью. Он добивается успехов на научной ниве, влюбляется в девушку Алису. Однако вскоре он (   Читать дальше...   )Производство: Франция, Швейцария / Image & Compagnie, France 2 (FR2), Bohemian FilmsЖанр: фантастика, драмаРежиссер: Давид ДельриеАктеры: Жюльен Буасселье, Элен де Фужроль, Марианн Басле, Фредерик ван ден Дрише, Оливье Перрье, Вероника Маттана, Франсуа Флори, Жан-Пьер Гос, Антонио Тройло, Антониета МартенПеревод: Многоголосый профессиональный (Телеканал «Культура»)Язык озвучки: Русский, ФранцузскийСубтитры: отсутствуютПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2087923053663D5388FA6B32ECF7ACA5509801D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697553   (118873) от 07.02.2024
-
-Международная космическая станция / I.S.S. (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда между США и Россией начинается война, обе стороны связываются со своими космонавтами на борту МКС и ставят им цель взять станцию под контроль любыми средствами.Производство: США / Liddell Entertainment, Fantasy Creations FXЖанр: триллер, драмаРежиссер: Габриэла КаупертуэйтАктеры: Ариана Дебоуз, Крис Мессина, Джон Галлахер мл., Мария Машкова, Коста Ронин, Пилу АсбекПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (forced, SDH)Продолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9430212B630EA3E79F9A19E416210E46E1D85BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697599   (118874) от 07.02.2024
-
-Google Earth Pro 7.3.6.9750 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором мы живем, теперь у вас под рукой! Корпорация Google выпустила новую версию программного пакета под названием Google Earth. Приложение предназначено для работы с одноименным сервисом, который позволяет просматривать спутниковые снимки планеты Земля в 3D-режиме, используя для этого технологию OpenGL. Присутствуют функции для поиска по адресам, по объектам. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0474A7790E65839792A51E1E5C16D39110C60E4A
 ```
 
 

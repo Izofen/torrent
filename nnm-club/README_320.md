@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8ED787F999EC764D3B601337C2B331565EE444DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8415.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B6447A2B648029F4EB7C06D059054D7773C7471F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8416.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Rock songs para gising sa biyahe (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8417.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Feel-Good Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8418.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5F5FCDF3ECB932D62CC75D686640A7B25C759893
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8419.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5A513F83ECF76DD1CA5718695903860458A320BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8420.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:C7806D6016980DA9F960B90A2FC66EE1D0BFEDB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8421.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [MP3|320 Kbps] <Gothic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8422.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4CDAA0D271FA4E2E533BA6569D22DF1DEB86ED97
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8423.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:7858A57036B1A4E3D77EE8F3AEEA35E80E718649
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8424.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:37984AF01E2ECC0587B26829269B4F99192ECD9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8425.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:594CBA271167ED720AB33EC8F06905E0A161C7E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8426.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:1698B9863F3E692FF692BBFEDFF6562FDDB3A581
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8427.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Hard Rock 2000s (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8428.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:3354B68D966A0211DE8864E85A91BF147D362E3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8429.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:FA77F749E2E955C022ED316596938BABB12C4FFB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8430.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:13CEB7BA92D8BEFA9B13376DE4EA3D05283B3C7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8431.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D310D7DBE5AFAD5E5515BA9F6CB58A962BAE6534
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8432.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:60D5C514D977017EA75DF77A0B24DEC827D7B192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8433.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Paul McCartney - Amoeba Gig (2019) SHM-CD, Japanese Edition, Reissue, 2025, Capi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8434.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:BCA36E038105F448D7D39FFFB2E1CA23A6AB8E08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8435.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Jazz & Chill Bestsellers 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8436.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2A9FFDAC45132F7158837A3CF3381F58BFDEFF3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8437.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:0BB47D29AF4A1D88973C4C506423BF854C2A3FB1
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8438.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:9D477D2D5F6F808C6AC500B4266FD5347B9C5E7B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8439.jpg" />
 </div>
 
 

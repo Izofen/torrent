@@ -1,3 +1,75 @@
+###  Публикация: 1702786   (115622) от 26.02.2024
+
+Хоббит: Битва пяти воинств / The Hobbit: The Battle of the Five Armies (2014) UHD BDRemux [H.265/2160p] [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда отряд из тринадцати гномов нанимал хоббита Бильбо Бэгинса в качестве взломщика и четырнадцатого, «счастливого», участника похода к Одинокой горе, Бильбо полагал, что его приключения закончатся, когда он выполнит свою задачу - найдет сокровище, которое так необходимо предводителю гномов Торину. Путешествие в Эребор, захваченное драконом Смаугом королевство гномов, (   Читать дальше...   )Производство: Новая Зеландия, США /  New Line Cinema, Metro-Goldwyn-Mayer (MGM), WingNut FilmsЖанр: фэнтези, приключения, боевикРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн Маккеллен, Ричард Армитедж, Люк Эванс, Эванджелин Лилли, Ли Пейс, Орландо Блум, Бенедикт Камбербэтч, Кен Стотт, Эйдан ТернерПеревод: ДублированныйЯзык озвучки: русскийСубтитры: русские (forced)Продолжительность: 02:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681805E8FB195C5E499667F12F55AE7F2BBD6FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702010   (115623) от 26.02.2024
+
+Mercedes-Benz разочаровалась в электромобилях и расширяет линейку ДВС
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mercedes-Benz сдвинула свои цели по электрификации автомобилей на пять лет и заверила инвесторов, что продолжит совершенствовать модели двигателей внутреннего сгорания (ДВС), отметив более слабый, чем ожидалось, интерес к электромобилям. Компания сместила свой прогноз по срокам достижения электромобилями 50-процентной доли в глобальных продажах, включая гибриды, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702643   (115624) от 26.02.2024
+
+Пила. Джокер / Темная игра / DarkGame (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маньяк в прямом эфире запускает реалити-шоу, в котором собраны все самые жестокие игры на выживание. Похищенные им жертвы выполняют сложные задания, а цена проигрыша — жизнь. Пока миллионы людей по всему миру наблюдают за этой смертельной игрой, упрямый и не терпящий поражений детектив разгадывает головоломку, чтобы выйти на след преступника.Производство: Великобритания / Happy Hour Films, Happy Hour Productions, JCG BitsЖанр: ужасы, триллерРежиссер: Ховард Дж. ФордАктеры: Эд Вествик, Эндрю П. Стивен, Наталья Цветкова, Лола Огуньеми, Рори Александр, Эндрю, Мицли Роуз, Энтони Офоэгбу, Наташа Скутка, Джо УрхартПеревод: Двуголосый профессиональный (ViruseProject | 18+)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5F08C60CB170403C9070EC9E9824BF4264A61C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702790   (115625) от 26.02.2024
 
 Ильяс Низамутдинов | Мастерство отладки в 1С + Расширения конфигураций 1С (2024) WEB-DL [AD] [RU]
@@ -6,7 +78,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115625.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115626.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:0FD817F37896869B51E2E953DCA5AA68F1555340
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115627.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:C99ACD565B131CC5DCC825293036AEEF26180F15
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115628.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:D050DEF0CC2DA6D497C14E14F94BB17A8DC5CA3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115629.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115630.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115631.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:8249840105C315BBEBBF9F3A01A976D4A8DA7359
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115632.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ uTorrent Pro 3.6.0 Build 47016 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115633.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:91F9FCE8005311C500755A115FFE27365F3D636D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115634.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Adobe Acrobat Reader 2023.008.20555.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115635.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Windows 10 Debloater 2.6.11 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115636.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ Adobe Acrobat Pro 23.8.20555 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115637.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115638.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115639.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:D7DB178814B7EA41100FD974A89C81ED3D4D1DF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115640.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:7364DE47961F14D6668760BECC159D94862A754D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115641.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:557257C6C6A1FE52C30E7BD498C475AC74188371
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115642.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 02.2024 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115643.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:F1254EECA48DE0D9C0F6928E061E2A5292C642AF
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115644.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:5EBDD3D6E2AEA40FFB305131D95D7BF6CEE8ACED
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115645.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:1D609EDD0278BA3673E4ECA863197D34BCD1413A
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115646.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115647.jpg" />
 </div>
 
 
@@ -556,78 +628,6 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694294   (115648) от 26.02.2024
-
-Час истины / Hour of Lead / The Vanished (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115648.jpg" />
-</div>
-
-
-###  Подробнее
-
-У супружеской пары, остановившейся в кемпинге на берегу реки, бесследно пропадает дочь. Полиция не в силах отыскать девочку, но муж с женой не остановятся ни перед чем, чтобы найти своего ребенка. Однако никто не догадывается, что за этим исчезновением скрывается страшная правда.Производство: США / Adonais Productions, Benay's Birds & Animals, Brickell & Broadbridge InternationalЖанр: ужасы, боевик, триллер, криминалРежиссер: Питер ФачинеллиАктеры: Энн Хеч, Томас Джейн, Джейсон Патрик, Алекс Хейдон, Питер Фачинелли, Алексей Арчер, Кристофер Венте, Джон Д. Хикман, Митчелл Л. Джонсон, Кейкей ХеймПеревод: Дублированный (Нарышкин)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30DB285107D1AC5115DC14DC364687B104AC41B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694275   (115649) от 26.02.2024
-
-Тысяча и один / A Thousand and One (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115649.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как непримиримая и отчаянно преданная Инес похищает своего сына Терри из приемной семьи, мать и сын отправляются на поиски своего дома, идентичности и стабильности в быстро меняющемся Нью-Йорке.Производство: США / Focus Features, Hillman Grad, Makeready, Sight Unseen PicturesЖанр: драма, криминалРежиссер: А.В. РокуэллАктеры: Тейяна Тейлор, Аарон Кингсли Адетола, Авен Кортни, Джозиа Кросс, Уильям Кэтлетт, Терри Эбни, Делисса Рейнольдс, Амелия Уоркмэн, Адриан Ленокс, Гэвин ШлоссерПеревод: Дублированный (License)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), Английские (Full, SDH)Продолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE0D20232235859CF26C176CFD9DE89186FEF94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702746   (115650) от 26.02.2024
-
-Adobe Acrobat Pro 2023.008.20555 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EF8B91A1EB1CCE7CE610244073976F6D6E6F29
 ```
 
 

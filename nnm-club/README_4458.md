@@ -1,3 +1,75 @@
+###  Публикация: 1088657   (137848) от 31.12.2016
+
+Mozilla Thunderbird 45.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderbird — 12 декабря 2004 года появилась бесплатная программа для работы с электронной почтой от Mozilla. Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA323A1A59E8D60CB46EC2B5DF6270B0D5D91A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195863   (137849) от 31.12.2017
+
+Джой / Joy (2015) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: США / 20th Century Fox, Annapurna Pictures, Davis Entertainment, TSG EntertainmentЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Дайан Лэдд, Вирджиния Мэдсен, Изабелла Росселлини, Даша Поланко, Элизабет Рём, Сьюзэн ЛуччиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, немецкие, итальянские, норвежские, шведские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FAADBBD2BC9CC1E174D925AE1A64547AFCD3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520997   (137850) от 31.12.2021
+
+Ледяная история (2021) WEB-DLRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137850.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Стране Холода, где правит добрая королева Морожана и делают для детей мороженое, вдруг захватил власть злодей Сосулька. Девочка Варя, мальчик Артем и его Дедушка вступают в борьбу, волшебный сироп Добра спасает Варю и разрушает планы Сосульки. Друзья и Дедушка вновь запустили конвейер со старым добрым мороженым, что несет детям радость и добро.Производство: Россия / «Cinemaus Studio»Жанр: Семейный, фэнтези, приключенияРежиссер: Сергей РусаковАктеры: Камилла Войтова, Дмитрий Зориков, Полина Павлова, Владимир Глазков, Яна Пронина, Федор Сухов, Екатерина Королева, Наталья Фатеева, Ян РешетниковПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4D3FF79C4A8063ACAACE9923FC022EEDA60116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679373   (137852) от 25.11.2023
 
 Plus Messenger (Telegram+) v10.2.9.1 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +78,7 @@ Plus Messenger (Telegram+) v10.2.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137852.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0ED80EFF2E071ED18CFC8D9132074CA74C108421
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137853.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:5498DC34D69584C8BF700DEB3D02E68C115C450F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137854.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:367CDDC695F9426C364DA843C945CB481528BFA0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137855.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ VideoHive - The Wedding Roses - 5580414 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137856.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137857.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:77513E96CC70B0D1D56C75D7C80D1F4D9541B0A8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137858.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Tammetõru (Tammetoru) - 2001​-​2009 (2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137859.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:CDE8AE34FC98F194BC9A4C2930F6244A0DDC1048
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137860.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:97FD5C94AFF4A57909AAB4AC53EB14BB63F588EB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137861.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Reface v3.55.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137862.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:264E01732101D99E64275DAA095EB86A7AA691EE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137863.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:7EE2F46B1177925C6827C7412C22823EF4C7B58E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137864.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137866.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137867.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:900E7D81C4F9A8B79ADCA03B6CC3B4F39CA43AD9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137868.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Wondershare Filmora 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137869.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:69C3D08238DF9070B699E39CDA9DF6C1ED333257
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137870.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ magnet:?xt=urn:btih:25A5572544876B2CB542A40BA8FE68C44FC54C18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137871.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137872.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:2E748D98FFAE0D041F09AC647E9D25783B663D76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137873.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137875.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137876.jpg" />
 </div>
 
 
@@ -556,82 +628,6 @@ magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41135CBADFC63A695A0BDB6B9141A75B2BEF6DFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273267   (137877) от 31.12.2018
-
-Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazing
-02. Life in a bubble
-03. In the cold light of day
-04. Dig deep(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E72897333C6DEA7FF4FAEA4447ECDFC48EB5498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195955   (137878) от 31.12.2017
-
-Лучшие песни-2017 (2017.12.31) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137878.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последний день уходящего года самые талантливые певцы и артисты, которые в течение всего года радовали нас своими песнями и выступлениями, представляют "Лучшие песни"! В гала-концерте принимают участие: Валерий Меладзе, Валерия, Николай Басков, Елена Ваенга, Ани Лорак, победитель конкурса "Новая волна" Пьер Ноэль, Глюкоза, Анжелика Варум, Лолита, (   Читать дальше...   )Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:11Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADF1F9151F3A33FEEE891678BE06D5BE3756115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349216   (137879) от 31.12.2019
-
-Multi Commander Full Edition 9.5 Build 2570 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Multi Commander - мощный мультиоконный менеджер файлов, являющийся отличной альтернативой стандартному проводнику Windows. При работе с файлами используется удобный двухпанельный вид, что обеспечивает простоту и доступность эффективного и быстрого управления файлами в повседневной деятельности.
-Кроме стандартного набора функциональных возможностей файлового менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31766E19C8825D1711BA9609041ABAA7F610B315
 ```
 
 

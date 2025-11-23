@@ -6,7 +6,7 @@ Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136849.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136852.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136854.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136856.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136859.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136860.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Federico Conti & The Modern Organ Trio - Hammond-Ology (2020) [MP3|320 Kbps] <Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137074.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137607.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tommy Dorsey - Tenderly: The Best Of The Decca Years (1950 - 1953) 3CD, 2018, Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137704.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ John Legend - A Legendary Christmas (2018) [FLAC|Lossless|tracks + .cue] <R&B, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137811.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137908.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137917.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137924.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137929.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137936.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138052.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138071.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138078.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138131.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Chet Baker - The Hits 1952 - 1959 (2019) 3CD, New Continent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138291.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138353.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138361.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138373.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138426.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138637.jpg" />
 </div>
 
 

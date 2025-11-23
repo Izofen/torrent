@@ -1,3 +1,81 @@
+###  Публикация: 1726007   (108888) от 26.05.2024
+
+Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Punk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wrote On The Wall! Take That Society! [00:03:04]
+02. It's Okay... Probably [00:03:01]
+03. What I Do When I Blackout Is None Of My Business [00:03:06]
+04. You Can Paint Over Me But I'll Still Be Here [00:02:46](   Читать дальше...   )Жанр: Pop-Punk-RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725974   (108889) от 26.05.2024
+
+Страна Наири (1930) WEBRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наири — ассирийское название «группы племён» на территории государства Урарту, на части которого теперь расположена Армения. Фильм посвящен 10-летию установления Советской власти в Армении. Фильм явился заметным явлением в армянском "немом" кино. В фильме использованы разнообразные средства: документальная съёмка, фрагменты из игровых картин, инсценировки (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: документальный, история, немое киноРежиссер: Амо Бек-НазаровСубтитры: русские (интертитры)Продолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A40B9094C638D1BD2167A9CC6F6CE9FE984BD46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725622   (108890) от 25.05.2024
+
+The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Правда (3:38)
+02. Голод (2:24)
+03. Культ (3:17)
+04. Не забывай дышать (2:39)(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2D6E678985052FF82348B606A2DA10D08FE95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725751   (108891) от 25.05.2024
 
 Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +84,7 @@ Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108891.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108892.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108893.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Killus - XXV Years Feeding the Monster (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108894.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:A3B525CDB1A9BA6462332F3A38469CFD5CBAE061
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108895.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108896.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108897.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108898.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Skeletal Throne - Barbaric Torment (2023) [FLAC|Lossless|tracks + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108899.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ The Devil Wears Prada - 2 Singles (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108900.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ VA - Ibiza Spring Anthems 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108901.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ VA - Alternative EDM Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108902.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Night Laser - Call Me What You Want (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108903.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108904.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ VA - Tropical House Anthems (2024) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108905.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ The Jazz Defenders - Memory in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108906.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ Remedy - Pleasure Beats The Pain (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108907.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Vasilis Xenopoulos & Paul Edis - Feels Like Home (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108908.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ magnet:?xt=urn:btih:EC6D84DFB2E570F04F8DD84B3E041A610A7C7AC0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108909.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ Wake Up Music Paradise - Contemplative Jazz Train Ride (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108910.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Romantic Love Songs Academy - Romantic Drift Away: Love Sensations with Intimate
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108911.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108912.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ Romantic Music Center, Instrumental Jazz Music Ambient - Late Night Kisses: Roma
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108913.jpg" />
 </div>
 
 
@@ -607,81 +685,6 @@ Romantic Music Center, Instrumental Jazz Music Ambient - Late Night Kisses: Roma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B729F8B55A69186E039001EF949C841B3FA6ADBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725719   (108914) от 25.05.2024
-
-Дом Свенда Дюринга / Svend Dyrings hus (1908) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация стародавняя и всем знакомая. Вдовец с детьми берет в жены благородную даму, тоже вдову с дочерью.  И не знает, что дама эта - злобная ведьма. Если и не в буквальном смысле, то характером точно. И хочет она только одного - извести со свету падчерицу и пасынка. Отец ни о чем не подозревает, тем более он на охоте поранился. И надеятся бедным детям не на кого. (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Хольгер-Мадсен, Вигго Ларсен, Густав Лунд, Лауриц Олсен, Вальдемар Петерсен, Agnes Nørlund Seemann, Петрине СоннПеревод: немой с интертитрами (В. Сачков)Субтитры: датские (интертитры), русскиеПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9230F72AB33CA401E7BD73F633CECBDD4BE8813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725682   (108915) от 25.05.2024
-
-MotoGP. Этап 06 из 21. Гран-при Каталонии. Квалификация (25.05.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108915.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 мая 2024, суббота. 11:50 МСК. Этап 6, Барселона. Гран-при Каталонии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F5EDBC1BA2A43E889A6D99AB3250BE8EB1727A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725621   (108916) от 25.05.2024
-
-Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pro Xristou
-02. The Apostate
-03. Like Father, Like Son
-04. The Sixth Day(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FECDBF20EBA6672AFB288833A8B51DBF234581F
 ```
 
 

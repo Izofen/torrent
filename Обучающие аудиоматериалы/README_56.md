@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173365.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF41565BDF31D1FEF88283AE7D2E36CB2BD83C95
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173378.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE85385AC3E5AA56CBB365689076888A42463B37
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173774.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:70A04702F9BE237333A913D2B9505E2F5321FB3B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173821.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173821.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E27C242BB559C9B5B40B9290B3952BEE9FCDC440
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173928.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_173928.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5D9C9787D404C07D396583AC8032247E524B9853
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173984.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DD38BCCA1FB12E750780DD1D82DF10A9BCCB152B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173995.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:79472A9BA4B11D02CDE98D76A6D5D380D320002E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174038.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1D1731365F9C0266A82E7AED0DD7B94BBB6DF8AC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174042.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2532E258EB091CD300D53C2332874ED896F58EB2
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174123.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174123.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:A0694F56569A73E65F635386DAAFC44EEBB8673A
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174198.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174198.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2AFA87354F188AE971363940AD89B4B6ACD4418E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174390.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174390.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A686CAE35C0689240ADA88E7CFD1AA889454EB30
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174483.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2F593FF8D903DE91AC148C2F9509DE6B06BCC9EE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174605.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F4E08F27DA4B63600C15909F0E1A75557EC03356
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174688.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:588D42F7A7E42E2DB02229B8D6012CFD0A5DB7D9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174999.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:074E61DAE4B11137B28C37FE0C2577F4306CA745
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175157.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FE4FBE10522E9F9687FEE189E649A432B902C1EB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175347.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175347.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:F65B1347061D84BF23BECEAF59D1396B30DD9D10
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175409.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175409.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6EB7B822514961B18FCADBAF0481F6C2F9580FBD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175503.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175503.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D659A7274E95F0FD301A1384D3382E5BB1815036
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175988.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:3809F6B37F4F108A223D9C73BF0151A87921D525
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176021.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E1DB5351D31C76DA984D4541E0C11F22E70A198B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176571.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176571.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6C93BC12220272F00CB0F2AF4B548DF4C25258CE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176650.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:1B44D406032F7CA0A41C25CA2F47AE68E088854A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177321.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177321.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:386818175DC4E864AF27AAF1E55E436D3F01D87F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177370.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177370.jpg" />
 </div>
 
 

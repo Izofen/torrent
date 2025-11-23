@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77228.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Reallusion iClone v5.0.PRO + ResourcePack 5.0 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77237.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Devil's Train - Devil's Train (2012) [MP3|V0 ~241 кб/с]<Hard & Heavy Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77257.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ magnet:?xt=urn:btih:2963DE0B6AA316232E7E0E3A73C232C058439706
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77258.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Topmodelz - Back To The 80s (2010) [MP3|320 kbps]<Hard Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77261.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:42BF9D6EB6606B43C7FE500BFED12EE97304A296
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77265.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:4EB44F03A43F208EE7E0365A2FDFFC72F4516E4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77267.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77269.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77274.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - TranceMafia - Hellenic Music Revolutionaries (2012) [MP3|320 kbps]<Psychede
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77278.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77319.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77332.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77335.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77336.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77337.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77363.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77372.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:DABD1FE6C253637F6AC03C0E53F714D51A4097F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77409.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:0055DBA350CFDD7929A308481B9167D75952B5F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77426.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:341EB7BFA7224A4B417754EACE9863BF947DB8FE
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77430.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Eufloria - это  инди-игра, в  которой  вам  предсто
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77433.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Windows 7 Ultimate SP1 (x64) by Loginvovchyk с программами {Февр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77458.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Louna - Время X (2012) [PROMO] [MP3|128 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77499.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:2E9B7B2D483602D6FEA843CF97858CB1961E6B4D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77502.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:4C0E8B5AE15F245713C8D32EB36811C93350778A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77505.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Lee Ritenour&Chris Botti "Papa Was A Rolling Stone" (2005) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77508.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1686704   (126183) от 24.12.2023
+
+Shropshire Collective - For the Children (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Drops of Poopiter (00:02:45)
+02 - Constantly Noble (00:03:27)
+03 - The Great Escalade (00:02:25)
+04 - Gator Tongue (00:03:48)(   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B3E350E3B7ADDF52E0FC216A08C309B20EF6D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686623   (126184) от 24.12.2023
+
+Shallow Rivers - The Tales Told Under the Willow (2022) [FLAC|Lossless|image + .cue] <Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Desolate Daughters
+02 Not Yet An Artifact
+03 Prey In Disguise
+04 Mad Song(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BA654D184FEBAAA936865FADA2AC2C31C7344D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686875   (126185) от 24.12.2023
+
+Pedro Botero - Mas Sabe el Diablo (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR, Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ser Paranoico (00:05:05)
+02 - Desertor (00:03:22)
+03 - Rey Acero (00:04:43)
+04 - Sangre (00:03:56)(   Читать дальше...   )Жанр: AOR, Heavy Metal, Hard RockПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBF33346FE8D733AF633FDB2C77DF0C488F5AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686722   (126186) от 24.12.2023
 
 Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard & Heavy>
@@ -6,7 +87,7 @@ Simple Stone - Through This Dark (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126186.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Nebula Drag - Western Death (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126187.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Satis - Despair (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126188.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ Smerdead - Зловещие истории (2022) [FLAC|Lossless|image + .cue] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126189.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ magnet:?xt=urn:btih:103EBEFF565737AC8A1E32394A4FB80C5E968594
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126190.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ Nova Arminius - Perish for the earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126191.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ Inverno - Stasis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove-Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126192.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126193.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126194.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ Sefirot - The Mystical Lybrary (2023) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126195.jpg" />
 </div>
 
 
@@ -277,7 +358,7 @@ Elisa - Intimate - Recordings at Abbey Road Studios (2023) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126196.jpg" />
 </div>
 
 
@@ -304,7 +385,7 @@ magnet:?xt=urn:btih:81F85A5CB7A455FE31EB641D459FF04CEC499B50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126197.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ Neon Fields - Neon Fields (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126198.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126199.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ Storyum - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126200.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ Assemblage - Album (1970) Remastered, 2023, Janus Records [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126201.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126202.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ Phil Seymour - Live On The Sunset Strip (Live) (2023) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126203.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ magnet:?xt=urn:btih:237661A17388EF135CE2FABDA6E8195C9E194CD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126204.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ Mike Williams - Live @ Storylines, Hotel Arena, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126205.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ magnet:?xt=urn:btih:6C8A7D5BDE91FA6A914A8795733961DAE8125A34
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126206.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ magnet:?xt=urn:btih:17928A034E890562B8212F0ECDD5AC61DF7FE717
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126207.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126208.jpg" />
 </div>
 
 
@@ -606,87 +687,6 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE805B6CD0FAD9A78D328A2C3AFD21694EA1AEC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686616   (126209) от 24.12.2023
-
-Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - They Dance (00:05:21)
-02 - Quiet Eyes (00:04:12)
-03 - Save The Best For Later (00:05:18)
-04 - Have A Heart (00:04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686952   (126210) от 24.12.2023
-
-Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-DL|tracks] <atmospheric black metal, doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Abyssum [00:01:58]
-02. Furor Ab Intus [00:13:23]
-03. Maledictus Utero [00:08:34]
-04. Caeleste Stragem Desuper [00:10:59]Жанр: atmospheric black metal, doom metalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427D3C9F15591CAA46D21224D3BEE5732776D6AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686570   (126211) от 24.12.2023
-
-Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Love To You (4:47)
-02. Another Man With The Blues (3:28)
-03. Wasted Time (6:56)
-04. Baby I See You (4:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6EF387A954974FCBEBA4103D8017B759B01F79
 ```
 
 

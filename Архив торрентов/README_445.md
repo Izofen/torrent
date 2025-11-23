@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Cool Emotions Compiled by Easy Coutiel 4CD (2012) [MP3|320 кб/с]<Lounge,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99025.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:DCC0826777B361084B76E909265217DF1B809F26
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99026.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99026.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FireAlpaca 1.0.29 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99033.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99033.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ FireAlpaca – простой в освоении и достаточно фун
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99035.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:18835299C8C4D072589C416A1DD3313341A0D276
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99039.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:2D43B85A6C6F7E35B9F19331DA5ECB8F25A6E6D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99041.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:F3C1193EEE2B032C26FACADA2FA8122C95BA77C5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99043.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99044.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99045.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99046.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99046.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99051.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mariko Makino - On the Beach (2005) [MP3|320 кб/с]<New age, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99052.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Desultor - Masters Of Hate (2012) [MP3|320 кб/с]<Progressive Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99053.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:CA3EA4730D959004C2798207AB67EB43999EA279
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99056.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Klubnye novinki Vol.62 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99057.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sarcophagy - The Summoning (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99058.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Клубная хитовая волна (2012) [MP3|160-320 кб/с]<Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99060.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:1268BCA0176A29BEAF49FF0591309A4B306A4437
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99061.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B90B060910B17895DA465F04D2D9372685EAC7AF
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99064.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - XXXL Максимальный размер удовольствия 6 (2012
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99068.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:7E639BA10D4FA17427C2ABDB7B8FAC975A13E5CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99071.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:07353B72D7461A8486430EF3990D3EF66D1F0614
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99075.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:46D5093AB2392FEBA4928BDD7F2F5C9A67D30B6F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99079.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:40309E6F252AFBBCC49AF6C043317C4F30C8B41D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99081.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - В Машину! Клубный (2012) [MP3|256 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99083.jpg" />
 </div>
 
 

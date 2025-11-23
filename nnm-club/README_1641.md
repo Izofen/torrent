@@ -6,7 +6,7 @@ Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43021.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:97CBF7E6AEA7FA1FC702052717C8F270AA6EE6F0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43022.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack Fi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43023.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43024.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ LANDR - Mastering Plugin Pro 1.1.17 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43025.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A92E3D8005A61A96554015FC5733F3BC638188D5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43026.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4335924EFC8F7AE9C01EEC083E593FEED135E860
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43027.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4335924EFC8F7AE9C01EEC083E593FEED135E860
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43028.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Google Chrome 129.0.6668.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43029.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:48FAE4E1D67FB82AD45CDF6ECBD11BC35BF9AB5F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43030.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A3BF414B8840ACD64ED5225EE2A9B61E8E1582C9
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43031.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B9F3A0ECF0B5E407E543FA81DDDE2520A205D259
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43032.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FanControl V203 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43033.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:5BE10D65D91A50CD10BEFC405C55CD3D0F34F2F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43034.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nightwish - Yesterwynde (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43035.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43036.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43037.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43038.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cher - Forever Fan (2024) Remaster, 2024, Warner Records [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43039.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:05EB576262D138CB7065E5BF4125BA82A67B718E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43040.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:91597E3EFA37D28E4D1F50B0F5279EFABCA74F75
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43041.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:17FFBA045475E8A63CB215335DD936F9E515C6E4
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43042.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4390C9EFCD9AD53A51C00EBA8129F2374D22F7A0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43043.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:AA5174391FEEEAABF635C2FDD1C3D2CCFA6D8E06
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43044.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Audacity 3.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43045.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:075B1482352CF0AED5A9117331D17369D9EC86B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43046.jpg" />
 </div>
 
 

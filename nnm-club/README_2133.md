@@ -6,7 +6,7 @@ HandBrake 1.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55823.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4AF818DB8C76473996D0A3DE1C2DAFF19BF6D903
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55824.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:12D138B30AD904402B519D5C3CF83F64DB7B9AB7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55825.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RAM Saver Professional 24.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55826.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ O&O Defrag Professional 28.1 Build 10015 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55827.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7D5A16E933299C0967AF1A0107A829F09A81FC87
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55828.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Шансон премьера 2024 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55829.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:16D3B16488A5475D52FE0ED0075E03E9A092DEF4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55830.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7023BBB679E27D1B52ABA316315768F60FF3C6B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55831.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:01BA4ACC162B99F077707192DB3C216741C612D8
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55832.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ YT Downloader 9.8.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55833.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:86AA24515083657772823A4178A96F201CFB9CE8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55834.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DefenderUI 1.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55835.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:38573904CAB5623D9D86FFEC795454ABF392B798
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55836.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BF25D43D28DB7ECE6EA7C6511FF240565F9B0A33
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55837.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:782B5A5385D4F8B6C0E6B0FB0569B0595D3FE1C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55838.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:168358B20EF693F2D3B8998D87A4376AC22EF819
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55839.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ O&O ShutUp10++ 1.9.1437 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55840.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A5A05DFD04C35BEE44B67CF1D12564E7CA4464C0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55841.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55842.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Moore Martin | Oxford Grammar for Schools 1. Student's Book (2013) [PDF] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55843.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:8CC4C2D3965F1402124DBD89A8CAF9836906514D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55844.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E6528A0E705FF6C9B07516D18338749A175EDDC0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55845.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Xrecode 3 1.149 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55846.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:4AE13E872CB451F7748A5089F72D7C078FB32EB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55847.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:5DB9FF7479F8FFAF83342D508C2C6F74B7A28D6E
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55848.jpg" />
 </div>
 
 

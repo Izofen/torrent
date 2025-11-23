@@ -1,3 +1,83 @@
+###  Публикация: 484828   (90559) от 24.04.2012
+
+Месть Тони / Les beaux mecs (сезон 1, 8 серии из 8] (2012) HDTVRip / (NewStudio / МногоТВ)
+
+>>След.
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90559.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается в 2010 году, когда заключенные на длительный срок главарь группировки Тони Рукас, он же — Безумный Тони, и Кенз – молодой начинающий преступник сбегают из тюрьмы.
+Теперь, на свободе, прошлое Тони неотступно стоит перед глазами – у него уже наточены крюки для предателей. Время повернулось вспять, он как будто снова попадает в те лихие времена, когда книгу по истории организованной преступности Безумный Тони писал лично…Жанр: Криминал, ДрамаРежиссер: Жиль БаньеАктеры: Симон Абкарян, Софиан Гураб, Дмитрий Стороге, Филипп Наон, Жюльен Лукас, Оливье Рабурден, Фейрия ДелибаПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Много ТВПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473223   (90560) от 24.04.2012
+
+CorelDRAW Graphics Suite X6 16.0.0.707 [Английский + Русификатор] by Krokoz + Corel Website Creator X6
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпорация Corel выпустила новую версию одного из самых известных на сегодня графических пакетов CorelDRAW Graphics Suite X6.Как известно на рынке векторной графики уже давно идет конкурентная борьба между продуктами Corel в лице CorelDRAW и продуктами другого гиганта, Adobe, в лице еще более известной программы Illustrator. Компания Corel, в отличии от Adobe, прекратила поддержку Mac OS еще в далеком 2002 году и с тех пор выпускает продукт только для операционных систем семейства Microsoft Windows.
+
+Уже очень давно пакеты CorelDRAW представляет собой не просто редактор векторной графики, а целый набор инструментов для опытных дизайнеров. Так в текущем пакете присутствует целый ряд программ, таких как:
+ CorelDRAW X6 – редактор векторной графики
+ PHOTO-PAINT X6 – редактор растровой графики
+ Corel PowerTRACE X6 – утилита для преобразования растровых изображений в векторные
+ Corel CAPTURE X6 – программа для создания скриншотов
+ Corel CONNECT X6 – утилита для поиска изображений как в онлайн-хранилищах, так и на локальных (   Читать дальше...   )Название программы: CorelDRAW Graphics Suite X6 by KrokozЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487509   (90561) от 24.04.2012
+
+Кассадага / Cassadaga (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кассадага — название городка во Флориде, население которого составляет чуть больше 200 человек. Говорят, его населяют люди с паранормальными способностями, которым платят большие деньги за сеансы, всегда стремящиеся попасть туда туристы. Фильм рассказывает о том, что не стоит вызывать души своих умерших сестер, как бы по ним не скучали родственники, потому что призраки (   Читать дальше...   )Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Энтони ДиБлейсиАктеры: Луиза Флетчер, Кевин Алехандро, Келен Коулмэн, Люсиус Бастон мл., Рас Блэквелл, Дж. ЛаРоуз, Брук Безик, Кристина Бах, Николас Вульф, Хэнк СтоунПеревод: Двуголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:48:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487701   (90562) от 24.04.2012
 
 Autodesk Inventor Pro 2013 x86-x64 RUS-ENG (AIO)
@@ -6,7 +86,7 @@ Autodesk Inventor Pro 2013 x86-x64 RUS-ENG (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90562.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Autodesk Inventor Pro 2013 x86-x64 RUS-ENG (AIO)
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90563.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ magnet:?xt=urn:btih:04ED39755E53200A502714DD85E4B7AFB55E71B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90564.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ MultiCarbon Boot by Core.Windows 7 Ultimate SP1 x86-x64 RU Carbon Boot by Core-2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90565.jpg" />
 </div>
 
 
@@ -104,7 +184,7 @@ Carbon Boot by Core-2 v.7.4.12 (Русский и английский) - Мод
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90567.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ http://www.nnm-club.me/forum/viewtopic.php?p=85564#85564
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90569.jpg" />
 </div>
 
 
@@ -160,7 +240,7 @@ http://www.nnm-club.me/forum/viewtopic.php?p=85564#85564
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90573.jpg" />
 </div>
 
 
@@ -186,7 +266,7 @@ HARD'n'SOFT — популярный российский ежемесячный
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90574.jpg" />
 </div>
 
 
@@ -210,7 +290,7 @@ Mac OS X Lion 10.7.3 для MSI P35 Neo Combo (MS-7365) [Eng/Rus]
 >>macOS (osx86project/hackintosh)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90577.jpg" />
 </div>
 
 
@@ -235,7 +315,7 @@ DMG-образ установленной системы, предназначе
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90578.jpg" />
 </div>
 
 
@@ -259,7 +339,7 @@ DMG-образ установленной системы, предназначе
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90579.jpg" />
 </div>
 
 
@@ -283,7 +363,7 @@ VA - Звездная Дискотека Хит FM (2012) [MP3|256 кб/с]<Ро
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90580.jpg" />
 </div>
 
 
@@ -316,7 +396,7 @@ magnet:?xt=urn:btih:05961F8BAB9552341B1A5D72E3A5A81809D5FF61
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90581.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90582.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ Europe - Bag Of Bones [Japanese Edition] (2012) [MP3|192 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90584.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ magnet:?xt=urn:btih:481A922A167C08A76FBE865B396E2AF8D2B279A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90587.jpg" />
 </div>
 
 
@@ -439,7 +519,7 @@ magnet:?xt=urn:btih:9ACC8FCE57AF0E9E3EEBE56CE7E33E84FC368F0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90594.jpg" />
 </div>
 
 
@@ -468,7 +548,7 @@ Sunmonx - Power Salad (2012) [FLAC|Lossless]<Dub , Downtempo , Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90595.jpg" />
 </div>
 
 
@@ -499,7 +579,7 @@ Sunmonx - Power Salad (2012)
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90596.jpg" />
 </div>
 
 
@@ -523,7 +603,7 @@ magnet:?xt=urn:btih:401000A65DD4214E41341B86F2B9FD3BB89960A2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90600.jpg" />
 </div>
 
 
@@ -549,7 +629,7 @@ magnet:?xt=urn:btih:ECF463D780950317FACA8C34238E6E3A9CBFF8EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90601.jpg" />
 </div>
 
 
@@ -578,7 +658,7 @@ magnet:?xt=urn:btih:28EE4555436C76B5243479BCAED07B889DC80E30
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90602.jpg" />
 </div>
 
 
@@ -602,7 +682,7 @@ VA - В Машину! Клубный Vol.2 (2012) [MP3|192 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90604.jpg" />
 </div>
 
 
@@ -622,87 +702,6 @@ VA - В Машину! Клубный Vol.2 (2012) [MP3|192 кб/с]<Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6A66B296B79B2A5EDCB2FE17A3CD37922E7965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488090   (90607) от 25.04.2012
-
-Tor Even Mathisen - Aurora Borealis (Релакс) (2012) HDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автором этого видеоролика является Tor Even Mathisen.Северное сияние было снято при помощи интервальной съемки в Норвегии. Time-lapse это интервальная съёмка с частотой кадров гораздо меньше обычного, порядка одного кадра в десять минут. Еще её называют цейтраферной киносъёмкой. Технология Time-lapse, подразумевающая создание видеоматериала из кадров, сделанных через (   Читать дальше...   )Жанр: РелаксПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883EF7624EC2A09DAC657C7E475E2E646AA51DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487678   (90608) от 25.04.2012
-
-Эдит Несбит | История с амулетом [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третьей книге трилогии английской писательницы Эдит Несбит («Пятеро детей и оно», «Феникс и ковер», «История с амулетом») волшебные приключения полюбившихся героев Сирила, Джейн, Антеи и Ричарда продолжаются! Они вновь встретят старого друга – песчаную фею Саммиэда, отправятся на поиски части волшебного амулета в прошлое и в будущее, побывают в Вавилоне, Атлантиде, (   Читать дальше...   )Жанр: Сказочная повестьПродолжительность: 05:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427916202D26C39A423C425BCB9CA6804A1327E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487849   (90609) от 25.04.2012
-
-Ого-П-Ого - 4 альбома.(2003-2010)[MP3|~320 kbps]<Horror>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотоскелет (2:18)
-02. Как Я Съел Себе Голову (1:20)
-03. В Разных Мирах (2:17)
-04. Ты Псих (2:02)
-05. Лицо Со Шрамом (1:50)
-06. Чуть Не Утонул (2:41)
-07. Смерть Сбежала (2:21)
-08. Я Или Тень (3:11)
-09. Под Землей (4:23)
-10. Страшный Сон (2:06)(   Читать дальше...   )Жанр: HorrorПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D8F63400039602FFFF399A9CFF1C7397F093A9
 ```
 
 

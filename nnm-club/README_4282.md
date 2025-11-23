@@ -1,3 +1,80 @@
+###  Публикация: 1682279   (131708) от 06.12.2023
+
+Люди Икс: Первый класс / X-Men: First Class (2011) BDRip [H.264/1080p-LQ] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как сформировались профессор Ксавьер и Магнито, о процессе основания школы профессора для детей-мутантов и, наконец, о том, что же произошло между двумя закадычными друзьями и почему они расстались.Производство: США, Великобритания / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' Company, Marv Films, Marvel Enterprises, Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Мэттью ВонАктеры: Джеймс МакЭвой, Майкл Фассбендер, Кевин Бейкон, Дженнифер Лоуренс, Дженьюэри Джонс, Роуз Бирн, Оливер Платт, Николас Холт, Зои Кравиц, Калеб Лэндри ДжонсПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F58C158E11A3D9150CB562EDB10670DB246AD1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596326   (131709) от 30.12.2012
+
+[Wallpapers] Selection of wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131709.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Selection of wallpapers (30.12.12)
+Название: Selection of wallpapers (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38105FA88526DBE2381CA18A21039A1B3D752A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682204   (131710) от 06.12.2023
+
+Истоки зла / Die Quellen des Bosen (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993 год. Ужасная находка потрясла жителей небольшого городка на востоке Германии. В лесу нашли тело девочки с вырезанными на теле рунами.
+Расследование поручено местному комиссару Ульрике Бандо и  приглашенному коллеге из Гамбурга Кораю Ларсену. Но внезапно выясняется, что подобные убийства происходили здесь и раньше. Какие тайны скрывает запретная зона на границе (   Читать дальше...   )Производство: Германия / Wüste MedienЖанр: триллер, криминалРежиссер: Штефан РикАктеры: Генриетта Конфуриус, Фахри Ярдым, Анджелина Хэнч, Jonathan Wirtz, Хлоя Генрих, Filip Schnack, Karsten Antonio Mielke, Беттина Лампрехт, Sophie Pfennigstorf, Till Wonka и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9141108A7E88590C6BF1752F9D4636571A54052B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682189   (131711) от 06.12.2023
 
 art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
@@ -6,7 +83,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131711.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131712.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131714.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131715.jpg" />
 </div>
 
 
@@ -120,7 +197,7 @@ magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131716.jpg" />
 </div>
 
 
@@ -144,7 +221,7 @@ magnet:?xt=urn:btih:1D28FD521AF74BDAAD72407EFAD83DE2FB4DA4D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131717.jpg" />
 </div>
 
 
@@ -172,7 +249,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -199,7 +276,7 @@ Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131720.jpg" />
 </div>
 
 
@@ -223,7 +300,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131721.jpg" />
 </div>
 
 
@@ -254,7 +331,7 @@ Skogen - 3 Альбома (2009-2012) Дискография [FLAC|Lossless]<Atm
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131722.jpg" />
 </div>
 
 
@@ -278,7 +355,7 @@ magnet:?xt=urn:btih:208AA58A923A19A07866B0CBC05C4B44D6D52F78
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131724.jpg" />
 </div>
 
 
@@ -302,7 +379,7 @@ magnet:?xt=urn:btih:2875916E3246F747523B2DB95902A1C40FCA3329
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131725.jpg" />
 </div>
 
 
@@ -326,7 +403,7 @@ magnet:?xt=urn:btih:7E97970BC2FA1FC18138B7F30B612B2818E6F49B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131726.jpg" />
 </div>
 
 
@@ -350,7 +427,7 @@ magnet:?xt=urn:btih:7ADF602C13ED042BFC048E9B93EF7B1652D85D56
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131728.jpg" />
 </div>
 
 
@@ -374,7 +451,7 @@ magnet:?xt=urn:btih:0E8ABF8EBC8949F74973655A264DB0F294A6B826
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131730.jpg" />
 </div>
 
 
@@ -399,7 +476,7 @@ Powerage - Branded Skin (1994) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131731.jpg" />
 </div>
 
 
@@ -432,7 +509,7 @@ magnet:?xt=urn:btih:B8972A837B79492BDFD3360B1E5351DA30FE4FDC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131732.jpg" />
 </div>
 
 
@@ -456,7 +533,7 @@ magnet:?xt=urn:btih:ED39F67F1958C5922128091E74245B5DEA666750
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131734.jpg" />
 </div>
 
 
@@ -480,7 +557,7 @@ magnet:?xt=urn:btih:ED39F67F1958C5922128091E74245B5DEA666750
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131735.jpg" />
 </div>
 
 
@@ -506,7 +583,7 @@ Jixipix Watercolor Studio 1.4.17 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131736.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ magnet:?xt=urn:btih:D11E6B57135136612873BB68001021CCAB5B182B
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131737.jpg" />
 </div>
 
 
@@ -554,7 +631,7 @@ magnet:?xt=urn:btih:D11E6B57135136612873BB68001021CCAB5B182B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131738.jpg" />
 </div>
 
 
@@ -578,7 +655,7 @@ Windows 11 Manager 1.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131740.jpg" />
 </div>
 
 
@@ -589,81 +666,6 @@ Windows 11 Manager - это универсальная утилита специ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:052641447CC62849F6C2E5A10111E96D6791ADB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682195   (131742) от 06.12.2023
-
-Венера Хабирова | Интенсив «ГЭРБ» (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого программа ПО ГЭРБ?
-
-Если у вас:
-- Часто бывает горечь во рту(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 11:37:15Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4967F46EE122A69D78194E019D6AAFC58A417EB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682133   (131744) от 06.12.2023
-
-Путешествие к центру Земли / Viaje al centro de la Tierra (1977) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного романа Жюля Верна. Четверо путешественников во главе с профессором Лиденброком отправляются в путешествие к центру земли через кратер вулкана. Пройдя путь, полный опасностей, им предстоит открыть мир, населенный доисторическими животными и растениями.Производство: Испания / Almena Films S.A.Жанр: фантастика, приключения, семейныйРежиссер: Хуан Пике СимонАктеры: Кеннет Мор, Пеп Мунне, Ивонна Сентис, Франк Бранья, Джек Тейлор, Хосе Мария Каффарель, Эмильяно Редондо, Лоне Флеминг, Рикардо Паласиос, Жорж РигоПеревод: Одноголосый любительский (Rollinghead)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0556574DC8BD6C21AF2E8625AE56B6F4EB121B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595795   (131745) от 29.12.2012
-
-FIFA Manager 13 [Ru/En] (RePack/1.02) 2012 l R.G. Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131745.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве менеджера вам предстоит руководить современным футбольным клубом. В FM13 вы будете отвечать и за состав команды, и за тактику ее игры, и за тренировки футболистов, и за подписание контрактов с нужными игроками, и за расширение тренировочной базы клуба и его стадиона. Особое внимание в FM13 обращают на себя лицензия FIFA, трехмерный движок, более 40 тысяч лицензированных виртуальных игроков (многие с портретами прототипов), возможность быть играющим тренером и менеджером национальной сборной, режим создания клуба, инструмент прогнозирования результатов матчей и уникальный, тщательно проработанный редактор.(   Читать дальше...   )Тип издания: RePackРазработчик: Bright FutureЖанр: Strategy (Manage/Busin. / Turn-based) / Sport (Soccer) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA63240C004431D664DB3A0C1BAFC2489366A024
 ```
 
 

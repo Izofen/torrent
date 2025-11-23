@@ -1,3 +1,27 @@
+###  Публикация: 1638477   (197230) от 09.06.2023
+
+Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 9.2. Готовые установочные образы доступны для зарегистрированных пользователей Red Hat Customer Portal (для оценки функциональности также можно использовать iso-образы CentOS Stream 9 и бесплатные сборки RHEL для разработчиков). Выпуск сформирован для архитектур x86_64. Исходные тексты rpm-пакетов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638405   (197285) от 08.06.2023
 
 openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
@@ -6,7 +30,7 @@ openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197285.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197285.jpg" />
 </div>
 
 
@@ -31,7 +55,7 @@ OpenVMS 9.2 [amd64] 1xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197492.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197492.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ UncomOS 2023.03.13-desktop [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197950.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197950.jpg" />
 </div>
 
 
@@ -80,7 +104,7 @@ BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198312.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198312.jpg" />
 </div>
 
 
@@ -104,7 +128,7 @@ Rider 2023.1.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198317.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198317.jpg" />
 </div>
 
 
@@ -130,7 +154,7 @@ Debian Edu - Skolelinux 11.7.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199068.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199068.jpg" />
 </div>
 
 
@@ -154,7 +178,7 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199112.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199112.jpg" />
 </div>
 
 
@@ -178,7 +202,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199121.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199121.jpg" />
 </div>
 
 
@@ -204,7 +228,7 @@ Fedora 38 Workstation Server Spins [x86_64] 12xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199502.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199502.jpg" />
 </div>
 
 
@@ -229,7 +253,7 @@ TrueNAS SCALE 22.12.2 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199658.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199658.jpg" />
 </div>
 
 
@@ -254,7 +278,7 @@ Ubuntu*Pack 22.04 Budgie (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199729.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199729.jpg" />
 </div>
 
 
@@ -279,7 +303,7 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199749.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199749.jpg" />
 </div>
 
 
@@ -304,7 +328,7 @@ Ubuntu*Pack 22.04 (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199862.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199862.jpg" />
 </div>
 
 
@@ -329,7 +353,7 @@ Openmediavault (Shaitan) 6.0.24 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200098.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200098.jpg" />
 </div>
 
 
@@ -355,7 +379,7 @@ MxUntu 20.04 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202340.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202340.jpg" />
 </div>
 
 
@@ -382,7 +406,7 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205387.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205387.jpg" />
 </div>
 
 
@@ -406,7 +430,7 @@ Zorin OS 18 Pro 18.0 [X86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205667.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205667.jpg" />
 </div>
 
 
@@ -432,7 +456,7 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205995.jpg" />
 </div>
 
 
@@ -456,7 +480,7 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206132.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206132.jpg" />
 </div>
 
 
@@ -480,7 +504,7 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209429.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209429.jpg" />
 </div>
 
 
@@ -505,7 +529,7 @@ Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209480.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209480.jpg" />
 </div>
 
 
@@ -530,7 +554,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209497.jpg" />
 </div>
 
 
@@ -555,7 +579,7 @@ Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209511.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209511.jpg" />
 </div>
 
 
@@ -580,7 +604,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209544.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209544.jpg" />
 </div>
 
 
@@ -605,7 +629,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209548.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209548.jpg" />
 </div>
 
 
@@ -617,31 +641,6 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B12F04F91AB64BD712D1B67D022713BD3DA0B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644814   (209553) от 07.07.2023
-
-Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
 ```
 
 

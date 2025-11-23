@@ -1,3 +1,189 @@
+###  Публикация: 1675502   (160286) от 09.11.2023
+
+DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160286.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DBBB89CC9CF975D4ED30D01A07B8AF0B288994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675459   (160287) от 09.11.2023
+
+Kaliopi & The Blues Messengers - Blues for Minnie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Cat Blues (3:46)
+02. Kissing In The Dark (2:26)
+03. Messin' With The Blues (5:09)
+04. Hoodoo Lady (2:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4AD4E253815EEAEAC91243ADD9C48927090D60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675598   (160288) от 09.11.2023
+
+D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock , Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard to Be Easy (5:10)
+02. Linger at the Edge of My Memory (5:05)
+03. Tiny Little Fires (3:33)
+04. Right Where You Should Be (3:43)(   Читать дальше...   )Жанр: Progressive Rock , Melodic RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675461   (160289) от 09.11.2023
+
+Luke - Strange Boy In Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Outside Our Door (3:59)
+02. Can't Keep My Mind Off You (3:30)
+03. Into Deep (4:11)
+04. Sadie (Don't You Stop This Thing Tonight) (4:44)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBA180BD2DED63703FA79D4814DE69FE86A6587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675575   (160290) от 09.11.2023
+
+Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slowly Light Collides (5:14)
+02. Mind Is A Shadow (feat. Vincent Jackson Jones) (4:59)
+03. How Many Dreams (4:01)
+04. Spirit And Matter (5:00)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8EEFD90DD69020A9D39C198BEBE268DCB9DE98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675602   (160291) от 09.11.2023
+
+Secret Sphere - Blackened Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crossing Toll (1:59)
+02. J.'s Serenade (5:52)
+03. Aura (4:34)
+04. Bloody Wednesday (5:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEE5827E8A53E483F305E6012798330C873D9D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675373   (160292) от 09.11.2023
+
+Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening Of Kerodet
+02. When Our Troops Unite
+03. They Conquered
+04. Fate Is Calling(   Читать дальше...   )Жанр: Power Metal OperaПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5782E4D9B070D16969987DB5E85A35A7E4C8FF8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675418   (160293) от 09.11.2023
 
 Protean Shield - Protean Shield (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Heavy Metal, Epic Heavy Metal>
@@ -6,7 +192,7 @@ Protean Shield - Protean Shield (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160293.jpg" />
 </div>
 
 
@@ -33,7 +219,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160294.jpg" />
 </div>
 
 
@@ -57,7 +243,7 @@ Beyond the Flames - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160295.jpg" />
 </div>
 
 
@@ -84,7 +270,7 @@ Bandini - Everything Must Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160296.jpg" />
 </div>
 
 
@@ -111,7 +297,7 @@ Hinayana - Shatter And Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160297.jpg" />
 </div>
 
 
@@ -138,7 +324,7 @@ magnet:?xt=urn:btih:596C3498A4B5497619AFB6518F6CA7A95C76D8F5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160298.jpg" />
 </div>
 
 
@@ -162,7 +348,7 @@ magnet:?xt=urn:btih:D0868AA1CA3D7977AAF99D1AC125BBD8DEFD2C2C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160299.jpg" />
 </div>
 
 
@@ -186,7 +372,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160300.jpg" />
 </div>
 
 
@@ -211,7 +397,7 @@ Jason Elmore & Hoodoo Witch - Rise up Lights (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160301.jpg" />
 </div>
 
 
@@ -238,7 +424,7 @@ magnet:?xt=urn:btih:22D3695D7E3DB80BF78FACEA246952E949439341
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160302.jpg" />
 </div>
 
 
@@ -263,7 +449,7 @@ magnet:?xt=urn:btih:DB47F9DBA27BF5362950418106DF74AA121F70F6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160303.jpg" />
 </div>
 
 
@@ -287,7 +473,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160304.jpg" />
 </div>
 
 
@@ -314,7 +500,7 @@ magnet:?xt=urn:btih:4CB6146CEF9F55915B04E042D6C26CB135160501
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160305.jpg" />
 </div>
 
 
@@ -338,7 +524,7 @@ magnet:?xt=urn:btih:1CEEF5FDC0BBB1B0671C59ACC32E2C0552A58A93
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160306.jpg" />
 </div>
 
 
@@ -362,7 +548,7 @@ magnet:?xt=urn:btih:388015FA3DD8B4E1F76FE65016D9C9E6FA2A8BAD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160307.jpg" />
 </div>
 
 
@@ -386,7 +572,7 @@ Peter J. Lehman - I'm Done Hiding (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160308.jpg" />
 </div>
 
 
@@ -413,7 +599,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160309.jpg" />
 </div>
 
 
@@ -438,7 +624,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160310.jpg" />
 </div>
 
 
@@ -463,7 +649,7 @@ Dave Williams - 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160311.jpg" />
 </div>
 
 
@@ -477,187 +663,6 @@ Dave Williams - 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27B23D4BBCA0ED53800374E0389C3EC11FE978C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675445   (160312) от 09.11.2023
-
-Alex Lopez - Looking for a change (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train (4:16)
-02. Whiskey Covered Woman (3:52)
-03. Blues They Rock (4:24)
-04. Looking for a Change (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1209053037D3FB88B2C466DF8E393DA0806F543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675450   (160313) от 09.11.2023
-
-Kobra and The Lotus - Evolution (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evodem
-02. Evolution
-03. Burn!
-04. We Come Undone(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092FB64E4FECC0CB7272E2304BAB18D41460E0A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675457   (160314) от 09.11.2023
-
-Platina - Про тебе... (2010) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все, що треба
-02. Про тебе...
-03. Не правда
-04. Літак(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C77E8C4CA5EBC4C078FADDF111B058E51475E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675384   (160315) от 09.11.2023
-
-Xliff Editor 2.9.14 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C639AFED3F2153E4D2528F0772ADC13F42C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675552   (160316) от 09.11.2023
-
-Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue: Under The Pyramids (0:51)
-02. Egyptron (5:00)
-03. Living Dead In Beverly Hills (2:19)
-04. Rusted Gold (3:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD6B4F5E46DDAE03C095BCC627C6355877745FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675382   (160317) от 09.11.2023
-
-NetShred X 5.8.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160317.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetShred X - утилита не просто для удаления кэша веб-браузера, cookie, истории посещения страниц и др., а уничтожения всех Интернет следов без возможности их восстановления. NetShred X удаляет временные файлы, оставленные браузером или почтовым клиентом, обеспечивая тем самым приватность пользователя. Программа поддерживает все популярные браузеры и почтовые клиенты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 Mireth TechnologyПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D0D5A02C7FF6893551F963B140D5DB24F76107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675406   (160318) от 09.11.2023
-
-PowerPhotos 2.5.3 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160318.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEA04011DC2CCA9205B6027027401E99C297F9A
 ```
 
 

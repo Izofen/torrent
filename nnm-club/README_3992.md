@@ -1,3 +1,77 @@
+###  Публикация: 1691293   (123474) от 11.01.2024
+
+Единожды солгав / Fool Me Once (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) NewStudio
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья потрясена двумя убийствами. Убитая горем Майя Стерн смирилась с убийством своего мужа Джо. Но вскоре её печаль сменяется смятением после того, как Джо обнаруживают на видеозаписи с камеры, установленной в детской. Тем временем её племянники, Эбби и Дэниел, пытаются найти правду об убийстве своей матери и видят возможную связь между обоими делами. В основу сценария (   Читать дальше...   )Производство: Великобритания, США / Quay Street ProductionsЖанр: триллер, драма, криминал, детективРежиссер: Дэйв Мур, Nimer RashedАктеры: Мишель Кигэн, Адиль Ахтар, Ричард Армитедж, Эммет Джей Скэнлэн, Thea Taylor-Morgan, Маркус Гарви, Дино Фечер, Джоанна Ламли, Danya Griver, Дэниэл БертПеревод: Многоголосый профессиональный (NewStudio)
+Присутствует нецензурная браньЯзык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A753AD5FE6506CCEBEE9DDC53E4FBA2505207E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691050   (123475) от 11.01.2024
+
+Авантюра (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокие подруги ищут романтические приключения в новогоднюю ночь и приглашают в гости незнакомцев. Аптекаршу Симу три года назад перед самой свадьбой бросил жених, и она так и не смогла найти свое счастье. Чтобы не скучать в грядущую новогоднюю ночь, Сима приглашает к себе одиноких подруг, печатает приглашения со своим домашним адресом и бросает их в пакеты с лекарствами (   Читать дальше...   )Производство: Россия / ТВ3Жанр: комедияРежиссер: Гарик ПетросянАктеры: Надежда Лумпова, Ирина Темичева, Екатерина Кабак, Евгения Романова, Кирилл Жандаров, Максим Костромыкин, Артём ЦукановСубтитры: ОтсутствуютПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9329D3CFEE23FDDBFD0270D5992C354BC62A500B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375416   (123476) от 11.01.2024
+
+М.А. Гершензон | Робин Гуд (2010) [MP3, Александр Бордуков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Вот уже более шести столетий живет легенда о благородном предводителе лесных разбойников Робин Гуде. Но до сих пор ученым и историкам так и не удалось установить личность прототипа героя этих преданий. По одной из версий Робин был свободным ремесленником или крестьянином, по другой – несправедливо обездоленным дворянином. И все же, (   Читать дальше...   )Жанр: Детская литература, приключения, историческая повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 04:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241196D28784CCD9EA1EAE4628F1F0B1E9817E45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691311   (123477) от 11.01.2024
 
 Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
@@ -6,7 +80,7 @@ Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123477.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Total Uninstall 7.6.0 Professional RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123478.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:2CF08AF61D5971F9F877587EB15CD2C65E543038
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123479.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123479.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0110) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123480.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:12932BF0BBB6383F38FA0EFF3BB1E8D923D81B94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123481.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:DD485AAD1DD54297025BD2DC853128ECCE4E4C4E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123482.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:2658E23D4C9D3D377ABA88C1535B76DB0834A70C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123483.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ Starfield (2023) [Ru/Multi] (1.8.88.0/dlc) Repack Other s [Premium Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123484.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:31EB60D6060F4DC1B8D2BCE435A11F5E4F68E782
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123485.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ Wondershare Filmora 13.0.60.5095 x64 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123486.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ magnet:?xt=urn:btih:DD6053E533AB36848226B44EBCE276345E318594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123487.jpg" />
 </div>
 
 
@@ -270,7 +344,7 @@ magnet:?xt=urn:btih:E260BAF59F07B0A234DE79AE210015ECF38A1798
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123488.jpg" />
 </div>
 
 
@@ -294,7 +368,7 @@ magnet:?xt=urn:btih:4558D68993EED45DA2FE0E4851B05BE0DD1B94EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123489.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ magnet:?xt=urn:btih:4AADAC7B587303FB782B7E21CDBEF0B6E2DE3E0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123490.jpg" />
 </div>
 
 
@@ -342,7 +416,7 @@ magnet:?xt=urn:btih:F033D626BC1AD3DE23F1C65F9CA240C26B869435
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123491.jpg" />
 </div>
 
 
@@ -366,7 +440,7 @@ magnet:?xt=urn:btih:1A5946CD1092090089DBC911B0025CD10DEF6F20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123492.jpg" />
 </div>
 
 
@@ -390,7 +464,7 @@ magnet:?xt=urn:btih:E32538DA3E5B78A1B7976BCE219A688E92B479CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123493.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123494.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ QNAP QTS 5.1.5.2679 [x32_x64] 2xDVD ESXi IMG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123495.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ KMS Tools Portable by Ratiborus Lite 11.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123496.jpg" />
 </div>
 
 
@@ -486,7 +560,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123497.jpg" />
 </div>
 
 
@@ -510,7 +584,7 @@ magnet:?xt=urn:btih:670B0E48ECCE6BACD24CF4401B887C020341C5FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123498.jpg" />
 </div>
 
 
@@ -534,7 +608,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [11.01.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123499.jpg" />
 </div>
 
 
@@ -548,78 +622,6 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2CA85A6FA609EF944A6652A93C60BEF5960883A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691245   (123500) от 11.01.2024
-
-AIDA64 Extreme / Engineer / Business / Network Audit 7.00.6700 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123500.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FC70094F0D8E878DC61C9E8030BD267847767F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691274   (123501) от 11.01.2024
-
-Конфетный переулок / Candy Cane Lane (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семьянин Крис каждый год пытается выиграть конкурс на лучшее украшение дома к празднику, соревнуясь с соседями. Ради победы он заключает сделку с эльфийкой по имени Пеппер, чья магия становится причиной хаоса для всего города. Теперь Крису и его семье предстоит разрушить колдовство и спасти Рождество.Производство: США / Amazon Studios, Imagine EntertainmentЖанр: фэнтези, комедия, семейныйРежиссер: Реджинальд ХадлинАктеры: Эдди Мерфи, Джиллиан Белл, Трэйси Эллис Росс, Дженнея Уолтон, Тадеус Дж. Миксон, Madison Thomas, Ник Офферман, Крис Редд, Робин Тиди, Дэвид Алан ГрирПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C87C67FE32E2E65CB8B05CD86A9B493BC8D50A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691162   (123502) от 11.01.2024
-
-Падение империи / Deep in the Forest (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123502.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем напряженность политической обстановки в США достигла такого уровня, что страна разделилась на два крайних лагеря: Демократическую и Республиканскую партии. Разгоревшийся конфликт приводит к гражданской войне. Часть членов Демократической партии и их родных тайно вывозят на заброшенную лыжную базу, чтобы защитить от преследований республиканцев. (   Читать дальше...   )Производство: США / Brooklyn Reptyle Productions Inc., Deep in the Forest L.L.C., Hall², Noble Savage ProductionsЖанр: триллерРежиссер: Джереми Дилан ЛэнниАктеры: Эва Абрамян, Уилл Брэдли, Урсула Брукс, Ларри Седар, Джедидайя Дайер, Росс Майкл Фрейзер, Макара Гэмбл, Питер Джейсон, Дуан Джонсон, Дервин ДжорданПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E2638512BE9D949C41FBACC60CCC58546901FF
 ```
 
 

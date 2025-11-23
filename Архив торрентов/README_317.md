@@ -6,7 +6,7 @@ Total Commander 8.0 Beta 20 Portable - Sanches Edition [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander - самый мощный и стабильный файловы
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77990.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Total Commander - самый мощный и стабильный файловы
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78013.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Goa Culture Vol. 5 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78093.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78101.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78105.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78117.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:133FB05B88F5BDB7A4104E7AB66755765663C17B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78120.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78131.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Korn, Ozzy Osbourne - Live at OZZFEST 2010 (2010) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78140.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DivX Plus 8.2.2 Build 1.8.5.36 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78192.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DivX Plus Pro — это совершенно новый пакет кодеко
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78227.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SPB Phone Suite — это подборка функций телефона, д�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78231.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Windows 7 Ultimate SP1 x64 Point Blank By StartSoft v 14.2.12 [Русский +�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78232.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Windows 7 Ultimate SP1 x64 Point Blank By StartSoft v 14.2.12 [Русский +�
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78308.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Any DVD Converter Professional 4.3.4 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78312.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Any DVD Video Converter также пакетно преобразовывает
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78325.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:AF0BF0B5A412173231B200FEC93031178D2F4ED8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78332.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Killer Tracks - Apocalypse 2012 (2009) [MP3|320 кб/с]<Soundtrack, Trailer mus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78340.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:FBAC2F33FFBF484E746BEEEC561E6E7526C35DEA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78350.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:83A29D269E26E17F3F14A5B71C9F8217193E7AFE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78363.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:83A29D269E26E17F3F14A5B71C9F8217193E7AFE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78364.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:C63BC63EFA3E5D2A990E859E987A6CDE3DC3A3D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78376.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Microsoft Toolkit 2.3 Stable / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78393.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Microsoft Toolkit - многофункциональный KMS-активато�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78412.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Open Server 4.1.2 (Mini+Standart+Full) [Русский, Украинский, Б
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78440.jpg" />
 </div>
 
 

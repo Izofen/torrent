@@ -1,3 +1,84 @@
+###  Публикация: 1730986   (107822) от 18.06.2024
+
+VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! & Einstein - The Power '96
+02. Mr. President - Coco Jamboo
+03. Los Del Rio - Maria, Maria (Pura Carroceria)
+04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730570   (107823) от 17.06.2024
+
+Loch Vostok - Dark Logic (2003) [FLAC|Lossless|image + .cue] <Extreme Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Admire And Resent
+02. Impressions
+03. Blunt Force Trauma
+04. Falling Star(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3252267E44200160FB9223C14C854AAC275FAFF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730792   (107824) от 17.06.2024
+
+VA - DJ Hits Vol. 57 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G-groove - Everybody
+02. Backstreet Boys - I Wanna Be With You
+03. Heath Hunter & The Pleasure Company - Revolution In Paradise
+04. Noble Savages - Digging in the noise(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F15407128B7E554DE7A9C2A9BB83E41FE1F9B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730774   (107825) от 17.06.2024
 
 autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash>
@@ -6,7 +87,7 @@ autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107825.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107826.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107827.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107828.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ The Human Element - River (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107829.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Questing Beast - Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107830.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107831.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107832.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107833.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107834.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107835.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Iiro Rantala - Tough Stuff (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107836.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Loch Vostok - Destruction Time Again (2006) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107837.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ VA - Norman Granz' Jam Session #4 (1953) 2004, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107838.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ Nation Beat - Archaic Humans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107839.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ Onlap - Waves (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107840.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ magnet:?xt=urn:btih:A555E8498AFD9730CE276884AE7672E061138CDA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107841.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ Lamb of God - Wrath (2009) Deluxe Edition, 2024, Nuclear Blast [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107842.jpg" />
 </div>
 
 
@@ -490,7 +571,7 @@ Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107843.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ Speedtest от Ookla 5.4.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107844.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107845.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ Jet Engine Dragons - Ronin (2024) [MP3|320 Kbps] <Progressive Death, Groove Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107846.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ magnet:?xt=urn:btih:6C14AEFD92192B8673E684D7B974E7716FADFAF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107847.jpg" />
 </div>
 
 
@@ -606,85 +687,6 @@ magnet:?xt=urn:btih:6C14AEFD92192B8673E684D7B974E7716FADFAF3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE277C0E41114BF9CB10E7588F46CCE0E31E42DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730505   (107848) от 16.06.2024
-
-Fred P - As We Journey On (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Future Jazz, House>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Endings (Unreleased Arthouse Version) [00:11:12]
-02. Mystical Sunrise [00:08:02]
-03. Made Me Say [00:06:30]
-04. Motivated Inspiration [00:09:58](   Читать дальше...   )Жанр: Deep Techno, Future Jazz, HouseПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55555D78DD731C310BEAABD2947B401AF313693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730572   (107849) от 16.06.2024
-
-Чудо техники с Сергеем Малозёмовым (16.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прохлада на колесиках! Чем мобильные кондиционеры лучше сплит-систем, а в чем проигрывают стационарным устройствам, и как сделать так, чтобы мошки, пыль и пух не летели сквозь открытое окно, которое нужно для работы передвижных охладительных приборов? Проверка мобильных кондиционеров не только дома, но даже в бане.
- В Швейцарии создали кофейную пасту для приготовления (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6025BAD1AD7925D0B9D8F06EC7140BB487247C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730534   (107850) от 16.06.2024
-
-Toxikk Deception - License To Murder (2022) [MP3|320 Kbps] <EBM, Dark Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vile Fuck [00:04:53]
-02. Visceral [00:05:00]
-03. Sikk Joke [00:04:05]
-04. Gore Machine [00:03:15](   Читать дальше...   )Жанр: EBM, Dark Electro, IndustrialПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F9B99364DEC9957B914409D1C6A1796BF86D7E
 ```
 
 

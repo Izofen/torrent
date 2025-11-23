@@ -1,3 +1,75 @@
+###  Публикация: 1705500   (113880) от 08.03.2024
+
+Священномученик Василий Кинешемский | Беседы на Евангелие от Марка (2010) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как трудно подчас нам оценить всю глубину Слова Божия без мудрого пастыря и наставника. Одним из таких мудрых наставников является священномученик-исповедник, истинный подвижник, епископ Василий Кинешемский (в миру Вениамин Сергеевич Преображенский). Главной своей архипастырской задачей он ставил православное просвещение. Всесторонне и глубоко исследовав Священное (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A134623092E973B3527B6CC8CABA5ED6B8669C3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705371   (113881) от 08.03.2024
+
+Icecream Slideshow Maker PRO 5.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADD0CF9BCC19AE8C62F26B488825F2B0158C9F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705280   (113882) от 08.03.2024
+
+Красный как кровь / Blood Red (1989) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьян — глава клана Колоджеро с 1890 года — сицилиец, эмигрировавший в Северную Калифорнию. В этом клане каждый уважающий себя мужчина непременно вносит свой вклад в развитие семейного дела — огромного виноградника. Местная шишка, владелец железной дороги Уильям Берриган, требует от Себастьяна сокращения территории фермы для проведения новых транспортных путей. (   Читать дальше...   )Производство: Великобритания, США / Hemdale, Kettledrum FilmsЖанр: вестерн, криминалРежиссер: Питер МастерсонАктеры: Эрик Робертс, Джанкарло Джаннини, Деннис Хоппер, Берт Янг, Карлин Глинн, Лара Харрис, Джозеф Раннингфокс, Аль Руссо, Майкл Мэдсен, Элиас КотеасПеревод: Авторский (Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB3BF312FF5FABA2F00A09D2CDFA3F49158083A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705337   (113883) от 08.03.2024
 
 Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -6,7 +78,7 @@ Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113883.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ SQL Dynamite 2.5.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113884.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113885.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Brave Browser 1.63.169 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113886.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Skype 8.114.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113887.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113888.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ Opera One 108.0.5067.20 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113889.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Google Chrome 122.0.6261.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113890.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113891.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:5EA1DB55BEA14602E985D36740724820E0697ED9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113892.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ The Rolling Stones - Live At The Wiltern (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113893.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113894.jpg" />
 </div>
 
 
@@ -311,7 +383,7 @@ Lovebites: In the Beginning. The Best of 2017–2021 (2021) BDRip [H.265/1080p] 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113895.jpg" />
 </div>
 
 
@@ -335,7 +407,7 @@ Skype 8.114.0.214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113896.jpg" />
 </div>
 
 
@@ -359,7 +431,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113897.jpg" />
 </div>
 
 
@@ -386,7 +458,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113898.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ VA - Armin van Buuren - A State Of Trance 1163 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113899.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ Heretical - Ars Infera: Resvrrectionis Domini Positvm (2001) Remaster, 2024, Car
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113900.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ Sumatra PDF 3.6.15983 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113901.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:44BE84739EC0EF9159E005B6233A34BD5415188E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113902.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.52 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113903.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:BAB7565F372E7EAE2821E8B30255592BD24F70E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113904.jpg" />
 </div>
 
 
@@ -567,7 +639,7 @@ magnet:?xt=urn:btih:2350A0B73E8DFBF1ED109D867E2EC673F6DD6614
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113905.jpg" />
 </div>
 
 
@@ -578,84 +650,6 @@ magnet:?xt=urn:btih:2350A0B73E8DFBF1ED109D867E2EC673F6DD6614
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8558D8A86C0BAD1089BBB112FB0732E6D4A52386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705352   (113906) от 08.03.2024
-
-Кипелов - Весы Судьбы (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Весы Судьбы
-3. Ночь в душе твоей
-4. Твой путь(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE74A07D4A394B2BE6FA24845AE6BBDBB945AB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705301   (113907) от 08.03.2024
-
-Александр Михайловский, Юлия Маркова | Прогрессоры (Книга 4). Второй год новой эры (2024) [MP3, Борис Павлюков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Племя Огня благополучно встретило Новый год, он же Праздник Зимнего Солнцестояния. Теперь впереди предстоят новые опасные путешествия: лыжный поход на Большую Охоту в тундростепи и летнее плавание за каолином и оловянной рудой. И на фоне увлекательных приключений происходит удивительное преображение закоренелой феминистки Люси, а племя неожиданно обретает новых членов (   Читать дальше...   )Жанр: Исторические приключения, Попаданцы, Социальная фантастикаИздательство: ЛитРес: ЧтецПродолжительность: 12:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE850E866D40CEA79786D5C1FC3314D83C673591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705364   (113908) от 08.03.2024
-
-Александр Лаэртский и Карабас - Как будто пришли в гости (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113908.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заклинило
-2. Певица
-3. Вязьма
-4. Мутанты(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B577C0A2F2FB77122AC2B1BD3093567D05584262
 ```
 
 

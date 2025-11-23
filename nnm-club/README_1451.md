@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38079.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6AC93900D7558B1E044928A60459AD7A83A16B7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38080.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38081.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Allie X - Girl With No Face (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Indie P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38082.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F743ACC071F630952FDE73974526F9DC25A59F7C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38083.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:74B1837B2B07D613ED1222CABB3000C5ADB832A3
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38084.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:554A7398087FDABCD5D7D43775D214DEF78B2EEB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38085.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Pun
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38086.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Beth Hart - You Still Got Me (2024) [FLAC|Lossless|image + .cue] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38087.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Bria Mobile: VoIP Softphone v6.18.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38088.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:EC6018ADE3B2C8586D7D22773A55311D4F3E39B3
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38089.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Photo Lab PRO v3.13.34 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38090.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:5370233A1E078687168D54C77E0A61062351A4CE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38091.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:2E6B278885CF49FFC635C7319F8E3456FBB8C657
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38092.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:3AF39D728654CCAEB138D0C0582C1676320F0D85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38093.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D303A0198E151C14019C5C0A675557EB32BCB32B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38094.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:AE35C9B944BDCEE875F2C61C8818A51671CCC856
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38095.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:D085A0AC23D7CA0DA46C2D26A237CD12CD6B26FE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38096.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:5ED61FFA118CA995C1ED5F47C083A8FC08F9998D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38097.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:A896F6355EE71479182A451A42C2D30C598B9223
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38098.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:92E786989556AE5629761BE9E54268BDF9E9ADE9
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38099.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:40BE5FC37FA3FAC7097C58F7B52211DDE977C924
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38100.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:E7710DD121E3D67D7A5AE6B6371CDD389585FA0C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38101.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8A7F0BFF9AF9208BBE5282A02FAAC4F3DD19A5B8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38102.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Opera 99.0.4788.9 RePack by Egorчик [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38103.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - DOWN LOW 7 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38104.jpg" />
 </div>
 
 

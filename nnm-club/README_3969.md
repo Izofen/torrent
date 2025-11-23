@@ -1,3 +1,79 @@
+###  Публикация: 1691992   (122876) от 14.01.2024
+
+Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penny [2:52]
+02. Split Kick [2:55]
+03. It Might as Well Be Spring [2:54]
+04. The Best Thing for You [2:44](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA17A464DA040E79EBAC1B825FAF1C84E20BF78D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692011   (122877) от 14.01.2024
+
+Navicat for Redis on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для Redis — это простой в использовании визуальный интерфейс для визуализации и оптимизации данных Redis. Он предоставляет надежный набор функций, которые упрощают, упрощают и повышают эффективность рутинных задач управления по сравнению с использованием только текстовых команд.
+Подключайтесь к любым локальным и удаленным серверам Redis и совместим с облачными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83A93C485D98F67268D701834D6666247CCDBFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692012   (122878) от 14.01.2024
+
+Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF47E6C9EE29C8C9FB55B8198F97543847F5299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691985   (122879) от 14.01.2024
 
 Text Workflow 1.8.1 [En]
@@ -6,7 +82,7 @@ Text Workflow 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122879.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ Navicat for Oracle on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122880.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122881.jpg" />
 </div>
 
 
@@ -83,7 +159,7 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122882.jpg" />
 </div>
 
 
@@ -110,7 +186,7 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122883.jpg" />
 </div>
 
 
@@ -137,7 +213,7 @@ magnet:?xt=urn:btih:6B9542A9D203C8A835DA30C07A74CB402265B70C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122884.jpg" />
 </div>
 
 
@@ -161,7 +237,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122885.jpg" />
 </div>
 
 
@@ -188,7 +264,7 @@ Emil Sigfridsson - Back to Yesterday (2023) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122886.jpg" />
 </div>
 
 
@@ -215,7 +291,7 @@ magnet:?xt=urn:btih:EC90F1DA491D4CE94B28F7EE7320525549E8735B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122887.jpg" />
 </div>
 
 
@@ -239,7 +315,7 @@ magnet:?xt=urn:btih:0839C16312B7ABDA5AB05E5EEF12C05C22A9797C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122888.jpg" />
 </div>
 
 
@@ -263,7 +339,7 @@ Ray Noir - Scorpio (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122889.jpg" />
 </div>
 
 
@@ -290,7 +366,7 @@ Edge Of Forever - Ritual (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122890.jpg" />
 </div>
 
 
@@ -317,7 +393,7 @@ magnet:?xt=urn:btih:69340A79F2725BFFA106526DCCE02418A0AA1DBA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122891.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ Crucifer - Hell Is for the Hopeful (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122892.jpg" />
 </div>
 
 
@@ -368,7 +444,7 @@ magnet:?xt=urn:btih:43028868F04555452CD5591F86744F95DF5FBF87
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122893.jpg" />
 </div>
 
 
@@ -392,7 +468,7 @@ magnet:?xt=urn:btih:3101AB49A11DF18EAB82C921B574529BF688E281
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122894.jpg" />
 </div>
 
 
@@ -418,7 +494,7 @@ Find Any File (FAF) 2.4.2b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122895.jpg" />
 </div>
 
 
@@ -443,7 +519,7 @@ Tagr 5.6.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122896.jpg" />
 </div>
 
 
@@ -468,7 +544,7 @@ magnet:?xt=urn:btih:6B8F3B0E878515FDCC6EA7B541A4F4B7C82A2189
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122897.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ dUg Pinnick - Naked (2013) Remastered, 2024, Rat Pak Records [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122898.jpg" />
 </div>
 
 
@@ -519,7 +595,7 @@ Ritual Earth & Kazak - Turned To Stone Chapter 9 (Split) (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122899.jpg" />
 </div>
 
 
@@ -546,7 +622,7 @@ Navicat Data Modeler Essentials for Mac 3.3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122900.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ VA - The Battle Of Metal Vol​.​8 (2024) Compilations [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122901.jpg" />
 </div>
 
 
@@ -585,81 +661,6 @@ VA - The Battle Of Metal Vol​.​8 (2024) Compilations [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A96BAC6AD9D2D960C71DACCAB0E08979B23FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691971   (122902) от 14.01.2024
-
-Ghost Buster Pro 2.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghost Buster Pro находит и удаляет файлы из приложений, которые вы уже удалили. Приложение работает молниеносно и мгновенно освобождает память. Многие приложения устанавливаются на компьютер, но обычно они остаются на вашем компьютере только в течение короткого времени. Каждое приложение создает файлы, но удаление приложения не приводит к их удалению. Это приводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F7066D191CE64D8C2671490BC55C78BF2A6DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692015   (122903) от 14.01.2024
-
-Всю ночь напролёт / All Night Long (1962) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет обновленную версию "Отелло" Уильяма Шекспира. Действие происходит на лондонской джазовой сцене за один вечер, во время юбилейной вечеринки... В фильм вставлены выступления нескольких выдающихся британских и американских джазовых музыкантов 60-х годов прошлого века... Музыкант Аурелиус Рекс и его жена Делия, певица на пенсии, приглашены (   Читать дальше...   )Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: драма, музыкаРежиссер: Бэзил ДирденАктеры: Патрик МакГуэн, Кит Митчел, Бетси Блэр, Пол Харрис, Марти Стивенс, Ричард Аттенборо, Бернард Браден, Гарри Тауб, Мария Веласко, Дэйв БрубекПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, Игорь Клушин), английскиеПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3C5E8A4D893CD8FBDFAB3CA250F7402827B451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692053   (122904) от 14.01.2024
-
-Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. North Star [00:04:13]
-02. Star Divination [00:04:38]
-03. Infinity Soundwaves [00:03:56]
-04. Frozen Dragon [00:04:45](   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F38353CD85859D129810F9CD4421726EA0FB2C4
 ```
 
 

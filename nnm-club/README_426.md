@@ -6,7 +6,7 @@ Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11290.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chantel McGregor - The Healing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11291.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Deraps - Viva Rock N' Roll (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11292.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Demolition Hammer - Epidemic of Violence (1992) Released, 2023, Century Media [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11293.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Demolition Hammer - Tortured Existence (1990) Released, 2023, Century Media [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11294.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Music News For Forum vol.114 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11295.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:519DB7236A3F26D1451AFFA75E5B94C70D311B05
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11296.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:3788D7C8368FDAE9851D4F97A37724994D121654
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11297.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:1EEA89810C0B2AEE28F18C18F297B24C6ADAC3F6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11298.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11299.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:8C6E019452181FEA505B1B096CF3F5D93910B090
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11300.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:81FB669F8CD14F0E081258CEACAC8F2F04FAC99D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11301.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:72D5B5CD04D3D255D2D28AF29810C5A161F59C30
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11302.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:72EC6575240161D66D89BD93312DFECA57546616
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11303.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:FB14DD8F40C5C855C289C7B4EDFF99B7B28F8683
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11304.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:A794B81065AED5A933BD806C29C03C01B69F87D8
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11305.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:3D605C6F5EAD7151EB479A19D0E21B6B362395B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11306.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7C8F60B2E1A019309F31A58D8F397A7F56138644
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11307.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:E9B114A062389FF9DE63BA4428E01E2F9FDA1869
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11308.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B5A30C11CB1A2A75C15716C8993BA58D5F494E44
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11309.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11310.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11311.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11312.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Justin Bieber - Swag (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11313.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Simple Plan: Дети в толпе / Simple Plan: The Kids in the Crowd (2025) 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11314.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:F38506135E1AFAE38A4BC9679183C8EF40376A02
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11315.jpg" />
 </div>
 
 

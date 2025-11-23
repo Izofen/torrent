@@ -6,7 +6,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127479.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Liveclasses, Виталий Новиков | Как работать с возр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127517.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127630.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127641.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127676.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127698.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:AC58AC55990FAB6B7E71F9DB3C17E606218E95DD
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127703.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127720.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127850.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A48BC1D1FA896D0AA0C6B8C2E4BEA26DEE93E70D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128017.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128028.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128038.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:D5B04A8C4E9AB5B28EE1137D779539F44B93E870
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128042.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Adrian Cantrill | AWS Certified Developer - Associate (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128072.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128133.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128136.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128138.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:E556765B2D001C94A4AD3C65D8AFE69BEFF5EA81
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128152.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128167.jpg" />
 </div>
 
 

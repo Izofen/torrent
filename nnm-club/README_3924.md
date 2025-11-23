@@ -1,3 +1,83 @@
+###  Публикация: 1693644   (121706) от 21.01.2024
+
+Astrix - Live @ Alternative Reality Set, Universo Paralello, Brazil (2024-01-05) [MP3|320 Kbps] <Goa, Psy-Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrix & Rising Dust vs. Hans Zimmer - Universo vs. Interstellar (Astrix Intro Mashup) w/Hans Zimmer - Sardaukar Chant
+02. Astrix & Rising Dust - Universo (Captain Hook Remix)
+03. 1200 Micrograms & Mandelbrot vs. Arcon & GMS - Artificial Insanity vs. Patterns Of The Cosmos (Astrix Mashup)
+04. Astrix - The Old Monsters (Mash Up Remake)(   Читать дальше...   )Жанр: Goa, Psy-TranceПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258278113A6D959883AC3F1FBBE9C2297B593AB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693565   (121707) от 21.01.2024
+
+Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aries [2:11]
+02. Taurus [2:41]
+03. Gemini [2:08]
+04. Cancer [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Modern CreativeПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB367BDF5BB141E337F906960F9FFD721259C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693618   (121708) от 21.01.2024
+
+30 Seconds to Mars - Stuck (TroyBoi Remix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuck (TroyBoi Remix) [00:02:54]
+02. Seasons [00:02:47]
+03. Stuck [00:03:02]Жанр: Alternative rockПродолжительность: 00:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6EDDBD80D7A6AAB5F57B13FD62B3A468B74751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693638   (121709) от 21.01.2024
 
 Эдуард Назаров и др. | Жил-был пёс (Союзмультфильм) (2006) [MP3, Армен Джигарханян и др.]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121709.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Finder Windows 1.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121710.jpg" />
 </div>
 
 
@@ -56,7 +136,7 @@ magnet:?xt=urn:btih:4904AEBAC7F092205DB67B1749105B559C6BE712
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121711.jpg" />
 </div>
 
 
@@ -83,7 +163,7 @@ Cartesian Ghost - Lux Arcana (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121712.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ Bloodlost - Evil Origins (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121713.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ magnet:?xt=urn:btih:9FDC74049B1D36DFDD162EF92F4C345EF8F7BBB6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121714.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ magnet:?xt=urn:btih:3891F0BBC960C14410D0AB045413D6FEF3EA1520
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121715.jpg" />
 </div>
 
 
@@ -187,7 +267,7 @@ Soledriver - Return Me To Light (2023) Japanese Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121716.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ magnet:?xt=urn:btih:0207FEFF5B903A32492C6938BED4C437A181E31C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121717.jpg" />
 </div>
 
 
@@ -238,7 +318,7 @@ magnet:?xt=urn:btih:F821E98EC412ED4E1606BDEF5BE84293ABDE1D0B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121718.jpg" />
 </div>
 
 
@@ -262,7 +342,7 @@ magnet:?xt=urn:btih:EE3A6E64962BD9098E935E411F66CB1ABEBEA453
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121719.jpg" />
 </div>
 
 
@@ -287,7 +367,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121720.jpg" />
 </div>
 
 
@@ -312,7 +392,7 @@ Zampolit | Касик (Книга 1). Герильеро (2023) [MP3, Игорь
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121721.jpg" />
 </div>
 
 
@@ -338,7 +418,7 @@ magnet:?xt=urn:btih:6B7BD98DAF0F52E12572F80BC584507DF09DC9B7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121722.jpg" />
 </div>
 
 
@@ -362,7 +442,7 @@ Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121723.jpg" />
 </div>
 
 
@@ -389,7 +469,7 @@ magnet:?xt=urn:btih:0BFAF2856CC5815CF8C8F4D259CEFA9D5F3AD07E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121724.jpg" />
 </div>
 
 
@@ -413,7 +493,7 @@ Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121725.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121726.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121727.jpg" />
 </div>
 
 
@@ -494,7 +574,7 @@ magnet:?xt=urn:btih:9098AE8F3F85C9B93609265AE862FC237C795575
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121728.jpg" />
 </div>
 
 
@@ -520,7 +600,7 @@ VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121729.jpg" />
 </div>
 
 
@@ -547,7 +627,7 @@ magnet:?xt=urn:btih:A987B9A026F34E14BFEEE2503FE5D7B8EB07BB85
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121730.jpg" />
 </div>
 
 
@@ -574,7 +654,7 @@ magnet:?xt=urn:btih:6C4D2119E91161B875FFA16F6338965EAFADD13E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121731.jpg" />
 </div>
 
 
@@ -586,81 +666,6 @@ magnet:?xt=urn:btih:6C4D2119E91161B875FFA16F6338965EAFADD13E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EBAD558629B1D242D075CDABB7FD1AC60ABCF7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693698   (121732) от 21.01.2024
-
-AVS Image Converter 6.0.1.333 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121732.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVS Image Converter - лёгкая в использовании программа для конвертации изображений. Позволяет конвертировать многочисленные графические файлы, редактировать, добавлять разнообразные эффекты, текстовые или графические водяные знаки, конвертировать в PDF формат, видеть все изменения во время редактирования, используя окно предварительного просмотра.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B721AF0798EB7EF616037C93843272A2536F3494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693472   (121733) от 21.01.2024
-
-Ара! Бара! Пух!; Шакаленок и верблюд; Хвосты; Раз, два-дружно!; Мы ищем кляксу; Дядя Миша; Заяц Коська и родничок; Верное средство (1956 - 1986) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный сборник для самых маленьких зрителей!!!
-
-Список серий:
-(   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: Сборник мультфильмовРежиссер: Юрий Прытков, Владимир Полковников, Владимир ПекарьАктеры: Клара Румянова, Анатолий Папанов, Анастасия Георгиевская, Александр Граве, Алексей Полевой, Т. Дмитриева, Георгий Вицин, Геннадий Дудник, Вячеслав Невинный, Зинаида Нарышкина, Алексей Грибов, Борис Новиков, Елена Понсова, Ольга Аросева, Сергей Цейц, Л. Катаева, Александра Бабаева, Мария Виноградова, Петр Вишняков, Евгений Весник, Степан Бубнов, Алексей Консовский, (   Читать дальше...   )Субтитры: ОтсутствуютПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD690737CA86A8895AFEE6594073613C257DC9D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693563   (121734) от 21.01.2024
-
-Ступай, Горилла / Vai Gorilla / The Hired Gun (1975) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский Марко должен втереться в доверие к богатому промышленнику и стать его телохранителем. Дело в том, что этого промышленника шантажируют неизвестные и каждый день требуют всё более и более крупную сумму, периодически делая предупреждения – взрывы на его стройках, выстрелы в окна и тому подобные вещи. С помощью своего брата, имеющего связи в криминальном (   Читать дальше...   )Производство: Италия / FILM ARTЖанр: драма, криминалРежиссер: Тонино ВалерииАктеры: Фабио Тести, Ренцо Пальмер, Клаудиа Марсани, Саверио Маркони, Адриано Амидеи Мильяно, Антонио Марсина, Лучано Катеначчи, Джулиана Каландра, Мария Д’Инкоронато, Аль ЛеттьериПеревод: Авторский (Алексей Яковлев)Язык озвучки: русский, итальянский, английскийСубтитры: английские, немецкиеПродолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE037216019054DBFD3CCD768A29482E76E97EBB
 ```
 
 

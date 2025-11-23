@@ -6,7 +6,7 @@
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82354.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BDFBABDF4406B1F9C1E30FAB9D3EE3E4BB004656
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82355.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:721CD6C25DADE9343078A15580161A0D4FFB7BE3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82555.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7FEA9778D65FD27F3DAD375156026E0A57F34228
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82766.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C88F6E60F18FF84B40151CA36AA2D001EF1C6A6D
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82957.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FE4C8ADE5EDAA8C9BC4750AF64A02DC97BECA469
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82972.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CC6B0C3576CC9F444D8493F92548D24941BC86EC
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83160.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2469F0A555FD5D4D4D5AAE9656E8A010528252B1
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83172.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D648E22151A24F724F256168F85B4B03BF87BD7C
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83174.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83195.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A58C81609577AD68C106F96032DB33E2C9AF5F15
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83373.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:517ECA4850A37DE8174FB15CA78F8471AABD4934
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83813.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84597.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:622D1720A6C168CB082560E7A8D8FAB644436838
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85043.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85412.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1ABC2588047AD27BC6CE186CA3A5A0D5D52439F9
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85434.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D96141128185CA8325FF90002E8B1B62B429DA96
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85631.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0FD173A0EF1CFA34C1085249172E929635FB7225
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86651.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:0FD173A0EF1CFA34C1085249172E929635FB7225
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88069.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C3F850846311E738E76FB268D9621DC062C3FA98
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89144.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A42B45ACD3C315A53A5698D6F21C6C1AF08FF316
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90317.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:155D977ED36D3ECB27735A17BDB88EDAE54494E8
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101650.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ GRID Legends - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 6.01] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121383.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Sniper Elite 5 - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.29 / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122095.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122107.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122699.jpg" />
 </div>
 
 

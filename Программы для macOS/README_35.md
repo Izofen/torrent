@@ -6,7 +6,7 @@ Joyoshare iPasscode Unlocker 4.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160126.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Joyoshare UltFix 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160158.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vectorworks 2022  SP3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160195.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Aiseesoft Mac Data Recovery for Mac  1.6.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160232.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Project Office X Pro 1.1.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160240.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Native Instruments Komplete Kontrol 2.9.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160258.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160282.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160294.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160300.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160310.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NetShred X 5.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160317.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AweCleaner Professional for Mac 5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160339.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Wipr – Ad and Tracker Blocker 1.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160398.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Get Backup Pro 3 v.3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160430.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ EXIF Sync 1.9.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160446.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Mach Desktop HD 3 v.3.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160455.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ NCH DrawPad Pro 10.63 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160466.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ LaunchBar 6 v.6.18.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160471.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Transmit 5.10.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160551.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Apple MainStage 3.6.5[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160563.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160642.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ MWeb Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160679.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.2.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160777.jpg" />
 </div>
 
 

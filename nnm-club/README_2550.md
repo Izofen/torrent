@@ -6,7 +6,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67048.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67049.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ His Kingdom Suffers - Lord Have Mercy (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67050.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iSenin - Москва кабацкая (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67051.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:681522F59C055D6FA90ADB235E4C418E99A11844
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67052.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Музыка Семейства Штраусов. На Прекрасном
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67053.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Fantasy Island (Rainbow Chill out Tunes), Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67054.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:9EAAC1BB5CD2B948319270D8F64BA1310A87BA0E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67055.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:9E7D04412B8786A4C05EC1B538B92DA4900FA959
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67056.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:CABDE112879AF967FD48A38590E95157262A392B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67057.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:5BDC5C5FF35E7C4625A2E7F02DD8AF3932686BBE
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67058.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tom Wax - The Future Is Now (2025) [MP3|320 Kbps] <Techno, Hard Trance, House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67059.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67060.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:ABC2A2EBAC17608C892E214073340527EE13D164
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67061.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67062.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B65A3EA9A691988D7BDD5FB44858D0737DBF3CFE
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67063.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2CA5726D9841EDC2A90156A5A3506FFD388078B5
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67064.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:7282B4E7DD6CABAC8794C18F54E685C0752A4A75
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67065.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Eric Bell - Authenticity (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67066.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mateo Ortega - Close To Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67067.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Jimmy Adler - It's Hot! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67068.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67069.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67070.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B834BFA02CAC90C84DBB640F47DC935083580049
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67071.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ She Brought Me Gasoline - Songs from the Cliff (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67072.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67073.jpg" />
 </div>
 
 

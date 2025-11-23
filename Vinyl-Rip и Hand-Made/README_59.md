@@ -1,3 +1,111 @@
+###  Публикация: 1642113   (235786) от 26.06.2023
+
+A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235786.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stay On These Roads 4:44
+A2 The Blood That Moves The Body 4:05
+A3 Touchy 4:31
+A4 This Alone Is Love 5:13(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6868FBE367A08BB0303738B18AB784F6863B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640709   (235909) от 19.06.2023
+
+Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal / Death 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entombed — шведская дэт-метал-группа, сформированная в 1987. Группа является пионерами скандинавского дэт-метала.1990 - Left Hand Path
+1991 - Clandestine
+1993 - Wolverine Blues
+1997 - DCLXVI: To Ride, Shoot Straight And Speak The Truth!Жанр: Death Metal / Death 'n' RollПродолжительность: 12:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202CA229E76592ACD22373D03DC113A984759380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631691   (235963) от 06.05.2023
+
+Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_235963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Civil War — хеви-пауэр-метал-группа из Швеции, основанная в 2012 году.2012 - Civil War (EP)
+2013 - The Killer Angels
+2015 - Gods And Generals
+2016 - The Last Full Measure(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 04:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3014CBC3A138A5D2C9798A678555C9E42C30EA9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631725   (236092) от 07.05.2023
+
+VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_236092.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 И. Крайичек – Марика
+A2 З. Каминьска – Я Жду
+A3 И. Шерфези – Лола
+A4 В. Стойкович – В Долгих Ночах(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B17D203C39F9283540A540F383D0577F52098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640596   (236104) от 18.06.2023
 
 Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal with Doom Metal influences>
@@ -6,7 +114,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236395.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236395.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236410.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236410.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236921.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236992.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_236992.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237126.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237159.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237196.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237198.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237201.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237215.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237227.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237261.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_237451.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237534.jpg" />
 </div>
 
 
@@ -587,115 +695,6 @@ A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630201   (237599) от 30.04.2023
-
-Красные Маки - Если Не Расстанемся... (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Встречай Меня
-А2 Если Не Расстанемся
-А3 Скажет Девчонка
-А4 Давай Попробуем Вернуть(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630078   (237690) от 29.04.2023
-
-Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
-Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
-1987 - Finished With The Dogs
-1989 - The New Machine Of Liechtenstein
-1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548519   (237707) от 03.05.2022
-
-Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative/Soft/Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса "Капитана" Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
-2006 - Carnival of Rust
-2008 - Revolution Roulette
-2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative/Soft/Indie RockПродолжительность: 10:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171308   (237749) от 03.05.2022
-
-VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Eurobeat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Modern Talking - Win The Race
-02. Modjo - Chillin'
-03. Billy More - Come On And Do It(   Читать дальше...   )Жанр: Electronic, EurobeatПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
 ```
 
 

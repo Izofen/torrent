@@ -6,7 +6,7 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80261.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E5865EB7CE043464A05E1FDC5CE409E7A42778B0
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81535.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:E36B1A0FF9918A9BBDD5EBAC0544ACB9BDBE5F38
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82122.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82134.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:2E8A75D341DCE0CDE44860E3562C8395F07A6239
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83083.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Artaliance | Кайдзен. Управление производством. У
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83140.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:B0C2F8B164D30D674C9A6DD87B3BBADCE193E0FD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83176.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:646720B81A5A20FCE904A1DD5CFE7CCA0D4FC532
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84188.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0497A069DE7607093FFE5124AD978A6B1A164496
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85821.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86219.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F105D9DAD9BD4DB2473B49D0109E634396FDF4B0
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87612.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:944AD2042C5078F09A57D6445A191DAD54AF2B56
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89722.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:ED8741B673EF768F45BBBE6D2C7F571AC16C9D39
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89756.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sova film | Самомассаж: снимаем боль своими рука�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90502.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91237.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91277.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94655.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:6EE66D3FB9A083A83C536F046A72107FCB75E254
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98557.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:A015B357479B6735F0FEA2BAEBE0D928E1B3114E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99137.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99922.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Skill Issue, Skill Issue | Подготовка к Golang собеседован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100900.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100926.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Fairtex Muay Thai - Concepts On Training & Combat Strategy [2004] DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102450.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102699.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ karpov.courses, Валерий Бабушкин и др. | Хардкорный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104436.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104443.jpg" />
 </div>
 
 

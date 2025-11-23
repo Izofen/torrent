@@ -1,3 +1,105 @@
+###  Публикация: 1195734   (138799) от 31.12.2017
+
+VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138799.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Atlanta  -  Romantic Break  5:06
+02.  Modern Talking  -  You're My Heart, You're My Soul  5:33
+03.  Spagna  -  Easy Lady  6:53(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514680   (138800) от 24.11.2023
+
+Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Second Edition (2020-2023) [PDF] [3 версии книги с дополнительными материалами] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная, практичная и простая в освоении программа, которая поможет вам с нуля построить готовые к работе API за несколько недель.
+Зачем изучать ASP.NET Core Веб API?
+Почему вы должны вкладывать свое время и деньги в эту программу?
+С момента появления .NET Core 1.0 вся экосистема .NET, похоже, получила новую жизнь. Фреймворк был обновлен, и теперь с версией 3 он стал (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: CodeMazeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088580   (138802) от 31.12.2016
+
+Журнал | В мире науки №12 (декабрь 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138802.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В мире науки» — русская версия самого известного в мире ежемесячного научного обзорного журнала «Scientific American». Это информация и научно-популярные статьи о развитии мировой науки и передовых технологий, взаимодействии науки и общества, инновационной политике, образовании и месте науки в современной культуре, рецензии на книги о науке.Жанр: Научно-информационный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F5555E4C606D25A7507924DFFF23CD8E815AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273189   (138803) от 30.12.2018
+
+Вкус счастья (2018) WEB-DLRip (серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138803.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Леры нет никого ближе и роднее, чем младшая сестра Наташа, которую она с 18 лет воспитывала сама. Чтобы сестра ни в чем не испытывала недостатка, Лера отказалась от своей мечты и не поступила в медицинский институт. Сестры живут душа в душу, пока однажды младшая не едет в столицу на поиски лучшей жизни. А потом и вообще девушкам приходится столкнуться друг с другом (   Читать дальше...   )Производство: Украина / Star MediaЖанр: мелодрамаРежиссер: Александр БудённыйАктеры: Клавдия Дрозд, Анна Кошмал, Александр Пашков, Владимир Лилицкий, Михаил Химичев, Сталина Лагошняк, Алексей Смолка, Ксения Мишина, Влад Никитюк и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB43D74F80D947159049542ADC252E3D61852735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436114   (138806) от 30.12.2020
 
 Кэрол Либерман | Плохие девочки. Почему их любят мужчины и как хорошим девочкам узнать их секреты (2020) [PDF, EPUB]
@@ -6,7 +108,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138806.jpg" />
 </div>
 
 
@@ -32,7 +134,7 @@ magnet:?xt=urn:btih:C4A07A00983EBC2DE5726D74E3041DC3973873B0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138807.jpg" />
 </div>
 
 
@@ -56,7 +158,7 @@ VA - Rock Collection 1988 (2015) [MP3|320 кб/с] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138808.jpg" />
 </div>
 
 
@@ -83,7 +185,7 @@ magnet:?xt=urn:btih:8B9271A04310E45F697C71498566A5A23CCFF1B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138810.jpg" />
 </div>
 
 
@@ -107,7 +209,7 @@ Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138811.jpg" />
 </div>
 
 
@@ -134,7 +236,7 @@ magnet:?xt=urn:btih:AE9EAA3B3C675819B8E5DAAEECA33E35A49E1DA6
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138812.jpg" />
 </div>
 
 
@@ -160,7 +262,7 @@ Angel Delacruz | Эпидемия. All Inclusive (2018) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138814.jpg" />
 </div>
 
 
@@ -184,7 +286,7 @@ magnet:?xt=urn:btih:DBC14C9D2427C8F835DD2073EEA23E6B7B362A04
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138815.jpg" />
 </div>
 
 
@@ -208,7 +310,7 @@ magnet:?xt=urn:btih:B4CC2E3AEC3E85BFBB986762ABCB81C9D00454AB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138816.jpg" />
 </div>
 
 
@@ -233,7 +335,7 @@ magnet:?xt=urn:btih:3035EE894375CC233900C9BE3377D9809D85006C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138817.jpg" />
 </div>
 
 
@@ -258,7 +360,7 @@ Paul Mauriat - Compilation (2021) [MP3|320 Kbps] <Instrumental, Paul Mauriat>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138818.jpg" />
 </div>
 
 
@@ -285,7 +387,7 @@ magnet:?xt=urn:btih:DF35D4281A371D295729E1AB4365AD74A6FDBA22
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138820.jpg" />
 </div>
 
 
@@ -309,7 +411,7 @@ XMedia Recode 3.3.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138821.jpg" />
 </div>
 
 
@@ -333,7 +435,7 @@ magnet:?xt=urn:btih:E4F58F0B77CBF5B8424701EFA86A74C902488B4F
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138822.jpg" />
 </div>
 
 
@@ -357,7 +459,7 @@ Adobe After Effects 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138824.jpg" />
 </div>
 
 
@@ -381,7 +483,7 @@ Discovery. Опасная работа / Hard to Kill (2018) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138825.jpg" />
 </div>
 
 
@@ -405,7 +507,7 @@ magnet:?xt=urn:btih:DE643F4E11948F1A735C721B8FF220687072C43B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138826.jpg" />
 </div>
 
 
@@ -429,7 +531,7 @@ magnet:?xt=urn:btih:2D5E4E8ED087081A96C1EADB5FC9FC1EF9C7DCAF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138828.jpg" />
 </div>
 
 
@@ -454,7 +556,7 @@ magnet:?xt=urn:btih:EA9402E3DEDED351CFC61CDCDFFED295A2898723
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138829.jpg" />
 </div>
 
 
@@ -478,7 +580,7 @@ magnet:?xt=urn:btih:4EDA9711639FCE4ACA494FF175AC8CA10611E3BA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138830.jpg" />
 </div>
 
 
@@ -502,7 +604,7 @@ magnet:?xt=urn:btih:159E97A1FDB1CD9AB08B019B6625AA73FFE99C5E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138831.jpg" />
 </div>
 
 
@@ -526,7 +628,7 @@ magnet:?xt=urn:btih:C7DCEAF9571A5F39B6EAE750E31C412F05F4B046
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138832.jpg" />
 </div>
 
 
@@ -537,103 +639,6 @@ magnet:?xt=urn:btih:C7DCEAF9571A5F39B6EAE750E31C412F05F4B046
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ACF19868637A216D9EA9978159AD11327EA5B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349127   (138834) от 30.12.2019
-
-MonsterLessons | React Hooks - Пишем Реальный Проект с Нуля (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы создадим клон сайта Medium используя React и React hooks. Этот курс полностью сфокусирован на быстром и глубоком погружении в создание реального приложения с Реакт и хуками. Мы начнем с нуля и шаг за шагом дойдем до законченного приложения. Мы глубоко разберемся как структурировать приложение, создавать переиспользуемые и понятные хуки и компоненты (   Читать дальше...   )Производство: Александр КочергинЖанр: Программирование, ReactПродолжительность: 07:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEECF73B4DCE647308913BB94DC1ECE3CDF97B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516250   (138835) от 30.12.2021
-
-Легко любить / Easy to Love (1953) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милая музыкальная комедия об убежденном холостяке-рекламисте Рэе Ллойде, тайно влюбленном в свою самую популярную модель - пловчиху Джули Холлертон.
-Но все тайное рано или поздно становится явным. Особенно, когда на горизонте у незадачливого влюбленного появляется конкурент. И не один!Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Мелодрама, КомедияРежиссер: Чарльз УолтерсАктеры: Эстер Уильямс, Ван Джонсон, Тони Мартин, Джон Бромфилд, Эдна Скиннер, Кинг Донован, Пол Брайар, Кэррол Бейкер, Эд Оливер, Питер АдамсПеревод: Многоголосый профессиональный, "Светла"Субтитры: АнглийскиеПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F9BEE084B630F3744E7680EF8EE3EE0EB27FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678756   (138836) от 24.11.2023
-
-Когда приходит освобождение / Nar befrielsen kommer / Before It Ends (2023) WEBRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на реальных событиях, фильм приоткрывает одну из неприглядных страниц в истории Дании весной 1945 года. Накопившуюся за годы фашистской оккупации злость местное население вымещает на беззащитных интернированных гражданах Германии. В центре картины - суперинтендант сельской школы, вынужденный по приказу немецкого коменданта организовать в ней лагерь для (   Читать дальше...   )Производство: Дания / Film Fyn, Growing Stories, Growing Studio, Nordisk Film Production, Nordisk Film- & TV-Fond, RUV, The Danish Film Institute Archive, TV 2 PLAY, Yle FemЖанр: Драма, военныйРежиссер: Андерс Вальтер ХансенАктеры: Пилу Асбек, Лассе Петер Ларсен, Кэтрин Розенталь, Мортен Хи Андерсен, Ульрих Томсен, Йенс Йорн Споттаг, Амалия Друд Абильдгорд, Лессер Кирстин Андерсен, Энн Бенгтсон, Мадс БьернПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, датскийСубтитры: датские, шведские, норвежские, финскиеПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7F9DDFEA4CD7F5F89F2E0EF876D0AAF0FB748F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272789   (138837) от 30.12.2018
-
-Филип Рив | Смертные Машины (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя много веков после фантастической Шестидесятиминутной войны наступила Эра Движения. Города вырвали себя из земли и встали на колеса. Мир живет по законам муниципального дарвинизма: города кружат по Охотничьим землям и пожирают друг друга. А когда добычи становится совсем мало, Движущийся мегаполис Лондон прибегает к чудовищному оружию Древних. С его помощью (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5477FBC5D5185CD8D5DDAF7524B8E1FDFDF60A51
 ```
 
 

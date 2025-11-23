@@ -1,3 +1,81 @@
+###  Публикация: 1693179   (121940) от 20.01.2024
+
+VA - 90'S EuroDance Hitmix 2 (2024) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double AA - Dancers in the Night (Extended Version) (05:33)
+02. Ritmo Ritmo - Caramba Caracho (03:32)
+03. Heath Hunter & The Pleasure Company - Master & Servant (03:39)
+04. Heath Hunter & The Pleasure Company - Love Is All Around (03:40)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 02:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8BCC5683996959A58A39B45BDA77BD582B174F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693442   (121941) от 20.01.2024
+
+Воины волки / Wolf Warriors (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) OKKO
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121941.jpg" />
+</div>
+
+
+###  Подробнее
+
+До времен Чингисхана 33 племени Степи объединились и восстали против тех, кто осквернял и эксплуатировал их, чтобы обеспечить своим потомкам Величие и Мир.Производство: Монголия, США / Belgute Pictures, Mount Guard, Three Flames PicturesЖанр: боевикРежиссер: Ганболдын ЭрдэнэбилэгАктеры: Ганболдын Эрдэнэбилэг, Намсрайн Ялалт, Баасанбуугийн Шинэбаяр, Tenuun-Erdene Garamkhand, Sukhee Ariunbyamba, Dorjsuren Shadav, Дашнямын Цэрэндарьзав, Aminsanaa Zagdbazar, Пурэвдоржийн Цэрэндагва, Purvedorj JamsrajavПеревод: Дублированный (OKKO)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867DE249AA48144A55B6CBFA434BFDFCC0AB201A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693312   (121942) от 20.01.2024
+
+Яндекс.Практикум | SMM-продвижение в Телеграме (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие задачи вы сможете решать после курса
+Cоздавать и оформлять каналы
+Писать посты для соцсетей и разрабатывать контент-план
+Обрабатывать текст, фото и видео для создания контента(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: ВоркшопЯзык озвучки: РусскийПродолжительность: 03:56:28Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E15F7D3CCED4A380E6D47C5D01F836F0E78B6B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418710   (121943) от 20.01.2024
 
 Фарго / Fargo (1995) WEBRip [H.265/2160p-LQ] [4K, SDR, 8-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121943.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:4ED7F848103090C0ACDF546DAA139868E92B1C18
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121944.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:DBC6A9B4A92D57193D5E38B456DB4B1BC08B744F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121945.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ magnet:?xt=urn:btih:F783C2CBFA4F8AF619E10C17AAE9D7E810F77743
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121946.jpg" />
 </div>
 
 
@@ -103,7 +181,7 @@ magnet:?xt=urn:btih:595B98CBAEF5F7DCFDF75CBF66D3EB50B407B838
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121947.jpg" />
 </div>
 
 
@@ -127,7 +205,7 @@ magnet:?xt=urn:btih:14A3F0D0DE85C9262C953103E424A466F24A4444
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121948.jpg" />
 </div>
 
 
@@ -151,7 +229,7 @@ magnet:?xt=urn:btih:BC501AB62025D6C29DD57DB8D2AC09A91320CCB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121949.jpg" />
 </div>
 
 
@@ -175,7 +253,7 @@ magnet:?xt=urn:btih:A57CB97F084CFD94F70AB3BF633577864BE1D3F7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121950.jpg" />
 </div>
 
 
@@ -199,7 +277,7 @@ magnet:?xt=urn:btih:675EB24618B429955A548FBD7302A93CC763691E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121951.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121951.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ magnet:?xt=urn:btih:675EB24618B429955A548FBD7302A93CC763691E
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121952.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ magnet:?xt=urn:btih:99F4014D1C8E72270E87D7CA6FCB7303111F29E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121953.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121953.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Hetman RAID Recovery 2.6 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121954.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ magnet:?xt=urn:btih:8728E6C80E2C5FC32BEA5FA0E8DF4F4820A5EC71
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121955.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:D17867C565212EB91F161F87EA95381472C19D19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121956.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Kingsvein (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121957.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ magnet:?xt=urn:btih:045E2F4CCED061B62BFB4C2BFCE940A84526B5B7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121958.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ App Cleaner & Uninstaller Pro 8.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121959.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ magnet:?xt=urn:btih:A8BA40C84E46D5806B7CECB47F1E6DAD88D6532E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121960.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ magnet:?xt=urn:btih:2BA404D7856FE4C98D7C7117B77957395EA72841
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121961.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:1C978155D55F332CD7667F159848413492E3D387
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121962.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ magnet:?xt=urn:btih:8F1F72338091D8EF40D9A9DCB2BF612471ADE41D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121963.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ magnet:?xt=urn:btih:D8C24ABCAEF8A39E1E7283B1413FED516FCE3878
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121964.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ magnet:?xt=urn:btih:7403607880DFA1FE0AF4189C765EDE255AFABB12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121965.jpg" />
 </div>
 
 
@@ -553,81 +631,6 @@ magnet:?xt=urn:btih:7403607880DFA1FE0AF4189C765EDE255AFABB12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47D7BBB233B925B13D798DC41C4D748BBD6DB235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693477   (121966) от 20.01.2024
-
-Дворец / The Palace (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121966.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 1999 года. Роскошный отель в Швейцарии и его гости-миллионеры готовятся к самому долгожданному Новому году. Впереди ночь, полная самых разных причуд, пороков и странностей богатых и знаменитых.Производство: Италия, Швейцария, Польша, Франция / Eliseo Entertainment, Rai Cinema, CAB ProductionsЖанр: комедияРежиссер: Роман ПоланскиАктеры: Оливер Мазуччи, Микки Рурк, Фанни Ардан, Джон Клиз, Милан Пешель, Александр Петров, Жоакин де Алмейда, Фортунато Серлино, Бронвин Джеймс, Дэнни ЭкснарПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: русские, итальянскиеПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF6F23B6D6E47BD630369F81A25144D1DD442B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693003   (121967) от 20.01.2024
-
-Microsoft Windows 10 [10.0.19045.3930], Version 22H2 (Updated January 2024) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.3930.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F4D740EC29E247F47EC8FD9C3755ECD1AC834A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693275   (121968) от 20.01.2024
-
-Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в курс по Kubernetes. В этом курсе вы получите глубокое понимание и практический опыт работы с Kubernetes. Kubernetes сейчас является де-факто стандартом для развертывания контейнеризированных приложений в production среде и является обязательным инструментом для всех DevOps-инженеров и разработчиков программного обеспечения, которые хотят научиться (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 05:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
 ```
 
 

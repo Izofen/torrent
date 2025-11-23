@@ -6,7 +6,7 @@ FabFilter - Pro-Q 3 3.26, VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34422.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Movavi Photo Editor 24.3.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Movavi Slideshow Maker 25.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34637.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PTE AV Studio Pro 11.0.15.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34705.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Gilisoft Audio Recorder Pro 13.3.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34717.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Xara Photo & Graphic Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34910.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Xara Web Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34913.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Xara Designer Pro+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34938.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Waves Ultimate 2024.11.29 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35064.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Aiarty Image Matting 2.0 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35274.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Kirnu - Cream 1.2.6 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35334.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Unfiltered Audio - Silo 1.1.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35460.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ ToneBoosters Plugin Bundle 1.8.9 STANDALONE, VST / VSTi, VST 3 / VSTi 3, AAX (x6
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35461.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MediaMonkey Gold 5.0.5.2695 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35584.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Icecream Photo Editor Pro 1.52 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35776.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Acon Digital - Mix And Mastering Suite 1.5.1 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35860.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Serif Affinity Designer 2.5.6.2887 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35862.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Serif Affinity Publisher 2.5.6.2887 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35867.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ ON1 NoNoise AI 2024 18.3.0.15302 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35891.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Excite Audio - Bloom Drum Machine 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35955.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Valhalla DSP - Valhalla Delay 3.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35982.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ iZotope - Cascadia 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35986.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ iZotope - Aurora 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35998.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ ThunderSoft Video to GIF Converter 5.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36068.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ ThunderSoft GIF to Video Converter 5.5.0 (Repack & Portable) by elchupacabra [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36069.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Overloud - Gem ECHOSON 1.0.8 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36250.jpg" />
 </div>
 
 

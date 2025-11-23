@@ -6,7 +6,7 @@ VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157952.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The 100 Best Songs of 2020 by APPLE MUSIC [MP3|320 Kbps] <Pop, Dance, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158080.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Middle of the Road - 20 Greatest Hits (1971-73) Remaster SMRP, Russia, 2020, De-
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158090.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Рок Марафон: Выпуск 12 (2015) [MP3|192-320 кб/с] <Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158213.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Sunlight Project: Vocal Trance Solar Mix (2015) [MP3|320 кб/с] <Vocal, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158261.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Soulful Love Smooth and Sexy Grooves 25 Tracks (2015) [MP3|320 кб/с] <Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158270.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158352.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Artur (Artur Khlgatyan) - Armenian Rap (2011-2015) [MP3|320 кб/с] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158410.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - The Best Of Surf Rock & Spaghetti Western (2015) [MP3|224-320 кб/с] <Cou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158432.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Charming Bourgeois Vol 5 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158446.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Стая белых голубей. Академия хитов шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158449.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Levitation: Easy Listening And Chillout Party (2015) [MP3|320 кб/с] <Eas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158451.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Sounds Of Happiness (2015) [MP3|320 кб/с] <Dance, Pop, Club House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158460.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Chill Out (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158462.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158471.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158490.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158495.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Groovedelicious 40 Deep and Tech House Sounds, Vol 1 (2015) [MP3|320 кб/�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158505.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - 100 Super Enigmatic (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electroni
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158600.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Pop Rock Hits! 100 Colours (2015) [MP3|320 кб/с] <Alternative, Indie, Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158612.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158638.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158645.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Новогодняя вечеринка. Клубные новинки! (So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158649.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Trap Vol.1 (Compiled by Zebyte) (2015) [MP3|160-320 кб/с] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158679.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Big Room Dance 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158909.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Trance In Motion Vol.366 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158933.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11702.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11703.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:31407A4B1409B6624187F273BDE6D2D6F1060153
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11704.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:72C389BF076FAC22BA156D7FAFD9A414E9D6F782
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11705.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:145B4670C1178933AC8B47F194958229FA9729EB
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11706.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B66C3490B2F1DD04368A68BD033E0E5F1C1DBE79
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11707.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:772612DA52045D9203492AFB7A0247174F41C59B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11708.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:55DC89FA4BB5C6A8B9DA3A6945DC25986C5714FB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11709.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:CFBF8A7A44ABB97B266C7DF985DC293AD3227385
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11710.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D3D249A38A648F91DA72AA2F72BACAC7C5E3A34F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11711.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:6237CB8E2815ACC0F78EBBA90757CD62CB77DCDF
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11712.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Bronski Beat - Forbidden Fruit - The Age of Consent Remixed (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11713.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cytomic Effects Bundle 2025.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11714.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Chris Rea - The Best Of (1992) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11715.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Firefox Browser ESR 115.25.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11716.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Firefox Browser 140.0.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11717.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4D3ACF015519FF0AEE9BA235C0CAF2E84E746609
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11718.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4F0DA1AB303C91AC832E2114A610C4F5AACF7053
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11719.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ dBpoweramp Music Converter 2025.07.07 Reference (x64) Portable by FC Portable [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11720.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Firefox Browser ESR 128.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11721.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11722.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11723.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:44E063346FC7ED45A27B106414DA7B1221AE4ABD
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11724.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ YT Downloader 9.12.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11725.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:808B468840552AD42D27F79E3CDF68D55D4757AD
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11726.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Pepakura Designer 6.1.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11727.jpg" />
 </div>
 
 

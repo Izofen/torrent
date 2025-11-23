@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Far Manager  3.0.6364 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:44E80DFFA2763F20668ECEB11AD79178C3BBED6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45701.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F750E535F3B0F05C10F9A835C712910607CEE0FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45702.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45703.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Teorex Inpaint 11.0.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45704.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CD3986E280546E40D50C491B5A0391FEFE528CB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45705.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:832DDC982C2656CD1E0D0DA33E121BB46AB37352
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45706.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B451DE18D35136675ADEE2142F52319D5A9FD9A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45707.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45708.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:DD606C55513D32B715630E6FF1080CAD4CFCAD0F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45709.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:DD606C55513D32B715630E6FF1080CAD4CFCAD0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45710.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:7EC7B8E0B24975662A01634B66070C55E6C52676
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45711.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45712.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45713.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:93B62A3F7EAA65A0998576B3E0129BC20BC773DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45714.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ KMPlayer 2024.8.22.14 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45715.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:DFA0587CBBDE5ADA1E0D3340F948C89BE3B2A897
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45716.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ GOM Player Plus 2.3.95.5366 (x64) RePack (& Portable) by Dodakaedr [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45717.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45718.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45719.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45720.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:2C909E1D268766182FE99D04EEF9F749082A8A3E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45721.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ MetaProducts Offline Explorer Enterprise 8.6.4984 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45722.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:4D1778650622EA9D7C1AABE9EF57199698F90670
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45723.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:61FC87431D9BC7911AD5FC2470A973F3A8D3D511
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45724.jpg" />
 </div>
 
 

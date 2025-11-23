@@ -1,3 +1,78 @@
+###  Публикация: 1764239   (102725) от 06.12.2024
+
+The Vazeline - Панк для молодых (2024) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Панк для молодых
+2. Разблокируйте панкам Тайгу
+3. Панки не танцуют танго
+4. Нам здесь не будет весело(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9CB441F58C65D31E430F6F9D2FF1AEE0509597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764359   (102726) от 06.12.2024
+
+Любимые мультфильмы кота Леопольда. Выпуск 5. Приключения Фунтика (1978-1988) DVD5 [Крупный план]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые мультфильмы кота Леопольда. Выпуск № 5: Приключения Фунтика (Фунтик и сыщики, Неуловимый Фунтик, Фунтик и старушка с усами, Фунтик в цирке, Муми-Тролль и другие, Муми-Тролль и комета, Путь домой)Производство: СССР / ТО "Экран"Жанр: рисованная анимацияРежиссер: Анатолий Солин, Аида Зябликова, Нина ШоринаАктеры: Армен Джигарханян, Ирина Муравьёва, Ольга Аросева, Спартак Мишулин, Анатолий Баранцев, Георгий Бурков, Борис Рунге, Юрий Волынцев, Зиновий Гердт, Ольга Гобзева, Зинаида Нарышкина, Юрий Яковлев и другиеСубтитры: отсутствуютПродолжительность: 00:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764286   (102727) от 06.12.2024
+
+Любимые мультфильмы кота Леопольда. Выпуск 2. Про тигренка и его друзей (1983-1987) DVD5 [Крупный план]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые мультфильмы кота Леопольда. Выпуск № 2: Про Тигренка и его друзей (По дороге с облаками, Подарок для слона, Клад, Девочка+дракон, Малиновое варенье, Забытый день рождения, Крококот, Вреднюга и др.)Производство: СССР / ТО "Экран"Жанр: мультфильм, короткометражка, детскийРежиссер: Юрий Бутырин, Юрий ТрофимовАктеры: Зинаида Нарышкина, Зоя Пыльнова, Александр Маркелов, Рогволд Суховерко, И. Воронцова, Зинаида Нарышкина, Клара Румянова, Раиса Мухаметшина, А.Баталов, Ролан Быков и другиеСубтитры: отсутствуютПродолжительность: 00:09:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE32A0404F5FBCB6F7EE63EB35FB7F3BCC0192A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764273   (102728) от 06.12.2024
 
 Мишени / Targets (1968) BDRip [H.264] [MVO]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102728.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:366FF133160E1FAD59BA1C9908FD5AD483A40F5E
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102729.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102730.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102731.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Maleficium Arungquilta - Искусство драм (2010) [FLAC|Lossless|image
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102732.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ Voodoo Angel - Midnight Rouge (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102733.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ magnet:?xt=urn:btih:B23D2ED180EA22BDD31E2215BEF8931F00CF73A3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102734.jpg" />
 </div>
 
 
@@ -192,7 +267,7 @@ magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102735.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .c
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102736.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102737.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ Cemetery Skyline - Nordic Gothic (2024) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102738.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ VA - Armin van Buuren - A State Of Trance 1202 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102739.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ Fabrizio Poggi - Healing Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102740.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ Jimmy Heath - Love And Understanding (1973) 1995, Xanadu Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102741.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Rens Newland & Fuse Bluezz - Still Waiting for Better Times (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102742.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ magnet:?xt=urn:btih:02D826EDF88721E3D223244D4CECC049F22B53D8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102743.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ Vinyl Paradise - Vinyl Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102744.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ Asterise - Tale of a Wandering Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102745.jpg" />
 </div>
 
 
@@ -486,7 +561,7 @@ BBR - Boogie Blues and Rock n Roll 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102746.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ Lizzie Thomas - Lizzie Thomas - This Christmas (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102747.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ Smooth Jazz All Stars - Smooth Jazz Renditions of Dua Lipa (Instrumental) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102748.jpg" />
 </div>
 
 
@@ -567,7 +642,7 @@ Nick Evans Mowery - From the Top Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102749.jpg" />
 </div>
 
 
@@ -594,7 +669,7 @@ The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102750.jpg" />
 </div>
 
 
@@ -608,87 +683,6 @@ The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42DCD47FC63C7137F092E5138097FDFC49C0044C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764073   (102751) от 05.12.2024
-
-The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lude Mood (2:34)
-02. Blow A Fuse (4:28)
-03. S.O.S. (3:39)
-04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764052   (102752) от 05.12.2024
-
-Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire It Up (4:02)
-02. Blues Man (6:55)
-03. Drinkin' Daddy (6:17)
-04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764162   (102753) от 05.12.2024
-
-Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frames of Humanity (04:06)
- 02. Legacy of the World (03:55)
- 03. The Day We Obscured the Sun (04:20)
- 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
 ```
 
 

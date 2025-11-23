@@ -1,3 +1,76 @@
+###  Публикация: 1701346   (116532) от 20.02.2024
+
+Waterfox Current G6.0.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F792523AAE0582AA0F0F1D88138AC30A1C77AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701193   (116533) от 20.02.2024
+
+Ирина Млодик | В туннеле магического мышления (2024) [MP3, Ольга Чижова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга Ирины Млодик, опытного психотерапевта, автора множества научно-популярных публикаций, посвящена магическому мышлению. Что это такое, когда и как возникает, как проявляется и для чего нам нужно? Почему мы, даже становясь взрослыми, продолжаем верить в волшебные таблетки, тайные знания и простые способы решения сложных проблем? Что нам остается, когда вместе (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 06:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128ED60121C73356390F505C4295C54802CBC82B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701324   (116534) от 20.02.2024
+
+Сегодня (1929) WEBRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм показывает мир строящегося социализма и мир переживающего глубокий развал, обреченного на гибель капитализма. Строительство и пуск промышленных предприятий электростанций, железных дорог (Днепрогэс, Турксиб и др.). Американский образ жизни в США в 30-е годы.
+Шуб использовала прием чередования кадров советской и американской кинохроник, чтобы показать превосходство (   Читать дальше...   )Производство: СССР, Союзкино (Москва), ВельтфильмЖанр: документальный, история, немое киноРежиссер: Эсфирь ШубСубтитры: русские (интертитры)Продолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF143A99D305934F9163900700781F592B2C7E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701198   (116535) от 20.02.2024
 
 С.И. Баскаков | Основы электродинамики (1973) [DJVU]
@@ -6,7 +79,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116535.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:8648369DDECB443A647521F70F32541DEC9AFA80
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116536.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Fort Firewall 3.11.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116537.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Capture One 23 Pro 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116538.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ PowerDirector – Video Editor v13.2.0 b1226190 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116539.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Aiseesoft Mac FoneTrans 9.2.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116540.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ Aiseesoft Video Repair for Mac 1.0.20 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116541.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:88A7F74DC79C09F2679FA7145CCB5401A30C0380
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116542.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ VA - Jazz - The Best - Standards and Rarities (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116543.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ Black Sabbath - Live 1983 (2020) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116544.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ Strava: бег, велоезда, хайкинг v347.5 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116545.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ Spandau Ballet - The Twelve Inch Mixes (1986) Compilation, Reissue, Disky [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116546.jpg" />
 </div>
 
 
@@ -305,7 +378,7 @@ WinTools.net Premium 24.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116547.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116548.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ IsMyLcdOK 5.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116549.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ TweakPower 2.052 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116550.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ Adobe DNG Converter 16.1.0.1728 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116551.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ Merlin Project 3.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116552.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ magnet:?xt=urn:btih:1D90ECF9D510018B0CDA9380E23A9CE778DD62D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116553.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ Perfectly Clear WorkBench 4.6.0.2640 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116554.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ magnet:?xt=urn:btih:FE09EB16D3E64D17067CB45A8804CD3BC998F512
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116555.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ tTorrent Pro  1.8.7.1 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116556.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ AnyMP4 Video Repair for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116557.jpg" />
 </div>
 
 
@@ -557,78 +630,6 @@ AnyMP4 Video Repair — это комплексное решение для во
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF5A3AA55DF378850AF9D56C2C146F4CC3DE1C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701281   (116558) от 20.02.2024
-
-Николай Зайцев, Вадим Ревин, Евгений Колобов | Пластуны (Книга 3). Золото плавней (2024) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотник Билый возвращается в родную станицу после тяжелого военного похода и не намерен отдыхать… Надо защищать границу! Издревле казаки стояли на защите рубежей Отечества. Пограничные станицы участвовали в стычках с воинственными горскими племенами: отражали натиски и сами хомыляли по плавням. В постоянной борьбе закалялось казачье братство. Здесь все были друг за (   Читать дальше...   )Жанр: Исторические приключенияИздательство: Аудиокнига (АСТ)Продолжительность: 17:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF2C4DD69EF7204B855D6AEC724BA84C2B78361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701290   (116559) от 20.02.2024
-
-RogueKiller Anti-Malware 15.15.2.0 + Portable [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116559.jpg" />
-</div>
-
-
-###  Подробнее
-
-RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FBC04F5CC10ED548F6B4DF47D855C15D64AC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701232   (116560) от 20.02.2024
-
-NewFileTime 7.16 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла в свет новая версия очень маленькой портативной утилиты, цель которой дать вам возможность очень легко вести редактирование даты создания любого файла или целой директории находящийся на пользовательском компьютере.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BE35C56964F4587C47F62BE7A59E2F0CA602BD
 ```
 
 

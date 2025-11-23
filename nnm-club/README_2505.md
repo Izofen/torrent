@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65878.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4FF762D7B8CC23112689163C30580AF8CAEFCEF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65879.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2643382F3E418D059E82BFD4C0A6FDB6C01AFE0B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65880.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Курортный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65881.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65882.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ HiPER Calc Pro v11.1.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65883.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Новые хитовые песни 2025, Часть 6 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65884.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:EDF7F903F9819B00DD7355BC3413F43730FD7C3B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65885.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:85BC2CE2882ECE671A8F20CCEB4AED548612133A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65886.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Notification Widget v1.5.180 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65887.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E38B3816A2D249AA34E2CD793E71D9A06D5C343F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65888.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:398D7A661ED8DDA0D2CD8A075B9DEAF5A75754E5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65889.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:2A53E2B5A6E898046765E6AF4F02A145EAD6451E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65890.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65891.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65892.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Шансон премьера 2025 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65893.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:E138B07E5DBDF3ABB39DBB3E5F63E047F6A761D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65894.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:AE71235878D3F9656FBD2F7EC9B64AD40752A599
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65895.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Leafing Home (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65896.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65897.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:198F7B0A06D0F48132EE126B654A0D89DE9FEE37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65898.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:4DEBBD4947C15A280C13839BF1FD4BEF7974F393
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65899.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ O&O DiskImage Professional 21.1.173 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65900.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:828CCFCF989631492920D58DC875BDA7AE970BF5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65901.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C066E6162FE41D0CB1E364C34EB4DE78025E532B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65902.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:F0EC37CCABC8F139347522174B853B5D7FDFD264
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65903.jpg" />
 </div>
 
 

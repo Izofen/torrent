@@ -6,7 +6,7 @@ Firefox Browser 131.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40282.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PdfFactory Std & Pro 9.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40283.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 5.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40285.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Blender 4.2.3 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40291.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0CACA12124B008D9887F131B33810034CB43F153
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40300.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Opera One 114.0.5282.102 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40303.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Firefox Browser 131.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40306.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VirtualBox 7.1.4 Build 165100 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40317.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ KMSAuto++ Portable 1.9.9 b04 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40323.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PotPlayer 241015 (1.7.22347) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40328.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ FL Studio Producer Edition 24.1.2.4394 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40339.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Advanced Renamer 4.04 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40374.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CudaText 1.218.0.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40376.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ UltraSearch Professional 4.5.0.1057 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40396.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ TweakPower 2.062 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40398.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:92573FEC9397A48F66E1B273418C276B9DBD2C33
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40400.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:3C62967BCED5157D065112762FF805F1E8E04FF0
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40401.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ XnView MP 1.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40404.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ K-Lite Codec Pack Update 18.6.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40407.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ FL Studio Producer Edition 24.1.2.4394 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40414.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Inkscape 1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40426.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ CorelDRAW Technical Suite 2024 25.2.1.313 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40440.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ KMSAuto++ Portable 1.9.9 b03 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40449.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Tablacus Explorer 24.10.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40490.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ PDF-XChange Editor Plus 10.4.2.390 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40517.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ PDF-XChange PRO 10.4.2.390 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40532.jpg" />
 </div>
 
 

@@ -1,3 +1,102 @@
+###  Публикация: 461421   (95068) от 02.03.2012
+
+Amy Ray - Lung Of Love (2012) [MP3|320 кб/с]<Folk Rock/Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When You're Gone, You're Gone (3:15)
+2. Glow (1:55)
+3. I Didn't (4:06)
+4. From Haiti (3:10)
+5. Crying In The Wilderness (2:53)
+6. Little Revolution (2:51)
+7. The Rock Is My Foundation (3:13)
+8. Lung Of Love (3:40)
+9. Give It A Go (2:47)
+10. Bird In The Hand (3:40)2012Жанр: Folk Rock/Indie RockПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11077CC13C834E12E42A0AFD6DC32C6F2AA4908D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461172   (95073) от 02.03.2012
+
+Nate Wooley Quintet - Hands Together (2011) [FLAC|Lossless]<ree Jazz, Modern Creative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_95073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shanda Lea (3:33)
+02. Hands Together (9:49)
+03. Erna (4:06)
+04. Shanda Lea (2:58)
+05. Ethyl (5:20)
+06. Cecelia (9:05)
+07. Pearl (2:16)
+08. Elsa (5:51)
+09. Hazel (3:45)
+10. Shanda Lea (4:01)2011Жанр: ree Jazz, Modern CreativeПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461391   (95077) от 02.03.2012
+
+VA - The Dance Cube XXXIV 2CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95077.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность: 01:11:31
+===============================
+01 - Xtigma - Burnout (Original Mix)
+02 - Ost & Meyer - Scarlet Heaven (Original Mix)
+03 - Mike Foyle And ReFeel - Universal Language (Original Mix)
+04 - Dave202 - Alive (Fabio XB Vs. Nicologik & Zephyr Remix)
+05 - The Cloudy Day - Freedom of Soul (Original Mix)
+06 - DJ Butterfly - Will Be (Original Mix)
+07 - Lunarbeam - From Dusk Till Dawn (Original Mix)
+08 - Nexus 3 - State Of Wonder (Original Mix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461176   (95084) от 02.03.2012
 
 Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz, Modern Jazz>
@@ -6,7 +105,7 @@ Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95084.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95084.jpg" />
 </div>
 
 
@@ -36,7 +135,7 @@ VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95085.jpg" />
 </div>
 
 
@@ -69,7 +168,7 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95086.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95086.jpg" />
 </div>
 
 
@@ -102,7 +201,7 @@ Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95087.jpg" />
 </div>
 
 
@@ -133,7 +232,7 @@ Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95091.jpg" />
 </div>
 
 
@@ -165,7 +264,7 @@ VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95094.jpg" />
 </div>
 
 
@@ -197,7 +296,7 @@ DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95108.jpg" />
 </div>
 
 
@@ -230,7 +329,7 @@ Dana Dragomir - PanDana (1996) [APE|Lossless]<New Age, Panflute>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95112.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95112.jpg" />
 </div>
 
 
@@ -263,7 +362,7 @@ Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95113.jpg" />
 </div>
 
 
@@ -296,7 +395,7 @@ magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95114.jpg" />
 </div>
 
 
@@ -329,7 +428,7 @@ Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95115.jpg" />
 </div>
 
 
@@ -362,7 +461,7 @@ magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95122.jpg" />
 </div>
 
 
@@ -386,7 +485,7 @@ magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95127.jpg" />
 </div>
 
 
@@ -410,7 +509,7 @@ magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95144.jpg" />
 </div>
 
 
@@ -434,7 +533,7 @@ National Geographic: Профессия - разрушитель / National Geog
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95154.jpg" />
 </div>
 
 
@@ -458,7 +557,7 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95155.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95155.jpg" />
 </div>
 
 
@@ -491,7 +590,7 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95157.jpg" />
 </div>
 
 
@@ -515,7 +614,7 @@ magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95161.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95161.jpg" />
 </div>
 
 
@@ -540,7 +639,7 @@ magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95163.jpg" />
 </div>
 
 
@@ -564,7 +663,7 @@ magnet:?xt=urn:btih:D7328B93261628BD5878215C8037056597368484
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95171.jpg" />
 </div>
 
 
@@ -590,7 +689,7 @@ Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95177.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95177.jpg" />
 </div>
 
 
@@ -623,7 +722,7 @@ VA - Shaltu (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95207.jpg" />
 </div>
 
 
@@ -655,7 +754,7 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95216.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95216.jpg" />
 </div>
 
 
@@ -675,87 +774,6 @@ Peter Tosh - The Best Of (1996) [FLAC|Lossless]<Reggae>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460847   (95224) от 03.03.2012
-
-VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imprintz & Kloe - Last Breathe (Exorcist Remix) (6:03)
- 2. Double Oh No - 2 Tha Grain (Thrills Remix) (4:03)
- 3. Fourward - Fury (Ravager Remix) (7:42)
- 4. Decimal Bass & Premium - The Warriors (VIP Mix) (4:45)
- 5. DaVIP - Napalm (Original Mix) (6:13)
- 6. Stipple - Beginning (Original Mix) (4:28)
- 7. Zero Method - Marco Polo (Original Mix) (5:10)
- 8. Rameses B - 2Nite (Original Mix) (4:16)
- 9. DCarls - Splash (Original Mix) (4:50)
- 10. Premium - Dead Man Shoes (Sedo Remix) (4:31)(   Читать дальше...   )2012Жанр: Drum'n'BassПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B3DC4F05857763893738242B14E4419B60B029
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461431   (95231) от 03.03.2012
-
-Glary Utilities Pro 2.43.0.1419 Portable [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости данного приложения с более чем 45 различным программами. Более того, Glary Utilities оптимизирует процесс использования системной памяти, осуществляет поиск, а также исправление или удаление неработающих ярлыков, редактирование списка программ, загружающихся вместе с операционной системой, и удаление указанных приложений. Имеет поддержку Windows Vista и многоязычный пользовательский интерфейс, включая поддержку русского языка.Название программы: Glary Utilities ProЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460933   (95243) от 03.03.2012
-
-MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95243.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 -Любовь это... (1:37)Жанр: Troll MusicПродолжительность: 00:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
 ```
 
 

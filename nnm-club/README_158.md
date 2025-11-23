@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CA3306B15A2577B4B6B37958036E1349B2380466
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4160.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:25699846F3C6DAC514922332BAE0C2C392026257
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4161.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ TVGuide v4.6.0 Premium Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4162.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:86FDAFFE200F20C8FA1083C9E412F25DEFBEFF06
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4163.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4164.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:4E0B8434D27DA9E48365B834F26DE8A11ED3D713
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4165.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Auslogics File Recovery 12.1.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4166.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E10588BD1C55D88801049BEDF0F572AFD18C95CC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4167.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Queen - Under The Covers & Over The Moon (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4168.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:DD81FB184A20F53FBA2A9C9097D0A8F02454212F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4169.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:CC6E6944FDBC225D56A09AABD039508CEB9EACFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4170.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4171.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E86403A4AB76B7C7B9449B99EA1648E1D4360406
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4172.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - ЕвроХит Топ 40 Europa Plus 05.09.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4173.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4174.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4175.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:71EEB03BDBE4DA6D67F630753D1B62794C731AC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4176.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:70FB777405C374690721537F334906092B1AA300
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4177.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:33585DF1DDC2BECD0AD1E2168B9C029B6F22AA33
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4178.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Auslogics Duplicate File Finder 11.1.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4179.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:6C52DC3AEEE7785C0077412927957B8B0C9E24A3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4180.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:F340EF24F8F9D3606F95B5BDFE047DF44725C57D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4181.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A60C6658D8E12E4C4D810FD957D6CB29A9672398
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4182.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:E808FF4C4FDFC8BE4BC448127B43A0D8586AA238
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4183.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1D18E154CD586F9A90B1E74EF26F1F1AFF5D96CF
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4184.jpg" />
 </div>
 
 

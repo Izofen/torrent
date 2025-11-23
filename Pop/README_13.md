@@ -6,7 +6,7 @@ Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ E-Rotic - The Hits (2024) [MP3|320 Kbps] <Eurodance, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40799.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7E0E60F0C6C4C25CE2599F1DEE53F187551A0DA8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40806.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paul McCartney, Wings - Band On The Run (1973) SHM-CD, Japanese Edition, Reissue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40852.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remaste
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40857.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Re
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40858.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL �
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40864.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40866.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40916.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Лучший  (2008) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41175.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Суперхиты Дискотеки 90-х Vol.5 (2013) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41194.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41196.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Союз 16  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41201.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41250.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Союз 21 (1997) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41354.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41391.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Союз 21  (1997) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41467.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41558.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rav
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41567.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Суперхиты Дискотеки 90-х Vol.2 (2011) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41615.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Суперхиты Дискотеки 90-х Vol.1 (2010) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41641.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:2ECC5DB203A63245E33C8D1BAA67DC41B6A3BD4B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41694.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6C9F34E704B45C88880871FFEF109B5252ADB3EC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41695.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41994.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Powermix Vol. 5 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41997.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Незабываемые имена 70-80: Вокруг любви, час�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42024.jpg" />
 </div>
 
 

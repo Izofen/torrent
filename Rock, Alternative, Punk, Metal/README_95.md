@@ -6,7 +6,7 @@ Cemetery Skyline - Nordic Gothic (2024) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102738.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Effect - The Effect (2024) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102765.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Maleficium Arungquilta - Транс для сестры (2013) [FLAC|Lossless|im
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102768.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Maleficium Arungquilta - Касание сквозь стекло (2011) [FLAC|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102769.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Radioactive - Reset (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102772.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fans Of The Dark - Video (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102773.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Page 99 - 99.3 FM (2024) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Wes
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102776.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Amarok - Blasphemous Edictum (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - Meteora (Tour Edition) (2003) Taiwan, 9362 48842-2, 2004 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102799.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Linkin Park - Hybrid Theory (2000) Japan, WPCR-10877, 2001 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102826.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tony Carey - Steeltown (2013) 2024 Remixed & Remastered [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102828.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC|Lossless|image + .cue] <Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102839.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fire Action - Until The Heat Dies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102849.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102861.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Steel Inferno - Rush Of Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102862.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102867.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:26CFEDCF1FFB88250F5DFBFA706291F48C8C10C1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102874.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102875.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Departure Chandelier - Satan Soldier Of Fortune (2024) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102885.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Activator - Хранитель жизни (2013) [MP3|252-276 Kbps VBR (V0)] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102903.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102906.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nomos - The Great Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102909.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sky Wolves - Forgotten Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102910.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Furor Gallico - Future To Come (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102911.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102913.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Bathsheba - Servus (2017) SVART066CD [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102915.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69492.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D2C12D457B217B89EE99EF7A2439E8787539DD39
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69493.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69494.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69495.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:14A9BA338EE08FDD7643A1E1AF943BAD58F757A7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69496.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:439080D6804C3159AC7E6A1860F20F7550472CC6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69497.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:4B5582978E7ED4F5109B93566875F53F145489C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69498.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:FE5DC87CE051443AD37CAEA54EC6874275C91CBC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69499.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69500.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69501.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ David Rose - My Disguise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69502.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:3A31D475F8C530D45F99A261A310CAA060824A36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69503.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:46F837E9CB80018001C4775FF9C49E6EB0F7D04E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69504.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:FBC85A6BF0D4B50A2D2343316238622EEB4996E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69505.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69506.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Warwolf - The Final Battle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69507.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:16C25EB9756ECB4D931B041396F22D85E5E31E1B
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69508.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:69C21FD71F5F935CD377F526EDAF3CAFD7658B41
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69509.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:6A70A64A28973F4EDE59CD35FA134F0F903CD68A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69510.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Yellowjackets - Fasten Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69511.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:684E5C1907EDA2C84E8D404FE981359B39619DB7
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69512.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:B82133A33D9DE060CBEDA57C1C4C33108DAA906A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69513.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B3A1FAF073DFECE42DF4FE8873A034A4EE9F8D94
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69514.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mancol - First Look (2024) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69515.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - 25 Years Of Anjuna Mixed By Darren Tate (2025) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69516.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:C9270459874E4D632F9E62ECC19118D5B107572A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69517.jpg" />
 </div>
 
 

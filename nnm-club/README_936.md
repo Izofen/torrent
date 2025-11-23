@@ -6,7 +6,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 10.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24674.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01B11CCEE97A823396683C00B7598BED90E97A44
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24675.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C7786BAED2F9E1FD39D80AC6ED551B1652167BE6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24676.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24676.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:ACBD1B923DF67A73E2D91C3E860B4E78679FA680
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24677.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CoolUtils Total HTML Converter 5.1.0.310 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24678.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24679.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24680.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:67B2A806A76DE49D93AD0682F2ECE5C821ADA9A7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24681.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:EF41DDCAA7614A9C7DE0400DE768DCEC3E0184E1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24682.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24682.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Combat Mission: Fortress Italy (2023) [Multi] (2.20.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24683.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Combat Mission: Cold War (2021) [Multi] (1.07.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24684.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24685.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Chaos Vantage 2.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24686.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Udemy, 3DRedBox Studio | Eco Bike 3D Modeling and Rendering: 3Ds Max to Vray | C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24687.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Udemy, 3D Tudor | 3D Trees with Blender Geometry Nodes (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24688.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8939A1E8381DFBAEDA0C15F5C6AE047FB383291A
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24689.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FxSound 1.1.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24690.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:6E61D40E5A1A41B4E2C1F2428C8A491E5C8E88C6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24691.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24691.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A8AC19FC8995A20DCC68191CF5DBE0E3497A9812
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24692.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24692.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0682B74304B4CCB9F9716C0EE9C6597BE71E0ED1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24693.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:475D562A3E91A4B1F5DC97E6A943CBFC60B4F6C8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24694.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24694.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:7354CD38373D932637DDB0B022C804C00B7BE30F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24695.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24695.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:56834B6014687745B7C3DCECEB4D6B33743A6F84
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24696.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24696.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F7DA9D9AE9F2381133C9B671A15464B50E51FC78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24697.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:70BDDD5FC875C8340FEC4499AB6A86B2AB2468C4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24698.jpg" />
 </div>
 
 

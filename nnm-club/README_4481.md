@@ -1,3 +1,101 @@
+###  Публикация: 477625   (138603) от 30.12.2019
+
+Мальчик в полосатой пижаме / The Boy in the Striped Pyjamas (2008) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138603.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, происходящая во время Второй мировой войны и показанная сквозь глаза невинного и ничего не подозревающего о происходящих событиях Бруно, восьмилетнего сына коменданта концентрационного лагеря. Его случайное знакомство и дружба с еврейским мальчиком по другую сторону ограды лагеря, в конечном счете, приводит к самым непредсказуемым и ошеломительным последствиям.Производство: Miramax Films, BBC Films / США, ВеликобританияЖанр: Драма, Военный, ИсторияРежиссер: Марк ХерманАктеры: Аса Баттерфилд, Вера Фармига, Дэвид Тьюлис, Джек Скэнлон, Шила Хэнкок, Ричард Джонсон, Руперт Френд, Эмбер Битти, Лазло Арон, Домонкос НемитПеревод: Профессиональный (полное дублирование)Субтитры: Русские, Английские, Английские (SDH)Продолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5CB60B5B15D98A721973946FE770865976A4D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195946   (138604) от 31.12.2017
+
+Журнал | Квант №9 (сентябрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138604.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17C4B1D7692F56C72D8EFB20167DC48713E69C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587979   (138605) от 18.12.2012
+
+Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность. Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
+
+Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья!(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 DigitalЖанр: Strategy / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088725   (138606) от 31.12.2016
+
+Шпана 3 / Brotherhood  (2016) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальная драма Шпана 3 является очередной частью кинопроекта, рассказывающего о непростой жизни подрастающего поколения на небольших британских улочках и трущобах. Героям этого фильма не довелось родиться в огромных особняках, у богатых родителей, так что все премудрости выживания в этом несправедливом мире им пришлось осваивать самостоятельно, отстаивая свои (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Ноэль КларкАктеры: Эшли Томас, Ноэль Кларк, Оливия Ченери, Стивен Кри, Ник Неверн, Дэвид Аджала, Тония Сотиропулу, Джейсон Мацца, Арнольд Ошенг, Фейди Эльсайед, Лашана ЛинчПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1ECE4BDA7D65A039A28BABE236816DE9F5987A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195971   (138607) от 31.12.2017
 
 Иван Тургенев | Рудин (2017) [MP3, Юлия Тарасова]
@@ -6,7 +104,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138607.jpg" />
 </div>
 
 
@@ -31,7 +129,7 @@ magnet:?xt=urn:btih:CCBC7E7E41A4D80C717DD08CF2F6B626997A6F71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138608.jpg" />
 </div>
 
 
@@ -55,7 +153,7 @@ VA - Новинки с разных популярных MP3 сайтов. Ver.9
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138609.jpg" />
 </div>
 
 
@@ -82,7 +180,7 @@ magnet:?xt=urn:btih:AD13111B770844B56FFB1C83AB6042A1D595933E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138610.jpg" />
 </div>
 
 
@@ -108,7 +206,7 @@ magnet:?xt=urn:btih:1E80830E88165F44D12D1F64401D51A4E9C441A4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138611.jpg" />
 </div>
 
 
@@ -132,7 +230,7 @@ magnet:?xt=urn:btih:622AA0051805F3EA164F9FC0C46956B409D4B50A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138612.jpg" />
 </div>
 
 
@@ -157,7 +255,7 @@ VA - Громкие новинки Декабря Vol 2 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138613.jpg" />
 </div>
 
 
@@ -184,7 +282,7 @@ magnet:?xt=urn:btih:902EBC582FB8795179B1CF0003AFAD1CA1BEAB86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138614.jpg" />
 </div>
 
 
@@ -208,7 +306,7 @@ Bandicam 1.8.5.301 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138616.jpg" />
 </div>
 
 
@@ -234,7 +332,7 @@ Bandicam позволяет записать определенную облас
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138617.jpg" />
 </div>
 
 
@@ -258,7 +356,7 @@ Arturia - FX Collection 2020.12 VST, VST3, AAX (x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138618.jpg" />
 </div>
 
 
@@ -282,7 +380,7 @@ magnet:?xt=urn:btih:777EC0B4EE26F097069E9543DEFD1B3610ACE04E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138619.jpg" />
 </div>
 
 
@@ -306,7 +404,7 @@ magnet:?xt=urn:btih:777EC0B4EE26F097069E9543DEFD1B3610ACE04E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138620.jpg" />
 </div>
 
 
@@ -331,7 +429,7 @@ magnet:?xt=urn:btih:A743A35BA21EFDB67F384D14FD5A8E5600592A50
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138621.jpg" />
 </div>
 
 
@@ -357,7 +455,7 @@ magnet:?xt=urn:btih:BBE6D1AB97C00D8BE4C0F466312B9246D6BFC7A8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138622.jpg" />
 </div>
 
 
@@ -383,7 +481,7 @@ CG Cookie, Jonathan Lampel | Учебный лагерь по моделиров
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138623.jpg" />
 </div>
 
 
@@ -407,7 +505,7 @@ magnet:?xt=urn:btih:2715CF73AAB698DDF7F3D3F587709F530AD6951C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138625.jpg" />
 </div>
 
 
@@ -431,7 +529,7 @@ magnet:?xt=urn:btih:2715CF73AAB698DDF7F3D3F587709F530AD6951C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138626.jpg" />
 </div>
 
 
@@ -457,7 +555,7 @@ magnet:?xt=urn:btih:1A1D29FCBB5B98FF2EF67F204CF105926DFD17EF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138627.jpg" />
 </div>
 
 
@@ -481,7 +579,7 @@ magnet:?xt=urn:btih:788C56D9271F3791D14B330BEFE65A8757A5048D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138629.jpg" />
 </div>
 
 
@@ -513,7 +611,7 @@ magnet:?xt=urn:btih:D5165066BF869AD88365711CE976ECD1D380182A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138631.jpg" />
 </div>
 
 
@@ -537,7 +635,7 @@ magnet:?xt=urn:btih:55C38499CF6D2CBC231634DD8631EAD9944B3A4E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138632.jpg" />
 </div>
 
 
@@ -556,102 +654,6 @@ magnet:?xt=urn:btih:55C38499CF6D2CBC231634DD8631EAD9944B3A4E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CD1AB07F06DE5CEF7422316275DFF4174E5459A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520884   (138633) от 30.12.2021
-
-Bellingcat. Правда в мире постправды / Bellingcat. Truth in a Post-Truth World (2018) WEB-DL [H.264/1080p]
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбитый «Боинг», отравление Скрипалей и другие громкие журналистские расследования. Документальный фильм о важности фактчекинга.Производство: Нидерланды, SubmarineЖанр: документальный, история, расследованиеРежиссер: Ганс ПулПеревод: многоголосый профессиональный (The Kitchen Russia)Субтитры: русские (Full), английские (Full)Продолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D576F119DA81D950F86CC941F667B9BD8F4193C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436243   (138634) от 30.12.2020
-
-Sidify Spotify Music Converter 2.2.0 RePack by F4CG [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sidify Spotify Music Converter - программа поможет без особых проблем снять защиту DRM с ваших любимых треков и плейлистов из Spotify. Говоря проще, вы теперь сможете скачивать любую музыку  из данного сервиса при этом преодолевая ограничения накладываемые защитой типа DRM (digital rights management). Установка проходит быстро, тут проблем нет, однако не стоит забывать, (   Читать дальше...   )Язык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51321CDC794EDDDCD8EBC251F992B1376E55869D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348970   (138635) от 30.12.2019
-
-BBC: Французские сады с Монти Доном / Monty Don's French Gardens (2013) DVB (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие образы вызывает Франция в вашем воображении? Телеведущий Монти Дон, описывая путешествие по этой стране, говорит не только о великолепной архитектуре и людях, но и замечательных садах. Он утверждает, что сад - один из лучших способов понять культуру любой страны. Монти Дон погружает зрителя в очаровательный и чрезвычайно увлекательный мир Франции и делится (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, путешествия, архитектура, ландшафтный дизайнРежиссер: Рэйчел БеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CB5053BA50D7815B45D3DD6CCF47BDC39292EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430327   (138636) от 30.12.2020
-
-Фантомас против Скотланд-Ярда / Fantomas contre Scotland Yard (1967) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138636.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз злодей с тысячью лицами решает обложить данью богатейших людей мира, а взамен гарантирует им жизнь. Комиссар Жюв со своими верными друзьями, Фандором и Элен, прибывает в шотландский замок для того, чтобы встать на защиту его владельца и снова попытаться поймать Фантомаса.Производство: Франция, Италия / P.A.C.,Fair Film, Gaumont InternationalЖанр: Комедия, Криминал, ПриключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Франсуаза Кристоф, Жан-Роже Коссимон, Робер Дальбан, Андре Дюма, Макс Монтавон, Рита Ренуар, Жан Озенн и др.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DAD11B268CED39E77C19309977BA8FA2212DA3
 ```
 
 

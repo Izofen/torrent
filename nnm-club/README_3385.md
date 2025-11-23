@@ -1,3 +1,80 @@
+###  Публикация: 1731595   (107692) от 21.06.2024
+
+Болеро. Душа Парижа / Bolero (2024) TS [H.264/1080p] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый хореограф Ида Рубинштейн просит Мориса Равеля написать музыку для своего следующего балета. Она жаждет чего-то нового, чувственного. Но Равель не может найти себя. Ему предстоит вновь окунуться в пучину страсти, вдохнуть энергию пульсирующего Парижа, чтобы создать своё величайшее произведение - «Болеро».Производство: Франция, Бельгия / Ciné@, Cinéfrance Studios, F Comme FilmЖанр: драма, биография, музыкаРежиссер: Анн ФонтенАктеры: Рафаэль Персонас, Дориа Тиль, Жанна Балибар, Эммануэль Дево, Винсент Перес, Софи Гильмен, Александр Таро, Флоренс Бен Садун, Мелоди Адда, Катя ЧенкоПеревод: Дублированный (Невафильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:07Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731668   (107693) от 21.06.2024
+
+VA - The Essential Downtempo, Vol.5 Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Beachside (2:02)
+02. Dellasollounge - Lady Bug (Original Mix) (3:55)
+03. Brass - Rainy Afternoon (Original Mix) (2:14)
+04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB27D62F33E59B21BDDBE3E788A802BA889A0A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731607   (107694) от 21.06.2024
+
+Судьба человека с Борисом Корчевниковым. Судьба Алексея Кравченко (21.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107694.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
+
+В преддверии (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Алексей КравченкоЯзык озвучки: РусскийПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED2FFB1DBAB73F57C5F92FF90316E35CB6B650D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731594   (107695) от 21.06.2024
 
 Болеро. Душа Парижа / Bolero (2024) TS [H.264] [AD]
@@ -6,7 +83,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107695.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ VA - Relaxing Electronic Atmosphere (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107696.jpg" />
 </div>
 
 
@@ -57,7 +134,7 @@ magnet:?xt=urn:btih:263BA0FA64AAFEF86C6219832C241524458C9554
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107697.jpg" />
 </div>
 
 
@@ -84,7 +161,7 @@ VA - 2022 EDM (2022) [FLAC|Lossless|tracks] <EDM, House, Future Rave, Dubstep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107698.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ magnet:?xt=urn:btih:9171AA032B270F72F62A40B5E36FE1FD90E665ED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107699.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:8B4AAF2A8663CEC6605D415D4568F8595372AF07
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107700.jpg" />
 </div>
 
 
@@ -162,7 +239,7 @@ RoughAnimator - animation app 3.25 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107701.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ FanControl V194 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107702.jpg" />
 </div>
 
 
@@ -210,7 +287,7 @@ Chromium 126.0.6478.115 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107703.jpg" />
 </div>
 
 
@@ -234,7 +311,7 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2024-06-16) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107704.jpg" />
 </div>
 
 
@@ -260,7 +337,7 @@ IObit Uninstaller Free 13.6.0.2 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107705.jpg" />
 </div>
 
 
@@ -284,7 +361,7 @@ magnet:?xt=urn:btih:D5D79975459103806BD1DA32E28D3A3C69AB1467
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107706.jpg" />
 </div>
 
 
@@ -308,7 +385,7 @@ magnet:?xt=urn:btih:D3F478B52DCFB5509889323AAC9E63087FBE012C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107707.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ magnet:?xt=urn:btih:FEC29770E5C07802F6925980EA2A9DE66820957C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107708.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ magnet:?xt=urn:btih:D9E1BB7A41B2A41C76B9DED6BBC1D655F2E869F3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107709.jpg" />
 </div>
 
 
@@ -380,7 +457,7 @@ Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107710.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ magnet:?xt=urn:btih:86D937AA61CCC6028C8BD9ACBA43544CFC30B483
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107711.jpg" />
 </div>
 
 
@@ -433,7 +510,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107712.jpg" />
 </div>
 
 
@@ -457,7 +534,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107713.jpg" />
 </div>
 
 
@@ -484,7 +561,7 @@ Topaz Gigapixel AI 7.2.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107714.jpg" />
 </div>
 
 
@@ -509,7 +586,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107715.jpg" />
 </div>
 
 
@@ -533,7 +610,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107716.jpg" />
 </div>
 
 
@@ -557,7 +634,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107717.jpg" />
 </div>
 
 
@@ -568,81 +645,6 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474C497794321D648A97C6D5001D4647FADFAE8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731637   (107718) от 21.06.2024
-
-Beyblade X | Бейблэйд Икс [2023, TV, 2 из 52] WebRip 1080p raw+rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блейдер-любитель Робин Казами оказывается вне команды, когда друзья бросают его после сокрушительного поражения. К счастью для него, случайная встреча с бывшим чемпионом Джексоном Кроссом заставляет этих двух маловероятных товарищей по команде объединить усилия. Джексон намерен снова подняться на вершину The X под псевдонимом «Blader X» и бросить вызов своему старому (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоЯзык озвучки: Японский и русский (BeyBeast Project)Субтитры: ОтсутствуютПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAF2B9C027A42FDAC9CFFB91EB4732FEF232053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731364   (107719) от 21.06.2024
-
-Maurice Ravel - The Complete Works (2020) 21CD [MP3|320 Kbps] <Classics>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107719.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-5: Piano works
-CD6-7: Chamber music
-CD8-12: Orchestral works
-CD13-15: Songs, Choral works(   Читать дальше...   )Жанр: ClassicsПродолжительность: 24:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6474E999DEA4F72ECF8B8E23DBDA14D37E1ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731466   (107720) от 21.06.2024
-
-В поисках Адама / Adam the First (2024) [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107720.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах Адама жестоко убили его родителей. После трагедии он неожиданно находит среди вещей в своём доме странный список. В нем содержатся имена мужчин и их адреса. Предположив, что любой из них может оказаться его настоящим отцом, Адам отправляется в путешествие по стране в надежде найти его.Производство: США / Adam 1 Pictures, Crystal City Entertainment, Randomix ProductionsЖанр: драмаРежиссер: Ирвинг ФранкоАктеры: Дэвид Духовны, Оакс Фигли, Т.Р. Найт, Ларри Пайн, Билли Слотер, Jason Dowies, Эрик Хэнсон, April Alsbury, Кимберли Бэйкер, Холли БонниПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 

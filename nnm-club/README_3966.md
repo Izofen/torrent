@@ -1,3 +1,75 @@
+###  Публикация: 1692130   (122798) от 15.01.2024
+
+WPS Office + PDF 18.6.1 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122798.jpg" />
+</div>
+
+
+###  Подробнее
+
+WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.01.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E767BB487906C4A5DC21CF06E3494782EE90E7CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692138   (122799) от 15.01.2024
+
+Свет надежды / Y Golau / The Light in the Hall (2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шэрон Робертс никогда не переставала скорбеть после убийства её дочери Элы. Тогда убийца был найден — это тихий и скромный садовник Джо Притчард. Именно в его фургоне была найдена ДНК Элы. Джо признался в убийстве, но по каким-то причинам не рассказал, что он сделал с телом. Но Шэрон и журналистке Кэт, которая вела своё расследование, предстоит снова окунуться в (   Читать дальше...   )Производство: Великобритания / APC Studios, Channel 4 Television, Duchess Street ProductionsЖанр: триллер, драма, детективРежиссер: Крис Форстер, Энди НьюбериАктеры: Александра Роуч, Джоэнна Скэнлэн, Иван Реон, Аннес Элви, Дилан Джонс, Элла Пил, Морган Хопкинс, Катрин Айерс, Анейрин Хьюз, Иоан Хефин и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B638BE58EFCB21A994C385474961520DC5D027B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692175   (122800) от 15.01.2024
+
+Хулиганы / Хулиганы с Зеленой улицы / Hooligans / Green Street Hooligans (2005) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент факультета журналистики Мэтт Бакнер отчислен из Гарварда за преступление, которого не совершал. Его многообещающая карьера пошла коту под хвост, его будущее туманно. В поисках убежища молодой человек бежит в Лондон к своей замужней сестре Шэннон. Её муж знакомит Мэтта со своим младшим братом Питом. Сдружившись с Питом, Мэтт открывает для себя мир футбола. (   Читать дальше...   )Производство: Великобритания, США / Baker Street, Odd Lot Entertainment, Yank Film FinanceЖанр: драма, криминал, военный, спортРежиссер: Лекси АлександрАктеры: Элайджа Вуд, Чарли Ханнэм, Клэр Форлани, Марк Уоррен, Лео Грегори, Джофф Белл, Киран Бью, Генри Гудман, Кристофер Хехир, Теренс ДжейПеревод: Многоголосый профессиональный (Tycoon-Studio), Двухголосый профессиональный (CP Digital)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские, Датские, Норвежские, Португальские, Чешские, Финские, Польские, Румынские, Испанские, ШведскиеПродолжительность: 01:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D33CDBEC9D00F06924C034EA3743FD47DC29D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692285   (122801) от 15.01.2024
 
 Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
@@ -6,7 +78,7 @@ Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122801.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ KMPlayer 4.2.3.8 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122802.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:E2A065246CB47ED18327D54FEE663F2F92BE4707
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122803.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:FBDD930DD188C619FA0066ACF1E9E12A5006FDA6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122804.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Imagine 1.3.9 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122805.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:1793DB427842F9E7B8002C3AFF4F457160FB6B70
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122806.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:03D8E907AB7818831C8B64F43A777263A7A67C0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122807.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122807.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ VA - Contact: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Othe
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122808.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:558A2277F38A441A03B560F40A470F2FDB96EDF4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122809.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:E583C52CD2957AC7BE70D7C0B2EFD7467695D409
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122810.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:C9ABBE940070D09084D1F6EF51C8FDB31113E578
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122811.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:F5B290BF62464EABF4A07699A4A18F2B6B00EBD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122812.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:F54B680FB092AB8817D5B37B4AD18CC031ECF010
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122813.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:2666E8FD324B76CFE5C4FC6C57120C39EC15F55D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122814.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ CrystalDiskInfo 9.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122815.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Topaz Photo AI 2.3.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122816.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:C3B8063FC5DD65BE71CE2195A12BE47C82F76709
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122817.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ DefenderKiller 11.1.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122818.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Discovery: Паранормальная Ирландия / Spooked: Ireland (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122819.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:4CA1CD62C564F715FE2F81E63E9A1620D1FF4C4A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122820.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ ALLPlayer 9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122821.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Topaz Video AI 4.1.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122822.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:4EC80556F5AD4399166B6F5AE3A3D609506A5F3D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122823.jpg" />
 </div>
 
 
@@ -555,79 +627,6 @@ magnet:?xt=urn:btih:4EC80556F5AD4399166B6F5AE3A3D609506A5F3D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AC8FA07DFA1BEF307A964569B95AE9C2E0AD4E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692267   (122824) от 15.01.2024
-
-Total Commander 11.02 (15.01.2024) Portable by MiG [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная сборка Total Commander 11.02 x32/x64 в зависимости от разрядности ОС. Есть возможность установки сборки x32 на 64-bit ОС. Расширена плагинами, скриптами и не содержит стороннего ПО, за исключением утилит для поддержки некоторых скриптов. Все компоненты строго соответствуют выбранной разрядности при установке. В версии ТС 11 появился новый мультимедиа (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D9B31B2A046D115D56CE2A3B8BABD90EF7D594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692173   (122825) от 15.01.2024
-
-SanDisk (Western Digital) SSD Dashboard 4.1.2.4 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122825.jpg" />
-</div>
-
-
-###  Подробнее
-
-SanDisk (Western Digital) SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
-Программа SanDisk SSD Dashboard (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC960FE93832F5F34AC44204D3256625330A8D80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692143   (122826) от 15.01.2024
-
-Воздушное ограбление / Lift (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая девушка и агенты ФБР уговаривают профессионального вора и его команду осуществить «невероятное ограбление» на борту самолёта Boeing 777, который летит из Лондона в Цюрих, и предотвратить террористическую атаку.Производство: США / Netflix, 6th & Idaho Productions, Genre FilmsЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Ф. Гэри ГрейАктеры: Кевин Харт, Гугу Эмбата-Ро, Сэм Уортингтон, Винсент Д’Онофрио, Урсула Корберо, Билли Магнуссен, Yun Jee Kim, Вивеик Калра, Жан Рено, Джейкоб Баталон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:49Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
 ```
 
 

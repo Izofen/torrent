@@ -6,7 +6,7 @@ VA - Christmas Time Is Here:  The Greatest Holiday Songs (2023) [FLAC|Lossless|W
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126765.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Bravo Hits 12 (1996) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126895.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnot
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126907.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Michael Cretu - Ausgewahlte Goldstucke (1994) [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126923.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kylie Minogue - Extension (The Extended Mixes) (2023) 2 x CD [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127088.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127389.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127422.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:0A1D84C8D61CA605B89D6457420EECA8F4A6B281
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127585.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Bravo Hits 11 (1995) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127994.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Siobhan Donaghy - Revolution In Me (2003) 20th Anniversary Edition, 2023, London
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128101.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Edith Piaf - Symphonique (2023) [FLAC|Lossless|image + .cue] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128113.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128403.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Rebecca Ferguson - Heaven, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fun
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128709.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129908.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130036.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130378.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130832.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131050.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131383.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132352.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Sia - This Is Acting (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132376.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - 100 Hits 70's pop ( 100 Classic Tracks of the Decade ) (2009) 5CD Box Set[F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132493.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133513.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Duffy - Rockferry (2008) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Neo Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136758.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137923.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138260.jpg" />
 </div>
 
 

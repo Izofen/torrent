@@ -1,3 +1,76 @@
+###  Публикация: 1686483   (126495) от 23.12.2023
+
+Год, когда мои родители уехали в отпуск / O ano em que meus pais sairam de ferias / The Year My Parents Went on Vacation (2006) DVD9 [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта ядовитая и забавная история взросления, действие которое происходит в 1970-м году, бросает двенадцатилетнего Мауро в водоворот политического и личного бунта. Когда его родители, левые активисты, вынуждены уйти в подполье, Мауро остается на попечении соседки и еврейского дедушки в Сан-Паоло.
+Вдруг оказавшись в ссылке в собственной стране, он вынужден создавать (   Читать дальше...   )Производство: Бразилия / Caos Produções Cinematográficas, Globo Filmes, Gullane FilmesЖанр: драмаРежиссер: Као ГамбургерАктеры: Мишель Жуэлсаш, Германо Хают, Паулу Аутран, Симоне Споладоре, Эдуардо Морейра, Кайу Блат, Даниэла Пепшик, Лилиана Кастро, Родриго дос Сантос, Фелипе Ханна БраунПеревод: многоголосый профессиональныйЯзык озвучки: русский, португальскийСубтитры: португальские, английские, испанскиеПродолжительность: 01:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1BCF0297B57B69ED94A461D0A44EE205D79B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686529   (126496) от 23.12.2023
+
+DiskDigger 1.103.167.3571 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126496.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D32FD3118A621A748D7C27C709A2566CC99B2A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686645   (126497) от 23.12.2023
+
+Меч короля / Bastarden / The Promised Land (2023) HDRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датский король отправляет своего лучшего рыцаря обуздать дикие земли, покуда простирается его длань. Но здесь, за стенами высоких замков, свои законы. Местные князья не спешат подчиняться королевскому наместнику. Они сами решают, кто будет возделывать их земли, а кто упокоится в них навсегда. Конфликт усугубляет прекрасная дева, обещанная отцом местному феодалу. (   Читать дальше...   )Производство: Дания, Швеция, Норвегия, Германия / Zentropa Entertainments, Zentropa International Berlin, Zentropa International SwedenЖанр: драма, биография, историяРежиссер: Николай АрсельАктеры: Мадс Миккельсен, Аманда Коллин, Густав Линд, Кристин Куят Торп, Якоб Ульрик Ломанн, Мортен Хи Андерсен, Сёрен Маллинг, Магнус Креппер, Томас В. Габриэльссон, Феликс Крамер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:13Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686554   (126498) от 23.12.2023
 
 Сергей Снегов | Хрононавигаторы (2023) [MP3, Всеволод Кузнецов]
@@ -6,7 +79,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126498.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:B725A43F1004AE8AAFED948F1AB7DB75727DFC4A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126499.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:833D00207044E4A04C7C53999CB95D84B3712C11
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126500.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126501.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Ventusky: Прогноз погоды v30.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126502.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Plus Messenger (Telegram+) v10.3.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126503.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ OfficeSuite Pro + PDF 14.1.50441 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126504.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:77816A2585C69295C5D7CC8EE0F2C2F5C703D1A1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126505.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ magnet:?xt=urn:btih:804CEE85F089FAEA737F4153F7B964A7DCD8EC9C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126506.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:CD99AB4891BD0BE3A0D6A36728023BF001548D57
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126507.jpg" />
 </div>
 
 
@@ -247,7 +320,7 @@ Xodo PDF - Ридер и Редактор 8.9.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126508.jpg" />
 </div>
 
 
@@ -271,7 +344,7 @@ magnet:?xt=urn:btih:19E3385FBCF0095427E9A0CB8362DC2F850C49E7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126509.jpg" />
 </div>
 
 
@@ -295,7 +368,7 @@ Coco & Janbo (2023) WEBRip [H.264/1080p] [KAZ]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126510.jpg" />
 </div>
 
 
@@ -319,7 +392,7 @@ magnet:?xt=urn:btih:33AE627537C8295E5C21E66490C5C868CC4B86C4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126511.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ Opera One 106.0.4998.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126512.jpg" />
 </div>
 
 
@@ -367,7 +440,7 @@ magnet:?xt=urn:btih:FE39211EB561CB5195A87629C699C883FC6B6F49
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126513.jpg" />
 </div>
 
 
@@ -391,7 +464,7 @@ magnet:?xt=urn:btih:B0E2B49088FA068464491DAEC7AEDF63E1ABD3BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126514.jpg" />
 </div>
 
 
@@ -415,7 +488,7 @@ magnet:?xt=urn:btih:E914B7872B653CAFA2D6C00B62D7295C8C9F76BC
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126515.jpg" />
 </div>
 
 
@@ -440,7 +513,7 @@ magnet:?xt=urn:btih:E069507A8425ACB826CC84E2A852B49A651A7495
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126516.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ magnet:?xt=urn:btih:000E4EF3EC3149F8CD3EE4F0BA3FDD18837FED22
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126517.jpg" />
 </div>
 
 
@@ -488,7 +561,7 @@ magnet:?xt=urn:btih:4CAB4CCFAEFBFE5E313B7CAB1EB9555804AE4FA5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126518.jpg" />
 </div>
 
 
@@ -512,7 +585,7 @@ magnet:?xt=urn:btih:1E0D634736D2ACE84AA405B88990259CB2B0D4F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126519.jpg" />
 </div>
 
 
@@ -536,7 +609,7 @@ Apache OpenOffice 4.1.15 Stable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126520.jpg" />
 </div>
 
 
@@ -547,78 +620,6 @@ OpenOffice - бесплатная альтернатива пакету офис
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A07F492ADE2D3336188FC92F2A32D4F708CFBE0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524646   (126521) от 23.12.2023
-
-Сто самых красивых мест Франции / Les 100 lieux qu'il faut voir (2015) HDTVRip [H.264]  (серии 1-9 из ?) [FR / RU Sub] (Обновляемая)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите путешествовать по Франции? Набираться новых впечатлений? Вам кажется, что вы хорошо знаете эту страну? У каждого из нас есть заветные места: пляжи, бухточки, поляны, деревушки, тропинки. Мы торопимся туда вернуться, словно спешим на встречу с близким другом. Именно об этой Франции нам хочется рассказать: о местах, которые надо увидеть хотя бы раз в жизни.Производство: Франция, TV5MONDE Europe HDЖанр: документальный, познавательный, путешествияРежиссер: Изабель Ле ГенПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод Е.Пичугиной, Hiventy)Продолжительность: серии x ~00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D027243BBD1419125927C5682B62EBA688526C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686644   (126522) от 23.12.2023
-
-Меч короля / Bastarden / The Promised Land (2023) BDRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датский король отправляет своего лучшего рыцаря обуздать дикие земли, покуда простирается его длань. Но здесь, за стенами высоких замков, свои законы. Местные князья не спешат подчиняться королевскому наместнику. Они сами решают, кто будет возделывать их земли, а кто упокоится в них навсегда. Конфликт усугубляет прекрасная дева, обещанная отцом местному феодалу. (   Читать дальше...   )Производство: Дания, Швеция, Норвегия, Германия / Zentropa Entertainments, Zentropa International Berlin, Zentropa International SwedenЖанр: драма, биография, историяРежиссер: Николай АрсельАктеры: Мадс Миккельсен, Аманда Коллин, Густав Линд, Кристин Куят Торп, Якоб Ульрик Ломанн, Мортен Хи Андерсен, Сёрен Маллинг, Магнус Креппер, Томас В. Габриэльссон, Феликс Крамер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:13Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686563   (126523) от 23.12.2023
-
-Присмотри за Сюзи / Gib acht auf Susi! (1968) DVD5 [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126523.jpg" />
-</div>
-
-
-###  Подробнее
-
-На десятилетнем Михи лежит серьезная ответственность. После того как его родители официально развелись, он должен присматривать за своей старшей сестрой Сюзи, которая готова менять поклонников каждый день, ну или почти каждый день. Для Михи и его приятеля лучше проводить время, как свойственно мальчишкам их возраста, например, изготовить порох и применить его. А (   Читать дальше...   )Производство: ГДР / Deutscher Fernsehfunk (DFF)Жанр: семейный, комедияРежиссер: Клаус ГендрисАктеры: Дорит Габлер, Лисси Темпельхоф, Фред Ленц, Каспар Эйхель, Йохен Томас, Ханс-Герд Сонненбург, Кристоф Матиас Лау, Horst Quednow, Людвиг Фридрих, Хайнц ХеллмихПеревод: авторский (Юрий Муравский)Язык озвучки: русский, немецкийСубтитры: отсутствуютПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1CE839CE976EF616DF7C8F214A664F542B473A
 ```
 
 

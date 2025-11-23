@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24049.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8A05D0D965FE57CB428C79DF116F8103CBEABBCE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24050.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:ABE4D67849ED7E3BB7C3B62413262988FFDAFC88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24051.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Michael Klastorin, Randal Atamaniuk | Артбук по фильмам Наза�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24052.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:25F55942D9E323168AF1C21E57D4DDE0912B1A07
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24053.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:59E3913294BA4D644CE28DE9D26D2CE83BC923BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24054.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Square Enix | Артбук по игре Final Fantasy XVI / The Art of Final Fa
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24055.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mattel | Артбук по фигуркам Властелины вселенн�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24056.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:EB18271BF8345727C6D21869DAFB3AF51B5F1199
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24057.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ inPixio Photo Focus Pro 4.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24058.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Adobe Bridge 2025 15.0.3.525 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24059.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:32B3A47D399FC8C95419B0D4F2A17A704F66E5A3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24060.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ OneCommander Pro 3.96.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24061.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F7F93C0F91396DB38F4E6FC2AD1FA9EBD8E2E80C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24062.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24062.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:050A6498E9F116C7D998390E1E14571881D6D862
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24063.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Atlantis Word Processor 4.4.4.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24064.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24064.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 16.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24065.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FE68CEAEDEBA7579109971B5CB7F537D8BA9026A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24066.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ ChrisPC Win Experience Index 7.25.0318 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24067.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ InPixio Photo Maximizer Pro 5.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24068.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C821EEF00E0BC7A3AF4E89B1CF152E572D567BC1
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24069.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ SupRemo 4.11.4.2831 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24070.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:984E398DE460AAC37A64DED24002081CAB1C2D8A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24071.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3EBB3373736E80991D42FAA9A55ABC9C2D7D3E5A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24072.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ InPixio Photo Editor 10.5.8103 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24073.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:E02F9930C0A6C4D1645EC0A2E163A83997480FC8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24074.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C1979199E82551C24F56FD1E1731D67966C4A8AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6687.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BCFE308D5381FC38E3B9A1C910FC2E86DA04A1A2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6688.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7427DC92B40B8B1E37B4E9E1BD850541BB1948BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6689.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:19F44712133539BEFE9670A909F9E6029A180B7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6690.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:1D055F17EC3FD9883DEAD2FED850403ACEA98550
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6691.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ inZOI (2025) [Ru/Multi] (20250820.6849.W/dlc) Repack dixen18 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6692.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6C5844542B6F2F33D3C480473AA952FFFE0BBDFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6693.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B7C38ABE0BE84C0A13CEB92526D32C5872FFC498
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6694.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E61D84C6D5F05FC7BC6C820019C4E12ABC2BC30C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6695.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0B12F5BA2F48C7655FDFC389D2D7132641583EB5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6696.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:78A11736D2268BAD8FC305CC0E6EAE569C72EAEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6697.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E7C3DEBFECE3E20A24F375526590AFBC138A2C31
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6698.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.2.3.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6699.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6700.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:B83E9373CCD144C892B38C699CCFCDAB7E617EB9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6701.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6702.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:0753157B33E1188282F99C2A9597FFB4DB3C859E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6703.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6704.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:839FCC95EF933B90C592F9820E815244C0DFE4FE
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6705.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Foxit PDF Editor Pro 2025.1.0.27937 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6706.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DF05348868AEDD2AE1EC274F0AFC5E5A2A978D12
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6707.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:75FF8BD95C36CE414D52C0277C806735FB30570E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6708.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:5C671A3946F8C334778DA18EB910B06D6C2986DF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6709.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:9339A1D272C96D4FBBED969B7A1CE877DEDDB323
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6710.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:1F1E86D0A37B84D72C2B52516503E5A1CDD2ECB5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6711.jpg" />
 </div>
 
 

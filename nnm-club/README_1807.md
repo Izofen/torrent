@@ -6,7 +6,7 @@ VA - Italo Disco Hits Vol. 1-2 Collectors Edition (2010) [MP3|320 Kbps] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47337.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FinePrint 12.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47338.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - The Great Classical Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47339.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6D5FBE90797F0C81E3BEAF2422FD7C6CD38649AD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47340.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:2C112B866D01EE05683F7B9ECBEC908081785BDB
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47341.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D055A1D1FDBAAF567F422381D5FD268B96C5CBBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47342.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D055A1D1FDBAAF567F422381D5FD268B96C5CBBB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47343.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F07020781FEEBA4E63B4D3957DF7B206FBCB461D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47344.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - 50 DJ Tracks 2024 Vol. 2 (2024) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47345.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E1D977D0CE9F10AF1AEDFF122A792F53D5802D99
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47346.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B2B7C2AF81C7A1E9B1AF3D2BFE2AA8E56D54286A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47347.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Sonible - pure:limit 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47348.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0EB36839354A9FD0C7FDE680C7995C3A45DCC0F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B85B829A56DC398BBF9BC55E99E6F3A94538399A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47350.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:2477A56CE809752BE03DB374364DD885E9E6DC6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47351.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:756E9D57B1DF4C787278D90C1AB2534999B013DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47352.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Calvin Harris - 96 Months (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Dance, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47353.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Reflex - Blondes 126 (2008) [WavPack|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47354.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ PdfFactory Std & Pro 9.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47355.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C9BE2FB59856DF87A5C13BC6D8BBE61616F41353
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47356.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:74D19923019243DFFABA486D10E7A60721A77402
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47357.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:39C9AE1B14A44C7547B42B58A03A0767AD485894
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47358.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47359.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47360.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:81AC7B5726F140E6C114D0107746996FB4B85525
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47361.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3EC9876F84563027DD9D6C8D8FD8318B1B03BAF5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47362.jpg" />
 </div>
 
 

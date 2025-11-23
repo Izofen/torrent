@@ -1,3 +1,178 @@
+###  Публикация: 1433851   (154316) от 22.12.2020
+
+Firefox Browser 84.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BFECB998BCCE394583FA2DE4E4C1FAD5E0D9BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270916   (154317) от 21.12.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 361 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0037E63243E4B2E4112BE1ECE28FA7492FDFE33A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194732   (154318) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 18) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вахтанг Кикабидзе  -  Мои года, моё богатство  3:11
+02.  Олег Даль  -  Дороги  4:08
+03.  Юрий Гуляев  -  Из-за острова  4:33
+04.  Галина Ненашева  -  Калинка  3:33(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E24E9C091E4A44266269D688C235F9C977A486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347278   (154319) от 22.12.2019
+
+Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Broken Saviours
+1999 - Age Of Innocence
+2000 - Live2KЖанр: Melodic Hard RockПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E98E72CB55AEBA07DED69009BD3A1E6B0E999A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347222   (154320) от 22.12.2019
+
+Records 1.6.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Records - Личная база данных и визуальный органайзер
+Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Records TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086020   (154321) от 23.12.2016
+
+Демон внутри / The Autopsy of Jane Doe (2016) AC3 5.1 [Solod]
+
+>>Остальное
+>>Звуковые дорожки и субтитры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: ВеликобританияЖанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин, Келли Паркер, Сойерс Джейн, Перри Ив О’ХараПеревод: Одноголосый закадровыйПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F682F3D0600A04BA2CBFE2137F395070BD520D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433844   (154322) от 22.12.2020
+
+Джон Маррс | Пассажиры (2020) [MP3, Ирина Патракова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный хакер взломал системы управления восьми самоуправляемых машин, с недавних пор ставших нормой для всех жителей Великобритании. Теперь он угрожает их пассажирам смертью. Среди его заложников – угасающая телезвезда; нелегальный иммигрант; молодая беременная женщина; муж и жена, едущие раздельно; ветеран военного конфликта; желающий покончить с собой мужчина; (   Читать дальше...   )Жанр: Детективная фантастикаПродолжительность: 13:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F80EAAF3573F2250D3AF55C4058322FA06CCD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676981   (154323) от 15.11.2023
 
 Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
@@ -6,7 +181,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154323.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154324.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ Skarlett Riot - Sentience (2016) EP [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154325.jpg" />
 </div>
 
 
@@ -84,7 +259,7 @@ Movavi Screen Recorder 10.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154326.jpg" />
 </div>
 
 
@@ -108,7 +283,7 @@ KeepStreams 1.1.9.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154327.jpg" />
 </div>
 
 
@@ -132,7 +307,7 @@ magnet:?xt=urn:btih:B47667A92B4E2B44CF27B7C54CDFDC9460D626E4
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154328.jpg" />
 </div>
 
 
@@ -156,7 +331,7 @@ UltraCompare 20.00.0.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154329.jpg" />
 </div>
 
 
@@ -180,7 +355,7 @@ magnet:?xt=urn:btih:6BEEF18E8EAE983799D978451D41C56FE978F020
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154330.jpg" />
 </div>
 
 
@@ -206,7 +381,7 @@ magnet:?xt=urn:btih:CBC654A65E966B0D46C6949F3CF5DA1EC7956F8E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154331.jpg" />
 </div>
 
 
@@ -230,7 +405,7 @@ magnet:?xt=urn:btih:F993445D699E9D3F0C65A7C37598537A01F21755
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154332.jpg" />
 </div>
 
 
@@ -256,7 +431,7 @@ magnet:?xt=urn:btih:5633C84884CE53A117AC1010278C42190BAC0D93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154333.jpg" />
 </div>
 
 
@@ -280,7 +455,7 @@ magnet:?xt=urn:btih:187841BA0024572BB890FF97F6A25AE2642116E7
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154334.jpg" />
 </div>
 
 
@@ -304,7 +479,7 @@ magnet:?xt=urn:btih:E68DF4D2C3103DB6E74B157F854469551264332E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -328,7 +503,7 @@ FileZilla 3.46.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154336.jpg" />
 </div>
 
 
@@ -352,7 +527,7 @@ VA - Sport Club Hits Vol.1 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154337.jpg" />
 </div>
 
 
@@ -379,7 +554,7 @@ Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154338.jpg" />
 </div>
 
 
@@ -406,7 +581,7 @@ Blackened Corvus - Until We Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154339.jpg" />
 </div>
 
 
@@ -433,7 +608,7 @@ magnet:?xt=urn:btih:D93DE934F7B4EE8FDEC84952216A786297181235
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154340.jpg" />
 </div>
 
 
@@ -457,7 +632,7 @@ Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154341.jpg" />
 </div>
 
 
@@ -471,185 +646,6 @@ Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A87B09712EA613F6209F80D0B66D5B97C3D4CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433890   (154342) от 22.12.2020
-
-Векторный клипарт - February 23 Defender of Fatherland day illustration flat design 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-23 февраля Защитник Отечества
-4 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E1FA665B1DC2DFFB0652FD0F1FDD6F48261EDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676747   (154343) от 15.11.2023
-
-MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154343.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1A0FA38C50310FED89F17326F0DEC03510DFF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194704   (154344) от 26.12.2017
-
-Журнал | Благоустройство №11 (137) (декабрь 2017 - январь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Благоустройство» - журнал для тех, кто создает уют. Основная цель — помочь сориентироваться потребителю на рынке товаров и услуг в области благоустройства жилья, то есть — посоветовать, направить, разъяснить, дать оценку и помочь при выборе. Для этого мы привлекаем к сотрудничеству экспертов в области ремонта, строительства и дизайна.Жанр: Дизайн, интерьер, ремонт, ландшафтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15B42D1C13CE51504BBD67139748E50F328A615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347117   (154345) от 22.12.2019
-
-Ольга Шамборант | Опыты на себе (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие автора - Если бы записки эти принадлежали человеку, известному чем-то другим, несомненным… Дело другое. А так, скажите мне даже, что вот жила, допустим, монашка, сестра милосердия, умерла в одиночестве, на чужбине или, хуже того, в центре отечества. И вот от нее остались поразительные записки. Я воспряну душой, сердцем, просветлею, порадуюсь, даже как-то (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 10:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A804885515696BD554DE95D7417B14EB3248BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601027   (154346) от 29.12.2022
-
-Breather Of Chaos - Inner Demons (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (01:55)
-02 - Evil in (07:18)
-03 - Inner demons (05:18)
-04 - Righteous path (04:16)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC7A3B87C5648A0CB34C9067C3037B9BF086E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518568   (154347) от 20.12.2021
-
-VA - Space Chillout (2021) [AAC|~305 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazeofra - The Dark (3:24)
-02. Karl Lark - The Park of Desires (1:53)
-03. Jazz Bar - Love at First Sight (2:05)
-04. Blue Blood - Computerized Poetry (2:22)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B29A3C12B82E6ED0E6693F30390BECEF501A6A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270949   (154348) от 21.12.2018
-
-Мыс Луны | Лунные народные сказки (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154348.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. История Луны
-2. Сиринкс среди звёзд
-3. Путешествие колобка, или 80 дней по сусекам
-4. Старик Елозий и леший(   Читать дальше...   )Жанр: АудиосказкиПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263CB4DC5D76BD67C6F690C41CDBED458F5FEDC4
 ```
 
 

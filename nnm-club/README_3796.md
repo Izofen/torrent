@@ -1,3 +1,76 @@
+###  Публикация: 1640090   (118378) от 10.02.2024
+
+Чужой (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий банкир Владимир Орлов вынужден бежать от правосудия за границу. Он быстро понимает, что живым ему не уйти. Пытаясь скрыться от уголовного преследования и расправы бывших партнеров, герой оказывается в небольшом городке на границе с Финляндией. Волею судьбы он присваивает себе личность майора полиции. Теперь Орлов живет двойной жизнью: разбирается в (   Читать дальше...   )Производство: Россия / Киностудия КИТЖанр: драма, детективРежиссер: Леонид Пляскин, Альберт БарбаричАктеры: Кирилл Плетнёв, Марьяна Спивак, Александр Бухаров, Вера Плешанова, Ваня Гаврилов, Дмитрий Петрухин, Мария Скуратова, Любовь Константинова, Алёна Савастова, Сергей ГамовПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3D6D01978A357F47B6EF82FDE268C0E8869BB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321177   (118379) от 10.02.2024
+
+Путь воина / The Warrior's Way (2010)  Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий воин Янг — живая легенда, рожденная на поле боя. Он был так силен, что ни одна армия не могла его победить.
+Однажды, уничтожая врагов своего клана, самурай отказался убить маленькую девочку, за что его ждет смертный приговор. С младенцем на руках он бежит в Новый Свет, в Америку и находит убежище в захолустном городке, жители которого живут в постоянном страхе (   Читать дальше...   )Производство: США, Корея Южная, Новая Зеландия / Culture Unplugged Studios, Fuse Media, Sad FlutesЖанр: фэнтези, боевик, вестернРежиссер: Снгму ЛиАктеры: Чан Дон Ган, Кейт Босворт, Джеффри Раш, Дэнни Хьюстон, Мэтт Джилландерс, Тони Кокс, Ланг Ти, Эналин Радд, Маркус Хэмилтон, Род ЛюисихПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C695AFAA273F34A64B4D188E6B744338B81BE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698076   (118380) от 10.02.2024
+
+Heretic HD PBR (2023) [Ru/Multi] (1.2) Repack/Mod Other s
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heretic HD PBR - масштабный мод, созданный разработчиками Hexen HD, который превращает культовую старую игру Heretic в настоящий ремастер. Вас ждут новые текстуры высокого разрешения, новое освещение, звуки, музыка и многое другое.Тип издания: Repack/ModРазработчик: Raven SoftwareЖанр: Шутеры от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0308B5F541EFE1358A7E2D995549379C9799C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548385   (118381) от 10.02.2024
 
 Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition]
@@ -6,7 +79,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118381.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118382.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118383.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ macOS 14 Sonoma 14.3.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118384.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.3/dlc) Scene Tenoke [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118385.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118386.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ magnet:?xt=urn:btih:8B3EBFD7E8F5104AA84180B316AE9413755F7EA1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118387.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ magnet:?xt=urn:btih:EFA5ACEF87743E8FC308353ABAC799581A787191
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118388.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ magnet:?xt=urn:btih:4F6B070DB334F9E0016A0E704B8626BA8BF15C61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118389.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:F105D4B15E2E49970860E3ADF3D0FCF213C55DEB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118390.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:B01D22D357B8C7A9BE9E62EFDE6EEF9175D1C8BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118391.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:6FC0F0F5CC4C2FE2ADC486FF307DFF2C26910422
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118392.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ FL Studio Producer Edition 21.2.3.4004 - All Plugins Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118393.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ magnet:?xt=urn:btih:1CA791C7ACC3E52D72424560CD64B3013105E754
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118394.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118395.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Permute 3 v.3.11.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118396.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Clipboard Manager 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118397.jpg" />
 </div>
 
 
@@ -426,7 +499,7 @@ magnet:?xt=urn:btih:E2B5AAF03D3B91DE22DF7CF2FEDFF080E4C992C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118398.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ Mimestream 1.2.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118399.jpg" />
 </div>
 
 
@@ -475,7 +548,7 @@ TextSoap 9.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118400.jpg" />
 </div>
 
 
@@ -499,7 +572,7 @@ magnet:?xt=urn:btih:A4BE43F475D653E44BB27E6E5DF65F06789278BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118401.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ Skype 8.112.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118402.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:A979CFFE033B110D38401FEF04135C406F244D66
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118403.jpg" />
 </div>
 
 
@@ -561,84 +634,6 @@ magnet:?xt=urn:btih:A979CFFE033B110D38401FEF04135C406F244D66
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3B7434E3E4551E390FCDCAC642CED08C27732E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698438   (118404) от 09.02.2024
-
-Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Wound Up (3:29)
-02. Life Is Calling (3:31)
-03. Best of Me (2:46)
-04. You and I (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773725AB7E364E7B25E2F906DD287F4C24E833FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698507   (118405) от 09.02.2024
-
-Middle for Mac 1.8.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2024 Ryan HansonПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEED28118349335ABE952C142C212DB4AA365ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698495   (118406) от 09.02.2024
-
-Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .cue] <African Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Lightning [14:28]
-02. Little Boy [8:31]
-03. Black and Brown Cherries [7:26]
-04. Ntyilo Ntyilo [4:54](   Читать дальше...   )Жанр: African Jazz, Post-BopПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B8FC624FE4785FD2DA2B4EBE3D3A13E75B9D8
 ```
 
 

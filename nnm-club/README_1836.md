@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48091.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8B71AC478E7730A024D4890B53A068D36F2F7A7B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48092.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Darkside Detective: A Fumble in the Dark (2021) [Multi] (2.32.2089.160d) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5C62178FC95EF51C17E3F0088565C29923B8A800
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48094.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5C62178FC95EF51C17E3F0088565C29923B8A800
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48095.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:42B65223597BC74FB77FC0DDF044C9294B31C0DC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48096.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D50E9CA85E8BFDE9C24B41D82AFE249548D0E09C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48097.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:373679C14155BC5D6EADD3427EBC2AF9BD8E41D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48098.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48099.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:61A15C76712C3B57FC56A025CB8CE8DC1B1D9536
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48100.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0727) RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48101.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:14CE497EF19B153217D039C2EE3FFDB20F753812
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48102.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AIMP 5.30 Build 2563 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48103.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:4D180472E487D82710C3BCA931E290EAA7C83EC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48104.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:29505DF1752F9D09AAEC0A10A5EE37F6DDF9785B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48105.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EAC3A3FB793DB326B4B87BFEC31752A24EAB225C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48106.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48107.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48108.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48109.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E20D83D132EA7A894292FB0FA681A9C27C1A02F6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48110.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:92ADC5EB1F61FEAE55E381C83187B7812096B7F6
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48111.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2BC35364EC7453D16099B32B9A9EA04E46B43E4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48112.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:25A2E8FC0F25AEB7CDBEDB11DE0E0861574E1BCC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48113.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4DB2BAECAD22EFDECB885DCEAEF3B1100B201460
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48114.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D5536175E812C61639A1D8DB60EAC1ECA3C46F91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48115.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48116.jpg" />
 </div>
 
 

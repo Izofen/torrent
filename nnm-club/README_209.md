@@ -6,7 +6,7 @@ VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5501.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5502.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1B3E9201882408A29C175A6D1FA701830AB1B09D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5503.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3817C732E7040F4960FAD8DACA9D9FE43DD6EA40
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5504.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Salvo/Сальво - Solo Tu/Только Ты (1981) [FLAC 2.0|24/96|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5505.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ North Mississippi Allstars - Still Shakin' (2025) [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5506.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:4AEBE6ABB3B3D9E1495069AA8064F3015D93451E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5507.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:36D770AD07BF18C1B970FE681E0B9F1507A9213C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5508.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ In Mourning - The Immortal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5509.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:739BE5DDE7782EB5C97FA45401AB8A5105063A3E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5510.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:7AAF1E8ABEA4CB0A51402A7B17FDB49E8C4CB9B2
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5511.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:63F8FA5D099CD51EBFA69FBE6DAA32DE9D74C1A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5512.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5513.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5514.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmos
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5515.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5516.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Shin Megami Tensei V: Vengeance (2024) [Switch] [USA] 18.1.0, Atmosphere 1.7.1 [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5517.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5518.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5519.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5520.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Buddha Luxury 2025 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <O
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5521.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Best Driving EDM 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5522.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:FDBB875553B8E4B6D8C4CCD34235AFEB77F35796
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5523.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dog Scanner: Породы собак v22.2.15-G Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5524.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5525.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dave The Diver: Anniversary Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5526.jpg" />
 </div>
 
 

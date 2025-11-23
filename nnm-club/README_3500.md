@@ -1,3 +1,81 @@
+###  Публикация: 1719282   (110682) от 28.04.2024
+
+Жил-был Тигр / Ek Tha Tiger (2012) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийский спецагент по прозвищу Тигр во время очередной миссии влюбляется в очаровательную танцовщицу Зою — помощницу ученого, который подозревается в продаже секретных технологий пакистанской разведке.Производство: Индия / CounterPunch Studios, Fantastic Films, Prime FocusЖанр: боевик, мелодрамаРежиссер: Матур Госвами, Кабир КханАктеры: Салман Кхан, Катрина Каиф, Гириш Карнад, Рошан Сет, Ранвир Шори, Ашок Авасти, Авинаш Бадал, Киран Батра, Вимал Батра, Сушма БэттПеревод: Дублированный (RuFilms)Язык озвучки: Русский, хиндиСубтитры: РусскиеПродолжительность: 02:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCEDEA2B92028D9122BEA4F29A0B9FF4E493D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718600   (110683) от 28.04.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
+02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
+03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
+04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719240   (110684) от 28.04.2024
+
+Mylene Farmer - Remix XL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Libertine (nit Remix) (00:05:15)
+02 - Sans contrefaCon (The Magician Remix) (00:03:43)
+03 - Pourvu qu'elles soient douces (Cut Killer & Prez Poney Club Remix) (00:03:24)
+04 - Desenchantee (Arnaud Rebotini Remix) (00:07:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E83BAC39B0980AEE6E40DBE116B2DBEA16FCDD1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719246   (110685) от 28.04.2024
 
 Free Download Manager 6.22.0.5712 + Portable [Multi/Ru]
@@ -6,7 +84,7 @@ Free Download Manager 6.22.0.5712 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110685.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:8B3AA96E3CAF830609B5647E10EE6B4D9A158622
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110686.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:3C41EC918D481634C702EF6706C1E73404E9C05B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110687.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ magnet:?xt=urn:btih:6E9B171533DB21000D37E4D1AD2E880064191DC8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110688.jpg" />
 </div>
 
 
@@ -104,7 +182,7 @@ magnet:?xt=urn:btih:EDFB1118283DF6181B517AF8E38EC3275F934238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110689.jpg" />
 </div>
 
 
@@ -128,7 +206,7 @@ magnet:?xt=urn:btih:EDFB1118283DF6181B517AF8E38EC3275F934238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110690.jpg" />
 </div>
 
 
@@ -152,7 +230,7 @@ magnet:?xt=urn:btih:05279FDACE7DED7FE2695492F208325EFE5352AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110691.jpg" />
 </div>
 
 
@@ -176,7 +254,7 @@ Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110692.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ Aggressor - Procreate the Petrifactions (1993) Reissue, 2012, Roundsound [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110693.jpg" />
 </div>
 
 
@@ -230,7 +308,7 @@ magnet:?xt=urn:btih:3EB1CABCC5FC982D284CA5AB003F7BEB16FDFDA3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110694.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110695.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110696.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ magnet:?xt=urn:btih:60C608630759D5C0EEC6AB314388759AC48EA17C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110697.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ Creeper - Sanguivore (2023) Special Edition, 2024, Tom Dalgety [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110698.jpg" />
 </div>
 
 
@@ -360,7 +438,7 @@ magnet:?xt=urn:btih:FBF214691F13BA4A8CF84245DFC917A21C21DD7A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110699.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:FB6F3B21EC4C93814105F6BCDC00503672B22742
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110700.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ magnet:?xt=urn:btih:6F79FC115061176D52579FA45700635BC7798C06
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110701.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ Barbara Morrison featuring Houston Person - I Wanna Be Loved (2017) Savant [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110702.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ Abhorration - Despondent (2018) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110703.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ Aggressor - Of Long Duration Anguish (1994) [APE|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110704.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ magnet:?xt=urn:btih:85DCFD082C795515762A806AAC6708C9192C2B37
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110705.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ KineMaster - Video Editor & Maker v7.4.9.32405.GP Mod by youarefinished [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110706.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Zoner Photo Studio X 19.2403.2.538 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110707.jpg" />
 </div>
 
 
@@ -575,84 +653,6 @@ Zoner Photo Studio - приложение, созданное для качес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86B3C1F8EF2FBD68E14DAC1053A074FCDB6E54ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718890   (110708) от 27.04.2024
-
-Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buzzard Song [4:11]
-02. Bess, You Is My Woman Now [5:15]
-03. Gone [3:41]
-04. Gone, Gone, Gone [2:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF54FD0F05E82CFD16A54F8C9D247BAD8FC71F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718812   (110709) от 27.04.2024
-
-VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banda Brasileira - Napule è (4:10)
-02. Papik - Ancora Tu (5:12)
-03. Melania - Malafemmena (4:22)
-04. Walter Ricci - Tu Si Na Cosa Grande (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167FE2683BBF3E048C1C6B8BF6F8B8107D8F60F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718956   (110710) от 27.04.2024
-
-Семь женщин МакГрегоров / 7 donne per i Mac Gregor (1967) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бодренькие старички МакГрегоры со своими седенькими старушками, видимо в приступе маразма, решают закопать всё своё золото возле дома, так сказать, “на всякий случай”. Но на их беду это действо подмечает приспешник бандита Мальдонадо, который с подручными, конечно же, похищает семейные сокровища. После этого для МакГрегоров дело чести найти пропавшее золото и вернуть...Производство: Испания, Италия / Jolly Film, Produzione D.S. (Dario Sabatello), Talía FilmsЖанр: комедия, вестернРежиссер: Франко ДжиральдиАктеры: Дэвид Бэйли, Агата Флори, Лео Анчорис, Жорж Риго, Франческо ТенсиПеревод: авторскийЯзык озвучки: русский, английский, итальянскийСубтитры: английскиеПродолжительность: 01:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F1467ECAB5AC86CF9B8B9A3587EC5DE2D6CCAB
 ```
 
 

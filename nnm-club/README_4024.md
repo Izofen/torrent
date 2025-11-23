@@ -1,3 +1,75 @@
+###  Публикация: 1689915   (124306) от 05.01.2024
+
+Костолом / Ruthless (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124306.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Гарри произошла трагедия: его дочь была похищена и убита. Разочаровавшись в правосудии, он решает действовать самостоятельно. Гарри выходит на след банды, связанной с похищениями девушек, и собирается мстить. А методы у него жесткие — сначала ломает кости, потом задает вопросы.Производство: США / Premiere Entertainment Group, AXI-ON, Al Bravo FilmsЖанр: Боевик, триллерРежиссер: Арт КамачоАктеры: Дермот Малруни, Джефф Фэйи, Ману Интирэйми, Тексас Бэттл, Кесия Роблз, Анджелика ДеЧавес, Мелисса Диас, Маурисио Мендоса, Тонанцин Эспарза, Марк ДжастисПеревод: Дублированный (OKKO)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72073F1294BE6C856A2CEDAF1FBEE140F96851A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690146   (124307) от 05.01.2024
+
+Microsoft Activation Scripts (MAS) 2.5 (01.01.2024) Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/Online KMS с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD797EF6FF7CFEB153E91BEE330F4189515D9630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689769   (124308) от 05.01.2024
+
+Бугимен. Начало легенды / El hombre del saco / The Boogeyman: The Origin of the Myth (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124308.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти главы семьи мать с тремя детьми переезжает в небольшой городок. Вскоре они узнают, что последние несколько месяцев тут при загадочных обстоятельствах пропадают дети.Производство: Испания, Уругвай / AF Films, Bowfinger International Pictures, Canary Pictures Vehicles, Esto también pasaráЖанр: Ужасы, комедия, приключенияРежиссер: Анхель Гомес ЭрнандесАктеры: Макарена Гомес, Хавьер Ботет, Иван Ренедо, Клаудия Плейсер, Лорка Гутьеррес Прада, Лукас Блас, Карла Тоус, Гильермо Новильо, Маноло Соло, Карлос Гонсалес МорольонПеревод: Дублированный (SoulPro)Язык озвучки: Русский, испанскийСубтитры: РусскиеПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292702FEC543676C1C4A90C7ED4735CD2FA0B66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689983   (124309) от 05.01.2024
 
 И не подумай прийти на мою бат-мицву / You Are So Not Invited to My Bat Mitzvah (2023) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124309.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:1CEC6B139412D58DC30F54E89CF8DF7F6A1579E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124310.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:A8D8CF0FE55385CE8BFAC43D9600DB5930D3D3CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124311.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:F5F4331FDDE38E4144749418DE0563BF5F51834E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124312.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:245C70492DD93726526A0619D29BCE4CB7CB4F3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124313.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:D3719ACC751A3F32D264A134379CA4DEA453E715
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124314.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:D631583920D47E76027881D8D50F55A6F3A69730
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124315.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124316.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:06B0BFA258C9D49942463C357D2289ADE01DC350
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124317.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:3AB7B6AA98AD828985763D8A447206BCAF536251
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124318.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:CD8C1862F055D2572BC1247DE02A1E92715DF31C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124319.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124320.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:675326D0338B40FB08A748CA27870EF9CC342503
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124321.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:0D52DB647085FBC67E4C3C0C74CF0C10A1D201DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124322.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:D9B3BB0B24FE92389EC6F90FCB16CEBC95D836F0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124323.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:F84890CD30F5BBAAA4F9F373E4B4FC123B116EDB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124324.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:ED87D612F23C25D78A257F5978CD0AA613E20599
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124325.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ magnet:?xt=urn:btih:C3D7ED616A660B3E2475599F91B204CAD2CAFEDC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124326.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ DGM - Life (2023) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124327.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:66FE8EAD0E8CA6F25479A05B6E34E83D7CC930D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124328.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:E64C8C6C96007174B77310EF95BD5A5C002304CD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124329.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:EFFAA33965EBB05484D3BB673D8E628AFF2D1F7C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124330.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Opera GX 105.0.4970.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124331.jpg" />
 </div>
 
 
@@ -560,85 +632,6 @@ Opera GX - это специальная версия браузера Opera, с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1EC3E0BAFF19E7C09D3C25FFD257F94D0A546C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689839   (124332) от 04.01.2024
-
-Константин Паустовский | Мещёрская сторона. Разливы рек (2014) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константин Георгиевич Паустовский (1892–1968) – выдающийся русский писатель XX века, автор рассказов и повестей о природе, мастер психологического портрета.
-В аудиокнигу вошли произведения замечательного русского писателя, великолепного мастера слова К.Г. Паустовского  о Мещёрском крае. Написанные отточенным, чистейшим литературным языком, наполненные светом, волшебными (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Нигде не купишьПродолжительность: 02:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD79DFACDA1D24F80D2C441B76849551EAEB887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689833   (124333) от 04.01.2024
-
-Константин Паустовский | Блистающие облака (2013) [MP3, Ольга Аветисова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константин Георгиевич Паустовский (1892–1968) русский советский писатель, классик русской литературы.
-Роман «Блистающие облака» – увлекательный авантюрный детектив, одновременно включающий автобиографические эпизоды и впечатления от поездок писателя по Черноморью и Кавказу.
-
-«Блистающие, или светящиеся, облака наблюдаются очень редко. Их часто принимают за ненормально (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 08:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104D1F086F6A7FB42EEFB71911A369F44CC6C601
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689817   (124334) от 04.01.2024
-
-VA - Trance Anthems 2024 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Welcome To The Future (Extended Mix) [7:20]
-02. Armin van Buuren - Computers Take Over The World (Maddix Extended Remix) [5:23]
-03. TH3 ONE & DJ Dean - Wake Me Up (Extended Mix) [6:03]
-04. Ronski Speed x Sygma feat. Fra.Gile - U Found Me (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85433D9BA5180FCA525769B0169C0E952B9CF7B
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1723194   (109538) от 15.05.2024
+
+VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patty Johnson - I'm In Love (Europe Version) (6:03)
+02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+03. International Music System - Dancing Therapy (128 Bpm) (6:05)
+04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723314   (109539) от 15.05.2024
+
+Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows хороша, но всегда есть, что улучшить. Вот тут то и появляется Ashampoo WinOptimizer 27! Потому что операционные системы со временем становятся медленнее, менее стабильными и захламлённее. А важные настройки или пропадают, или скрываются где-то в глубине системы. И ещё это постоянное вторжение в личную жизнь, появившееся в Windows 10 и 11, эвфемистически называемое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE82F4AEF916360695642A25D73747CAD71DFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723440   (109540) от 15.05.2024
+
+Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520B1C7F4A0A2EBD4714EA918D42D73A8460B320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723246   (109541) от 15.05.2024
 
 RSS Guard 4.7.0 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ RSS Guard 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109541.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Opera One 110.0.5130.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109542.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109543.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ FanControl V190 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109544.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:0A365D368E54BD91189B64ED6005FC3D44A036B3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109545.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Microsoft .NET 8.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109546.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109547.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ Microsoft .NET 6.0.30 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109548.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ VA - We Love Synthpop (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109549.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109550.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Rela
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109551.jpg" />
 </div>
 
 
@@ -279,7 +354,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109552.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ Buck Hill - Relax (2006) Severn Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109553.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ Couch Slut - You Could Do It Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109554.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ Lincoln Center Jazz Orchestra & Wynton Marsalis - Don't Be Afraid... The Music o
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109555.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ Take Offense - T.O.tality (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109556.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ Gonzalo Rubalcaba - Discovery: Live At Montreux (1991) Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109557.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Buck Hill - Capital Hill (1990) Muse Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109558.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ Video Converter Pro 0.2.37 Lite-Mod by Илья Ёжик [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109559.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ Teenage Bad Girl - Separate (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, Dance
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109560.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ The Higher - Hidden Places (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109561.jpg" />
 </div>
 
 
@@ -543,7 +618,7 @@ Patricia Manion - Blues 365 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109562.jpg" />
 </div>
 
 
@@ -570,7 +645,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109563.jpg" />
 </div>
 
 
@@ -584,85 +659,6 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D467C7CE65F181C233CAE181C7DF84A37A25F7D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723109   (109564) от 14.05.2024
-
-Mike Clark Band - 0-60 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Away (6:07)
-02. Never Gonna Not (4:33)
-03. Waggle Butt Rock (4:02)
-04. Let Us Be (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590377F30A865171BFBCADACF47D102E5CDB18F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723118   (109565) от 14.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 4-й матч) Даллас Старз - Колорадо Эвеланш (13.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109565.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2024, вторник. 04:30 МСК. 1/2 финала - Запад. 4-й матч. Стадион: Болл-Арена (Денвер, США), 18 123 зрителя (100% при вместимости 18 147)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BE753F8B4777198CDDA285A7EEFFEFEFDE63B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723072   (109566) от 14.05.2024
-
-Chris BadNews Barnes - BadNews Travels Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Hall - Badnews Travels Fast (3:25)
-02. Walter Trout - True Blues (4:55)
-03. Sugaray Rayford - You Right Baby (4:41)
-04. Jimmy Hall - A Bluesman Can't Cry (5:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249419E0D30FB8FDBF4EE3BABB886D792FEA418C
 ```
 
 

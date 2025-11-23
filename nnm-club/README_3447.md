@@ -1,3 +1,81 @@
+###  Публикация: 1724170   (109304) от 18.05.2024
+
+Своя игра (18.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109304.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
+
+Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C6BAAB8BD67DF691AFD51E186BACDC7F6B33C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724179   (109305) от 18.05.2024
+
+Ayreon - 01011001 - Live Beneath The Waves (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109305.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. March Of The Machines (2:46)
+02. Age of Shadows (10:27)
+03. Comatose (4:23)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4AAE31FFBDF971B1C447CF99323DF2F01505D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724127   (109306) от 18.05.2024
+
+The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Years Will Not Be Kind (00:03:25)
+02 - Live Close By (Visit Often)Жанр: Blues, Country, FolkПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291CE7DCAF8FEFE89BBC6A8FCC2DD0B4EB8DFDE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724113   (109307) от 18.05.2024
 
 Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -6,7 +84,7 @@ Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109307.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:A9AA39BDD98B6603F5CD417037416B40E6852542
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109308.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:F8C882C5C480F8E562E9B0388299F08C4EFD35B8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109309.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109310.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Combichrist - Everybody Hates You - Darkside (2005) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109311.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Martin Lechner - Another Step (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109312.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Peemai - Gaga Gundul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109313.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Archie Shepp - On Green Dolphin Street (1977) 1991, Denon [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109314.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ Rostros Sin Rostro - Features & ShiT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109315.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ Combichrist - One Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109316.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109317.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ Alan Braufman - Infinite Love Infinite Tears (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109318.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ Joe Lovano - Joyous Encounter (2005) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109319.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ Combichrist - We Love You (2014) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109320.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ lostWall - woodwerk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109321.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ Combichrist - Live at Summer Breeze 2015 (2016) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109322.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ Zoar Miranda - A Happy Day for a Sad Bird (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109323.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ magnet:?xt=urn:btih:FA64A5A34BF201D64D0725EEEC01B39FFCD61919
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109324.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ magnet:?xt=urn:btih:A3B884920E8BEA7D914812EE2A27F4BEA4B5B246
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109325.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ magnet:?xt=urn:btih:A3B884920E8BEA7D914812EE2A27F4BEA4B5B246
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109326.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Ant-People - Disco Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109327.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Soul Browser 1.4.21 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109328.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ magnet:?xt=urn:btih:1F7D4F84DBEAD5699DBAD20A8EC931C734B109CF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109329.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ magnet:?xt=urn:btih:1F7D4F84DBEAD5699DBAD20A8EC931C734B109CF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA17A850E81230ECB610B595AAF9E7A3031C88CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724129   (109330) от 18.05.2024
-
-Talking Heads - Stop Making Sense (1984) Deluxe Edition, 2023, Rhino - Warner Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental Rock, Art Punk, Dance Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Psycho Killer (Live) [2023 Remaster] (4:20)
-2. Heaven (Live) [2023 Remaster] (3:41)
-3. Thank You for Sending Me an Angel (Live) [2023 Remaster] (2:10)
-4. Found a Job (Live) [2023 Remaster] (3:15)(   Читать дальше...   )Жанр: Experimental Rock, Art Punk, Dance RockПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71A675BD280233F4425FBA83634463C38C70E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724204   (109331) от 18.05.2024
-
-Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kobra and the Lotus (KATL) — канадская хэви-метал группа, образованная в 2009 году вокалисткой и автором песен Коброй Пейдж.2009 - Out Of The Pit
-2012 - Kobra And The Lotus
-2014 - High Priestess
-2015 - Words Of The Prophets (EP)Жанр: Heavy MetalПродолжительность: 05:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724055   (109332) от 18.05.2024
-
-Газета | Невыдуманные истории №18 (422) (май 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109332.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8882F6E573CE31FF491E95429EEB77B652ACE49C
 ```
 
 

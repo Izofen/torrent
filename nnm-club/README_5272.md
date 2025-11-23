@@ -1,3 +1,183 @@
+###  Публикация: 1598510   (162518) от 19.12.2022
+
+NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162518.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043534B9D16112F095CCC48517810C42AD7C9FED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674162   (162519) от 04.11.2023
+
+Chris Thomas King - Big Grey Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Grey Sky (4:28)
+02. Get Behind Me (4:10)
+03. Chokin' Kind (4:34)
+04. One More Scotch (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77B847A34106D4FC909BEBD4A9E65C1E4AB517C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432690   (162520) от 18.12.2020
+
+Skillbox, Марина Брагинская и др. | Декорирование в дизайне интерьера (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь разрабатывать декоративные решения для жилых интерьеров, работать со стилями и разными элементами декора. Сможете зарабатывать на декорировании помещений и редизайне квартир.
+Чему вы научитесь:
+Подбирать стиль для интерьера. Узнаете, какие современные стили существуют, как их можно сочетать между собой и какими средствами реализовать задуманный дизайн-проект. (   Читать дальше...   )Производство: SkillboxЖанр: ДизайнПродолжительность: 15:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517375   (162521) от 15.12.2021
+
+Перекрестный огонь / Nou fo / Raging Fire (Crossfire) (2021) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Честный и принципиальный полицейский Бон отказывается прогнуться под начальство и пойти на сделку с совестью, из-за чего его команду не берут на спецоперацию по захвату давно разыскиваемого преступника. Но на месте появляется банда неизвестных в масках и убивает почти всех копов, в том числе начальника Бона. Оказывается, бывший полицейский Нго, некогда подававший (   Читать дальше...   )Производство: Гонконг, Китай, Emperor Film Production, Super Bullet Pictures, Tencent PicturesЖанр: боевик, криминал, триллерРежиссер: Бенни Чан / Benny ChanАктеры: Донни Йен, Николас Це, Цинь Лань, Кенни Вон, Дип Нг, Джина Хо, Ангус Юн, Брюс Тун, Тони У, Юй КанПеревод: профессиональный двухголосый (Pazl Voice)Субтитры: английские (два варианта)Продолжительность: 02:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4760E98DB89B06ADD510D44E3D5457866C7B4D43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412707   (162522) от 18.12.2020
+
+[Udemy] Oak Academy| C# за 6 часов. C# полное изучение с нуля. C# кодирование (2020) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чему вы научитесь:
+Основы C#
+Основы C# и .NET Framework
+Изучите C# кодирование(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 04:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C9FF52F8FF8F87DE3CF6E0DAD9ACF5857DB7E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598521   (162523) от 19.12.2022
+
+Кровавое лето Сэма / Summer of Sam (1999) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162523.jpg" />
+</div>
+
+
+###  Подробнее
+
+В историю Нью-Йорка лето 1977 года вошло как одно из самых жарких и изнуряющих. Казалось, будто 40-градусная жара готова расплавить асфальт и свести окончательно жителей с ума. Но не жара стала главным врагом жителей громадного мегаполиса, а Дэвид Берковиц, серийный убийца, прозванный «Сыном Сэма». Казалось, что город медленно, но верно погружается в пучину безумия (   Читать дальше...   )Производство: США, Touchstone Pictures, 40 Acres & a Mule Filmworks, Hostage ProductionsЖанр: триллер, драма, мелодрама, криминалРежиссер: Спайк ЛиАктеры: Джон Легуизамо, Эдриан Броуди, Мира Сорвино, Дженнифер Эспозито, Майкл Рисполи, Саверио Гуэрра, Брайан Тарантина, Аль Палагония, Кен Гарито, Биби Ньювирт...Перевод: профессиональный двухголосый (два варианта), авторский (Юрий Сербин; Михаил Яроцкий)Субтитры: русские, английскиеПродолжительность: 02:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4059BE2110ECEF971C5AD6DE756C5418A4B9909C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674170   (162524) от 04.11.2023
+
+Daniel Eriksen - Live At Cudrio Recording (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squeeze This Trigger  (3:25)
+02. I Want My Crown  (2:54)
+03. Over the Hill (2:47)
+04. Baby You're a Star  (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC4741E4D9BEB18214072C83EDB17D39F489725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517332   (162525) от 15.12.2021
 
 Множественные святые Ньюарка / The Many Saints of Newark (2021) BDRip [MVO]
@@ -6,7 +186,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162525.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ Serenity - The Last Knight (2020) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162526.jpg" />
 </div>
 
 
@@ -57,7 +237,7 @@ magnet:?xt=urn:btih:9D15EFC5B1FE3934703F82FAFFD16062CEAAE326
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162527.jpg" />
 </div>
 
 
@@ -81,7 +261,7 @@ magnet:?xt=urn:btih:DCC5EC31985564BA04A8269B46AC073DEEF449BA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162528.jpg" />
 </div>
 
 
@@ -105,7 +285,7 @@ magnet:?xt=urn:btih:EDAD9F55308DEF86989AC84F6FC0B367B5C9608F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162529.jpg" />
 </div>
 
 
@@ -129,7 +309,7 @@ TG Pro (Temperature Gauge Pro) 2.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162530.jpg" />
 </div>
 
 
@@ -154,7 +334,7 @@ Adobe Acrobat Pro DC 2020.013.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162531.jpg" />
 </div>
 
 
@@ -178,7 +358,7 @@ magnet:?xt=urn:btih:D96044BD93A5A50494382846ABC4B10895A877E3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162532.jpg" />
 </div>
 
 
@@ -202,7 +382,7 @@ magnet:?xt=urn:btih:1D13D6A5A53BE0720434DA348AB12AED5920F920
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162533.jpg" />
 </div>
 
 
@@ -226,7 +406,7 @@ Cat Squirrel - Blues What Am (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162534.jpg" />
 </div>
 
 
@@ -253,7 +433,7 @@ magnet:?xt=urn:btih:94BD2BA3755CC3CF2516871719E9D9DB0A5EAC7A
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162535.jpg" />
 </div>
 
 
@@ -277,7 +457,7 @@ magnet:?xt=urn:btih:4153506000684D992136EDC775862330A31165BD
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162536.jpg" />
 </div>
 
 
@@ -301,7 +481,7 @@ magnet:?xt=urn:btih:4728CC84D3EBEBC1697D85FF5DD55DDFEBB7C3B0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162537.jpg" />
 </div>
 
 
@@ -327,7 +507,7 @@ magnet:?xt=urn:btih:E920C2C50F98F2207AA016BCC59E419296F59B54
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162538.jpg" />
 </div>
 
 
@@ -351,7 +531,7 @@ magnet:?xt=urn:btih:96A9E82AC6B1E450FBB3EDBED91BFF110AA59B42
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162539.jpg" />
 </div>
 
 
@@ -375,7 +555,7 @@ magnet:?xt=urn:btih:5D76B850BFAC6510D4B7634C020C83C654C2A3C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162540.jpg" />
 </div>
 
 
@@ -399,7 +579,7 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162541.jpg" />
 </div>
 
 
@@ -426,7 +606,7 @@ magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162542.jpg" />
 </div>
 
 
@@ -450,7 +630,7 @@ Commander One PRO - FTP client 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162543.jpg" />
 </div>
 
 
@@ -463,180 +643,6 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B233CF97D0915FEC8FF78A969FDAA3900429D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598442   (162544) от 19.12.2022
-
-Одна поёт, другая нет / L'une chante, l'autre pas / One Sings the Other Doest (1976) BDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция 1970-ых гг. Помм и Сюзанна встречаются, и одна женщина помогает другой прервать уже третью беременность. Позже они теряют друг друга, но встречаются снова десять лет спустя. Помм стала певицей, а Сюзанна соцработник. Несмотря на контраст, они остаются близкими друзьями.Производство: Франция, Бельгия / Ciné-tamaris, INLC, Institut National de l'Audiovisuel (INA)Жанр: драма, историяРежиссер: Аньес ВардаАктеры: Тереза Лиотар, Валери Мересс, Робер Дадие, Мона Мэрес, Франсис Лемэр, Франсуа Корбин, Али Раффи, Жизель Халими, Salomé Wimille, Nicole ClémentПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, французскийСубтитры: английские, русские (forced, на песни) - отдельными файламиПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564E9DF0ECD903E0CE4AA7AA56FAB405C767B1C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673944   (162545) от 04.11.2023
-
-Blind Armadillo - Got da Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backdoor Blues (5:28)
-02. Go Away (6:02)
-03. The Thrill (5:15)
-04. Little Fire (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52FBC93840CD0C5BC11BCF65E67A89693CDAEE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598429   (162546) от 19.12.2022
-
-Ольга Рожнёва (сост.) | Николай. Твой святой покровитель (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162546.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге повествуется об удивительной жизни и великих подвигах святителя Николая Чудотворца, архиепископа Мир Ликийских; читатели совершат путешествие в Бари, где покоятся мощи угодника Божия. Также книга содержит жития святителей Николая Сербского и равноапостольного Николая Японского. Из данного издания читатели узнают о святых прошлых веков: блаженном Николае Псковском (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B0FC07AF567E6B4324AEB0CA53E8D8CB92C3F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674159   (162547) от 04.11.2023
-
-Asmodean - By a Thread (2023) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undoing
-02. Below The Line
-03. Defying Truth
-04. Scorned(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA149C4BFD5EA053E1D967D4FE3307D2DB63C20B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511059   (162548) от 15.12.2021
-
-Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162548.jpg" />
-</div>
-
-
-###  Подробнее
-
-События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за своё место под Солнцем. В это нелёгкое время Людям Икс предстоит столкнуться со своим самым опасным противником - древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' Company, Kinberg Genre, Marvel Entertainment, TSG EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Николас Холт, Оскар Айзек, Роуз Бирн, Эван Питерс, Джош Хелман, Софи Тёрнер, Тай ШериданПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английскиеПродолжительность: 02:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0868CA32006BCC645408373FFD3786B1B8451A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413142   (162549) от 18.12.2020
-
-100-man no Inochi no Ue ni Ore wa Tatte Iru | I'm Standing on a Million Lives | Я стою на миллионе трупов [2020, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятиклассник Юске Ёцуя — практичный и нелюдимый юноша, который не участвует в деятельности ни одного школьного клуба. Однажды он вместе с двумя одноклассницами оказывается в параллельном мире, где они вынуждены объединить усилия ради выживания. Ёцуя — одиночка по жизни и до сих пор действовал исходя исключительно из собственных хотелок, но теперь он вынужден стать (   Читать дальше...   )Производство: Студия Maho FilmЖанр: комедия, фэнтезиРежиссер: Хабара КумикоПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BED0010E9FC5AF610193E210A41D67E79009CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598565   (162550) от 19.12.2022
-
-Максим Коржов | Во власти безумия (2022) [MP3, Денис Шутов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования, один из главных героев – молодой человек Алексей. Он уже долгое время страдает от длительной депрессии. Его жизнь – это сплошной ад, в котором он потерял всех близких ему людей, и последней стала его девушка. Безысходность и угрызения совести не позволяют ему спокойно жить. Однажды появляется таинственный незнакомец и заявляет что может помочь (   Читать дальше...   )Жанр: Криминальные боевики, Мистика, ТриллерыПродолжительность: 14:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BCD6B36A47457209B290583016812B4E6E1FE9
 ```
 
 

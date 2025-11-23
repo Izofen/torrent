@@ -6,7 +6,7 @@ Free Hex Editor Neo 7.40.00.8622 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127256.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ StaxRip 2.30.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127261.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ CherryTree 1.0.4.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127266.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Smart Launcher 6.3 build 040 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127271.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Photo Lab PRO v3.12.83 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127277.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127281.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ HopToDesk 1.40.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127285.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ TikTok 32.6.4 Lite-Mod by Dmitry Nechiporenko [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127297.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Multi Commander Full Edition 13.3 Build 2969 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127302.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Planet VPN 2.6.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127317.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Defender Remover Portable 12.6.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127320.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tails 5.20 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127326.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ALLPlayer 9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127327.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:D57115AA4EC7CA79F96550AE80856CCD44758C09
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127336.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ DefenderKiller 11.0.8 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127343.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.7 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127456.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Jetbrains IntelliJ IDEA Ultimate 2023.3.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127471.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Jetbrains WebStorm 2023.3.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127472.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127590.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WPS Office + PDF 18.5.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127597.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ FBackup 9.9.846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127621.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Brave Browser 1.61.104 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127635.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WPS Office + PDF 18.5.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127647.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Calibre 7.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127655.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127656.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Vivaldi 6.5.3206.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127680.jpg" />
 </div>
 
 

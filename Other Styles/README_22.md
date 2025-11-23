@@ -1,3 +1,111 @@
+###  Публикация: 1829604   (201991) от 25.10.2025
+
+Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaine ma plaine
+02. Les deux guitares
+03. Le Sarafan rouge
+04. Katioucha(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829591   (202031) от 25.10.2025
+
+Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for a Lady (Remastered)
+02. Theme of a Young Love (Remastered)
+03. Brokenhearted Me (Remastered)
+04. My Sweet Lady (Remastered)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615787   (202169) от 27.02.2023
+
+Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomenon [05:50]
+02. Pulse [07:15]
+03. Storm (2023) [04:20]
+04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654838   (202249) от 23.08.2023
+
+Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning on the Mesa
+02. Ghosts of the Canyons
+03. Trail of the Ancients
+04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614455   (202330) от 23.02.2023
 
 VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
@@ -6,7 +114,7 @@ VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202330.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202330.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202378.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 3-4 (1966) [FLAC 24/96, 
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202380.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202380.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC 2.0|44.1/48/16/24|WE
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202866.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202866.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205011.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205011.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205013.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ VA - Б. Рубашкин, И. Ребров•Звезды русской эми
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206037.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206037.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Goran Bregović - The Belly Button Of The World (2023) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206123.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206123.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206187.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206187.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206188.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206188.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206626.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206626.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Song
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206693.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206693.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206744.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206744.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206882.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206882.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206888.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206888.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Ennio Morricone - Love Songs and Romantic Scores (2023) [OGG Vorbis|480 Kbps] <F
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206889.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ magnet:?xt=urn:btih:179D1E4B1A9FB813D5643132279D5C006C7A13D6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206918.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206918.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ VA - Folk Country Songs USA (2023) [MP3|320 Kbps] <Country, Folk, Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207740.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207740.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Basta
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207761.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ magnet:?xt=urn:btih:655FB39EB0D3C9D225FD32D81B36237F4892F741
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207980.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207980.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208002.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208994.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208994.jpg" />
 </div>
 
 
@@ -587,112 +695,6 @@ Nino Rota (3.12.1911 – 10.4.1979) - итальянский композито�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645059   (209317) от 09.07.2023
-
-VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подводный мир (1:06)
-02. Дождь в лесу (1:21)
-03. Возле маленького ручейка (6:51)
-04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644407   (209763) от 05.07.2023
-
-ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Складук
-02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604927   (209877) от 16.01.2023
-
-ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend (3:00)
-02. Waterfall (4:11)
-03. Arabica (6:00)
-04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661040   (210447) от 14.08.2022
-
-VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
-02. Scooter - Fire (03:14)
-03. KMFDM - Megalomaniac (04:19)
-04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
 ```
 
 

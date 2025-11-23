@@ -1,3 +1,75 @@
+###  Публикация: 1346360   (163316) от 19.12.2019
+
+Ableton - Live Suite 10.1.6 (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ableton Live 10 Suite представляет собой самое полное издание программного обеспечения Live для создания и исполнения музыки и является софтом полной интегрированной студии, оснащенной всем необходимым для музыкальной творческой работы. Издание Suite может предоставить неограниченное количество треков и сцен, 12 треков send и return, 256 моно аудио входных каналов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13EA97D5E2576755517D7715DC0E1FE3266FBE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432666   (163317) от 18.12.2020
+
+Display Maid 3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790ABC419EF8C4567C201FA0D83ED9A92E9777FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432678   (163322) от 18.12.2020
+
+Timemator 2 v2.7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C359B6D94DC92F69E696E22E9CECE162002F9FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598303   (163324) от 18.12.2022
 
 AudKit Spotify Music Converter for Mac 2.0.3 [En]
@@ -6,7 +78,7 @@ AudKit Spotify Music Converter for Mac 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163324.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Website Watchman 2.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163329.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ MarsEdit 4 v4.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163333.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Google Chrome 96.0.4664.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163352.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ MiniTool Partition Wizard Technician 11.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163365.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Wondershare PDFelement 10.1.5.2527 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163369.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Skype 8.107.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163374.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Vivaldi 6.4.3160.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163388.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Zoner Photo Studio X 19.2309.2.504 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163392.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Zoner Photo Studio X 19.2309.2.504 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163394.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Opera 82.0.4227.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163397.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ CupHead v.1.2.4 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163405.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ FabFilter Total Bundle v.2023.10.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163408.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ CyberLink ColorDirector Ultra 10.1.2406.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163418.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ Sandboxie 5.33.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163430.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Pale Moon 29.4.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163431.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ SamDrivers 20.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163432.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ Serviio Pro 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163438.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ AudFree SpoDable for Mac 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163441.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:D34ED1D7E68215F6980FC4EB0788DFB1963D1C4C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163444.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Telegram Desktop 4.11.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163450.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ magnet:?xt=urn:btih:425D3764B494AB14D1CED9B2612C3DB868DF5EBB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163459.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ TagScanner 6.1.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163460.jpg" />
 </div>
 
 
@@ -557,78 +629,6 @@ TagScanner — это мощный инструмент для организа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D47F69A0C843DDA4D723F90F7352B18296386F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673907   (163462) от 03.11.2023
-
-Topaz Photo AI 2.1.0 (x64) Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47303C2CEF5E85E89AC0DDD9020A36BBDD4EB656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346417   (163481) от 19.12.2019
-
-Internet Download Manager 6.35 Build 18 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AD3B35AC13322564070BFB6CFE95D90FAF6C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431996   (163491) от 17.12.2020
-
-Native Instruments - Guitar Rig 6 Pro 6.1.1 STANDALONE, VST, AAX (x64) RePack by VR [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращение с новым внешним видом, новыми усилителями, новыми эффектами и новой технологией машинного обучения для моделирования современного оборудования. Guitar Rig 6 Pro поставляется с 68 эффектами и инструментами – огромным выбором способов настроить свои звуки и сделать их своими собственными. От легендарных топ-боксов до высоко востребованных стоечных модулей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865E6E0EE34590CDA29CED9B55729B606F01BF87
 ```
 
 

@@ -6,7 +6,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119397.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119575.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120202.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120220.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120333.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120392.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120550.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120565.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120572.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120701.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120878.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122282.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122586.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122643.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122666.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123011.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123337.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123460.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123838.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [M
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123845.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ About a Boy (2023) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123849.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123978.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124023.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124053.jpg" />
 </div>
 
 

@@ -1,3 +1,152 @@
+###  Публикация: 1435832   (140781) от 29.12.2020
+
+Алатристе / Las aventuras del capitan Alatriste (2015) HDRip (сезон 1, серии 1-13 из 13) ViruseProject
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время и место действия — Испания семнадцатого века, эпоха правления Филиппа Четвертого. Этим слабым, подверженным чужому влиянию монархом, с легкостью манипулирует его развращенный, полный интриг двор, где всем заправляет влиятельный граф Ольварес. В этой империи, которая неуклонно движется к своему закату, и разворачиваются приключения Диего Алатристе, гордого солдата (   Читать дальше...   )Производство: Испания / Beta Film, DLO Producciones, FilmTeamЖанр: приключенияРежиссер: Сальвадор Калво, Норберто Лопес Амадо, Луис ОливеросАктеры: Айтор Луна, Наташа Яровенко, Лусия Хименес, Патриция Вико, Мигель Эрмосо Арнао, Filippo Sbalchiero, Гэри Пикер, Маркос Руис, Carmen Sanchez, Рафаэль Аранда и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~01:14:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F019986341BCFA28C1D9C00EC7C9B2BDE2C0A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272309   (140782) от 29.12.2018
+
+Пелем Вудхауз и др. | Литературный аудиопроект «Глубина». Новогоднее погружение (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрипящий под ногами снег, запах хвои и мандаринов, рождественские гуляния и святочные гадания, гирлянды, шампанское, подарки, мишура и… ожидание чуда, повод для перемен и надежд.
+Новогодний выпуск Глубины собрал двенадцать историй двенадцати авторов в исполнении двенадцати чтецов. Какая из них тронет вас глубже?
+Погружаемся в праздничное настроение, в интригу и (   Читать дальше...   )Жанр: РассказыПродолжительность: 05:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D718DC3882FCBA90D9BFC7665CE82B6ADD5CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739949   (140783) от 30.12.2013
+
+Карательный отряд / Force of Execution (2013) BDRip [720p] [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США | Voltage PicturesЖанр: БоевикРежиссер: Киони ВаксманАктеры: Стивен Сигал, Винг Реймз, Дэнни Трехо, Хесус мл., Брен Фостер, Дженни Гэбриэлль, Дэвид Хаус, Сара Минник, Эрик Стейниг, Дж. Энтони Пена, Дилан Кенин ...Перевод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: (Vano)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored), ИспанскийПродолжительность: 01:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348861   (140784) от 29.12.2019
+
+Маяк / The Lighthouse (2019) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140784.jpg" />
+</div>
+
+
+###  Подробнее
+
+1890-е годы. Молодой Ифраим Уинслоу приезжает на отдалённый остров работать новым ассистентом смотрителя маяка. Его начальник — хромоногий и бородатый Томас Уэйк. Он обращается с помощником как с личным рабом и запрещает ему подниматься на сам маяк и управлять светом. Ифраиму предстоит провести в компании Уэйка четыре тяжёлые недели, в течение которых спокойный парень (   Читать дальше...   )Производство: Канада, США / A24, New Regency Pictures, RT FeaturesЖанр: Ужасы, фэнтези, драмаРежиссер: Роберт ЭггерсАктеры: Уиллем Дефо, Роберт Паттинсон, Валерия КараманПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (fullx2), английские (full, SDH)Продолжительность: 01:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764F37600518FCC70AA4971A156C5DAC2C88EB29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086792   (140785) от 30.12.2016
+
+Незабываемое рождество / A Christmas to Remember (1978) VHSRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар "Великой депрессии" городской мальчишка переезжает к бабушке и дедушке на ферму, где растет под их суровой заботой, чтобы однажды, в канун Рождества, помочь дедушке сделать подарок местной церкви - благодаря помощи таинственного незнакомца.Производство: США, George Englund ProductionsЖанр: Драма, СемейныйРежиссер: Джордж ИнглундАктеры: Джордж Парри, Джейсон Робардс, Ева Мари Сэйнт, Джоэнн Вудворд, Брайан Инглунд, Мэри-Бет Мэннинг, Нора Мартин, Сэлли Чамберлен, Арвидс КарлсонПеревод: авторский одноголосый закадровыйПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0312B1E0B10D1314A5013BF73FEC9DE8AB608ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195779   (140786) от 30.12.2017
+
+Ella Fitzgerald - Les Jazz RTL: La voix du swing (2012) 2CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Opening Announcement by Eddie Barefield / Let's Get Together
+02. Stompin' at the Savoy
+03. A-Tisket, A-Tasket(   Читать дальше...   )Жанр: JazzПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C2C66652A58808C87890BF514565A8BD7CAA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678890   (140787) от 23.11.2023
 
 Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +155,7 @@ Adobe Premiere Pro 2024 24.0.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140787.jpg" />
 </div>
 
 
@@ -30,7 +179,7 @@ VA - Space Holidays Vol. 9 (2017) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140788.jpg" />
 </div>
 
 
@@ -57,7 +206,7 @@ magnet:?xt=urn:btih:82BD55F7102B4D7C936C09638A04073BE7628772
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140791.jpg" />
 </div>
 
 
@@ -81,7 +230,7 @@ magnet:?xt=urn:btih:5DAF9B72AEA9026006EFE16B742054F1C6A24854
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140792.jpg" />
 </div>
 
 
@@ -105,7 +254,7 @@ magnet:?xt=urn:btih:3EDA51375A79A44481A2956331C3130A328FB0D9
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140793.jpg" />
 </div>
 
 
@@ -129,7 +278,7 @@ Visage - Hearts And Knives (2013) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140794.jpg" />
 </div>
 
 
@@ -156,7 +305,7 @@ Lindi Ortega (Линди Ортега) - Faded Gloryville (2015) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140796.jpg" />
 </div>
 
 
@@ -183,7 +332,7 @@ magnet:?xt=urn:btih:4A93041051F57C71CAB7C52444D6217DDE71ED92
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140797.jpg" />
 </div>
 
 
@@ -207,7 +356,7 @@ magnet:?xt=urn:btih:7E004536B904187367F7D78B46172D84FB129852
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140799.jpg" />
 </div>
 
 
@@ -231,7 +380,7 @@ VA - Space Holidays Vol. 7 (2015) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140800.jpg" />
 </div>
 
 
@@ -258,7 +407,7 @@ magnet:?xt=urn:btih:2C78BADCE518B7950A4A1857774C7AEE5DB275FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140801.jpg" />
 </div>
 
 
@@ -282,7 +431,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140803.jpg" />
 </div>
 
 
@@ -307,7 +456,7 @@ magnet:?xt=urn:btih:2D25BE8A82FC846E92CF7A32E28ABD305BFEBE82
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140804.jpg" />
 </div>
 
 
@@ -331,7 +480,7 @@ magnet:?xt=urn:btih:6A88B076ED1FB86A2BF4464C3ACF8C8F8AA8370E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140805.jpg" />
 </div>
 
 
@@ -355,7 +504,7 @@ magnet:?xt=urn:btih:8846453E05D54EA3BB5C88EA24FD72F1D58F9C4C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140806.jpg" />
 </div>
 
 
@@ -381,7 +530,7 @@ magnet:?xt=urn:btih:3CEC2FC73DC7B70E91512C09AF3D15A6F8F01B13
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140809.jpg" />
 </div>
 
 
@@ -405,7 +554,7 @@ TG Pro (Temperature Gauge Pro) 2.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140810.jpg" />
 </div>
 
 
@@ -430,7 +579,7 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140811.jpg" />
 </div>
 
 
@@ -454,7 +603,7 @@ magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140812.jpg" />
 </div>
 
 
@@ -478,7 +627,7 @@ magnet:?xt=urn:btih:AF5291AA6AD54D6494E72BDADE4574D6D6D4A186
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140813.jpg" />
 </div>
 
 
@@ -489,159 +638,6 @@ magnet:?xt=urn:btih:AF5291AA6AD54D6494E72BDADE4574D6D6D4A186
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435903   (140814) от 29.12.2020
-
-Ёлки 1914 (2014) BDRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140814.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 лет назад, Российская империя... Канун Рождества. Декабрьские пробки, праздничные гулянья, роскошные балы и скромные праздники, титулованные дворяне и обычные крестьяне, царская семья и солдаты первой мировой войны, прогрессивные поэты и первые фигуристы - все было по-другому, за исключением ... праздника. Люди готовились, жили, верили, мечтали и ждали настоящего (   Читать дальше...   )Производство: Россия, Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D433E1B2EAD147388A8CBC6F6E692FE0F9506FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970365   (140815) от 30.12.2015
-
-Журнал | Сам себе мастер №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Сам себе мастер» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31017C788F4B0238556FA9AAB0FE50F37537E50A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195467   (140816) от 30.12.2017
-
-Lindi Ortega (Линди Ортега) - Tin Star (2013) Last Gang Records, Q2 01500, Canada [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard As This 3:12
-02. Gypsy Child 2:29
-03. Tin Star 3:37
-04. Vodoo Mama 2:15(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6528A626872691BEB27487BD48508F8D15F78D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590786   (140817) от 18.12.2012
-
-Father Befouled - Revulsion Of Seraphic Grace (2012) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indulgence Of Abhorrent Prophecies 04:38
-02. Irreverent Ascendancy 03:48
-03. Devourment Of Piety 05:29
-04. Obscurance Of Universality 04:34
-05. Desacrament 04:52
-06. Impetus To Angelic Descension 03:09
-07. Triumvirate Of Liturgical Desecration 09:48Жанр: Death MetalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB824DF22354D7C4C2385D568B2FF7C39E1641C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520647   (140819) от 29.12.2021
-
-Audio Editor - Merge Split And Edit 1.5.8 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Editor - Merge, Split And Edit - программа для редактирования аудио на macOS. Этот софт позволит вам редактировать любой файл в формате WAV на вашем компьютере. Вы сможете с легкостью обрабатывать, обрезать, копировать и вставлять выбранные вами части дорожки. Простое в использование приложение позволяет без лишних усилий создавать и сохранять ваши проекты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51619A8C3E1F68203659D76366A943C59516C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348715   (140820) от 29.12.2019
-
-Михаил Алексеев | Неожиданный шанс (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь преуспевающего бизнесмена Сергея Владимировича подошла к рубежу, когда уже можно подвести некоторый итог прожитым годам. Еще не окончательный, но все же. Выходец из буйных 90-х – боец, бригадир, лидер ОПГ по кличке Фома – нажил деньги, сумев, в отличие от многих, шедших с ним по одной дороге, разменять их на годы жизни. Неплохой, надо сказать, жизни. Как раз (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51FA07CBA289E210E4796A2EB9F580591B51955
 ```
 
 

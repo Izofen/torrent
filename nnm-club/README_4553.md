@@ -1,3 +1,156 @@
+###  Публикация: 1520649   (140970) от 29.12.2021
+
+Easy App Locker Pro for Mac 1.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy App Locker - это приложение для защиты конфиденциальности, которое использует расширенные алгоритмы безопасности, какие обеспечивают непреодолимую безопасность ваших конфиденциальных данных и блокируют несанкционированный доступ к вашим личным приложениям.
+Easy App Locker может защитить паролем отдельные приложения на вашем Mac. Сохраняйте конфиденциальность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956B8B58460AFCFC72E4D8B5320D753377044A08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195709   (140971) от 30.12.2017
+
+О. Пальванова | Роль трудового коллектива в преодолении религиозных пережитков среди женщин (1983) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуется состояние религиозности среди женщин различных предприятий Ашхабада, прослеживается взаимосвязь проявлений религиозности с демографическими и образовательными характеристиками, отношение женщины к религии в мировоззренческом и культовом планах и т. д.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51408AEBAC29CED46AF79BA71E43EC0A23FAF33E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348952   (140972) от 29.12.2019
+
+Александр Тамоников | Человек с двойным лицом (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Июнь 1941 года. В прифронтовой полосе немецкие диверсанты захватывают "секретного" инженера Николая Маханова. Специалисты такого уровня находятся под личным контролем Л. П. Берии, поэтому на поиски отправляются лучшие из лучших - группа майора Максима Шелестова. Однако в указанном районе следов Маханова не обнаружено. Что, если он уже на вражеской территории? (   Читать дальше...   )Жанр: БоевикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8284A2AF98CBED870661FB8DCF49895BDC2702B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272535   (140973) от 29.12.2018
+
+Студия Маркел - Дача-дачка (2018) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дача-дачка (4:15)
+02. Месяц светит (4:53)
+03. Бабком (3:38)
+04. Я маленькая девочка (5:25)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F8336EB99779467F1BAD7730F4DD7BA99071D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678927   (140974) от 23.11.2023
+
+Foxit PDF Editor Pro 2023.3.0.23028 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
+Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
+Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CF20EDA58F6984BCE4E671F15D579CBC45EF04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088233   (140975) от 30.12.2016
+
+Risssing - The Four Seasons (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Trancestep, Breaks, Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Tears (feat. Flaer Smin) [07:40]
+02. Cold Breath [05:11]
+03. High Stakes (Album Edit) [04:49]
+04. Underworld [07:17](   Читать дальше...   )Жанр: Drum & Bass, Trancestep, Breaks, DubstepПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAAC4E1830F44ED14E9F10A20C82793C52EA872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435674   (140977) от 29.12.2020
 
 Ведьмы / The Witches (2020) BDRip [720p] ATV
@@ -6,7 +159,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140977.jpg" />
 </div>
 
 
@@ -30,7 +183,7 @@ magnet:?xt=urn:btih:6B4AE601251466A5D9870698DC048C2473EF6D57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140978.jpg" />
 </div>
 
 
@@ -54,7 +207,7 @@ Aegrus - Thy Numinous Darkness (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140980.jpg" />
 </div>
 
 
@@ -81,7 +234,7 @@ HMR - Ад Уже Здесь (2016) [FLAC|lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140981.jpg" />
 </div>
 
 
@@ -108,7 +261,7 @@ Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140982.jpg" />
 </div>
 
 
@@ -135,7 +288,7 @@ Far Cry 6 Game of the Year Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.12
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140984.jpg" />
 </div>
 
 
@@ -159,7 +312,7 @@ magnet:?xt=urn:btih:998A84A4230DD526A653DA06B1133FAAD3EB9B31
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140985.jpg" />
 </div>
 
 
@@ -184,7 +337,7 @@ magnet:?xt=urn:btih:BF474DE2E9CBDA8D35B34BB261EEA0C8B78AF49D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140987.jpg" />
 </div>
 
 
@@ -211,7 +364,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.4 Build 4969 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140988.jpg" />
 </div>
 
 
@@ -235,7 +388,7 @@ magnet:?xt=urn:btih:639C4540813B0E8511DB1ABC0D7D5AF14F158B38
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140989.jpg" />
 </div>
 
 
@@ -259,7 +412,7 @@ magnet:?xt=urn:btih:2FA40877C06074BCF20E5A3022DD422372888275
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140990.jpg" />
 </div>
 
 
@@ -284,7 +437,7 @@ magnet:?xt=urn:btih:40306A940D6C2F0A44BE71261008A1DF4C6C8EA9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140991.jpg" />
 </div>
 
 
@@ -308,7 +461,7 @@ Rienaus - Saatanalle (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140994.jpg" />
 </div>
 
 
@@ -335,7 +488,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140995.jpg" />
 </div>
 
 
@@ -359,7 +512,7 @@ magnet:?xt=urn:btih:0917BEC435B81EB3C5FAFD47D7CA8B1E4E9C9C56
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140996.jpg" />
 </div>
 
 
@@ -383,7 +536,7 @@ magnet:?xt=urn:btih:8848C056309855862FC1BED824BD58E6F3DA1062
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140998.jpg" />
 </div>
 
 
@@ -407,7 +560,7 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140999.jpg" />
 </div>
 
 
@@ -431,7 +584,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.2113 (Updated November 2023) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141000.jpg" />
 </div>
 
 
@@ -455,7 +608,7 @@ magnet:?xt=urn:btih:974551BA05A453EB555A9123997340B620BA68B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141001.jpg" />
 </div>
 
 
@@ -479,7 +632,7 @@ magnet:?xt=urn:btih:4EE38E54C2B86A871F7BE3F01AB4814571365904
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141003.jpg" />
 </div>
 
 
@@ -491,160 +644,6 @@ magnet:?xt=urn:btih:4EE38E54C2B86A871F7BE3F01AB4814571365904
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA3A1E43EDC87FE1373A20F8704DE6ED38FBD7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088149   (141004) от 30.12.2016
-
-Margenta & Андрей Кустарёв - Дым. Крепости. Волк. (2016) [FLAC|lossless|image + .cue] <Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Небо. Крепости. Рельсы (07:24)
-02. Блюз для Розы (04:56)
-03. Дым стоит стеною (04:18)
-04. Степной волк (05:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F38C1EB199588B793B273F87D29EDFFB949D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435869   (141005) от 29.12.2020
-
-Рестлер / The Wrestler (2008) WEB-DL [H.264/1080p] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма - Рэнди «Баран» Робинсон - был звездой 80-х, но стал бледной копией самого себя. Получив инфаркт во время одного из матчей, борец услышал от врачей неприятную весть: если он продолжит выступления, то может умереть. После неудачной попытки начать другую жизнь и еще более провальной попытки наладить отношения со своей дочерью «Баран» решил участвовать (   Читать дальше...   )Производство: США, Франция, Protozoa Pictures, Saturn Films Inc., Sessions Payroll Management, Wild BunchЖанр: драма, спортРежиссер: Даррен АронофскиАктеры: Микки Рурк, Мариса Томей, Ивэн Рэйчел Вуд, Марк Марголис, Тодд Бэрри, Уасс М. Стивенс, Джуда Фридлендер, Эрнест Миллер, Дилан Кит Саммерс, Томми ФарраПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8098DBD9CE5234ACAE994657EB3EF5F8BE89D4CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195629   (141006) от 30.12.2017
-
-Биатлон. Рождественская гонка 2017. Гельзенкирхен (Германия) (28.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141006.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2017 года, четверг. 20:00 МСК
-Рождественская гонка-2017 («World Team Challenge-2017») — ежегодное коммерческое соревнование по биатлону.
-1. Масс-старт
-2. Гонка преследования(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD50A8E081FAFBA13E7ECBBEED3BCFCA2A228D6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348628   (141009) от 29.12.2019
-
-Почти семейный детектив (2019) SATRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ганна боялась признаться себе, что до сих пор любит Илью Галицкого - успешного бизнесмена, с которым у нее много лет назад случился роман. Тогда она сама разрушила их отношения - не желала больше делить его с женой. Она решила, что будет воспитывать их сына Вовку одна. Но когда Галицкого задерживают по подозрению в убийстве любовника его жены Милены, Ганна не раздумывая (   Читать дальше...   )Производство: Россия / Свэлл ФильмЖанр: детектив, экранизацияРежиссер: Иван ЩеголевАктеры: Марина Коняшкина, Александр Арсентьев, Матвей Семенов, Эра Зиганшина, Ольга Бурлакова, Александр Подобед, Алексей Шутов, Юлия Кадушкевич, Святослав Астрамович, Дмитрий Гладков и др.Продолжительность: ~ 00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE1B189974B8B36E5B82536326B859C4243E7E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088398   (141010) от 30.12.2016
-
-Cradle Orchestra - Velvet Ballads (2009) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Jazz Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Talk It Out feat. Nieve & Jean Curley (4:47)
-02 -  All I Want In This World feat. CL Smooth (4:24)
-03 -  Mountain Top feat. Aloe Blacc (4:03)
-04 -  Live Forever feat. Black Thought (of The Roots) (4:39)(   Читать дальше...   )Производство: Goon Trax – GTXC-023Жанр: Hip-Hop, Jazz HopПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D0353E097EDC34866C7CFAA1323D897FB07B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970251   (141012) от 30.12.2015
-
-Проекты - Проект ProShow Producer - Снегурочка [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Проект собран из двух презентаций разных авторов нашим одноклубником Yuripeters, но в нём оставлена лишь основная сюжетная линия. Все изменения описаны в Дополнительной информации.
-Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. (   Читать дальше...   )Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48317A86E8B152B891762060CFF0E4C073DB43CB
 ```
 
 

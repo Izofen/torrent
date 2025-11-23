@@ -6,7 +6,7 @@ VN - Video Editor / VN - Видеоредактор v2.1.6 Mod by Alien [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173164.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173168.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173333.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173338.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CECEC2E8F0785A22268B875C3F0AFC83A0B5D386
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173629.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8E8FFD1F78471AE6978B3FFC9B17950013226282
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173693.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174482.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174582.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Simple Gallery v6.28.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175052.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175999.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lock Me Out v7.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176005.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176005.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ RAR for Android v6.23 build 119 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176574.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ColorNote - Блокнот заметки v4.4.6 Free + Mod by СМАРТОС [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176582.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176683.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:256C97FC935482F7BEB44648AD95407508EC0E93
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177211.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C8EE859DAF02C182B2BA1FF66A27CC9A71AB0657
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177283.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177283.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Photo Lab PRO v3.12.72 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_177378.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177520.jpg" />
 </div>
 
 
@@ -439,6 +439,30 @@ magnet:?xt=urn:btih:2E2796146F0BEB0A1BF52945673A935A88CBBB32
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340673   (177953) от 04.12.2020
+
+Мнемонист v1.8.1 [Ru] - тренировка памяти и мозга (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересное и полезное приложение для тех, кто любит напрягать свой мозг. Смысл прост - проходите уровни, запоминая и вспоминая слова. Игровая форма и мотивирующие уведомления, которые воздействуют на совесть, не дадут вам забросить тренировки. В игре приведены основные методики запоминания. Благодаря им вы сможете запоминать десятки и даже сотни слов. Ваша память (   Читать дальше...   )Тип издания: Пиратка (Mod, куплены звезды и подсказки)Релиз состоялся: 09.04.2020Разработчик: Pavel ShirokovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6C84015A55EF570F1CD0CC4A1E86D5FECAC65B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594328   (178319) от 30.11.2022
 
 Poweramp v3-build-946-uni [Ru/Multi]
@@ -447,7 +471,7 @@ Poweramp v3-build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178319.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178319.jpg" />
 </div>
 
 
@@ -471,7 +495,7 @@ Poweramp Music Player 3 build-946-uni [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178324.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178324.jpg" />
 </div>
 
 
@@ -495,7 +519,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178343.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178398.jpg" />
 </div>
 
 
@@ -543,7 +567,7 @@ magnet:?xt=urn:btih:9D7D469007026958EF553CB0127E84D4BA0B94C1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178405.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178405.jpg" />
 </div>
 
 
@@ -567,7 +591,7 @@ magnet:?xt=urn:btih:EFE6099668C1028DE429FDBBD22F17AD03CE5077
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178432.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178432.jpg" />
 </div>
 
 
@@ -591,7 +615,7 @@ Olauncher 3.5.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_178492.jpg" />
 </div>
 
 
@@ -602,30 +626,6 @@ Olauncher - это минималистичный лаунчер без рекл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594210   (178535) от 30.11.2022
-
-Monefy Pro - Трекер бюджета 1.15.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monefy Pro - Трекер бюджета - программа для учёта финансов. Она подойдёт для отслеживания денежных потоков для одного человека или семьи средних размеров по численности. Статьи поступления и расхода разделённые по разным категориям, сферам и направлениям помогут не запутаться и получать только правильное представление о существующей картине в кошельке. Даже если (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 29.11.2021Разработчик: ReflectlyПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
 ```
 
 

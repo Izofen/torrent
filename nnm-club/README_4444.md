@@ -1,3 +1,75 @@
+###  Публикация: 1088711   (137416) от 31.12.2016
+
+Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Champions of Anteria – тактическая стратегия, рассказывающая о сказочной стране Энтерии. Пяти героям предстоит восстановить мир в королевстве и сокрушить всех врагов, стоящих на пути к достижению цели. Каждый из персонажей связан с одной из стихий - огнем, водой, природой, электричеством и металлом. Но на одно задание может отправиться лишь трое, и игроку нужно решить (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436203   (137417) от 31.12.2020
+
+Ларри Симон. Каскадер / The Stunt Man (1927) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из последних фильмов Ларри Симона. Ларри любит девушку, а она его - нет. Чтобы от него отвязаться, она говорит ему, что выйдет замуж только за кинозвезду. Ларри решает стать кинозвездой, но его принимают каскадёром.Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Дороти Рейнор, Джек ’Тини’ Липсон, Чарльз Микин, Аль Ст. ДжонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DAEB78F1E479C46872B780E9C567AD13083C16C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256499   (137418) от 31.12.2018
+
+Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сестры Химотэ: Токиё, Кинами и Кокоро живут в одном доме вместе со своими подругами и котом. И всё бы ничего, вот только все обитатели дома обладают таинственными силами.Производство: BouncyЖанр: комедияРежиссер: Исидатэ КотароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679408   (137419) от 25.11.2023
 
 Ах! Эти прекрасные вакханки / Ah! Les belles bacchantes (1954) BDRip [H.264]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137419.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:5EB5FC47C776C7F4883C7FDC06B9AA287D6BB673
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137420.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:CBD9E8EDC48351603CD6F1791E958A7C40AA89D3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137421.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:2EBEE27F3BF322845CAC5B0EA650D03014B1C4B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137422.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:D8EEA496A98ECA2FA5135DC245F610F1354AA357
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137423.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Jenn Mishra | 100+ Art Styles for Midjourney (2023) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137424.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137425.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:6086DF80CFDF2729A85301DB46FF0C1FF6E84492
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137426.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Topaz Photo AI 2.1.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137427.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:E3EB0D6BF49CFA9A12FB545061DFA3B03B8A677E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137428.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:D8981C67608A552F423CEEF0A5960ACBB5375105
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137429.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137430.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137431.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:9A621132763D517F772AB508BDB56CEC9215FCAD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137432.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137433.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137434.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137435.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:D91588BA3ACBF58DAA11E8D58F88DEC57DF48048
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137436.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:13ECA8CF632388336CA83D943519CBDA0C234BBE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137437.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:D1B8BC55E8125B45EDE5F5DC10217EC9D0B15EDC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137438.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ Jenn Mishra | Art Styles: Create Unique AI Image Prompts with ChatGPT or Claude 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137439.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137440.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:D391EB7334398F365C389540DEB59A8657F50886
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137441.jpg" />
 </div>
 
 
@@ -553,83 +625,6 @@ magnet:?xt=urn:btih:D391EB7334398F365C389540DEB59A8657F50886
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD3867BD9814F0EA6AB046A3A1DDE09868F2A2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436273   (137443) от 31.12.2020
-
-Deborah Washington - Love Awaits (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Baby (3:54)
-02. Back In Love Again (3:43)
-03. Can't Be A Fool For Love (4:51)
-04. Rock It (5:04)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65F2190F59EB5174957B6DCBC83795397A2E894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520993   (137444) от 31.12.2021
-
-Тихий омут / Stillwater (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец едет из Оклахомы во Францию, чтобы помочь своей дочери, которая была арестована за убийство.Производство: США / 3dot productions, Amblin Partners, Anonymous ContentЖанр: Триллер, драма, криминалРежиссер: Том МакКартиАктеры: Мэтт Дэймон, Камилль Коттен, Эбигейл Бреслин, Lilou Siauvaud, Дианна Данаган, Идир Азугли, Анн Ле Ни, Мусса Мааскри, Изабель Танакил, Нэйдра АйадиПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 02:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A27C70621169D56BA084DD920C93209DFED37D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824204   (137445) от 31.12.2015
-
-Иван Васильевич меняет профессию (1973) BDRip [1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер-изобретатель Тимофеев сконструировал машину времени, которая соединила его квартиру с далеким шестнадцатым веком - точнее, с палатами государя Ивана Грозного. Туда-то и попадают тезка царя пенсионер-общественник Иван Васильевич Бунша и квартирный вор Жорж Милославский.
-
-На их место в двадцатом веке «переселяется» великий государь. Поломка машины приводит (   Читать дальше...   )Жанр: Фантастика, Комедия, ПриключенияРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Юрий Яковлев, Леонид Куравлёв, Наталья Крачковская, Савелий Крамаров, Наталья Селезнёва, Владимир Этуш, Михаил Пуговкин, Сергей Филиппов, Наталья КустинскаяПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E8B8CEC6FD03BBFA7629E5615CFCCA90D6F9BA
 ```
 
 

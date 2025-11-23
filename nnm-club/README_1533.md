@@ -6,7 +6,7 @@ VA - Союз 15  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40212.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sexy Bath 5 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40213.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CFD6E307F3EC16F907B8DC050AB3DA4CEB94504D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40214.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:DDC1C59C11B7DD28337C51A10151A0BAFB85C14E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40215.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:8FE69078004C367EF5AB0E136C8331C557572276
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40216.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ CCleaner 6.29.11342 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40217.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:238EEBB552E0567A8066841F10D5A30A093E75EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40218.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2E427F2E1902CE83144E8F8B7FD84096AB147DFA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40219.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2A8F3CBE095C4F9998E9EDA7636EF067FFD7A464
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40220.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Combat Mission: Shock Force 2 (2020) [Multi] (02.06.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40221.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9FA950EFAB205E3B875FFE80CF92CB067BA104DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40222.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ALLPlayer 9.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40223.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:26DC225AECD0B7B3FD6C85378A684A706D8E9379
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40224.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:02C92B12EE093CB5E73A110B2E0799CFDB404648
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40225.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FD850164898C6735485FA83B33C36825B6771CBA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40226.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C989276D717C1A335AD27C9627F76A369FE0B813
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40227.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:E04C17FDFD7E7E335403A842567F4890F0C51A76
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40228.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40229.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:D609F99572FA30B48F5E8E1CA433CA1FC7F1AD30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40230.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ K-Lite Codec Pack 18.6.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40231.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ FurMark 2.4.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40232.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0F5AA10562CF4AF46CE3F11C0DA56708CBF2645B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40233.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:0F5AA10562CF4AF46CE3F11C0DA56708CBF2645B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40234.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:86FF34D57E1B00136D80370E8C7CEDD5F73DD794
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40235.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:FE38482BEDE5EDE1919968E68525D9852E615FC9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40236.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D3C71FD6B58C6540F2A9FF9D41FDA290350742B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40237.jpg" />
 </div>
 
 

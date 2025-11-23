@@ -1,3 +1,84 @@
+###  Публикация: 1685292   (127223) от 18.12.2023
+
+Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love? [6:22]
+02. La Bonita [5:32]
+03. Seven Steps to Heaven [5:50]
+04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685289   (127224) от 18.12.2023
+
+Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:25]
+02. Santa Claus Is Coming to Town [2:21]
+03. Have Yourself a Merry Little Christmas [2:58]
+04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685327   (127225) от 18.12.2023
+
+Blackwater - Blues Chemistry (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep on Moving (4:45)
+02. Blues Chemistry (3:31)
+03. Things You Say (4:11)
+04. Empty Horizon (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EEA1BBFC2DD2864DE4735656907764D8CFAFFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685007   (127226) от 18.12.2023
 
 Сказки народов мира | Сказки народов Севера (2005) [MP3, Алла Покровская, Рогволд Суховерко и др.]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127226.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ Red - Rated R (2023) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127227.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:4367EE865630CCD929256AB6C52F4D20658E51A2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127228.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127229.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ magnet:?xt=urn:btih:F6B596CA476C958532E8CE3473BB21A03DB2FB8E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127230.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:CD6795790AC143123756BB5DCE1765FCE44ADAE1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127231.jpg" />
 </div>
 
 
@@ -157,7 +238,7 @@ magnet:?xt=urn:btih:1CC690BD01950C8C38DED1FEDD343C8C072EE677
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127232.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ Text Editor Pro 28.3.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127233.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ RTG. Лавинная служба в Красной Поляне (2013) HDTV [H
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127234.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ RS Explorer / RS Проводник 2.0.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127235.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ magnet:?xt=urn:btih:2D5DCE034586A9BE5C20A00CBF7A16285E38BB47
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127236.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ magnet:?xt=urn:btih:9B99F06B45F12BA98F8474A18E5DF58FD0B29E1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127237.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ magnet:?xt=urn:btih:6AAD5F9EC2FC892AD7B93486CE142DC8BD980924
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127238.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ magnet:?xt=urn:btih:79C3E494C89C28AAD41B595A377E6D2BDC240DB4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127239.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ GeoGebra 6.0.817.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127240.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ magnet:?xt=urn:btih:6D6A267E3ED8C9213443CC59A1C4AB154D186A70
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127241.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ VA - The Best Of Acid Jazz Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127242.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ magnet:?xt=urn:btih:37797344E733E673EF7F1A2BEE2C886E209AAF33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127243.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ magnet:?xt=urn:btih:CFC0343526DB65AC5CB0872CC6237D295F236A26
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127244.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ magnet:?xt=urn:btih:66E86AF14745F91DB89F8BF5F97BDFF0EB51C372
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127245.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ magnet:?xt=urn:btih:BBFD8CE0576ECB09E21D7C2DAC4A0A02EA5AF38F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127246.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ magnet:?xt=urn:btih:739498E9514B7AF05E86EE5A35D831AB7FE66777
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127247.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ Imagine 1.3.8 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127248.jpg" />
 </div>
 
 
@@ -560,78 +641,6 @@ Imagine - это бесплатный просмотрщик изображен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6EA196B6C9A188B4BA67A0EB349F4F6E8A7F143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685340   (127249) от 18.12.2023
-
-Убийство с морковным тортом: Расследование Ханны Свенсен / Carrot Cake Murder: A Hannah Swensen Mystery (2023) WEB-DLRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока активисты пытаются спасти памятник архитектуры в канадском городе Лэйк-Иден, кто-то устраивает в здании взрыв. Среди обломков обнаруживают труп, который пролежал в шахте лифта не один десяток лет. За раскрытие преступление, совершенное 25 лет назад, берётся хозяйка кондитерской лавки «Корзинка печенья» Ханна Свенсен. И «детективное хобби» талантливого пекаря (   Читать дальше...   )Производство: Канада, США / Lighthouse Pictures, Looking Glass ProductionsЖанр: драма, мелодрама, криминал, детективРежиссер: Пэт УильямсАктеры: Элисон Суини, Кэмерон Мэтисон, Барбара Нивен, Гэбриел Хоган, Тесс Аткинс, Майк Допуд, Дэнни Уоттли, Гэбриэлль Миллер, Daylin Willis, Джулия Бенсон и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:06Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685392   (127250) от 18.12.2023
-
-Music Collection 3.6.1.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Collection - неплохая программа для создания на компьютере собственной музыкальной коллекции и ее удобного управления. Вся информация об имеющихся композициях может быть отредактирована и изменена. При этом она вводится либо в ручном режиме, либо загружается из интернета, что значительно экономит время и предотвращает от возможных ошибок. Удачно реализован (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD95A7D3279DBDD3DE1B2A72019AB415F2041E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685377   (127251) от 18.12.2023
-
-f.lux v4.130 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127251.jpg" />
-</div>
-
-
-###  Подробнее
-
-f.lux — полезное приложение для тех, кто проводит много времени перед экраном компьютера или ноутбука. Встроенные функции помогут беречь зрение в любое время суток, автоматически настраивая оптимальные параметры цветопередачи.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC95F88B20A4373CE38D433E857893BD70BB943
 ```
 
 

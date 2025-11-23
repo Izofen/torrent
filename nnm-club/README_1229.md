@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32307.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32308.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B177EA3FC6E728AB0EE4DC27527ADA7648AC7542
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32309.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B0CA85B9EC362E0CFED5D9BF123A4DD84175B59E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32310.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fate/Strange Fake | Судьба: Странная подделка [ТВ] [2024
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32311.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:79CE299212CD4D3DED9AB1168E7EB5A492FF131C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32312.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0DAB84FF2C7B20E7F8DC0BC7D63482CD438C92BF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32313.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3072CF249D93AA47139795A8752DDD34616F7D8C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32314.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ De-Phazz - presents De-Drums (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Futu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32315.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:07E238DF8FB563BF576D035104C91E66AD12ACFB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32316.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ TikTok Private Plus (PayBack Edition) v38.0.15 Mod by TikTok Updates + Plugin Up
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32317.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Новые хитовые песни 2025, Часть 1 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32318.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Just Magnetic - Life Electric (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32319.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:B1467D96E64384C2928D0BA56EEECBD71CDED93D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32320.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:BA079803490D936AF980D49472D330F42164650E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32321.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32322.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32323.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:923A818994B2DE3BFD751D1ABEB6A6434235C368
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32324.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PeaZip 10.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32325.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:661C3ADC48CBEB692A816E970FD3289926C07F36
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32326.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5AC4559E3671DF49DD2719229CB1DD602BB3DC5E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32327.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:18AE197BDC098AE63553A1CF8D14FD7DFBE45D92
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32328.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32329.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Andain - You Once Told Me (2012) Beatport Deluxe Version [MP3|320 kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32330.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E3743D0F2DFEF4A9E3581BD9BB4F87A621C65B1A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32331.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guid
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32332.jpg" />
 </div>
 
 

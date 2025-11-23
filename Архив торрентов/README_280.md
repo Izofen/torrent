@@ -6,7 +6,7 @@ Office Installer & Office Installer+ 1.08 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Backupper Technician Plus 7.3.4 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blackmagic Design Fusion Studio 18.6.6 Build 4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62153.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62175.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AIDA64 Extreme Edition 7.20.6807 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62192.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blackmagic Design DaVinci Resolve Studio 18.6.6 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62210.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62214.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Joplin 2.14.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62216.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ O&O Defrag Professional 28.0 Build 10005 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62217.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Process Lasso Pro 14.0.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62221.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0319) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62223.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PhotoRoom v4.8.9 b1330 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62227.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CherryTree 1.1.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62228.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Waterfox Current G6.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62230.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Skype 8.115.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62233.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Ocenaudio 3.13.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62235.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Movist Pro 2.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62245.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Windows and Office Genuine ISO Verifier 11.15.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62246.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ OfficeSuite Pro + PDF 14.3.51288 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62247.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AMD Radeon Software Adrenalin Edition 24.3.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62248.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62252.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Process Lasso Pro 14.0.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62253.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Perfectly Clear WorkBench 4.6.0.2645 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62255.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PIDKey Lite 1.64.4 b40 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62256.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Adobe Acrobat Pro 24.001.20615 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62263.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ uTorrent Pro 3.6.0 Build 47028 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62264.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106325.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106349.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106370.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106396.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5F20DB29CFF8D016BEF0DFC84F3614CB325FCDE6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106407.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2395C6FB37B4885A123D79F0BE0500198D21CF91
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106415.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Dance Zone Level 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106423.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:F5D68FAA5A15258B487B8193D4F4090F50C1BC5F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106429.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fancy - Fancy For Fans (2005) [WavPack|Lossless|image + .cue] <Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106437.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:486ADB64FA0875D3629F574AFAD3A39FC46A056A
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106456.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106487.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A67817D5509BE456AE95C88F9AA670C26A60817E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106528.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106560.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mega NRG Man - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Hi NRG, Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106608.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106611.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106646.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106649.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson franç
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106670.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:4C1ED1A27AF04B1B11F1D757772338B574EB3772
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106749.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Zucchero - Overdose D' Amore Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106806.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106837.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Drupi - The Best of Drupi (2007) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106859.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A6C560B6D08204BF60F9DAEE2FA9720E06BB8F71
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106866.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:86FD6DDD2C3EB661D78A1785A101F82082C0EA12
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106918.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ DJ Piligrim - Ты Меня... (2009) [WavPack|Lossless|image + .cue] <Europop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106924.jpg" />
 </div>
 
 

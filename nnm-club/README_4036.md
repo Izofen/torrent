@@ -1,3 +1,78 @@
+###  Публикация: 1689663   (124618) от 03.01.2024
+
+Кымбат Масакбаева | Я в кадре. Практический интенсив по мобильной видеосъемке (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124618.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данном курсе:
+- Научишься создавать эстетичный, цепляющий видеоконтент для своего блога
+- Познакомишься с киношными приемами которые сделают твои видео более профессиональными
+- Научишься создавать динамичные видео своей рутины(   Читать дальше...   )Жанр: Мобильная съемкаЯзык озвучки: РусскийПродолжительность: 05:52:33Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE418C0079CA1A2191C2E5E698409018C146FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359889   (124619) от 03.01.2024
+
+Уильям Шекспир | Генрих IV. Генрих V (2005) [MP3, Александр Кравцов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые исторические драмы Шекспира «Генрих IV» (в двух частях, 1599, 1600) и «Генрих V» (1599) рисуют грандиозную картину становления абсолютной монархии в Англии начала XV века, когда борьба между королевской властью и феодалами вступила в решающую фазу. Свободно и творчески используя исторический материал, Шекспир предлагает свое видение эпохи. Генрих IV изображен (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьесаИздательство: БиблиофоникаПродолжительность: 11:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617D9F7AEA1EAB8900981EC7BFD70D0E2F1484E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689587   (124620) от 03.01.2024
+
+Дочь болотного царя / The Marsh King's Daughter (2023) WEB-DL  [H.265/2160p] [4K, HDR10+, Dolby Vision, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124620.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летняя Хелена жила с родителями в лесном домике. Девочка в папе души не чаяла, а он учил её понимать природу, читать следы и охотиться, вот только мама была постоянно чем-то недовольна. Однажды, когда отец ненадолго отлучился, и к их жилищу выехал заблудившийся турист на квадроцикле, мама внезапно схватила дочку и использовала эту возможность, чтобы сбежать. Так (   Читать дальше...   )Производство: США / Black Bear PicturesЖанр: Драма, триллерРежиссер: Нил БёргерАктеры: Дейзи Ридли, Бен Мендельсон, Бруклин Принс, Гил Бирмингем, Карен Писториус, Гаррет Хедлунд, Джои Карсон, Памела МакДональд, Джошуа Пис, Дэн АбрамовичиПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D7F750D9DC2BF46C10B7D48F28D6DA1941478E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689606   (124621) от 03.01.2024
 
 Не скажу (2023) WEB-DLRip [H.264]
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124621.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:88421827D9DCDAF9D354C3FD289B0B146B23EA28
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124622.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:77BDFD94B03FE24F61FC5A20187751D820663F64
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124623.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:D205D5B9ACD5930B793657D7A1367A472B6A53DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124624.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:A38C361ED61E819CAF5B7BF9BCE4D0C3C15DD9C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124625.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Darkwood (2017) [Ru/Multi] (1.4a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124626.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124627.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ magnet:?xt=urn:btih:CB987DCB3C402E5352D41C8430CA3FDCCB7F06CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124628.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:8BDFA5A1B3ADF32B9935D4395B526DC29AD5CF45
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124629.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ magnet:?xt=urn:btih:4FD27B99DE59E5DDE6FCB56291D2B37C0A9BE5AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124630.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:6D2DA2527011343F7C29B311B8A5CE7F33027BE0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124631.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ magnet:?xt=urn:btih:CD99571F9EDC09A9CCE52257F11763E85A2D5D73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124632.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ magnet:?xt=urn:btih:FB79BE363AF1D439BCEE3B1D02DEC05F97440446
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124633.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ magnet:?xt=urn:btih:0FDDAD70500CED368331FCF6C8E06CA5908A7502
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124634.jpg" />
 </div>
 
 
@@ -343,7 +418,7 @@ magnet:?xt=urn:btih:D6DF50FFE3B3ECB49A267DC28182490C678F54FF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124635.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ magnet:?xt=urn:btih:30A8A6058220E96A518038CE1150E0C49746975B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124636.jpg" />
 </div>
 
 
@@ -391,7 +466,7 @@ magnet:?xt=urn:btih:2F3D02D1AFAA733B7F6FC2EC8A0219FBF74FCF12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124637.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:D44BCC0F3EBF1B95C4BD42AF63589CB87A5E29D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124638.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:C2C22A83F623F55F4F8FFA30EF1A0CD9E924AA51
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124639.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ magnet:?xt=urn:btih:90B3878379F93E6FCF1020A223A7FF36B5D40201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124641.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ magnet:?xt=urn:btih:154CCDFE268C62D7520CD566F0D7EF68C481849A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124642.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124643.jpg" />
 </div>
 
 
@@ -550,84 +625,6 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B58C3C0DEC2476EA9AB72BEFFCA34E8F73586063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689449   (124644) от 02.01.2024
-
-Анастасия Галкина, Екатерина Ладатко, Полина Пономарёва | По следам динозавров. Путешествие в меловой период (2019) [MP3, Мария Лутовинова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды заветная мечта близнецов Риты и Никиты исполнилась - они отправились в лагерь палеонтологов на настоящие раскопки. Внезапно волшебная книга перенесла их вместе с бабушкой в меловой период. Близнецов ждут захватывающие приключения! Они откроют тайну гибели дейнонихов, понаблюдают за птеродактилями и покатаются на спине игуанодона. Сумеют ли Рита и Никита спасти (   Читать дальше...   )Жанр: книги о животных, энциклопедииИздательство: CLEVERПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA403FC40CD310E35F5EC70FA24F18D3F63F8333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689530   (124645) от 02.01.2024
-
-Ананас - Новый год (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новый год [00:05:18]
-02. Старое кафе [00:03:55]
-03. Супер звезда [00:04:31]
-04. Издалека [00:04:02](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB6C1C3473968B82258313DBBAE7194698439AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689459   (124646) от 02.01.2024
-
-Chris Thompson (ex-Mannfred Mann's Earth Band) - The Final Round - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiter There's A Yawn In My Ear (Live) [00:06:15]
-02. Demolition Man (Live) [00:06:43]
-03. You Angel You (Live) [00:03:57]
-04. Angels At My Gate (Live) [00:05:48](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC09C5627E4A8B6813CE210C4F5AE7505B0EF5E1
 ```
 
 

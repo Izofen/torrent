@@ -6,7 +6,7 @@ Sam Higham - Jam Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124759.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Cat Rhythm - Black Rings (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125904.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126055.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126059.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126099.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126194.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126202.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126395.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126446.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Meredith Hunter - Proud to be Different (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127079.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5247350B0B9AAE4258D965CE7601DBB65FDA21F6
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127359.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127599.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127761.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127765.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128078.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128540.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128643.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128930.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129164.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129167.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129169.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129221.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129560.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129758.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129763.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130089.jpg" />
 </div>
 
 

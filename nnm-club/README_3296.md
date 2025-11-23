@@ -1,3 +1,81 @@
+###  Публикация: 1743668   (105378) от 17.08.2024
+
+Freedom Rockets - American Trash (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Beautiful (03:05)
+ 02. That's How I Met Addison Rae (05:13)
+ 03. Die Another Day (03:52)
+ 04. Take It To The Streets (03:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2AB3BB122E945893FED2F792F4B0BDC317319A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743596   (105379) от 17.08.2024
+
+Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pieces [00:04:30]
+02. I Want You To Know [00:04:30]
+03. Ocean In The Way [00:04:19]
+04. Plans [00:06:40](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF92F000C1E08C11B6ABB8CD415487C8D7A92035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743757   (105380) от 17.08.2024
+
+MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105380.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 августа 2024, суббота. 16:00 МСК Этап 11, Шпильберг. Гран-при Австрии. Спринт (14 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F314A0BE27DF6DC7CE29377332CD34E52D03BCE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743704   (105381) от 17.08.2024
 
 Минтранс: Тест-драйв Тойота Приус (17.08.2024) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105381.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:B625608FF664134AB6E4998C3FE9B5FA3A434B7A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105382.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:482F47E6DE0A3376A7B58EEAD7D881BB43595B7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105383.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Ansambel ''Vitamiin'' - Ансамбль ''Витамин I'' (1983) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105384.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:67E1C65C1F5E494A5DF63AB8C119E5601604869A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105385.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ Foster The People - Paradise State of Mind (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105386.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105387.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105388.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105389.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ magnet:?xt=urn:btih:D95D38DE048ED22AF13673FB77DC94B39EEB29DB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105390.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Edwin Starr - H.A.P.P.Y. Radio (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105391.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Jimmy James - Dancin' Till Dawn (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105392.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Untold Festival 2024 + Reflectio
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105393.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105394.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:8E4CA78F8923A0AA15A633929654A56B7EBCE2B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105395.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Eisregen - Abart (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105396.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ All India Radio - 2006 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105397.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Hail Darkness - Death Divine (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105398.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105399.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Per Wiberg - The Serpent’s Here (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105400.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Extinction A.D. - To The Detested (2024) [MP3|320 Kbps] <Thrash Metal, Crossover
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105401.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Dwell in Doom - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105402.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ Kayas - By the Moon and the Stars (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105403.jpg" />
 </div>
 
 
@@ -605,83 +683,6 @@ Kayas - By the Moon and the Stars (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46117783F33D7512CD7C00BFAC9E3E0F788143F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743457   (105404) от 16.08.2024
-
-Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коко Хекматияр, непредсказуемый оружейный дилер, все так же кочует со своей командой по белу свету. Водоворот судьбы, что крутится вокруг главной героини, затягивает коллег и конкурентов, бандитов и клиентов, старых кровников и агентов ЦРУ. Но пока простые люди пытаются выжить, кинуть ближнего и заработать денег, другие, более серьезные, понимают, что в деяниях группы (   Читать дальше...   )Производство: Япония, White FoxЖанр: Боевик, приключенияРежиссер: Мотонага КэйтароЯзык озвучки: Японский; Русский (Jam & Eladiel; loster01 & Emeri; Valkrist & KroshkaRu)Субтитры: Русские (GMC & zlobny_sow)Продолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350E2DA34DB50434C50E9AFB9B7E3163DFD5A801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743591   (105405) от 16.08.2024
-
-Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready? (Remastered 2024) [00:04:45]
-02. What If (Remastered 2024) [00:05:18]
-03. Beautiful (Remastered 2024) [00:04:19]
-04. Say I (Remastered 2024) [00:05:15](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3608EB2DFFF0399A0792B20D78C3222FED1BE7D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743516   (105406) от 16.08.2024
-
-Роберт Льюис Стивенсон | Убийца. Джанет продала душу дьяволу (2021) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена (Английская литература).
-Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
-Любимый писатель подростков всего мира, автор «Острова сокровищ», кроме увлекательных приключенческих романов, писал и леденящие (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, мистикаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A00435401709F9846EEA662B6B9C45A96E93B4
 ```
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 401807   (123734) от 09.01.2024
+
+Сергей Есенин | Стихотворения и поэмы (2005) [MP3, Василий Качалов, Вениамин Смехов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Audiobook.
+Сергей Александрович Есенин (1895–1925) – русский поэт, представитель новокрестьянской поэзии и лирики, а в более позднем периоде творчества – и имажинизма
+Стихотворения Сергея Есенина давно стали частью мироощущения русского человека. В то же время самая значительная часть творческого наследия Есенина – его поэмы. В сборник произведений поэта (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: ИДДКПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E32FF5F3B024CDFC19BED96C387D83EEDBB1D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690814   (123735) от 09.01.2024
+
+Коллектив / The Collective (2023) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек Сэм становится новобранцем таинственного агентства наемных убийц, именуемого «Коллектив». Эта секретная организация занимается устранением влиятельных людей, которые обладают неограниченной властью и их невозможно привлечь к ответственности за преступную деятельность, которой они занимаются. Сэм получает задание на устранение бизнесмена Миро, который (   Читать дальше...   )Производство: США / Yale Productions, Dawn's LightЖанр: БоевикРежиссер: Том ДеНуччиАктеры: Лукас Тилл, Руби Роуз, Дон Джонсон, Мерседес Кестнер-Варнадо, Тайриз Гибсон, Пол Бен-Виктор, Майкл Дзуккола, Эрик Лютес, Бретт Азар, Меган Даниэль ДжералдПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (Forced), английские (PGS, SDH)Продолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848346B6E9214530559F29923495ABA62C89BC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690919   (123736) от 09.01.2024
+
+Аквамен и потерянное царство / Aquaman and the Lost Kingdom (2023) TS [H.264/1080p] [UKR, EN]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_123736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над Атлантидой нависла новая угроза, способная привести к необратимой катастрофе. Даже Аквамен не сможет справиться в одиночку – ему предстоит заключить неожиданный союз ради спасения своего королевства.Производство: США, Великобритания, Канада, Австралия, Исландия / Warner Bros., DC EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Патрик Уилсон, Яхья Абдул-Матин II, Дольф Лундгрен, Темуэра Моррисон, Николь Кидман, Яни Жао, Эмбер Хёрд, Винсент Риган, Рэндалл ПакПеревод: Дублированный (TS)Язык озвучки: украинский, английскийСубтитры: отсутствуютПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 331161   (123737) от 09.01.2024
 
 Сергей Есенин | Не жалею, не зову, не плачу… (2006) [MP3, Сергей Есенин, Виктор Никитин]
@@ -6,7 +80,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123737.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:14B9245C02AB9BB90EFF1CD9A2E02F19A30884FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123738.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:EEC175AA2A1B8DF6F6861CDDCFD352ABB2DE576A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123739.jpg" />
 </div>
 
 
@@ -82,7 +156,7 @@ magnet:?xt=urn:btih:86EE1A45F6EF1F0461B38E0728C395C26E52F879
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123740.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ Boilsoft Video Splitter 8.3.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123741.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ magnet:?xt=urn:btih:FB235878A84D94A9B0CA89B2FEDD841CE751845B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123742.jpg" />
 </div>
 
 
@@ -158,7 +232,7 @@ magnet:?xt=urn:btih:05BDBE5D2C03310BC3BCE2CBECF6E887F6AC2351
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123743.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ magnet:?xt=urn:btih:FB583698B81CE519E07D989F0ED14694F5018DB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123744.jpg" />
 </div>
 
 
@@ -208,7 +282,7 @@ magnet:?xt=urn:btih:84FE6A89368C5CEE984C3D2F0DC0D96F93C7C70D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123745.jpg" />
 </div>
 
 
@@ -233,7 +307,7 @@ magnet:?xt=urn:btih:C05B0A8C716E1C9BC8E613F6C97D45A7DA256178
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123746.jpg" />
 </div>
 
 
@@ -257,7 +331,7 @@ HitPaw Video Converter 3.1.2.4 x64 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123747.jpg" />
 </div>
 
 
@@ -281,7 +355,7 @@ magnet:?xt=urn:btih:CA08995CB2F9CBED881544EB1ED6E68197E8D4E2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123748.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ FreeCAD 0.21.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123749.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ magnet:?xt=urn:btih:C6F69B0394DF0DE458802EEF292FB8AEDBFD54A6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123750.jpg" />
 </div>
 
 
@@ -355,7 +429,7 @@ magnet:?xt=urn:btih:461B6467692EF867A60F47DCC488890426ED48FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123751.jpg" />
 </div>
 
 
@@ -379,7 +453,7 @@ magnet:?xt=urn:btih:F7EB07B9321CEE8FD471B9B7EDFA876612DD2F64
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123752.jpg" />
 </div>
 
 
@@ -404,7 +478,7 @@ magnet:?xt=urn:btih:9F2185EFF90AC7910CF89BB1F62B501DEF506D78
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123753.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ Dead Mountaineer Hotel / Отель ''У Погибшего Альпиниста
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123754.jpg" />
 </div>
 
 
@@ -452,7 +526,7 @@ magnet:?xt=urn:btih:1DDB79900CDAABCACA2EAFAFC6938C7860C6BFC8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123755.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ magnet:?xt=urn:btih:8C750D9BFD310B51F3C7F8FB36291BCD4E7E0DA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123756.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ magnet:?xt=urn:btih:862B34A374292E1DB5BF0C017AA0D9B61FBE2DA2
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123757.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123757.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ magnet:?xt=urn:btih:862B34A374292E1DB5BF0C017AA0D9B61FBE2DA2
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123758.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ magnet:?xt=urn:btih:7B3545DF5C6B30F4CFFD9513663AC10595C7E383
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123759.jpg" />
 </div>
 
 
@@ -559,78 +633,6 @@ magnet:?xt=urn:btih:7B3545DF5C6B30F4CFFD9513663AC10595C7E383
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3015D408BD66FE9DA10DCC756EAFD1EDAA44F9A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690812   (123760) от 09.01.2024
-
-Наполеон / Napoleon (2023) WEBRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123760.jpg" />
-</div>
-
-
-###  Подробнее
-
-История тяжёлого пути Бонапарта к власти через призму его изменчивых отношений с единственной настоящей любовью, Жозефиной.Производство: США / Apple Studios, Scott Free ProductionsЖанр: биография, военный, драма, историяРежиссер: Ридли СкоттАктеры: Хоакин Феникс, Ванесса Кирби, Тахар Рахим, Руперт Эверетт, Марк Боннар, Пол Рис, Бен Майлз, Риана Дьюс, Людивин Санье, Эдуар ФилиппоннаПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full, SDH), английские (forced, full, SDH) и др.Продолжительность: 02:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A0033B51B4021E72897C75C0F418915D9AB77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690830   (123761) от 09.01.2024
-
-Маэстро / Maestro (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биографический фильм о жизни и творчестве знаменитого американского композитора, дирижера и пианиста Леонарда Бернстайна. В 25 лет его приняли в Нью-Йоркский филармонический оркестр, после чего он написал музыку к таким выдающимся произведениям как «Вестсайдская история», «В порту» и многим другим. На протяжении всей жизни Бернстайна поддерживала любовь и забота (   Читать дальше...   )Производство: США / Sikelia Productions, Amblin Entertainment, NetflixЖанр: Биография, музыка, драма, мелодрамаРежиссер: Брэдли КуперАктеры: Брэдли Купер, Кэри Маллиган, Мэтт Бомер, Винченцо Амато, Грег Хилдрет, Майкл Юри, Брайан Клагман, Ник Блеймаер, Мэллори Портной, Александра СантиниПеревод: Профессиональный многоголосый (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE75B3071062E7DA0EA7B379EC15EF610D7C8880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292329   (123762) от 09.01.2024
-
-The Long Dark v.2.26 (2017) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123762.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark – это глубоко проработанный симулятор исследования и выживания в условиях дикой природы. Никаких зомби, никаких бандитов – только вы, Мать-природа и суровые вызовы, которые она будет бросать вам в лицо. Здесь никто не будет держать вас за руку: игра дает подсказки, но не ответы, побуждая вас исследовать окружающий мир и приспосабливаться к нему. Место (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2017Разработчик: Hinterland Studio Inc.Поддерживаемая ОС: 10.9+Жанр: Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EEEC32C7033CCA44C99B5134BEFA076DD62BD8
 ```
 
 

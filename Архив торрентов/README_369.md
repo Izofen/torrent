@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7C74E31C20BA6372FDEA081762E659B4ED1D35D7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87188.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7C74E31C20BA6372FDEA081762E659B4ED1D35D7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87199.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C74E31C20BA6372FDEA081762E659B4ED1D35D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87206.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Softlim EstimaKit 2011 1.0.1.1584 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87210.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87215.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87225.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87226.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87229.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Softlim EstimaKit 2011 – программа для автоматическо�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87230.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9579ED05E62C02A402F4C8C259C6FFE446BE6475
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87233.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CEB5367474A83573A8878F707E65BCD0ACC62A01
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87237.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sony Sound Forge Pro 10.0c Build 491 + Dolby Digital AC-3 Pro  + Noise Reduction
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87240.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87241.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87245.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Gadgets for windows 7 Chameleon Pack- Glass Gadgets [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87248.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Rayman Origins [WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87258.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:8815B11C2CFF1E8896F8BF474B1BF73AD5D38DA4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87264.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:7684D492580ABF4FAEE731A1AA32E9685BD8A254
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87265.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:475B5B3FB1854BE6E58761F19A37589AFCA11F7F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87290.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Toolkit 2.3.2 Stable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87291.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Microsoft Toolkit - многофункциональный KMS-активато�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87302.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Microsoft Toolkit - многофункциональный KMS-активато�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87304.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5AFD39E61D73B1DB696BBA7556165D7D324FB30D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87307.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Bassnectar - Vava Voom (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87310.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:742B1331D773711DC90720A693780A5C7BC97303
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87314.jpg" />
 </div>
 
 

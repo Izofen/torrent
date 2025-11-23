@@ -6,7 +6,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AyuGram - неофициальный клиент Telegram 10.12.0 Mod by NURIK 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54317.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EE3E57887657238076F25EED034AD5F0C3A009EE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54318.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:795F31DC5C7568052E01EF74125FD25CA4731665
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54319.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7A9452E16423C7F57CF2098D1351D78912E2FC24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54320.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Windows 10 Pro 22H2 19045.4412 x64 by SanLex [Lightweight] [Ru/En] (2024.06.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54321.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Medieval Kingdom Wars (2018) [Ru/Multi] (1.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54322.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Понемногу отовсюду by Yuridar #A (1992-2022) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54323.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F145985644507A19E896C32EAB0F6EA801E52CBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54324.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54325.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:01BB0705A8534E6CE8F113A52214EA0A23EC5BCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54326.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8DD3F177F3952B3B3D5514152F70FA8ABEB61C65
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54327.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54328.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54329.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Club&Dance Летние Треки Remix NNM (2024) [MP3|320 Kbps] <Club, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54330.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Total Commander 11.03 Portable by DIaMONd (04.06.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54331.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54332.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Ableton - Live 12 Suite 12.0.5 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54333.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:ECBA1F77BC11EB429B6E72FD2555F0A757060C4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54334.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:BF0CC245CB3D4B31EBCCA01C8FA5C77DBD408FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54335.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:F7A0D06725EE1CF76F3EBAA17B51664760DFB6AC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54336.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54337.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:9249C1BDCF027917E27F258625D0BA01BC40B415
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54338.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B5EB6D8F6478FB3F1EC88EE776262206DA397E31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54339.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ IsMyLcdOK 5.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54340.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103195.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Timothy Drury - Timothy Drury (1996) [FLAC|Lossless|image + .cue] <West Coast, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103205.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Captain Black Beard - Sonic Forces (2020) Reissue, Remastered, 2024, Pride & Joy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103206.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103208.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:9F46F63C7164B8EFB3AB6DDD291D1E2C57D38E83
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103209.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wormed - Omegon (2024) [FLAC|Lossless|image + .cue] <Death Metal, Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103211.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103214.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dane Donohue - L.A. Rainbow (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103216.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103217.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Waterboys - Dream Harder (1993) Directors Cut, 2024, Geffen [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103220.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nationwide - Echoes (2024) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103221.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Counterline - Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103224.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Impellitteri - War Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103227.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Seventh Crystal - Entity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103229.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Score - Last Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103238.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Neal Morse - No Hill For A Climber (2024) [MP3|320 Kbps] <Progressive Rock, Symp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103239.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Davy Knowles - The Invisible Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103267.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nurcry - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103271.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103276.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Stranger Vision - Faust Act 1: Prelude To Darkness (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103288.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Distant Past - Solaris (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103289.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Massacre - Necrolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103290.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Katharsis - Evading Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103293.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tungsten - The Grand Inferno (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103295.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103296.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103311.jpg" />
 </div>
 
 

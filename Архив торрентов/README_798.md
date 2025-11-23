@@ -1,3 +1,77 @@
+###  Публикация: 1674289   (162637) от 04.11.2023
+
+Nevercenter CameraBag Photo 2023.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517500   (162641) от 15.12.2021
+
+Microsoft .NET 6.0.1 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598621   (162643) от 19.12.2022
+
+SuperDuper! 3.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162643.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FC623896753894466C0607988B728F932477D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517387   (162665) от 15.12.2021
 
 Adobe Substance 3D Painter 7.4.1 [En]
@@ -6,7 +80,7 @@ Adobe Substance 3D Painter 7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162665.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Celemony - Melodyne Studio 5 v5.1.1 STANDALONE, VST, VST3, AAX (x64) Repack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162673.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Spotify 1.1.74.631 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162677.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ CheckBook Pro 2.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162678.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ magnet:?xt=urn:btih:605D61C8B8BB55F294D392FF1B214C49DCE749E8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162682.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ Sidify Music Converter 2.4.3 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162685.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ KiCad 5.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162687.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ KiCad 5.1.12 RePack by NikZayatS2018 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162691.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ KCNcrew Pack 12-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162692.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ VideoDuke 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162708.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ GOM Player Plus 2.3.60.5324 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162719.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ Keep It 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162720.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ ColoFolXS 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162721.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.18 + Portable (unofficial) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162723.jpg" />
 </div>
 
 
@@ -347,7 +421,7 @@ Maxon Cinema 4D Studio R25.113 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162735.jpg" />
 </div>
 
 
@@ -371,7 +445,7 @@ CrystalDiskInfo 8.9.0a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162739.jpg" />
 </div>
 
 
@@ -395,7 +469,7 @@ Ant Download Manager Pro 2.5.0 Build 80357 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162740.jpg" />
 </div>
 
 
@@ -419,7 +493,7 @@ ProFind 1.19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162749.jpg" />
 </div>
 
 
@@ -443,7 +517,7 @@ Vivaldi 5.0.2497.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162751.jpg" />
 </div>
 
 
@@ -467,7 +541,7 @@ iShot Pro-ScreenShot Recording 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162752.jpg" />
 </div>
 
 
@@ -491,7 +565,7 @@ IObit Driver Booster Pro 8.2.0.305 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162755.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ magnet:?xt=urn:btih:94D56E9C19C790B5D798D91DBBAAE1A9053942DA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162759.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Mozilla FireFox 95.0.0.8003 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162769.jpg" />
 </div>
 
 
@@ -551,80 +625,6 @@ Mozilla FireFox - быстрый, полнофункциональный веб-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC4F116E75789AE477549BF91527751AD308F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432760   (162774) от 18.12.2020
-
-Topaz Video Enhance AI 1.8.0 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video Enhance AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video Enhance AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714D11768F095D2FD539F4AEAFF12E9D171A2116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587334   (162780) от 18.12.2022
-
-Аркнайтс [ТВ-1]  | Рыцари ковчега: Прелюдия рассвета | Arknights: Reimei Zensou | Arknights: Prelude to Dawn [2022, TV, 8 из 8] WEBRip 1080p Raw+Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Arknights происходит в антиутопическом научно-фантастическом мире под названием Терра, где его обитателям своиственны кемономические черты животных или мифологических рас. Регулярные природные бедствия на планете, названные Катастрофами из-за их разрушительности, оставляют после себя ценный минерал — ориджиниум, который заражает жителей прогрессирующей болезнью (   Читать дальше...   )Производство: Япония / Студия Yostar Pictures, IKIF+Жанр: Приключения, фэнтези, экшенРежиссер: Ватанабэ ЮкиЯзык озвучки: Русский многоголосый, закадровый, Японский
-- Amikiri, Cleo-chan, Crowley, Hekomi, Itashi, OkanaTsoy, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 8 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC65965C6F41601885DF01E3B54B81689D828968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580777   (162782) от 18.12.2022
-
-Каким-то образом я стал сильнейшим, прокачивая фермерские навыки | Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как же приятно пожинать плоды своих трудов, когда ты фермер! Эл Уэйн настолько проникся этим созидательным делом, что решил отточить свой навык на максимум и стать лучшим в мире. Но тех, кто ожидает, что это история про бескрайние поля да пестики с тычинками, ждёт сюрприз. Ведь, получив высший уровень, Эл внезапно понял, что его жизнь сделала крутой поворот совсем (   Читать дальше...   )Производство: Япония / Студия Studio A-CATЖанр: Приключения, фэнтези, экшенРежиссер: Нагахама НорихикоЯзык озвучки: Русский многоголосый закадровый, Японский
-- Cleo-chan, Hoopoe, WhiteCrow, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D05E97E4F7118F2D71597618B6B13FC8614D114
 ```
 
 

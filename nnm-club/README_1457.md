@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3726B8BE4224D833374913010E5108020F894DDA
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38236.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:721FDEDF006DC25AF84932A4760F7DEAAD1498BA
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38237.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B648DBB1AFC0850A9278528BA967B7B905077A2B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38238.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 11 Pro 24H2 26100.2033 x64 by SanLex [Lightweight] [Ru/En] (2024.11.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38239.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38240.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (15795727) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38241.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:25B6F9CA736056CE21B9826E8E841209256C01DE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38242.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:25B6F9CA736056CE21B9826E8E841209256C01DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38243.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CD59657F275056FFC1D3B9FE0DB4F6BEF7A892E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38244.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:905B9EBC7F47E873C2CB5F5A8A5F5673F9887B8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38245.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:806017AEBD70E5C38F9EF6E5F8932721714F5A21
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38246.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38247.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Movavi Video Editor 25.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38248.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38249.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38250.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:35C9F3F74C16539822F222410F20F7577BCA8545
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38251.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Archive.org и Google остановили кеширование данных �
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38252.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:59946166A9396622E577DADDB5E730855A1226C2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38253.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Movavi Video Editor 25.0.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38254.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:EC23CBAA57F9CFDF8A689C2E5FAE1AF827281DB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38255.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38256.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38257.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F72C09D392B0A1A0835BC24E488DA1DFEB718EE7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38258.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:523D364E1906674C86E6B75820E9A0049D9FEFF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38259.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38260.jpg" />
 </div>
 
 

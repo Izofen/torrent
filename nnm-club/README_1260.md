@@ -6,7 +6,7 @@ HDD Low Level Format Tool 4.50 RePack (& Portable)  by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4F9D84A310BDBA8993E3494FD8495B5371E7AB92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33114.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FDEA8B7B7756F931D4627554F42CAE7065BF6B88
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33115.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CFE652D1B7EB81DA7E6FF8C10EAF265F4EB56410
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33116.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bear and Breakfast (2022) [Multi] (1.8.29) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33117.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7E9980B1F18122A8938E8DD08DDA2B370A17377A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33118.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0E6FD19C0278ADE86FD0EA15CEB5F109601E6673
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33119.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BD2611B1A4BC11E19850AE87B77839DC531D7953
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33120.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://www.sciencealert.com/the-magnetic-north-pole-has-officially-changed-posi
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33121.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9D1D9561F00C6369DA581887779F4CE0B87E0F4F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33122.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Imagine If - Great Expectations (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33123.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Apashe - Antagonist Remixes (Part I) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33124.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:300499BE0818B5625F9A8ECEECE3548F66711B1C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33125.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:BBB9BF860ADF6117A6D1EFB1D13E5CEB66EE928B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33126.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:872276B597C0565C0F54F2A684B6953843285398
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33127.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tony Paul - Smoke In My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33128.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Barbarella And The Boogie Blues - A Good Length (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33129.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sugar Brown - Toronto Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33130.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ DJ Nibzy feat. Chrissie - Stand By Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Scou
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33131.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:32E39E932EFD06A1E27AE48CBFAA11BBFD30F0DF
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33132.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Joe Valeriano - Sketches from My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33133.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Beardfish - Songs for Beating Hearts (2024) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33134.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Gin Mill Trio - ROCK 'EM BLUES! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33135.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:E0C6E827172BE167DA5018FE113BC4AF86DD89E8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33136.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Swampblueskara Onemanband - Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33137.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:5B20FE90DE3C13A006F1FD459CE9B0782775F307
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33138.jpg" />
 </div>
 
 

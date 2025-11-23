@@ -6,7 +6,7 @@ Xezzo - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ York Patrick - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vo
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3603.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ York Patrick - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3605.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Glenn Hughes - Voice Of Rock - Compilation (1970-2025) [MP3|320 Kbps] <Hard rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3617.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Music News For Forum vol.133 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3744.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Frezee - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Chillout, Femal
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3862.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Vocal Techno & Progressive 2025 [MP3|320 Kbps] <Vocal Techno & Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3896.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Reyvi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3897.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Eric Gales - Compilation (1991-2025) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3898.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Frezee - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3914.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Дискотека 2025 Dance Club Vol. 230 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3943.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - National Pop Dance Music Vol.119 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4094.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - ЕвроХит Топ 40 Europa Plus 05.09.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4173.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4303.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4312.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Rainbow Party (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4432.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Hot 20s Big Hits 100 Songs (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4584.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4606.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4638.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4653.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Musical kaleidoscope part 52 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4654.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4665.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sardø - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4678.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4792.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ JONI - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4803.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Xezzo - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4812.jpg" />
 </div>
 
 

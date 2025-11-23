@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2B949B58E88F77CE3C72BF92F0FF688CFE55CEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58840.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aquamarine (2022) [En] (2.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58841.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58842.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CA0676B1DE1DC1EC40666DE9A472FB1A303FD521
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58843.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58844.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E10A2541B686A9EFD26C16B827A302C953839E63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58845.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:410018330446D5289409109C461670FCE6829E7B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58846.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8B29A0AE3353EC24E927A148659B2AF3757F33CD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58847.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8B29A0AE3353EC24E927A148659B2AF3757F33CD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58848.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:DB71AADFA2C61E92AA239777FF41527C4235C09C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58849.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:02CC81526B9A85112F44F8CD65980C8799C6A14C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58850.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ UFO Robot Grendizer - The Feast of the Wolves (2023) [Ru/Multi] (27.0.12191/dlc)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58851.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58852.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:F61F3820B1E600DD60BC676CC81CBD1A37354FD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58853.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Music News vol.368 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58854.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ BananaVisualLibraries 1.0.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58855.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Soft Organizer Pro 9.44 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58856.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ TikTok 34.4.3 Mod by Dmitry Nechiporenko + Plugin 1.34 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58857.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Double Commander 1.1.13 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58858.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58859.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9B23920DB95FFD4B1BC0DCD7BBDD57D7CB15EC97
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58860.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E5E2743A9C3DD6003C0205E31E47A7BD680BC1D8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58861.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AA5BC7BE89FF058A8BFBD50F862C2EAC3029BC3F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58862.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0A0BF28A1DA567F81E21F243BFD62D741AE628F1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58863.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58864.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134457.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:875731A1D15DB7038C568730AB9BAD4330C213B4
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134488.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A783DB84620EE4D9C6BDBA8B2DF254A61E323B48
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134765.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134803.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Udemy, Chris Sivewright | Strokes disable. Heart attacks/strokes also kill - tho
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134848.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135054.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ English with Lucy | English Grammar Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135067.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ English With Lucy | The Idioms Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135081.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ English With Lucy | The Vocabulary Expansion Challenge (2023) WEB-DL [AD] [EN / 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135093.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135103.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Profileschool, Артур Орлов | Основы создания музык�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135104.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ English With Lucy | The Collocations Challenge (2022) WEB-DL [AD] [EN]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135109.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:13A486DA5EF1C45A8C2DE00357064FD6108AB7BB
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135142.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135155.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:6F54A12B2587AA261DBC32C66A91937A394F6314
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135161.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135477.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:C809DB33442066D7C05A1F90F91D4237F66C897B
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135760.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136621.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136625.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136643.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137077.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137106.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ English with Lucy and Linguamarina | Boost Your Vocabulary (2022) WEB-DL [AD] [E
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137141.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137202.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137207.jpg" />
 </div>
 
 

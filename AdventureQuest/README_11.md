@@ -6,7 +6,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19498.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19516.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19518.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19538.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19727.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19777.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7:2369) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19788.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19831.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19831.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BLACKSHARD (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19884.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19899.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19899.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19925.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19947.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19947.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19982.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19985.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19986.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19990.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20083.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20105.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20105.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20226.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20230.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20230.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20256.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20298.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20304.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20304.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20326.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20330.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20351.jpg" />
 </div>
 
 

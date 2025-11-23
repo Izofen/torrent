@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Partition Assistant Technician Edition 10.3.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62927.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62957.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Telegram Desktop 4.15.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62960.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62961.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Fort Firewall 3.12.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62964.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Calibre 7.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62965.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ CopyQ 8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62966.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Office Installer & Office Installer+ 1.04 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62975.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Topaz Video AI 4.2.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62977.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Topaz Gigapixel AI 7.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62978.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D2B50564E056C9C767955348EC8970EED20C9DAF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62983.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ OGWhatsApp 17.70 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62988.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ SIV (System Information Viewer) 5.76 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62993.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AOMEI Partition Assistant Technician Edition 10.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62997.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.20.6802 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63008.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ StartAllBack 3.7.7 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63009.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v15 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63024.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.20.6802 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63044.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ CCleaner 6.22.10977 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63049.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Reg Organizer 9.41 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63054.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:84F3DDD5B4E327E6A652ECF4A0DCCA97F0A5D0FE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63059.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ MEmu 9.1.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63061.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ XYplorer 25.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63069.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ StartAllBack 3.7.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63071.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ StartAllBack 3.7.6 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63072.jpg" />
 </div>
 
 

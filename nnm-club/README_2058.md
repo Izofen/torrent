@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F59A29BAFBCB710DBC92F363DD3A34AFB15BCEF8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53874.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:82E6BEC3CB78750C6AE03B64208C3E084ACB175D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53875.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B57602D3BC56F63A99A1243F34B31635385F1F90
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53876.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2B1D035BAB2B68C265AF9731FF77A5A0682C1DAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53877.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5E9DBAF6D85112A442F37A687CDAB0EF282E90E8
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53878.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C1CEA6C9ADA311C799DFBBBF9F065768F8E214F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53879.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EE7CC094B80201AA77E5694E2C638F0A5FDE42AD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53880.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ YouTube ReVanced Extended 17.34.36 (RVP v2.160.10) Mod by Number one' + microG G
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53881.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53882.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:29662E5A3142D0273E5D65293E1968BC2245FF6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53883.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:7D5C358D8F83A66472C54C9C0A5C084AE18BC2F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53884.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6E67796AA94FAA0E4B8466890FAA7F3857B978BA
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53885.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:98089D24FC0678035F67386B72D91B2DAC77FBF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53886.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53887.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E2DCA6ED24AE197D4686A9DD074726E4008A80FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53888.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D47D87F36219401D8970CD7C4EA2AAB16DBE3BDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53889.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7950C64A5050432D9443486EDF692AC1BAA045E9
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53890.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53891.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:5665089D88FE813DF5D0F2F029F397A72983C990
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53892.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53893.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:BBF3511159AAF7942B944094CACF6B94AADA1E01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53894.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53895.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53896.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53897.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53898.jpg" />
 </div>
 
 

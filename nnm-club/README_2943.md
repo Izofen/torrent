@@ -1,3 +1,76 @@
+###  Публикация: 479247   (87072) от 07.04.2012
+
+Carbon Boot by Core-2 v.7.4.12 [Русский и английский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Boot by Core-2 v.7.4.12 - Модифицированный загрузчик Windows 7 х86 (AIO).Основное отличие от оригинального - наличие дополнительных возможностей и утилит.Исправлена ошибка загрузки из под Windows , удалено лишнее , прикручено нужное . Вобщем пробуем , тестим , отправляем предъявы и пожелания .Название программы: Carbon Boot by Core-2Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479107   (87074) от 07.04.2012
+
+Контрабанда / Contraband (2012) DVDRip  [звук с TS]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир контрабандистов — это большие ставки и огромный риск. Cтоит оступиться лишь раз, и тебя ждет смерть. В этом мире Крис был лучшим, его называли Гудини, но он вышел из игры, женился и начал новую жизнь.Жанр: Боевик, Триллер, КриминалРежиссер: Бальтасар КормакурАктеры: Кейт Бекинсейл, Марк Уолберг, Бен Фостер, Джованни Рибизи, Лукас Хаас, Дж.К. Симмонс Диего, Луна Жаклин, Флеминг Роберт, Уолберг Калеб, Лэндри ДжонсПеревод: ДублированныйПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479614   (87075) от 07.04.2012
+
+Autodesk AutoCAD 2013 (x86, x64) (Русский)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87075.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD наиболее распространенная программа для автоматизации проектных работ, применяемая для 3D моделирования, архитектурного проектирования и подготовки рабочей документации. Благодаря использованию программы миллионами специалистов всего мира, формат DWG, родной для AutoCAD, стал стандартом для обмена документацией. Обмен документацией в данном формате производится между специалистами различных отраслей, независимо от используемых ими систем автоматизированного проектирования.
+Компания Autodesk впервые выпустила систему AutoCAD в конце 1982 года, таким образом опыт применения, развития и совершенствования продукта начался более 28 лет назад. Первые версии программы были призваны заменить распространенные тогда кульманы и состояли из базовых, простейших команд и примитивов, таких как отрезок, окружность, полилиния, текст. Современные версии AutoCAD помогают проектировщикам не только на этапе оформления чертежной документации, но и выступают как инструмент анализа, как платформа экспериментирования и поиска (   Читать дальше...   )Название программы: Autodesk AutoCAD 2013 (x86, x64)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479176   (87076) от 07.04.2012
 
 На грани / Man on a Ledge (2012) DVDRip
@@ -6,7 +79,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87076.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:3CF831554D95E4794ED22DD8CFEF0C459519F9B5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87077.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:3CF831554D95E4794ED22DD8CFEF0C459519F9B5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87078.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87079.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Tropico 4: Modern Times [Ru/1.5] (Р) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87080.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ magnet:?xt=urn:btih:4BBF1D723B1AD15C3A69CFD0A08EE7A150D77F81
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87082.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:FD9E2A613A87244163E33E2F3529DD22CB4CC028
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87083.jpg" />
 </div>
 
 
@@ -187,7 +260,7 @@ Kaspersky Internet Security 2012 (BOX)  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87084.jpg" />
 </div>
 
 
@@ -217,7 +290,7 @@ Kaspersky Internet Security 2012 (BOX)  [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87086.jpg" />
 </div>
 
 
@@ -241,7 +314,7 @@ Corel VideoStudio Pro X5 15.0.0.258 RePack by MKN [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87088.jpg" />
 </div>
 
 
@@ -267,7 +340,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87089.jpg" />
 </div>
 
 
@@ -291,7 +364,7 @@ Autodesk AutoCAD Design Suite Ultimate 2013 - это программный ко
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87091.jpg" />
 </div>
 
 
@@ -316,7 +389,7 @@ magnet:?xt=urn:btih:8DA4721DD2B48CCA880F55D18BFE9E6A6F62C5EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87092.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87094.jpg" />
 </div>
 
 
@@ -367,7 +440,7 @@ magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87098.jpg" />
 </div>
 
 
@@ -391,7 +464,7 @@ magnet:?xt=urn:btih:43B8BA056AD64F5C32FEC99F2482B21DD94B825D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87099.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:2F13EFAFA91C736750D31A6DAA8A9BE9343FDDB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87102.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:82C595BF538E9FF84EF428334855C34F4FD170C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87105.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:A1F9646AA0448C309869E34D940DC35C26E75EBC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87106.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87108.jpg" />
 </div>
 
 
@@ -525,7 +598,7 @@ magnet:?xt=urn:btih:0703F11ABF261EBD160897918AEB04D1ABF68D37
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87110.jpg" />
 </div>
 
 
@@ -557,7 +630,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 (2012-04-07) [русский / а�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87112.jpg" />
 </div>
 
 
@@ -583,7 +656,7 @@ Kaspersky AVP Tool находит и изолирует: вирусы, троя�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87113.jpg" />
 </div>
 
 
@@ -598,93 +671,6 @@ Kaspersky AVP Tool находит и изолирует: вирусы, троя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C29AA59B3D564C1D2BEFE831DBB99DA1399D4389
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480035   (87114) от 08.04.2012
-
-Змеиная кожа / Snakeskin (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87114.jpg" />
-</div>
-
-
-###  Подробнее
-
-На окраине маленького городка в начале жаркого дня на дорогу выползает гремучая змея и превращается в пару сапог из змеиной кожи, надетых на ковбоя. Тем временем юная парочка, сняв крышу со старого кабриолета, кружит по дорогам в поисках приключений.
-Заводила здесь Элис. Ее любимые герои — Тельма и Луиза. За рулем сидит Джонни, который вместе с Элис готов развлечься «на полную катушку» невзирая ни на что. И они находят то, что ищут, когда встречают того самого ковбоя — загадочного американца по имени Сет.
-Он лишь внешне похож на человека и превращает реальность вокруг себя в полный хаос. Сет везет Элис и Джонни навстречу их мечте о мире запретного кайфа. Но вскоре они узнают, что эта мечта может обернуться кошмаром…Жанр: Фэнтези, Триллер, ДрамаРежиссер: Джиллиан ЭсхерстАктеры: Мелани Лински, Бойд Кестнер, Дин О’Горман, Оливер Драйвер, Пол Гловер, Чарли Бликли, Гордон Хэтфилд, Таика Вайтити, Джоди Риммер, Адриан Кван Шун ФайПеревод: Профессиональный двухголосыйПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8662509BB76D4CBEB806919FE95BAFBA3EE36703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480206   (87117) от 08.04.2012
-
-VA - Best of Europe Club Hits, Vol.2 (The Ultimate Trance and Dance Session) (2012) [MP3|320 кб/с]<Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Shog - Another World Part II (Vocal Edit) — 3:39
- 02. Flutlicht - Ahmea — 8:34
- 03. Akira Kayosa, Firestorm - Reflections (Endorphin System Remix) — 8:00
- 04. Trium Se - The Litestring (Hard Drive Mix) — 6:22
- 05. Kam & Venus - Colouring My World '(Andrea Mazza Presents Kam & Venus) (Fabio XB Vocal Mix) — 7:38
- 06. Wavetraxx - Das Boot (Chris Menzi Presents Wavetraxx) — 7:41
- 07. Der Mystik - Tangle of Aspens (Intro Mix) — 8:34
- 08. Cosmic Culture - Heart of Pain (Club Mix Extended Mix) — 7:46
- 09. Phalanx - Flaming Skies (DJ Manian Vs Triffid Remix) — 8:57
- 10. DJ Shog - Running Water (EDT Remix Edit) — 3:47(   Читать дальше...   )2012Жанр: Trance, DanceПродолжительность: 03:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890870F0DB1FC5016A8D363083059FCD656B0B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480171   (87118) от 08.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №10
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87118.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №10
-Название: Girls Desktop Wallpapers №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B25BAA8E4BEFFB2B6A8EA698332EA11FD24529
 ```
 
 

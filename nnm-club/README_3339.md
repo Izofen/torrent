@@ -1,3 +1,84 @@
+###  Публикация: 1737470   (106496) от 18.07.2024
+
+Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rising Up
+2. Nova Battlestar
+3. Reach For The Sky
+4. Warrior Of The Wasteland(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78199F530EF2808631E6B7AA88A8E4B2F69B2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737541   (106497) от 18.07.2024
+
+Pete Malinverni - An American In London (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day (in London Town) (8:09)
+02. Joshua F'it the Battle of Jericho (6:17)
+03. My Ideal (7:14)
+04. Star Eyes (8:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8B250DF560A0EA6E996335986B6A7F56875380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737523   (106498) от 18.07.2024
+
+John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Connection [9:49]
+02. Pinto [5:20]
+03. Extensions [6:51]
+04. Space Station [5:40](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78933B5E0BEDE9FF551DA60B6FA123757E2E50B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737524   (106499) от 18.07.2024
 
 T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +87,7 @@ T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106499.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Paul Di'Anno's Warhorse - Paul Di'Anno's Warhorse with Madiraca & Pupi (2024) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106500.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Babbba - 5D Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106501.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ High-Logic FontCreator Professional 15.0.0.2993 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106502.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106503.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC|Lossless|image + .cue] <Melodic Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106504.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Babbba - Cabaret II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106505.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Photo Supreme 2024.2.1.6582 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106506.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ Albert Castiglia - Righteous Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106507.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106508.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ SkyEye - New Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106509.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106510.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ David Moore and Westridge - Get The Led Out! (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106511.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ magnet:?xt=urn:btih:393F71AA53C9EFCE95F467617FAAFB4D19EDF037
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106512.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ Liner Lou - Bluester (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106513.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ Will Jackson - Where There's a Will There's a Way (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106514.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ magnet:?xt=urn:btih:2216192AB7A8516C0B75389F34FA10DC741C6DBA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106515.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure a
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106516.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106517.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ Nemoreus - Orcunadoras (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106518.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Cryptopsy - As Gomorrah Burns (2023) [FLAC|Lossless|image + .cue] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106519.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106520.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106521.jpg" />
 </div>
 
 
@@ -604,87 +685,6 @@ Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C9107A20A1719FBA27F35D59628F04A59E93D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737361   (106522) от 17.07.2024
-
-Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watermelon [2:48]
-02. Little Joanie Walks [4:06]
-03. Two Brothers [3:32]
-04. I Should Care [4:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDCF301AD8EB5BA15A5C208D31F8B1C54156EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737365   (106523) от 17.07.2024
-
-Devastation Inc. - Beyond The Shape Of Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds Burst 00:53
-02. The Golden Horde 04:16
-03. Spear of Victory 03:43
-04. The Perfect Shape of Oppression 03:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE31DFA79A6C408A3F189EE80B98CD136EEC620C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737269   (106524) от 17.07.2024
-
-Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kadavar - немецкая рок группа из Берлина, основанная в начале 2010 года. Выбрав для названия своей группы немного измененное латинское слово «Cadaver» — переводится как «зомби» или нечто неживое, но выполняющее действия, свойственные живому существу, Kadavar отправились покорять музыкальный олимп. Черпая своё вдохновение в звучании рок-н-рола 70-х годов, группа воссоздала (   Читать дальше...   )--------------------------
-
-01. From Deep Within (9:33)
-02. In The Way (5:39)(   Читать дальше...   )Жанр: Vintage Hard Rock, Psychedelic Rock, Acid Rock, Stoner Rock |Продолжительность: 07:58:18 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9924E445BDCE80F2FBB06941191C5AD7694A6B
 ```
 
 

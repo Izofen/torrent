@@ -1,3 +1,76 @@
+###  Публикация: 1603367   (210409) от 09.01.2023
+
+HitPaw Compressor 1.0.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210409.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Compressor - программа для быстрого и качественного сжатия видео и изображений.
+Быстро уменьшайте размер видео и изображения без потери качества. Легко сжимайте видео и изображения в одном местеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C001BB601D96365DE14B4D921A6F0538C3AEC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603370   (210411) от 09.01.2023
+
+HitPaw Object Remover 1.0.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210411.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Object Remover - позволит свободно и разумно удалять ненужные объекты из видео. Этот интеллектуальный инструмент будет автоматически отслеживать движения объекта с помощью AI Power.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF76A3988CC3309C97147EE03D4BFE00E46B8EED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603354   (210438) от 09.01.2023
+
+HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_210438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободно и разумно удаляйте ненужные объекты из видео с помощью HitPaw Object Remover. Этот интеллектуальный инструмент будет автоматически отслеживать движения объекта с помощью искусственного интеллекта. Возникли проблемы с нежелательными объектами в вашем видео? С этим потрясающим ластиком для объектов все станет проще, когда вы захотите удалить объект с фона (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28338F5C9847194A55B101F2C723871B99ED05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603515   (210442) от 09.01.2023
 
 Apeaksoft Video Editor 1.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +79,7 @@ Apeaksoft Video Editor 1.0.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210442.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210442.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Assimilate Scratch 9.3 Build 1052 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210626.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210626.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211106.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211106.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ GiliSoft Video Editor 15.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211427.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211427.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Aiseesoft Video Enhancer 9.2.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211717.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ JixiPix Chromatic Edges 1.0.26 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211950.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211950.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Serif Affinity Photo 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212126.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212126.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Serif Affinity Publisher 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212127.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212127.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Serif Affinity Designer 2.6.5.3782 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212128.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212128.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ Reaper 7.49 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212130.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212130.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ GIMP 3.0.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212164.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Winxvideo AI 4.5 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212186.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212186.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ Capture One 23 Pro/Enterprise 16.7.0.3201 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212188.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212188.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ Chaos Vantage 3.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212202.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212202.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Adobe Photoshop 2025 26.11.1.5 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212233.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212233.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ Adobe Photoshop 2025 26.11.1.5 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212280.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ FastStone MaxView 3.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212536.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212536.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ Winxvideo AI 4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212595.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212595.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ VideoProc Converter AI 8.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212596.jpg" />
 </div>
 
 
@@ -467,7 +540,7 @@ PotPlayer 251024 (1.7.22685) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212598.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212598.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ Radiant Photo 2.1.1.790 + Addons Pack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212629.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212629.jpg" />
 </div>
 
 
@@ -515,7 +588,7 @@ Slowview 1.0 RC2 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212649.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212649.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ PixPlant 5.0.43 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213174.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213174.jpg" />
 </div>
 
 
@@ -553,80 +626,6 @@ PixPlant – очень мощный и нестандартный графич�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58D05DB59ECD0A7E12CF40D6CBF7D6836047AD81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558392   (213205) от 20.06.2022
-
-FastStone Photo Resizer Corporate 4.4 RePack (& Portable) by TryRooM [Ru/En]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213205.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D43C7509DB8114592EDA64F1B295415BF451E80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557708   (213314) от 16.06.2022
-
-DxO PureRAW 2.0.2 Build 1 [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
-
-С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670BB94E526DB4BC36E1B67CB361BBF71B3584BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557429   (213330) от 15.06.2022
-
-Adobe Substance 3D Stager 1.2.1 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Substance 3D Stager – данный цифровой продукт представляет собой одну из самых передовых и технических усовершенствованных платформ, которая предназначена для разработки трехмерных сцен. Программа способна организовать выполнение профессионального проектирования любой сложности, где на выходе Вы получите очень качественный и детально проработанный результат.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651E85C5E749394176FF18C2F7B52E71B0D8BBCC
 ```
 
 

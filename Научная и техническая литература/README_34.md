@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47834.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:93BD6F2CB0EE21839693E427C7423F658DFA02C0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47893.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:936A5AB7C17BCAA2FC711223684AD9402C063AB3
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47900.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:1A57B85C0CBD6849F6999264ED9BD5560024C453
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47901.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DD4A43D665B79E60EA302187C672D5C19D877276
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47917.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1B139412257B484C3415292AD421C2FF205C6D4A
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47921.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E0B1B295F58E687F7C8D180DEF7DA9E9425632E7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47952.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:671C08E04B18D152969A2AE52308B0ED077B06D5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47965.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7A6E21843DC4EB50EDCF0F532CD8CD496A9F540B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48000.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2FB1FEAF87656B97D34C26D6B8E1097EF5918D31
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48021.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9030C359F648FCA28300E8B1C094BD4C74EB6549
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48064.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Fyodor Dostoevsky | Dostoevsky: Letters and Reminiscences (1923) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48071.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B7ADD29A9D6E8AC967E66397FBF2F6799A1C06FA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48110.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:92ADC5EB1F61FEAE55E381C83187B7812096B7F6
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48111.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2BC35364EC7453D16099B32B9A9EA04E46B43E4F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48128.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:85592CFA580D08C61E36A4BCF69DFF26D3EE1406
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48158.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:A6A5C49E0B5C1BDD11F567F2847948BF6125099D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48188.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ D. Thompson, P. Falla et al (еditors) | The Oxford Russian Dictionary. Third ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48287.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E7547F4AC761087645DD860628859D430332C789
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48371.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:3A43642A485DC7BE5F5216C2FDD5C474196AEFCB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48391.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:82B95B1D4BC5868C62045493A53040FC8AD16694
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48542.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:8CB4E437DBC156AD89E08C99630CF1C834C29117
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48579.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:B79E25A4AD573D9F686EF0BD65E8117C88E180A3
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48601.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:58CFD060A09FEAD1290973E538E3F23F93403794
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48610.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:1BA6B0981C15E7D3FBA9B96D4A6571FC0B80AF78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48642.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7B9DB8B668F40F5EB21E28487219D8B376DEE595
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48647.jpg" />
 </div>
 
 

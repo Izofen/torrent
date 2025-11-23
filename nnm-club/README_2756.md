@@ -1,3 +1,78 @@
+###  Публикация: 449688   (75328) от 10.02.2012
+
+Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, this stunning show captures Styx performing their classic multi-platinum seventies albums The Grand Illusion and Pieces Of Eight live in their entirety for the first time. These iconic albums established Styx as a globally successful rock band and defined the AOR genre for a generation of (   Читать дальше...   )The Grand Illusion
+01. The Grand Illusion
+02. Fooling Yourself (Angry Young Man)
+03. Superstars(   Читать дальше...   )Жанр: RockСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 01:41:31+00:29:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449996   (75331) от 10.02.2012
+
+Сначала любовь, потом свадьба / Love, Wedding, Marriage (2011) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ева Далтон — успешный брачный агент, чья философия брака основывается на 30-ти летнем браке ее родителей, однако внезапно родители подают на развод, и это переворачивает мир Евы. Вместе с сестрой они решают во что бы то ни стало предотвратить развод родителей.Производство: США / Chydzik Media Group, First Wedding ProductionsЖанр: Мелодрама, КомедияРежиссер: Дермот МалруниАктеры: Мэнди Мур, Келлан Латс, Джеймс Бролин, Джейн Сеймур, Джессика Зор, Майкл Уэстон, Марта Жмуда, Ричард Рейд, Кристофер Ллойд, Алексис ДенисофПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA19484C9B41C97AE219AC86FF6EB7B9B340A0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449986   (75334) от 10.02.2012
+
+Дракула Брэма Стокера / Bram Stoker's Dracula (1992) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец XIX века, Лондон. Молодой юрист Джонатан Харкер и красавица Мина любят друг друга. Джонатан на время вынужден оставить невесту одну и отправиться по делам в Трансильванию к графу Дракуле, желающему приобрести недвижимость в столице Англии. Но Джонатан не знает, кто такой Дракула на самом деле…Жанр: Фэнтези, Драма, УжасыРежиссер: Френсис Форд КопполаАктеры: Гари Олдман, Вайнона Райдер, Энтони Хопкинс, Киану Ривз, Моника Беллуччи, Том Уэйтс, Ричард Э. Грант, Кэри Элвис, Билл Кэмпбелл, Сэди ФростПеревод: Дублированный, Многоголосый закадровый, АвторскийСубтитры: Английские, Русские (full), Русские (forced)Продолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ABF045CD3762C5751A86D7A78BA979EFD266C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 449558   (75337) от 10.02.2012
 
 Долина / La vallee / The Valley / Obscured by Clouds (1972) [1080p] BDRip
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75337.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75338.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75344.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75346.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75352.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75356.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75362.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75365.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ Ju-On The Grudge [Wii] [PAL] [Eng/De] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75370.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:D2E46BAF7BBD371AEB25BA690705EF9C736AD3AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75375.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ magnet:?xt=urn:btih:36A196C1829C2C5A6EA903D843DEF085C98E7A5B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75376.jpg" />
 </div>
 
 
@@ -278,7 +353,7 @@ MKVToolnix 5.3.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75379.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75380.jpg" />
 </div>
 
 
@@ -329,7 +404,7 @@ magnet:?xt=urn:btih:AAE8E053D6ED6F8B7422B1CD19FA7053871F67FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75381.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ magnet:?xt=urn:btih:97025090030F9F9A193F62BD205240F79AD3F874
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75383.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75391.jpg" />
 </div>
 
 
@@ -409,7 +484,7 @@ Windows XP by Rushen 12.2 Minimal Edition [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75392.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ Windows XP by Rushen 12.2 Minimal Edition [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75394.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ Windows XP Service Pack 3 (2010 Seven eXPanded Final by Omega Elf) [Русски
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75399.jpg" />
 </div>
 
 
@@ -486,7 +561,7 @@ Windows XP Service Pack 3 (2010 Seven eXPanded Final by Omega Elf) [Русски
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75402.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75408.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75412.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75413.jpg" />
 </div>
 
 
@@ -577,79 +652,6 @@ Wood Мастер - журнал, ориентированный на людей
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0977948B486851AB29736B96E90DFACCF54A72F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450540   (75421) от 11.02.2012
-
-Воры в законе (1988) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в СССР в 1980-е годы. Рита, дочь крестьянина из дальнего кавказского села сбежала из дома и прибилась к преступной группировке контролирующей небольшой приморский городок. Она становится любовницей главы местной мафии Артура. Все местные подпольные предприниматели и органы советской власти находятся под его контролем. Вскоре наступают тяжёлые (   Читать дальше...   )Производство: СССР, к/с Максима ГорькогоЖанр: Боевик, Криминал, ТриллерРежиссер: Юрий КараАктеры: Анна Самохина, Валентин Гафт, Владимир Стеклов, Борис Щербаков, Арнис Лицитис, Нурбей Камкиа, Зиновий Гердт, Гиви Лежава, Амаяк Акопян, Станислав Коренев, Константин Кищук, Серкей МаксачевСубтитры: нетПродолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64051E5CEA634AE44CBCA5CB83E923CA87165E3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450288   (75430) от 11.02.2012
-
-[Wii] Taiko no Tatsujin Wii: Ketteiban [Japan] [NTSC-J] (2011)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайко - означает "барабан" на японском языке. В этой игре вам придется выстукивать в ритм на барабанах и не только это. По мимо стандартного режима тайко, есть ещё целая куча других режимов. Вся игра построена на ритме, эта игра не даст вам заскучать! В игру можно играть как и обычным "Wiimote", так и беспроводными барабанами, соединяющиеся с контролером Wii.2011Жанр: Rhythm/Music gameЯзык интерфейса: JapanФормат: iso, wbfs (на выбор)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F137C70178D2D3845CFD1D80D61539F89CFAC468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450262   (75439) от 11.02.2012
-
-Дарья Форель | Лечебный факультет, или Спасти лягушку (2011) [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя испытания вступительных экзаменов, они радуются. Они еще не знают, что ждет их впереди. Но реальность быстро заставляет их спуститься с небес на землю.
-Каждый день учебы в "меде" полон больших и маленьких трагедий. Преподаватели, требующие взяток, цинизм и халатность руководящих практикой врачей, жестокие шутки сокурсников, смерть пациентов и врачебные (   Читать дальше...   )Жанр: Проза, Юмор и СатираФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EF0FC4330C452CB35F9A46A0B3E359F90EB868
 ```
 
 

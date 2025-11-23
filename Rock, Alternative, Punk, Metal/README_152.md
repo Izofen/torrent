@@ -6,7 +6,7 @@ Conjureth - Foul Formations (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112004.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bokassa - Live At The BBC (2020) (Live) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112007.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cryoshock - The Cold New Regime (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112008.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Uaral - Lamentos A Poema Muerto (2007) [FLAC|Lossless|image + .cue] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112009.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:07F9E042D289869EC5A3FBFA2E94E92CBE55A98A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112022.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B27DD64CE79C4E5118B6C8F4B809B1DE499869BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112025.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:02D2F3635629CCE868367696BCE06E265CB0CE8F
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112026.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:630D9CCA3A7F56DA817E108156432D23D98CDFE9
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112028.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FF7373CAE2470A7BC23E6A1CACB5579D7E437624
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112037.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Rock Now Mixtape (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112065.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Toby Vetter - Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112066.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ten Throne - Desolate Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112067.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0B8AF1811E35DFABA02465D1524F2760F9A68709
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112068.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112069.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kill The Kings - The Demo Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112070.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Leviathan Project - MCMLXXXII (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112071.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Trifixion - The First and the Last Commandment (1995) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112073.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Transgressor - Ether for Scapegoat (1992) Reissue, 2015, Memento Mori [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112074.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Rock Fun & Happy Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112076.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kelly Holbert - Early Dog (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112093.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ At The Cross - Sword Of The Spirit (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112094.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:873D7DC015477446E3B5DD8F92752B1D67DF9922
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112129.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:8C7E781AF3D746F1DB5DE745A590CAD1A0AA9C2A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112150.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tad Morose - March of the Obsequious (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112152.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tad Morose - Chapter X (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112153.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Teutonic Slaughter - Puppeteer of Death (2018) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112154.jpg" />
 </div>
 
 

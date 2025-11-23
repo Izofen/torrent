@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22172.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22172.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:10A0B4AAD17B6D8D027891F04261813B3E7F0FCA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22177.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22177.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jigsawscapes® - Пазлы v3.8.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22183.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22183.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ashampoo Music Studio 11.0.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22196.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22214.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22214.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ AOMEI Partition Assistant Technician Edition 10.8.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22216.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22216.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22223.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22223.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7D762BFBC06C9D1D1E30A7E94C29245D51287DA1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22247.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ AirBrush: ИИ Фоторедактор v7.7.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22252.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ StaxRip 2.46.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22263.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ FolderSizes 9.7.515 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22267.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22267.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ KineMaster - Video Editor & Maker v7.6.6.34564.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22270.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22275.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22275.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Extreme Picture Finder 3.67.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22276.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:90B2B2B1101C68E0B7F60B959F002123EA4B153B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22280.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ O&O DiskImage Professional 20.2 Build 358 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22282.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0504) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22301.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:34FE5CD21AC5DF2006A3A551A347C4389BE1B6F0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22305.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ventusky: Прогноз погоды v43.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22310.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Internet Download Manager 6.42 Build 32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22324.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 04.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22326.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ NVIDIA GeForce Desktop Game Ready 572.83 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22351.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Free Download Manager 6.26.2.6190 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22354.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:4AE2AE05EE7B90A9E1D3C619E617ABDEE57CAD20
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22359.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:1E54C55FCBEB9B7E97661A415B2433B7C98275E2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22361.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Pulsar Modular - P821 MDN Tape 1.0.0 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22366.jpg" />
 </div>
 
 

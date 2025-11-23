@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Knots | Узлы, вязание узлов [34 книги] [PDF, DJVU, EPUB] [E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75D6CB8D7D8D8240E565EC5FA8A6A9CB5D976AC6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:246E8037666784B22EAF47D0DFAD962BAF38C3BD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43388.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AFE54B186B5F7964A394B0C568638C2DC515557A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43389.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BDC5C427C3B866B5C9D3710A95FDF72962710BF7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43390.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:47CB0FE6B3A49954427C1E989B8E4FF24BD92C89
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43391.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C08F25D46B8E38CA71668EE3356678AFCEF6604D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43392.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:4C30A8646F08E5AE88231BACB37FF7C62BD1E697
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:48F2EBC37531EC15F4E625DDC3626842C351C757
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43394.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ReLens - Фокус и размытие DSLR 3.4.2 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43395.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:B322E5DB98D9B2D531811D34BA50DEAF8B6C309A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43396.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43397.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43398.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ simplewall 3.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43399.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8C7C85E31BF01D48FFAADEAFE502B35AE93C5014
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43400.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:629C81297B426A77C5B1B954A0DE7C4B6C197CA0
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43401.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Assassin's Creed (2008) [Ru/En] (1.0.2) Repack dixen18 [Director's Cut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43402.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43403.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:5C1005A9A506BC0F261EB799438200C1718FB2B7
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43404.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:20AEAEB18A1177E8118494828C83BA637EA987D4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43405.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43406.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Rock, the best (2024) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43407.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43408.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43409.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:6153C9FBC4EA7FBB21C2052E839EAED6716FF614
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43410.jpg" />
 </div>
 
 

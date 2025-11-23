@@ -6,7 +6,7 @@ Microsoft Windows 11 IoT Enterprise/LTSC 2024 [10.0.26100.1742], Version 24H2 - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.26100.1742], Version 24H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41852.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3D56A6F0ACF5F3B1032747F5B18D70351711C540
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41853.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7EEE097AF20209D383E599B6BFC4A888C2F4120C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41854.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8A650CE45844635DEDA8E0F63DB0B45DE71890C5
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41855.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 5) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41856.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Fable | Фэйбл [2024, TV, 25 из 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41857.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F6FD81D1A04B9185063E1CBC1596EAA6E26DD504
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41858.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Microsoft Windows 11 Enterprise LTSC 2024 [10.0.26100.1742], Version 24H2 - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41859.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:7D2947FFFDD55BE17BBF391B2F7D85BF98A7CD31
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41860.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VMWare Workstation Pro for Personal Use 17.6.0 Build 24238078 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41861.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:8A7A158F607DA654CB778F79519380DC5912C2B3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41862.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Microsoft Windows 11 [10.0.26100.1742], Version 24H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41863.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9FA8F8944DAE706F694018FA14669659EDD65DA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41864.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:CD7AE267D54137C732C1458DA7217FFA4D73378B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41865.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D504C9013F12C64CFE7DE781B5C2D124306F33FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41866.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D504C9013F12C64CFE7DE781B5C2D124306F33FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41867.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Paul Di'Anno - The Book of the Beast (2024) Compilation [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41868.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Шансон для пацанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41869.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:498171DA3C89705CB2FDC40E4738426116F47699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41870.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Eguana - Invisible Civilization, Vol. 6 (2024) [MP3|320 Kbps] <Ambient, Psychill
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41871.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C868CE2D27AF3C10E65DB26B5C3982CE8EA09188
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41872.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41873.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:A5A444409481D9DB14F7B7F1AD30CA835C0F3B3A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41874.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:EB7529CC8B8A1265C3651471FA3896D718AB843A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41875.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4C9F21295B71D71C20060E437225FF452E0ADA3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41876.jpg" />
 </div>
 
 

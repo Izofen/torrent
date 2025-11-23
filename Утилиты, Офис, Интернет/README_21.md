@@ -6,7 +6,7 @@ RegCool 2.040 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29168.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DiskSavvy Pro/Ultimate/Server/Enterprise 17.3.14 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29173.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29173.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Foxit PDF Editor Pro Subscription 2025.2.1.33197 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29195.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ iFind Data Recovery 9.7.40.0 RePack (& Portable) by elchupacabra [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29227.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29227.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Auslogics Driver Updater 2.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29253.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Active@ Disk Editor 25.0.7 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29254.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Macrorit Disk Scanner 7.1.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29265.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Macrorit Data Wiper 8.2.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29271.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Macrorit Partition Extender 2.6.0 Unlimited Edition RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29290.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29290.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DisplayFusion Pro  + Portable + MSI 11.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29314.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NoMachine 8.16.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29497.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VueScan Pro 9.8.44 + OCR Portable by FC Portables [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29523.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29523.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29728.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Musify Music Downloader 3.9.2 RePack (& Portable) by elchupacabra [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30037.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Auslogics SSD Optimizer Pro 2.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30087.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30087.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Psiphon 3 build 185 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30092.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30092.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ DVDFab StreamFab 6.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30135.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30135.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30264.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ TrafficMonitor 1.85 Portable [En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30278.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30278.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Macrorit Disk Scanner 7.1.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30361.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30374.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Icecream PDF Editor Pro 3.28 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30870.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30957.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30957.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ NIUBI Partition Editor 10.2.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30995.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30995.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ BurnAware Professional 18.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31083.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Directory List & Print Pro 4.33 + Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31389.jpg" />
 </div>
 
 

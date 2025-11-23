@@ -6,7 +6,7 @@ WinCatalog 2024.10.1.410 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21885.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Attribute Changer 11.40a + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22146.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22146.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Hosts File Editor+ 1.5.16 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22430.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CopyQ 10.0.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22537.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22537.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ KStars 3.7.6 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22813.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Start Everywhere 1.4.2.42 (x64) Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22852.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22852.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Resource Hacker 5.2.8.448 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23045.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E8026287DF8C89083948E1D41F0ED4C70795220A
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23276.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23276.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ John’s Background Switcher 6.0.0.6  + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23442.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3017 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23511.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ CherryTree 1.4.0.0 (x64) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23733.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WizFile 3.12 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24898.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24898.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ KMS Tools Portable by Ratiborus 08.03.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25273.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Resource Hacker 5.2.8.448 Portable by alexalsp
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25439.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25439.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Resource Hacker 5.2.8.448 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25538.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25538.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ USB Image Tool 1.91 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25551.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25551.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Asus TUF Aura Core (Portable) 2.0.4.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25775.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ CareUEyes 2.4.9.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25973.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:02577ECA3055C83F01E99621183AD48272BEC346
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26005.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ WizTree Enterprise 4.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26193.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26193.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ EMCO UnLock IT 7.0.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26210.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DesktopDigitalClock 5.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26286.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ HashTools 4.8.2 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26473.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ SyMenu 8.06.9162 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26504.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ IconTo Pro 7.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26530.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26530.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wallpaper Engine 2.6.19 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27564.jpg" />
 </div>
 
 

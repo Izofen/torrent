@@ -1,3 +1,176 @@
+###  Публикация: 969002   (150406) от 25.12.2015
+
+The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150406.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E87D60D34E7F8FA57249618EBBD94D66E8EF9F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434363   (150407) от 24.12.2020
+
+Pascal's Wager v0.2.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pascal's Wager - это мрачная и стильная экшн RPG на мобильные устройства, обладающая великолепной графикой нового поколения. Действие игры разворачивается в тёмном мире, в котором в результате природного катаклизма солнце опустилось на дно океана. Лишённый света континент внезапно оказался покрыт чёрным туманом. Местные жители сходят с ума, и никто не знает почему. (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: v0.2.1Разработчик: Giant GlobalПоддерживаемая ОС: Android 5.0+Жанр: RPG, ЭкшнЯзык интерфейса: Русский, Английский, Испанский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5046D816EEC65B3452452A79020077207D173029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086856   (150409) от 25.12.2016
+
+Первая передача на НТВ. Автомобильная передача (2016.12.25) HDTV [H.264/1080i] (выпуск 275)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150409.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВ HDЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BED54AF180B43DD933BFCD74800F37DE418ECD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271334   (150410) от 23.12.2018
+
+Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <Fusion,  Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Island
+02. The Flow
+03. Drunkenstein
+04. Glass Fishes(   Читать дальше...   )Жанр: Fusion,  Jazz-RockПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9112EC82B02274FED7C598EEA97CD0C9CA65BDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518957   (150411) от 22.12.2021
+
+Заснеженное Рождество / Christmas Au Pair (2021) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая воспитательница Кейли не может поехать домой на Рождество из-за зимней метели. Несмотря на разочарование, она хочет передать своим воспитанницам волшебство праздника. Получится ли у нее создать идеальное Рождество в неожиданной ситуации?Производство: КанадаЖанр: МелодрамаРежиссер: Джейсон БуркАктеры: Джереми Гилбо, Джульетт Хабихт, Меган К. Лиз, Кэссиди Слингсби, Брендан Дж. Роулэнд, Лаура Йенга, Дэйв Кеннет, МакКиннонПеревод: Многоголосый профессиональный (КиноПоиск HD)Субтитры: ОтсутствуютПродолжительность: 01:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10233F83D03AA13CEACD48F57F29E844A9AF98DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677536   (150413) от 18.11.2023
+
+Агитпроп. Война с абортами (18.11.2023) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фронтальное наступление на аборты, начавшееся на этой неделе, должно иметь какое-то объяснение. Почему отсылки к советскому опыту лишь отвлекают от истинной причины?Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаЯзык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23FCE8A54A53633EE86655945DB7F24383E6C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968960   (150414) от 25.12.2015
+
+Проекты - Проект ProShow Producer - Revue 2 [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Презентация широкого применения. В данном случае применены фото репортажа с музыкального фестиваля.
+Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью и аудио трек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32022FEACAD63A55CA82C2735D55C4833AF34E7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429411   (150415) от 24.12.2020
 
 Приключения Раввина Якова / Les Aventures de Rabbi Jacob (1973) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +179,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150415.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:14D567B37C900F230D8271FBB6A9B918FECE2BAE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150416.jpg" />
 </div>
 
 
@@ -56,7 +229,7 @@ VA - Deep Six (1986) Reissue, 1994, A&M Records [FLAC|Lossless|tracks + .cue] <G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150417.jpg" />
 </div>
 
 
@@ -83,7 +256,7 @@ magnet:?xt=urn:btih:8666098841A2112953C15E6A298D7DF69946CB19
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150418.jpg" />
 </div>
 
 
@@ -107,7 +280,7 @@ Rainbow - Ансамбль Rainbow (1990) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150420.jpg" />
 </div>
 
 
@@ -134,7 +307,7 @@ magnet:?xt=urn:btih:B57E62E143104D815BA4E1B9BF2D8A78D044FB05
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150421.jpg" />
 </div>
 
 
@@ -158,7 +331,7 @@ magnet:?xt=urn:btih:1B67D7A8E3323AC1A737EC7809AD3C30C96B4261
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150423.jpg" />
 </div>
 
 
@@ -182,7 +355,7 @@ magnet:?xt=urn:btih:26C9E4BE2508C84CADC8258717B5D7B5FE7BA444
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150424.jpg" />
 </div>
 
 
@@ -206,7 +379,7 @@ magnet:?xt=urn:btih:706F682B5BF7FDF9394642FD8E994558EA3446DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150425.jpg" />
 </div>
 
 
@@ -230,7 +403,7 @@ magnet:?xt=urn:btih:0A067730CC9A385BD29E3722062F441D8BC17A78
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150426.jpg" />
 </div>
 
 
@@ -254,7 +427,7 @@ Wondershare PDFelement 10.1.7.2541 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150427.jpg" />
 </div>
 
 
@@ -278,7 +451,7 @@ Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150430.jpg" />
 </div>
 
 
@@ -305,7 +478,7 @@ magnet:?xt=urn:btih:3CB6E11856337F7162D8BBC1AEC62DF63A317183
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150431.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_150431.jpg" />
 </div>
 
 
@@ -329,7 +502,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -362,7 +535,7 @@ Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150434.jpg" />
 </div>
 
 
@@ -388,7 +561,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150435.jpg" />
 </div>
 
 
@@ -412,7 +585,7 @@ Short Menu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150436.jpg" />
 </div>
 
 
@@ -439,7 +612,7 @@ Icecream PDF Editor Pro 3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150437.jpg" />
 </div>
 
 
@@ -463,7 +636,7 @@ magnet:?xt=urn:btih:A2DFF0F6E51484CC31375E236A9ACECB480EACA3
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150438.jpg" />
 </div>
 
 
@@ -474,180 +647,6 @@ magnet:?xt=urn:btih:A2DFF0F6E51484CC31375E236A9ACECB480EACA3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E41D0BA29DDBF18069AED1CF8FFCB3A5948108
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434310   (150439) от 24.12.2020
-
-IObit Driver Booster Pro 8.2.0.306 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3896ADE0B1ADC7E87A4AAA55911ADDE169112E89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677519   (150440) от 18.11.2023
-
-VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delbert McClinton & Dick50 - She's Not There Anymore [03:04]
-02. Tito & Tarantula - After Dark (2015 Remaster) [03:44]
-03. John Mayall - So Hard To Share [06:57]
-04. Vargas Blues Band - Blues latino [05:33](   Читать дальше...   )Жанр: Blues, Rock, LatinoПродолжительность: 06:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F10CC40111FD383B2A4C8C4CA01D4A421EE800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518912   (150441) от 22.12.2021
-
-Microsoft Windows 10.0.19043.1415, Version 21H1 (Updated December 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1415.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CDBC747A73EDE5AB5CCFAF097E2E48BACDC86B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966581   (150442) от 25.12.2015
-
-Валерий Чкалов (1941) DVDRip [H.264] [Полная версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биографическая киноповесть о легендарном летчике Валерии Чкалове, герое Советского Союза.Производство: СССР, ЛенфильмЖанр: БиографияРежиссер: Михаил КалатозовАктеры: Владимир Белокуров, Ксения Тарасова, Василий Ванин, Петр Березов, Сергей Яров, Борис Жуковский, Семен Межинский, Игорь Смысловский, Федор Богданов, Михаил Геловани, Всеволод Вербицкий...Продолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399192A79106EEE0C5D45D9E80A008F6A73AFA75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589306   (150443) от 14.12.2012
-
-Паранорман, или Как приручить зомби / ParaNorman (2012) DVD5
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: английский, русский, чешский, греческий, эстонский, латышский, литовскийПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0C59E495AC321F108657AAEEC0DC3ACD7A3074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086343   (150444) от 25.12.2016
-
-Оптические "нервы" дадут роботам осязательные чувства, максимально приближенные к человеческим
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Термины "мягкий" и "нежный" очень редко употребляются по отношению к работе захватов различных робототехнических устройств. Но, благодаря работе исследователей из лаборатории Organic Robotics Lab Корнуэльского университета (Cornell University), роботы-андроиды смогут обрести чувство осязания, мало чем уступающее человеческому, что обеспечит их (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434325   (150446) от 24.12.2020
-
-The Bat! Professional 9.3.2.0 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150446.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0DEBA85CF59413A02D9E9C82515B9B9DCC43C6
 ```
 
 

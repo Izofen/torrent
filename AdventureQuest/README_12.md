@@ -6,7 +6,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20454.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20515.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20543.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20543.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20613.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20861.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20861.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20871.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21019.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21028.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21595.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21787.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21883.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21906.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21980.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22025.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22063.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22065.jpg" />
 </div>
 
 

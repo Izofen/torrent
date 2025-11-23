@@ -1,3 +1,80 @@
+###  Публикация: 474399   (85016) от 28.03.2012
+
+Август. Восьмого (2012) [H.264] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда события нанизываются одно на другое, когда каждая минута ставит тебя перед выбором, когда жизнь и смерть становятся частью страшной компьютерной игры, пульт от которой - в чужих руках, тогда ты начинаешь действовать так, будто каждая минута - последняя. Казалось бы, жизнь хорошенькой разведенной москвички Ксении оставляет не много места для драматических ситуаций: да, сын Тема тяжело переживает развод родителей, да, поклонник поглощен карьерой, да, мама вмешивается в личную жизнь, - но трудно назвать эти обстоятельства критическими. Все меняется, когда бывший муж, офицер миротворческих сил, просит Ксению прислать Тему к нему, подышать горным воздухом в прекрасной деревушке в доме его родителей! Он уверяет, что это совершенно безопасно - да маленький Тема и не чувствует никакого страха, ведь рядом папа, добрый и непобедимый герой. Но наступает день, когда вражеские танки входят в город - и мир самых страшных игровых иллюзий мальчика становится реальностью. На экране оживают компьютерные драконы и злые космические (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Джаник ФайзиевПродюсер: Джаник Файзиев, Илья Бачурин, Фёдор БондарчукАктеры: Светлана Иванова, Максим Матвеев, Егор Бероев, Артем Фадеев, Владимир Вдовиченков, Сергей Газаров, Гоша Куценко, Анатолий Белый, Кирилл Плетнёв, Алексей ГуськовПеревод: ОригинальныйПродолжительность: 02:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF3BF80055FFC225812300906520D9C3AEBEEC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473591   (85017) от 28.03.2012
+
+Дмитрий Париев | 30000 за 4 недели [2012] [Unpacked]
+
+>>Мультимедийные материалы
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий париев - автор таких курсов как: Дизайн + 3D оформление обложки за 3 минуты WordPress Access Быстрый Интернет-магазин и других. Он предлагает способ зарботка 30000 рублей, всего-лишь за 4 недели.
+Хотите зарабатывать в Интернете? Забирайте пошаговый алгоритм, который просто великолепно подходит для старта с нуля! Вы получите план действий на каждую неделю, следуя которому даже наполовину, вы заработаете КАК МИНИМУМ 10000 рублей за 4 недели. Результат сильно зависит от вас, но 10 000 рублей по этой схеме заработать может каждый  даже при минимуме усилий. Если же вы будете выполнять все задания, то заработаете 30 000 и более за первые 4 недели.
+Как заработать в интернет 30 000 за четыре недели — смотрите в тренинге Дмитрия Париева. Просто повторяйте и заработайте!2012Жанр: Бизнес-Система для интернетаФормат: Unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5968D9566D792904F085A89292FC41D8DBCDC6B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474534   (85018) от 28.03.2012
+
+Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85018.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
+02. Dance In The Dark
+03. Glitter And Grease
+04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474471   (85019) от 28.03.2012
 
 1+1 / Intouchables (2011) [H.264] HDRip
@@ -6,7 +83,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85019.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:18902CE99A638B5802CAA9B05DE9407C140BB311
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85020.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ HD Moods: Аквариум / HD Moods - Aquarium (2008) BDRip [1080p]
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85021.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:1577A1997078EF76C39CE4BC41AD42C902C0D47C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85022.jpg" />
 </div>
 
 
@@ -103,7 +180,7 @@ The Regiment / The Regiment. Британский спецназ [Ru] (P) 2006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85023.jpg" />
 </div>
 
 
@@ -127,7 +204,7 @@ magnet:?xt=urn:btih:4CDD8C25459861EC3E05EC61DDF36D03B665EA63
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85024.jpg" />
 </div>
 
 
@@ -151,7 +228,7 @@ magnet:?xt=urn:btih:EB7FBD6C4CA51737F9516A06F99612008E0859FC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85025.jpg" />
 </div>
 
 
@@ -177,7 +254,7 @@ magnet:?xt=urn:btih:3F9E1C08FBE624E293C4B039BAAECE7ADC587401
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85027.jpg" />
 </div>
 
 
@@ -203,7 +280,7 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85029.jpg" />
 </div>
 
 
@@ -227,7 +304,7 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85030.jpg" />
 </div>
 
 
@@ -251,7 +328,7 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85032.jpg" />
 </div>
 
 
@@ -275,7 +352,7 @@ magnet:?xt=urn:btih:DA41E55139FACCB08992902871970D44DC53723C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85033.jpg" />
 </div>
 
 
@@ -299,7 +376,7 @@ VA - Dj Club Radio Record. Vol. 1 (2012) [MP3|256 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85034.jpg" />
 </div>
 
 
@@ -332,7 +409,7 @@ magnet:?xt=urn:btih:52A1C3036983C3849C80AD8007F01F35D642DBD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85035.jpg" />
 </div>
 
 
@@ -356,7 +433,7 @@ Fallout: New Vegas Ultimate Edition [Multi5/-] (L) 2012 l PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85036.jpg" />
 </div>
 
 
@@ -384,7 +461,7 @@ Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 |
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85038.jpg" />
 </div>
 
 
@@ -408,7 +485,7 @@ magnet:?xt=urn:btih:73F37E741DCE4516ED9B65C9AFF3172058F2354F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85039.jpg" />
 </div>
 
 
@@ -432,7 +509,7 @@ magnet:?xt=urn:btih:AC4DC8FD758093620C35DA6E8030D1B2860B5D81
 >>Ментовские войны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85042.jpg" />
 </div>
 
 
@@ -456,7 +533,7 @@ magnet:?xt=urn:btih:AC4DC8FD758093620C35DA6E8030D1B2860B5D81
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85043.jpg" />
 </div>
 
 
@@ -480,7 +557,7 @@ magnet:?xt=urn:btih:3F7E74037BC71B4F7BCEAF4DB97B61D903457C05
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85044.jpg" />
 </div>
 
 
@@ -504,7 +581,7 @@ magnet:?xt=urn:btih:C87CEDC73CC82F2C04A2F0D71BF9F34973994653
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85045.jpg" />
 </div>
 
 
@@ -528,7 +605,7 @@ magnet:?xt=urn:btih:C87CEDC73CC82F2C04A2F0D71BF9F34973994653
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85046.jpg" />
 </div>
 
 
@@ -552,7 +629,7 @@ magnet:?xt=urn:btih:C87CEDC73CC82F2C04A2F0D71BF9F34973994653
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85048.jpg" />
 </div>
 
 
@@ -564,88 +641,6 @@ magnet:?xt=urn:btih:C87CEDC73CC82F2C04A2F0D71BF9F34973994653
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5246BA360010EC1932A8957F6E1CD4FB3BD78F97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475042   (85051) от 29.03.2012
-
-Tina Turner - Best Ballads (1996) [APE|Lossless]<Rock, Soul, R'n'B, >
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever You Want (4:56)
-02. What's Love Got To Do With It (3:52)
-03. I Don't Wanna Lose You (4:25)
-04. Change Is Gonna Come (4:49)
-05. Golden Eye (3:32)
-06. Paradise Is Here (5:36)
-07. Help (4:33)
-08. I Don't Wana Fight (6:09)
-09. We Don't Need Another Hero (4:18)
-10. Look Me In The Heart (3:46)(   Читать дальше...   )1996Жанр: Rock,Soul, R'n'BПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475034   (85053) от 29.03.2012
-
-Четыре мушкетера / The Four Musketeers (1974) [H.264/720p-LQ] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевские мушкетеры Д`Артаньян, Атос, Портос и Арамис — отнюдь не святые. Вино, женщины и тугой кошелек порой заставляют забыть о долге. Но о чести — никогда! Пока старые друзья вместе, любые происки коварных агентов кардинала будут разбиты, ведь девиз мушкетеров — «Один за всех и все за одного!»Производство: Испания, Панама / Alexander, Michael and Ilya Salkind Productions, Este Films, Film Trust S.A.Жанр: Приключения, ИсторияРежиссер: Ричард ЛестерАктеры: Оливер Рид, Рэкел Уэлч, Ричард Чемберлен, Майкл Йорк, Фрэнк Финлей, Кристофер Ли, Фэй Данауэй, Чарлтон Хестон, Джеральдин Чаплин, Жан-Пьер Кассель, Рой Киннер, Майкл Гозард, Николь Кальфан, Анхель дель ПозоПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4944E431DBD760E3FA5C6A1F64AA21DA8713D772
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475245   (85058) от 29.03.2012
-
-Н.А.Рубакин | Миллионы лет истории Русской земли [2009] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга Николая Александровича Рубакина, выдающегося русского просветителя, ученого, книговеда, библиографа, библиофила, популяризатора науки и писателя, виднейшего теоретика и практика самообразования, которая впервые увидела свет в 1920 г.
-По существу, она состоит из трех книг:2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB7EB2926C94D14B7033699BA223D051BCAD059
 ```
 
 

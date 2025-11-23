@@ -1,3 +1,77 @@
+###  Публикация: 1676763   (127015) от 20.12.2023
+
+Astra Linux Special Edition 1.7.5 [amd64] 2xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127015.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОС Astra Linux Special Edition 1.7.5 на базе Debian 10 (buster).
+Astra Linux Special Edition 1.7.5 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3698A8AC0971D9F45A83A6A3F02396501CDB37E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069836   (127016) от 20.12.2023
+
+UFS Explorer Professional Recovery 5.20.3 RePack (& Portable) by Trovel [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127016.jpg" />
+</div>
+
+
+###  Подробнее
+
+UFS Explorer Professional Recovery разработан практикующими специалистами и имеет интерфейс, ориентированый на профессионалов. Содержит набор инструментов для низкоуровневого анализа и восстановления данных, включая восстановление RAID массивов любой сложности.
+Позволяет успешно работать со сложными случаями потери данных на широком спектре файловых систем. Версия (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC3A029E5AAD1195DA4AE7D08250BE144F7582F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654616   (127017) от 20.12.2023
+
+Лайт HD ТВ v3.6.0 Mod by vadj [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 19.12.2023Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4BFB37CB6F23C5B642CEB85E22AED3133B13E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685857   (127018) от 20.12.2023
 
 Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
@@ -6,7 +80,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127018.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:6ED9C24D26E84D94F631F4F66CA0BF1A3CCE6713
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127019.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:1E845DB14315E82032DD80145DC07A1E5C17F541
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127020.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ Microsoft Windows 10 [10.0.19045.3803], Version 22H2 (Updated December 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127021.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:B55180520112E9C6D7D7518E7949AB3B7FC2DAB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127022.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ magnet:?xt=urn:btih:5F0086BFB2A7A86D0D33330F32F0D4D56BA93C39
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127023.jpg" />
 </div>
 
 
@@ -153,7 +227,7 @@ Need for Speed: The Run (2011) [Ru/En] (1.1.0.0/dlc) Repack Decepticon [Limited 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127024.jpg" />
 </div>
 
 
@@ -177,7 +251,7 @@ magnet:?xt=urn:btih:355DE41B2C215F82C0AEF8B1AA0A6C390594C18F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127025.jpg" />
 </div>
 
 
@@ -201,7 +275,7 @@ magnet:?xt=urn:btih:52DEE3C7CE77E2793F1B809AFFA3A04139EA0414
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127026.jpg" />
 </div>
 
 
@@ -225,7 +299,7 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127027.jpg" />
 </div>
 
 
@@ -250,7 +324,7 @@ magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127028.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ magnet:?xt=urn:btih:85ED2769AC5142AC8662E41B503954C0B32A52A6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127029.jpg" />
 </div>
 
 
@@ -301,7 +375,7 @@ magnet:?xt=urn:btih:2E8D5D89A7C6BA8EF955A3D32E5A5224F40D9020
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127030.jpg" />
 </div>
 
 
@@ -325,7 +399,7 @@ Secret Of Darkness - Blacksun Rising (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127031.jpg" />
 </div>
 
 
@@ -352,7 +426,7 @@ magnet:?xt=urn:btih:21A93A49718FE8766EF4D90D7CD7FD0D69523411
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127032.jpg" />
 </div>
 
 
@@ -376,7 +450,7 @@ Lunacy - Disconnection (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove, Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127033.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127034.jpg" />
 </div>
 
 
@@ -430,7 +504,7 @@ Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127035.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ Warcrab - The Howling Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127036.jpg" />
 </div>
 
 
@@ -484,7 +558,7 @@ Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127037.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ Warcrab - Scars of Aeons (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127038.jpg" />
 </div>
 
 
@@ -538,7 +612,7 @@ Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127039.jpg" />
 </div>
 
 
@@ -565,7 +639,7 @@ magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127040.jpg" />
 </div>
 
 
@@ -576,81 +650,6 @@ magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F3D4958398BFE806913CC49EF8EEE0A13A0220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685732   (127041) от 19.12.2023
-
-Вальтер Скотт | Чёрный Карлик (2022) [MP3, Наталья Домерецкая]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Вальтер Скотт (1771–1832) – шотландский поэт, прозаик, историк, адвокат. Стоял у истоков зарождения нового жанра в литературе – исторического романа.
-Предлагаем вашему вниманию один из ранних романов знаменитого английского писателя Вальтера Скотта «Чёрный карлик» (1816), входящий в цикл «Рассказы трактирщика». Действие романа происходит (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: Студия «АРДИС»Продолжительность: 06:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC20A5121027AFAA8048D9D92D0F79854BDB6D16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685657   (127042) от 19.12.2023
-
-Вальтер Скотт | Пират (2014) [MP3, Юрий Заборовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вальтер Скотт (1771–1832) – шотландский поэт, прозаик, историк, адвокат. Стоял у истоков зарождения нового жанра в литературе – исторического романа.
-Действие романа «Пират», происходит на полудиких скалистых Шетлендских островах конца XVII века. Жизнь местных жителей протекала относительно мирно и спокойно, но однажды во время шторма у шетлендских берегов терпит (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романИздательство: Нигде не купишьПродолжительность: 23:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A2A0BB862ABE00E5A9662A3E15EA4744BEAF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685688   (127043) от 19.12.2023
-
-Журнал | Делаем сами №24 (549) (декабрь 2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127043.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6143E3A6F5B9C00B9A18370F786DD67439580C
 ```
 
 

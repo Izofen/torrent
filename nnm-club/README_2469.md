@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64942.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:12D94F44F4D47ED0012B7129A35BD8DB0F7CECA0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64943.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Tomoyasu Hotei - Compilation (1988-2025) [MP3|320 Kbps] <Rock, Miscellaneous>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64944.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9048FCEF53FC8CA084FB119EF3049B4BE4D8C70C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64945.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64946.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:57DB52D725ED4A7E4CCC8ED6DE608D055A9422D4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64947.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64948.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Bruce Dickinson - More Balls to Picasso (1994)(2025 Reimagined Version) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64949.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Rapture - Rapture (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64950.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64951.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Elton John - Live From The Rainbow Theatre With Ray Cooper (Live From The Rainbo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64952.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:D07C42F203621E0E02F3C9A3A7C53A4B0F6ECBD9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64953.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:9B363217C93FA005A03A25EBD799ED3E7E33B9BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64954.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:5B7A0E253C5D4A40D04902AF4EE87466A4401FB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64955.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Armin van Buuren - A State Of Trance 1235 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64956.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:7B64DBD730C9CD03429CDEC5174C301CCA36A7F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64957.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:D27420EBD372A6F7DBCB23553A5830DA1B7AAA2C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64958.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Crimson Shadows - Whispers Of War (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64959.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B988F588AE23B44CEE5AAD50D9F4A7412CF7D225
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64960.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:03974F366D59AF9E02329A0BAC1D582FE92ECC82
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64961.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A0A641BB7A59DF989F55B74F49A05476AB894FB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64962.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - R&B Throwbacks 90s & 00s. 100 Classic Hits (2025) [MP3|320 Kbps] <Pop, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64963.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:37C8F1602A1819095A2D0F733D812660A6AEA357
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64964.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64965.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - The Voice Of Jazz: Vocal Essence (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64966.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:C82CF745DE2A68B3014D91E711DBF68D4E4E69C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64967.jpg" />
 </div>
 
 

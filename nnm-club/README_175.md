@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4604.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4605.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Helloween - Compilation (1985-2025) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4606.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EFDD5F9B6A27563FC9FDCDC83234BABC14A48972
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4607.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F5639BB368FA642C6A45B67A708DDE04073BEB71
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4608.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7E878EE8C6E3A640840E77FC56906780A80B10A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4609.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:06F158B1D20F58D5904F769A5D125E9074B01273
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4610.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9913B28EC01D3384F286A78C2623148E2E141BE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4611.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:09017B05D02E11890C28B871CE423C5CD45AF538
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4612.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Let'sРlay [Year 1 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4613.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8DA4931B3D0B8F08DD0F262200F5CB9E44E0519C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4614.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:7BA99CFD4EB0AF18AC3E0AC1DF3D3DD925C2D919
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4615.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7BA99CFD4EB0AF18AC3E0AC1DF3D3DD925C2D919
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4616.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4488F448E6D252A157379EF455812E5C6D160041
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4617.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B2B0FC83418111A7F0DD1B16E364221C79883DB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4618.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4619.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4620.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4621.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A1A2F98D53B1DA7CFA3995DDFBA0B6B25A61B929
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4622.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:E7EB2A4D906327EDA5FD7F77E19538B2757BF54E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4623.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4624.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4625.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack seleZen [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4626.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A468F8BA0348F258BA6A459010EB4EFA3972B564
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4627.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5B0AE312C2E71B5B13F0B6139B88AD56F9C66BEC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4628.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - 50 лучших хитов, Часть 5 (2025) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4629.jpg" />
 </div>
 
 

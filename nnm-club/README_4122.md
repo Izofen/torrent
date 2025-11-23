@@ -1,3 +1,78 @@
+###  Публикация: 1685879   (126859) от 20.12.2023
+
+Великий Руперт / The Great Rupert (1950) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на рассказе Теда Аллана... История вращается вокруг маленькой белки по кличке Руперт, которая с большим обаянием случайно помогает двум экономически неблагополучным семьям преодолеть их препятствия...Производство: США, George Pal ProductionsЖанр: комедияРежиссер: Ирвинг ПичелАктеры: Джимми Дюранте, Терри Мур, Том Дрэйк, Фрэнк Орт, Сара Хейден, Куеени Смит, Чик Чандлер, Джимми Конлин, Руперт, Хью СандерсПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21277C3535B1D04C24149504AC9490A308D2DA68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685662   (126860) от 20.12.2023
+
+Dusk - My Infinite Nature Alone (1999) Remaster, 2021, rearts records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Moriendi [01:35]
+02. Returning To Pathos [10:53]
+03. Forty Seasons From Now [07:42]
+04. Await [04:56](   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBE72797DD4FFC7107DB3472018333D13F24C68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685877   (126861) от 20.12.2023
+
+Софья Деркач | Одно убийство старого года (2023) [MP3, Мила Манышева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канун Нового Года. Все наряжают елки, смотрят добрые фильмы и готовят подарки. Все, кроме Жени, которой пришлось сидеть с собакой тети в ее коттедже, пока та в отпуске. Все бы прошло скучно: болтливые соседи по поселку, отсутствие снега и прогулки с собакой. Но в ее дом кто-то проник ночью, а тетя почему-то вернулась из отпуска раньше. Женя, конечно же, попыталась (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396C4E1DDD4AE8BFC7399F11CD2102CD9955B7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685876   (126862) от 20.12.2023
 
 Жорж Санд | Книга 2. Графиня Рудольштадт (2022) [MP3, Юлия Тархова]
@@ -6,7 +81,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126862.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126863.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126864.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ magnet:?xt=urn:btih:BA0A416D32B47335542B674AAA5ED3A91CFF0809
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126865.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ Gluecifer - B Sides and Rarities 1994-2005 (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126866.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ magnet:?xt=urn:btih:4AE84B632F574DD130CB69E57B34179138F13B82
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126867.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126868.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126869.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ VA - Rock Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126870.jpg" />
 </div>
 
 
@@ -242,7 +317,7 @@ magnet:?xt=urn:btih:BAD40613E4B5BE4CC9D9FA93021CAC77798C248D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126871.jpg" />
 </div>
 
 
@@ -268,7 +343,7 @@ magnet:?xt=urn:btih:914577EA535F104BF87505FF7C9C787088C4C854
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126872.jpg" />
 </div>
 
 
@@ -293,7 +368,7 @@ VA - Sunday Night Blues, Pt.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126873.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ magnet:?xt=urn:btih:C00AB5256C68AED4DAC86106093613202432DCED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126874.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:6F6AB7449E452C5BBD35BFC1D8A70358E4CD8506
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126875.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ magnet:?xt=urn:btih:0A7016F686165BAFB60BDEA3B1D0C33D8B67A8A5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126876.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126877.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:5195E8950A7958002B4FE2AE13A19D34B98A34EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126878.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ magnet:?xt=urn:btih:9D7F843FFE9162C9F592BFC79742417C3C93D81D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126879.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ Stilz - Vision (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126880.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ Electus - Episode IV (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126881.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ Natalie Antares - Выдохнуть (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126882.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126883.jpg" />
 </div>
 
 
@@ -580,7 +655,7 @@ magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126884.jpg" />
 </div>
 
 
@@ -594,86 +669,6 @@ magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5BDC387F541EC71350065B18BED78445E2CAD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685873   (126885) от 20.12.2023
-
-Жорж Санд | Книга 1. Консуэло (2021) [MP3, Юлия Тархова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XIX век. Зарубежная проза.
-Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
-Аудиостудия «Ардис» предлагает вам послушать в исполнении Юлии Тарховой дилогию о Консуэло, принадлежащую (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 37:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086981B9A0559780E1858F0F1AAC315B9734A994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686005   (126886) от 20.12.2023
-
-Electus - Episode IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More More More
-02. All the Way
-03. Got the Time
-04. If I Stay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03231405BC8B8B33E88BE02F8E8467716D9B7E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685833   (126887) от 20.12.2023
-
-Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [5:52]
-02. Let It Snow! Let It Snow! Let It Snow! (feat. Jimmy Greene) [4:38]
-03. Have Yourself a Merry Little Christmas [4:49]
-04. God Rest Ye Merry Gentlemen (feat. Keita Ogawa) [5:45](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C70F55D5EAFCE786996212F0CF38C4C3BFA95BB
 ```
 
 

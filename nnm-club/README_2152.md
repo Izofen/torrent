@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56317.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Linux для дома 22.21 [DX12] [Mint 21] [amd64] 1xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56318.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:61C5CBFE3F776F80BB85B10AA2C721F9C9F0487D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56319.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D8734DA7F3FEA62F49AE777B3E66329323FBF28C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56320.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DAED2679507D92CCB5E59B87D141372CA438E7A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56321.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:611C2D07AEE2C78FE427D84AADBDEB7FFE62809C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56322.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ninja Kamui | Ниндзя Камуи [2024, TV, 13 из 13] WEBRip 1080p raw+ru
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56323.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Autodesk Inventor Professional 2025 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56324.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7648EEB6760E30010ED5DDB43917DA07862E37A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56325.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:8D5B2F1E1ADD838C6092B2597944752E1BE32DC4
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56326.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Soviet Soldier / История советского Солдата (2024) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56327.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3205B6B6B4E75542DC5AEF886121603CE091E493
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56328.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:856091D2B89A25E2727BE3F6F3289D7601A69582
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56329.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:45DC26B5B89B3225642354BB2418A6D8BDBC0300
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56330.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56331.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56332.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:ED9621F3857EA69E93E7DAB51EED0316A3EECF24
 >>Грань / Fringe
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56333.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ FX Player Pro 3.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56334.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:120F4817A801F3DFD0A661266DE0F3DE44DFABBE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56335.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Zoner Photo Studio X 19.2403.2.542 RePack by KpoJIuK [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56336.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Abstruct - Wallpapers in 4K 2.9 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56337.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Topaz Video AI 5.0.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56338.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ AccuWeather - прогноз погоды 20.2-3-google Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56339.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8CE924BC09E3D469379715324F7B741DE762DDBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56340.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56341.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56342.jpg" />
 </div>
 
 

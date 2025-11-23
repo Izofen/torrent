@@ -1,3 +1,156 @@
+###  Публикация: 1435448   (143554) от 28.12.2020
+
+Оверлеи - GraphicRiver - Snow Effect Overlays - 25262884 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143554.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 Snow Effect Overlays - красивые наложения для ваших фотографий, сделайте быструю и легкую зимнюю сказку на ваших фотографиях. Эта коллекция изолированных декоративных текстур поможет вам добавить реалистичный эффект снега на ваши фотографии и работы. Добавьте снежного настроения за несколько секунд!.Формат: JPGРазрешение файлов: 5000x5000-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8F0C17F1E4B67AF495C8D052B3B542B9F5BE08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970330   (143556) от 29.12.2015
+
+Газета | Морфей №26 (324) (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите посмотреть на мир с высоты? А как увидеть добрый сон, знаете? Нужно избавиться от ссор и склок? Читайте наш журнал и вам улыбнется удача!Жанр: Сны, гадания, приметыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B489BF2F516E55F1AD28922419C0A7DF0331BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348666   (143557) от 28.12.2019
+
+VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mariah Carey - All I Want for Christmas Is You (4:01)
+2.Wham! - Last Christmas (4:25)
+3.Tones and I - Dance Monkey (3:29)
+4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061385   (143558) от 28.12.2016
+
+Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в альтернативной Японии, где существует спорт под названием кейдзо. Два противника стоят на платформе, плавающей в воде, и пытаются столкнуть друг друга, используя только груди и задницы. Гениально! Главная героиня Нодзоми Каминащи — старшеклассница, которая после окончания школы планирует профессионально заняться этим, хм, спортом. Девушка (   Читать дальше...   )Жанр: комедия, этти, траваРежиссер: Такахаси ХидэяПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435462   (143561) от 28.12.2020
+
+Новогодние детские песни - Новогодние Песни (2020) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Лесу Родилась Ёлочка (1:09)
+02. Расскажи, Снегурочка (1:25)
+03. Маленькой Ёлочке Холодно Зимой (1:31)
+04. Новый Год К Нам Идёт (2:05)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2611FDFEA1E4209A0F22D73876F102F915EE39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678647   (143562) от 22.11.2023
+
+VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gala Gypsy Orchestra - The Stranger (3:44)
+02. Fantastic Sounds Orchestra - Macho (A Real, Real, One) (4:00)
+03. Fantastic Sounds Orchestra - Fantasy (4:06)
+04. Hollywood - Don't Treat Me Like Your Sister (3:38)(   Читать дальше...   )Жанр: Funk / Soul, Pop, DiscoПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587332   (143563) от 16.12.2012
 
 БЕЛOFF USB [WPI] 2013.01
@@ -6,7 +159,7 @@
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143563.jpg" />
 </div>
 
 
@@ -33,7 +186,7 @@ Mozilla Firefox 44.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143565.jpg" />
 </div>
 
 
@@ -57,7 +210,7 @@ Allavsoft Video Downloader Converter 3.22.0.7300 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143567.jpg" />
 </div>
 
 
@@ -81,7 +234,7 @@ Mystery Case Files 26: A Crime in Reflection (2023) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143568.jpg" />
 </div>
 
 
@@ -105,7 +258,7 @@ magnet:?xt=urn:btih:DABD852B30E71CFCB8F36B4625EFBA0E86FE3E15
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143570.jpg" />
 </div>
 
 
@@ -132,7 +285,7 @@ VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143572.jpg" />
 </div>
 
 
@@ -159,7 +312,7 @@ RadioBOSS Advanced 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143573.jpg" />
 </div>
 
 
@@ -183,7 +336,7 @@ magnet:?xt=urn:btih:8FC4AEAB9DC404CEBB2805071E198ECD7394C395
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143574.jpg" />
 </div>
 
 
@@ -207,7 +360,7 @@ magnet:?xt=urn:btih:0EDB9A96A02AA5874722B7FCC8B88B89AD7A30E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143575.jpg" />
 </div>
 
 
@@ -231,7 +384,7 @@ magnet:?xt=urn:btih:97CF694725D7BC420CFE1AA4A3CC85D7F88DF460
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143577.jpg" />
 </div>
 
 
@@ -255,7 +408,7 @@ magnet:?xt=urn:btih:DDE84C911C75DEA8FD493C64C548BA3911767ECC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143578.jpg" />
 </div>
 
 
@@ -280,7 +433,7 @@ magnet:?xt=urn:btih:D69D65BD61AE99A2A0DA746A6BED1E34EE2D427C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143580.jpg" />
 </div>
 
 
@@ -304,7 +457,7 @@ VA - The Choice (2015) [MP3|196 - 320 кб/с] <Spacesynth, Spacedisco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143581.jpg" />
 </div>
 
 
@@ -332,7 +485,7 @@ Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143582.jpg" />
 </div>
 
 
@@ -359,7 +512,7 @@ magnet:?xt=urn:btih:AB934FF0257045777F689040B820F064393170E5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143583.jpg" />
 </div>
 
 
@@ -383,7 +536,7 @@ magnet:?xt=urn:btih:967B0D31C0132986F733891B5C90792818385739
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143584.jpg" />
 </div>
 
 
@@ -409,7 +562,7 @@ magnet:?xt=urn:btih:2CFE507441198C7315C2BE03A95C03C5E14C3A0D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143585.jpg" />
 </div>
 
 
@@ -433,7 +586,7 @@ magnet:?xt=urn:btih:034DD7396AF93E7EA41492E2B92AD4AED720929A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143586.jpg" />
 </div>
 
 
@@ -457,7 +610,7 @@ magnet:?xt=urn:btih:23D2F73B4EACA8D465AE927BEAD927F2E42E54F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143587.jpg" />
 </div>
 
 
@@ -481,7 +634,7 @@ magnet:?xt=urn:btih:EBA318A9CCF8971C07D758171B9D0748A196DBAC
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143588.jpg" />
 </div>
 
 
@@ -493,152 +646,6 @@ magnet:?xt=urn:btih:EBA318A9CCF8971C07D758171B9D0748A196DBAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B40A642621AE6C2786B1FEB6E3661BE6D122143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435537   (143592) от 28.12.2020
-
-А.А. Богачева, Д.Р. Алхасова | Приготовление блюд из овощей и грибов (2018) [PDF, RTF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы учебного пособия являются учебно-методическим комплексом модуля ПМ.01 «Приготовление блюд из овощей и грибов» по профессии среднего профессионального образования 19.01.17 «Повар, кондитер», входящей в список 50 наиболее востребованных на рынке труда, новых и перспективных профессий, требующих среднего профессионального образования (ТОП-50).
-В книге рассмотрены (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686EB7E8924267E136FB52109BDC625A85519FD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970279   (143593) от 29.12.2015
-
-Анатолий Афанасьев | Ярость жертвы (2002) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшие уголовники-рецидивисты рвутся к власти. Наступили такие времена, что ничего невозможного для них нет. В сложной многоходовой кровавой игре на кону — большие деньги и жизнь десятков людей.
-Случайно на пути зарвавшихся оголтелых преступников оказываются молодой архитектор и его возлюбленная. Парень готов постоять за себя, он не хочет ощущать себя пешкой в чьей-то (   Читать дальше...   )Жанр: Криминальный детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4CF3C85C347E5F18704F0C4842792DC2C1F3FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195353   (143595) от 28.12.2017
-
-Ералаш в кино (2017) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые новые сюжеты киножурнала «Ералаш» — теперь на большом экране. «Ералаш» — единственный юмористический сериал, который учит светлому и доброму, ведь его главные герои — дети. Мальчишки, девчонки и их родители — не пропустите такое событие! Вы увидите смешные и знакомые каждому истории из современного детства.Производство: Россия | Продюсерский центр "ЕРАЛАШ"Жанр: Детский, комедия, приключенияАктеры: Валерий Гаркалин, Андрей Леонов, Наталья Варлей, Михаил Полицеймако, Елена Медведева, Николай Валуев, Ольга Картункова, Наталия Медведева, Татьяна Орлова, Светлана Пермякова.Продолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF8D15EC7E5C43BFAB94F8F428CEF4CEE524463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587159   (143596) от 16.12.2012
-
-Замуж на 2 дня / Un plan parfait (2012) DVDRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изабель мечтает о свадьбе. Но на её семье лежит проклятие. Все первые браки неминуемо заканчиваются разводами. Поэтому, когда ее парень делает ей предложение, Изабель решает перехитрить судьбу. Она отыскивает первого попавшегося лузера, влюбляет его в себя и: вместо того, чтобы развестись, случайно влюбляется сама.Производство: Франция / Quad Productions, TF1 Films Production, Scope PicturesЖанр: мелодрама, комедия, приключенияРежиссер: Паскаль ШомельАктеры: Дайан Крюгер, Дэни Бун, Алис Поль, Робер Планьоль, Джонатан Коэн, Бернадетт Ле Саше, Этьен Шико, Лорэ Кэлами, Мэлонн Левана, Оливье КлавериПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D346329F46BE8C10BC6229B5FBFFD73F5B792C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348607   (143597) от 28.12.2019
-
-А.М. Кондратов | Следы на шельфе (1981) [FB2, DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубочайшей древности начал осваивать человек свою планету. И по мере того как растут наши знания о далеком прошлом, как в геологическую древность уходит возраст человечества, становится все более ясным, что пути расселения наших предков шли не только по суше, но и по шельфу, участку дна морского, который в эпоху великого оледенения был дорогой в Австралию и Америку, (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9A4C253355C399CC972F5F0D934DB41D4744A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678719   (143598) от 22.11.2023
-
-Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам создать одно реальное приложение, написанное на разных архитектурах, и получить практический опыт работы с различными архитектурами. Кроме того, в этой книге вы получите теоретические знания, необходимые для создания прочного фундамента архитектурных концепций, что позволит вам принимать обоснованные решения о том, как использовать их в своей (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Kodeco IncФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 ```
 
 

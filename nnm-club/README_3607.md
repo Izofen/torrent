@@ -1,3 +1,80 @@
+###  Публикация: 1706783   (113464) от 14.03.2024
+
+Кристина Агатова | Джокер в игре (2024) [MP3, Анастасия Аристархова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты гадаешь на Таро, то рано или поздно придется столкнуться с чем-то посерьезнее, чем прогноз на любовь. К Авроре приходит клиентка, у которой пропал муж! Дело слишком серьезное, но не помочь – нельзя. А карты словно сходят с ума и выдают одни неприятности. Хуже всего, что предсказания сбываются почти мгновенно! Но чужие проблемы – половина беды, а вот когда (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 05:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6183910C079C3B241CCA2757B254BE2417DC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707006   (113465) от 14.03.2024
+
+Николай Гарин-Михайловский | Детство Тёмы (2005) [MP3, Елена Евтушенко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская библиотека.
+Николай Георгиевич Гарин-Михайловский (1852–1906) – русский писатель, путешественник и инженер.
+«Детство Тёмы» – повесть автобиографическая. В ней писатель рассказал о собственном детстве, о пережитых им самим и запомнившихся ему на всю жизнь детских своих радостях, проступках, мечтах. Он писал: «В «Детстве Тёмы» вы прочтете много (   Читать дальше...   )Жанр: Русская литература для детей, классика, повестьИздательство: ДеоникаПродолжительность: 06:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1EB6AE642CB42904E71C5D39DBF81AB17CE8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706894   (113466) от 14.03.2024
+
+Софья Прокофьева | Приключения жёлтого чемоданчика (2010) [MP3, Мавлюда Гулямова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Софья Прокофьева – русская писательница, неповторимая сказочница. Автор замечательных детских повестей и рассказов «Приключение желтого чемоданчика», «Пока бьют часы», «Лоскутик и облако»...
+Эта книга о том, как можно излечить от страха и печали, злости и глупости, лени и вранья с помощью чудесных конфет, которые хранятся в жёлтом чемоданчике доброго доктора.
+
+ Софья (   Читать дальше...   )Жанр: Русская литература для детей, приключения, сказочная повестьИздательство: АудиокнигаПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3BDFE687F3B828271D983228C935240B86DE7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706739   (113467) от 14.03.2024
 
 WiFiSpoof 3.9.4.1 [Multi]
@@ -6,7 +83,7 @@ WiFiSpoof 3.9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113467.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ magnet:?xt=urn:btih:9754D7D5379CBB6FB03A9062053F54E70523E6A9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113468.jpg" />
 </div>
 
 
@@ -55,7 +132,7 @@ Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113469.jpg" />
 </div>
 
 
@@ -82,7 +159,7 @@ Cookie 7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113470.jpg" />
 </div>
 
 
@@ -107,7 +184,7 @@ Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113471.jpg" />
 </div>
 
 
@@ -134,7 +211,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113472.jpg" />
 </div>
 
 
@@ -161,7 +238,7 @@ magnet:?xt=urn:btih:C4CDC21AB8E51E7F4F6E0439FF6A9E0CFEF8BFE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113473.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ magnet:?xt=urn:btih:C4CDC21AB8E51E7F4F6E0439FF6A9E0CFEF8BFE5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113474.jpg" />
 </div>
 
 
@@ -211,7 +288,7 @@ Opera GX 107.0.5045.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113475.jpg" />
 </div>
 
 
@@ -237,7 +314,7 @@ magnet:?xt=urn:btih:62AD8481CB6E5DED2815DAF9027309E96D4158D1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113476.jpg" />
 </div>
 
 
@@ -261,7 +338,7 @@ VA - Перекати-поле. Песни на стихи Лидии Козло
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113477.jpg" />
 </div>
 
 
@@ -288,7 +365,7 @@ Kaleidoscope 4.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113478.jpg" />
 </div>
 
 
@@ -314,7 +391,7 @@ Prism 10 v.10.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113479.jpg" />
 </div>
 
 
@@ -339,7 +416,7 @@ magnet:?xt=urn:btih:1DB97111E0BB2591A97C19420BA9FF4468CA6D1C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113480.jpg" />
 </div>
 
 
@@ -363,7 +440,7 @@ magnet:?xt=urn:btih:AC90DAEF90C2D0120E0167AA9247DA91B25A7CB7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113481.jpg" />
 </div>
 
 
@@ -388,7 +465,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113482.jpg" />
 </div>
 
 
@@ -415,7 +492,7 @@ magnet:?xt=urn:btih:E24F074E95D73F32B8C57FE14A3DE46E52AE49CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113483.jpg" />
 </div>
 
 
@@ -440,7 +517,7 @@ SQLPro Studio 2024.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113484.jpg" />
 </div>
 
 
@@ -464,7 +541,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113485.jpg" />
 </div>
 
 
@@ -491,7 +568,7 @@ System Dashboard Pro 1.10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113486.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113487.jpg" />
 </div>
 
 
@@ -542,7 +619,7 @@ magnet:?xt=urn:btih:7BF545B4D2ED41D8663E9A6E38EE2484B090E906
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113488.jpg" />
 </div>
 
 
@@ -569,7 +646,7 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113489.jpg" />
 </div>
 
 
@@ -583,80 +660,6 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53966AEC9B886D1EA59FFF5ED7659C9B5179C958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706834   (113490) от 14.03.2024
-
-Влада Ольховская | Дверь открыта (2022) [MP3, Алексей Бояджи]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди, никак не связанные между собой, умирают чудовищной смертью. У преступлений нет ничего общего, кроме одного: совершил их, похоже, не человек. И хотя следователю полиции тяжело принять это, он вынужден обратиться к специалисту по демонологии – пока жертв в этой истории не стало намного больше.Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED8FE41FB9638DEDE04A12B32D0DD170A78CB4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707007   (113491) от 14.03.2024
-
-Cronette 1.10.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cronette - это приложение для определения задач, запускаемых Mac без участия оператора.
-Утилиту можно использовать на необслуживаемых серверах Mac или на обычных рабочих станциях Mac для задач, выполняемых в ночное время, или для повторяющихся задач, которые должны выполняться на регулярной основе.Тип издания: macOS SoftwareРелиз состоялся: 13.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929001CD53A4D25EAE8F62DDFAD8E1F52BD24CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706801   (113492) от 14.03.2024
-
-Upscayl for Mac 2.10.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабирование изображений становится все более доступным с каждым днем, и теперь у нас есть приложения, которые упрощают этот процесс до такой степени, что каждый может сделать это за пару кликов.
-Upscayl — это кроссплатформенное приложение с открытым исходным кодом, которое подходит для большинства сценариев. Оно не предлагает много возможностей настройки, но (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2023  UpscaylПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BF80E3BBFAD40EF15181619EE614ED9D89EB20
 ```
 
 

@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34777.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:223DBB493EA061A90583DE0D3FC235CAA8E34C72
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34778.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:16C1997D942A7F0473EADB5E819A16674BF24B5A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34779.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DF2F462F4C89F23864CC2F2D40866D7FAA5B2B56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34780.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9136F168DFCAFFD6E786ED03D5E772736B55568B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34781.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6F0979DAF32473E0D8A7F48697DBF867B6BF6FAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34782.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Musical kaleidoscope part 16 Electronic, Instrumental, Easy listening (2024
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34783.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Magic Eraser / Магический ластик v2.15.1 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34784.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:EF3E96CFAD6340B7645129CF4214D759A181ABF5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34785.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:56C04AC46FF4981E4F138A40D50D8BAF41255E63
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34786.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Jazz Improvisations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisatio
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34787.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6297695C997F97D0737B29E43E429977CD48E724
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34788.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:1262A8AAB7EF9B6E8D7EE56F1F12F3462BED5418
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34789.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:35512FFDD0E0DC66BC51E9EBC419572B64F16ABA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34790.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ XYplorer 26.70.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34791.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:37C086447FDDBF58A9D08423694A954DCDD214DD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34792.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Compilation Part 133 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34793.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:0C060C18933DA3147F4FEA8C0E14F0BBD88B2B07
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34794.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:CFE181270BC0F72168456283387CF52500EC314E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34795.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34796.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A25466A6702C2E79DAC364A7935F178FCD8E6884
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34797.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:4AEFA1FFDF8E0B75765261BE477A62F0235A66CF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34798.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:CF7780F78C8E1BCB6BFEA23199BA54C65EC462F0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34799.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Winter Chillout Lounge 2024 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34800.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D043590DF910D82DD9741B7A8945B3B013544590
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34801.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:2D8285129FA72ED6A79145534A92729F9625D9C8
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34802.jpg" />
 </div>
 
 

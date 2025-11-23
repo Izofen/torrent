@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22333.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Launcher for zapret 2.7 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22334.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:BC60498972EC2B7AB28F9A44130B251BAC308D84
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22335.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ OpenVPN for Android 0.7.55 (Обновляемая) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22336.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:10759D18856D1A463A3F7F74E2891E3B41DA8078
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22337.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0FFCA34D96677D29B04FB87AA03D194E4539AB2D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22338.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Жизнь в альтернативн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22339.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DD25B6FBF2D1CFB64C0BB703B6BE444E9277B8E0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22340.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E60DCA16BF483081E5B64D33205F77749A177F4C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22341.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:40BA2F7C80F5BBAFA0D02DE01CCB798D124EF217
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22342.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22342.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1755CC7BC52DC8B871775178021EE6E47A97F6B6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22343.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4407BEBD55814D30A7ABD8346A5E054D9BFF83E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22344.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22345.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft хочет полностью избавиться от паролей
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22346.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22346.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft объявила о масштабных изменениях в си�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22347.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22348.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22349.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22349.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2B95307D3A68C71F09B0634A73462EC0A213E4B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22350.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ NVIDIA GeForce Desktop Game Ready 572.83 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22351.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:093FA0EEA67D061C06828FA9065458B149C59955
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22352.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:BC347CF3211CF57EEA95918E715AA17A5659D84E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22353.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22353.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Free Download Manager 6.26.2.6190 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22354.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4AE2AE05EE7B90A9E1D3C619E617ABDEE57CAD20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22355.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22355.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4AE2AE05EE7B90A9E1D3C619E617ABDEE57CAD20
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22356.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22356.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:2BE8EAF6CD33A8A39007A7FA183A5DE73A3B9122
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22357.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22357.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6EE25A3D4F103B78C94EADD1C28FBC5E5BFC9B42
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22358.jpg" />
 </div>
 
 

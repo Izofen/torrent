@@ -1,3 +1,81 @@
+###  Публикация: 1727799   (108394) от 04.06.2024
+
+VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Cosmic Visions (4:26)
+02. Kool&Klean - Reality (4:28)
+03. eJazz Artistry - Sweet Love (4:01)
+04. Konstantin Klashtorni - Stylish Walk (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727902   (108395) от 04.06.2024
+
+Гамлет / Amleto (1908) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых первых экранизаций нетленной пьесы Шекспира. Я с трудом напечатал слово "экранизация", потому что фильм не сохранился полностью. Совсем не полностью. По существу здесь несколько фрагментов без титров. Так что представленный фильм имеет только исторически-познавательное значение. И только вам решать смотреть его или не смотреть, вот в чем вопрос. (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, драма, немое киноРежиссер: Марио КазериниАктеры: Фернанда Негри ПугетЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366F7CF4391B5F33C3DB25E8F91D4BB8C8FFD1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727800   (108396) от 04.06.2024
+
+VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Ineffable (5:22)
+02. Chillaxing Jazz Kollektion - Made a Way (4:08)
+03. Konstantin Klashtorni - Humble and Kind (4:07)
+04. Kool&Klean - I Said, You Said (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7AF8567F9E0968209759DFC7D55720C9A201C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727814   (108397) от 04.06.2024
 
 Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -6,7 +84,7 @@ Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108397.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108398.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108399.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108400.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108401.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108402.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108403.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108404.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ Red Morrow - Instigator of Unexpected Change (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108405.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108406.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:0D643128C658B416F670983839599C421D4F46D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108407.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108408.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108409.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108410.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Night Wilds - All That Should Have Been (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108411.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ magnet:?xt=urn:btih:6EEFEFF1D25F21639EC5DAF87108351A1A6D642D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108412.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ magnet:?xt=urn:btih:F345BE71A75DFCBABB2BB5F6B31BB07284B66152
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108413.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ magnet:?xt=urn:btih:31172F33A18AFFEC200EAB25BC4A47FA749ADE89
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108414.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ Barock Project - Time Voyager (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108415.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108416.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108417.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ The Acid Machine - 3 Albums (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108418.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Dreamgate - Dreamgate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108419.jpg" />
 </div>
 
 
@@ -603,87 +681,6 @@ Dreamgate - Dreamgate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85AC2AD32D2C8FA4D184CD3B755B7088F29D7FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727755   (108420) от 03.06.2024
-
-Grain Of Pain - The Moon Lights The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beneath [00:05:53]
-02. Sun For Thee [00:04:02]
-03. The Moon Lights The Way [00:06:48]
-04. As Suffering Ends [00:05:09](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70B40EF694D60415DD51D239456A9B58E6341C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727662   (108421) от 03.06.2024
-
-Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Idolum (00:02:00)
-02 - Soul Devourer (00:06:24)
-03 - From Hubris To Demise (00:05:51)
-04 - In The Order Of Doom (00:05:43)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4904AC0EBAD17744E13C97BD11FD35077783981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727550   (108422) от 03.06.2024
-
-Deliverance - What a Joke (1991) Remastered, 2020, Retroactive Records [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Prophet Of Idiocy
-03. Pseudo Intellectual
-04. Cheeseburger Maker Du(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94624D01CC4D1DDF2B0B67EE148A99132B98774
 ```
 
 

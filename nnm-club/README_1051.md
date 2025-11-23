@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2024.005.20399 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27674.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27675.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B07F8FAAEC3F0EFFF370296C351934D6E88CCEC1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27676.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4031C093981BC3A3D907EC8A5056AE09C8AC8D89
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27677.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:16A57D99DF712EBFBCCFFF39AF0072DD412B9461
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27678.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:53CA6A8FAC501D0877C0B419B91DCE5C48F81DD1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27679.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27679.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2DD08EBEC595D473F6C7DB4A76B72FAF43706533
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27680.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:2DD08EBEC595D473F6C7DB4A76B72FAF43706533
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27681.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3945A5ACD5BE1384FCEF1A0D8860BFEEE87C67C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27682.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27683.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PDF-XChange Editor Plus 10.5.2.395 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27684.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27684.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AnyDesk 9.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27685.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PDF-XChange PRO 10.5.2.395 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27686.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Far Cry New Dawn (2019) [Ru/En] (1.0.5/dlc) Repack xatab [Deluxe Edition] (об�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27687.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8E3857C1BF1532C86DAA8E29B774C75C91D60F71
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27688.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FCA1564B355DC474313675C65EFA7C99E4F1E202
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27689.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Thin Lizzy - 39 Albums, 5 Box Set (1971 - 2025) 114 CD [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27690.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27691.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27692.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Adobe Photoshop Lightroom Classic 2024 14.2.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27693.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27693.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:F30681A8C5041F5706EDC6C9EC2324DDC8F7D39E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27694.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27695.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27696.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:5D5DC0E3AD6BA48892D5EDBDA164310B10E0308E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27697.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27697.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:5D5DC0E3AD6BA48892D5EDBDA164310B10E0308E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27698.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:0EBBF465E043C1BC7DF086B402A809F71376933A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27699.jpg" />
 </div>
 
 

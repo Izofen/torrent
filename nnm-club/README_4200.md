@@ -1,3 +1,75 @@
+###  Публикация: 1824475   (128887) от 15.10.2025
+
+Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2025) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Chimeras. Это мечта каждого киномана! На экраны вышел давно забытый фильм, и поклонница кино Ванесса Росси намерена присутствовать на первом показе после так называемой "проклятой” премьеры 20-летней давности. Но когда гаснет свет и начинается фильм, становится понятно, что проклятие реально существует! Теперь Ванесса должна (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D70C8A2C76B46B060A34C5926D5240D3A2429E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824478   (128888) от 15.10.2025
+
+Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Пересечение стен любви с тобой [2025, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда старшеклассница Мари сталкивается с другим опоздавшим учеником, она с удивлением обнаруживает, что он — представитель расы зверолюдей, который будет учиться в ее школе! В конце концов, зверьки нередко сосуществуют с людьми, но все же это редкость, учитывая предвзятое отношение и все такое. Сначала Мари нервничает при встрече с ним, но вскоре понимает, что за (   Читать дальше...   )Производство: Millepensee / ミルパンセЖанр: романтика, фэнтезиРежиссер: Итагаки СинПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB53883A225E5BD2C307AE8E51CE2CF1BA649AC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824477   (128889) от 15.10.2025
+
+Большое смелое красивое путешествие / A Big Bold Beautiful Journey (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара и Дэвид не были знакомы до встречи на свадьбе общего друга. Вскоре они отправляются в большое смелое красивое путешествие, в ходе которого им предстоит заново пережить важные моменты из своего прошлого. Это помогает им понять, как они оказались в точке, где находятся сейчас, и, возможно, даст шанс изменить будущее.Производство: Ирландия, США / 30West, Columbia Pictures Corporation, Original FilmЖанр: фэнтези, драма, мелодрамаРежиссер: Сет РейссАктеры: Колин Фаррелл, Марго Робби, Фиби Уоллер-Бридж, Хеймиш Линклейтер, Лили Рэйб, Билли Магнуссен, Yuvi Hecht, Шелби Симмонс, Джоди Тёрнер-Смит, Сара ГадонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD149D9A9DFBA338E8D264BB7102A25B9A5A481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824476   (128890) от 15.10.2025
 
 Гадкая сестра / The Ugly Stepsister / Den stygge stesosteren (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128890.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128891.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:5139D33A798859CDC47B3E4AD15DDAEB2F1E9715
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128892.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ FreeTube 0.23.11 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128893.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ O&O ShutUp10++ 2.0.1009 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128894.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128895.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:73919660E8B173E6B806BAF5F115F9E6B1331C70
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128896.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:0583DCAF10BEAEC1A22769C8F06892AE19721823
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128897.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ SpaceX вывела на орбиту спутники Project Kuiper
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128898.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ SpaceX успешно вывела на орбиту группу спутник
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128899.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:83DD88CD0376899EA9A74AAFBC83B4E92938DAB2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128900.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ magnet:?xt=urn:btih:A3D149F7A3E1CE44BB2AD927C6EBD984D49CEFEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128901.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ magnet:?xt=urn:btih:FCA4BB72A7ED6069F887D2F46E757285AAFC95B8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128902.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:597A849CCCC28D44F3D2B2EAB5599AC11A5EF34C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128903.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:06CB91D4681DCF435A63F8B3B657AE4DF9C5BC90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128904.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:FCAF2B9B6F29347137F5AFE8263875C86D10AB90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128905.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:6374E767E641A2E077D023FA934491D44AEEB93F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128906.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ VA - Musical kaleidoscope part 58 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128907.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:84B7E547C4EDBD88C6D5A758D64CDFBD00072C33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128908.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:41ADE4D8252F267A2D743580368ADCF4663CD112
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128909.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:D7A9C0814035084E5D512905798DFB160214F09F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128910.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:F633CA94BDAA4145F8DDD87F71BAEFD341C78F58
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128911.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:FDF48A25AAD46B6E34D5FFAA894F57A2233A5822
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128912.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ magnet:?xt=urn:btih:FDF48A25AAD46B6E34D5FFAA894F57A2233A5822
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F18F2025243D0C1A7AE6AC51B3AD8DBA4B8481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824436   (128913) от 15.10.2025
-
-О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 8 класса (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал учебника ориентирован на освоение учащимися первых научных понятий о неорганических веществах, их свойствах и превращениях, методах получения и практическом применении и основан на достижениях химии как области современного естествознания. Усвоению материала способствуют практическая направленность, схемы и иллюстрации, составляющие неотъемлемую часть авторской (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E80672EC7B3A27E8A25593A1B936A6CFA1795F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824437   (128914) от 15.10.2025
-
-О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 10 класса (базовый уровень) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник является первой частью линии учебников по химии базового уровня О.С. Габриеляна, И.Г. Остроумова и С.А. Сладкова для средней школы. Он знакомит старшеклассников с богатым миром органических веществ и реализует идею взаимосвязи химического строения этих веществ с их свойствами и применением.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD43232E68C07046FBCEB321AB7E80610082351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824175   (128915) от 15.10.2025
-
-Грань будущего / Edge of Tomorrow (2014) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128915.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем раса инопланетян вторгается на Землю. Никакая армия человечества не может им противостоять. Майор Уильям Кейдж умирает в бою, но случается невероятное — он оказывается во временной петле. Раз за разом Кейдж попадает в один и тот же бой, сражается и умирает снова и снова. И каждое повторяющееся сражение приближает его к разгадке того, как победить (   Читать дальше...   )Производство: США, Канада / 3 Arts Entertainment, Translux, Viz MediaЖанр: фантастика, боевик, приключенияРежиссер: Даг ЛайманАктеры: Том Круз, Эмили Блант, Билл Пэкстон, Брендан Глисон, Ноа Тейлор, Джонас Армстронг, Тони Вэй, Кик Гарри, Франц Драмех, Драгомир МрсичПеревод: Дублированный (Blu-Ray CEE)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские (Full), английские (Forced, Full)Продолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF50D93B6A4646287B81F9779644758E02709474
 ```
 
 

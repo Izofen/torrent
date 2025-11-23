@@ -6,7 +6,7 @@ Total Commander 11.03 MAX-Pack 2024.09.13 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:00A8D6E2AF97A0FDE7501A8E23D8E96BC1D28D00
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41659.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41661.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:378AD0EDA3A195BEB4FECD3A8019444B23FFC302
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41698.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Google Chrome 129.0.6668.90 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41699.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Tor Browser Bundle 13.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41707.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Gaia GPS (Topo Maps) v2024.8 b8540 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41708.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ jetAudio HD Music Player Plus v12.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41710.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:2CC86AD785A35F669886B388810E1497C8E5A79C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41720.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Snappy Driver Installer Origin R771 | Драйверпаки 24.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41726.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ OTT Navigator IPTV v1.7.1.6 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41728.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7DD9177A3F3344F6ADE68C5FCD6A48C254164998
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41766.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Firefox Browser 131.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41767.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ PilotEdit Lite & Pro 19.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41770.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:EA90C3B2130767668D9519501920C06A9794DCBE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41803.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Zoom Player MAX 19.5.2 Build 1952 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41810.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Topaz Video AI 5.3.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41820.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D75ACC2C94258128A609D4405F20A65DE8AAC55A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41833.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ NVIDIA GeForce Desktop Game Ready 565.90 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41845.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ CyberLink PowerDirector 2025 Ultimate 23.0.0927.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41847.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VMWare Workstation Pro for Personal Use 17.6.0 Build 24238078 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41861.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ FileZilla Server 1.9.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41906.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Format Factory 5.18.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41913.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ JetBrains PhpStorm 2024.2.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41914.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ HWiNFO 8.12 Build 5555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41916.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Rosetta Stone: Изучение языков 8.28.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41922.jpg" />
 </div>
 
 

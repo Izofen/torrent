@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14296.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EC2E96E921F2EA9B8869A923818BEC80E5D15075
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14297.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:989205F7A8F5CC9B556649551AC1A43348172E19
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14298.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1F9C903C247141A9F3BED21682F7E6D967E5B417
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14299.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4795EBAED346D5D01BCD942FDAABA06944417690
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14300.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Spring Dance Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14301.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Lounge Avenue, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14302.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:7832EBA70BADE5134BC63469E85D7B37FE9FFFF2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14303.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E9F5C0C12DE6AFFDD2480A7430A9BC65E7325C27
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14304.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Lounge Avenue, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14305.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:AEF2A9BBD33D30CBFB160825F873EC16CD5E9D2D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14306.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Welcome Summer (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14307.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:61938D0049A110A8C781FF81527D4B1CA24B7DA1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14308.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:B8A226339D8144DEF7953A1026C2D32DC286D28C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14309.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:DE68763C46CCBC01BB344259563B6D584EBE556D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14310.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14311.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:8B1430685DECEE5D64163F5398EDD2FE482E1DC4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14312.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:426C20904B727D743C81A771F539F16A065CD65D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14313.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:8EE6E9812B5C97927099B7C1D0754C6328A2AD17
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14314.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14315.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:C477DBC0BE75EDC5243B96160FCB954E6661FD17
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14316.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:2B4CB99EE0F5F3B09445055FB093110355FA42AF
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14317.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:FCCB4DA540360910D3E568F12A86CB5F22DA50F2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14318.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ momoland - Discography (2016-2021) [FLAC 16/44.1, 24/96|Lossless|WEB-DL|tracks] 
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14319.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F683F0A1B0BD5B680C624ACF9510894B5A2EE10F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14320.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:299A582519BD8B4816C16BCFA2E52270F4409853
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14321.jpg" />
 </div>
 
 

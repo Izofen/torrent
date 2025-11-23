@@ -1,3 +1,75 @@
+###  Публикация: 1599172   (160227) от 22.12.2022
+
+Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как лучшее средство смены местоположения, Aiseesoft AnyCoord может позволить вам изменить свое местоположение GPS на любое другое местоположение одним щелчком мыши. Вы можете использовать этот продукт, если хотите прекратить делиться своим местоположением с другими в Instagram, Facebook и т. д. AnyCoord также можно использовать, когда вы играете в видеоигры с дополненной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6FEE3E2EF22EF64FAA098CF3AD2303F5640A2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675518   (160228) от 09.11.2023
+
+Apeaksoft iOS Unlocker 1.0.50 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экран iPhone заблокирован? Удалите пароль за считанные секунды. iPhone много раз отключался из-за неправильного ввода пароля? Экран iPhone заблокирован из-за разбитого экрана? Не беспокойтесь: Apeaksoft iOS Unlocker безопасно сотрет пароль на iPhone, iPad и iPod и получит доступ к данным вашего iPhone за считанные секунды.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD8A9E6C80887253C61958825F5CEF1ED16EB28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599225   (160229) от 22.12.2022
+
+GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160229.jpg" />
+</div>
+
+
+###  Подробнее
+
+GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DFB1A5BC932B8CDFA36A3D719356DAFA65A0F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675376   (160230) от 09.11.2023
 
 PDF Reader Pro 3.0.0 [Multi/Ru]
@@ -6,7 +78,7 @@ PDF Reader Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160230.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ PotPlayer 231109 (1.7.22036) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160231.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160233.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160235.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Chromium 119.0.6045.124 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160236.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ PotPlayer 231109 (1.7.22036) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160239.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ K-Lite Codec Pack Update 17.9.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160245.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Brave Browser 1.60.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160248.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.1 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160253.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Perfectly Clear WorkBench 4.6.0.2613 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160260.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ n-Track Studio Suite 10.0.0.8196 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160271.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160275.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160286.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160304.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160309.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Xliff Editor 2.9.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160315.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ PowerPhotos 2.5.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160318.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160320.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Vellum 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160322.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 06.11.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160326.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ BlueStacks App Player 5.13.210.1007 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160356.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ GIMP 2.10.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160370.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Alt SwitchER 21.6 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160378.jpg" />
 </div>
 
 
@@ -553,80 +625,6 @@ Alt SwitchER - программа для автоматического испр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:752C70CE60FCD2E088536487F236B5A4F8C0A298
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675285   (160380) от 08.11.2023
-
-Android Studio Giraffe | 2022.3.1 Patch 3 Build #AI-223.8836.35.2231.11005911 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Studio предоставляет быстрые инструменты для создания приложений на все типы Android устройств.
-Редактирование кода, отладка, инструменты оптимизации мирового уровня, гибкая система сборки, и система мгновенной сборки/развёртывания позволят вам сфокусироваться на построении уникальных и высококачественных приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D37BAB585E8BF3DBE6E04EF989424A37CD1B4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675317   (160381) от 08.11.2023
-
-Antivirus Removal Tool 2023.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antivirus Removal Tool - портативный набор официальных утилит для удаления антивирусных программ. Сборник включает удобную графическую оболочку, которая автоматически определяет установленный антивирус и предлагает запустить соответствующую утилиту удаления.
-С помощью графической оболочки можно выбрать и запустить нужную утилиту удаления или просканировать систему (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EA8018B5EACBC0538A980F6AA38F7EEE4922A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675222   (160383) от 08.11.2023
-
-Paste 4 v.4.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2015-2022 Paste TeamПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8790D0EF152D1823B3634051886875E0A1ABDD5
 ```
 
 

@@ -6,7 +6,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37507.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37508.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37509.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37510.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37511.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37512.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D31227A0E77778EA1EDD12F18F5350C60E398AB8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37513.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DAC39D86F669FDB0E00CB77D246038C8F4FAAE4E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37514.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BF888E820D82BE6DC83D20FB85CA4CFB0AA18C78
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37515.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ IObit Driver Booster Pro 12.1.0.469 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37516.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4031236CACBC2C1136DABD48F05265081B35D3A9
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37517.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6D245701624B2DE58B7624678A68A031A5C75D9D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37518.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WonderFox HD Video Converter Factory Pro 27.8 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37519.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37520.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0C147C8D7D432C3D4825DCFF9727682CA86870AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37521.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6F86922B504C50A3EA718BC4B9F7313A40EBD55F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37522.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PotPlayer 241111 (1.7.22361) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37523.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wondershare UniConverter Ultimate 16.0.0.68 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37524.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37525.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:333E41920BE0413DCD71AC9AB714FB918AF6D2F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37526.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:44D66D0A38244206619EF12C4305B4226121CE28
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37527.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:1AECA3C9B09DBBBF6D39F922D091FB3FC80B2D5F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37528.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:62CC1A52419C8B7CC072FA175969E96F4E4F954E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37529.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:34A14C3B451FD3284BBFC422220F945AB3DDC03B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37530.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Deathbound (2024) [Ru/Multi] (1.2.0gf) License GOG [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37531.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.0.0/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37532.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Квали�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65618.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65619.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Grace Hayhurst - The World is Dying (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65620.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6546D83E44876D06B5DBD7E272EE1BF245B48D4C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65621.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Styx - Circling From Above (2025) [MP3|320 Kbps] <AOR, Progressive Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65622.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6415679B6ECA1577CE64C6FD19735338C9988AF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65623.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6855D654497175798B0621CAD49715766D18FA1A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65624.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F95A3DFD5604088C938A1D30FB85F886029120DE
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65625.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:DF03EAD8034CB7286C6CE7B22388C14861079346
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65626.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D5DA5DD0F33C3F5EF06A67844C9A1C5FC5E46FEF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65627.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3D5940359102E6F69F80F2BB9A8072D3030616DF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65628.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:3CAC8557A925866A62DD9E3BE6AEF98459EF5370
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65629.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:0ED055A55C9270D3F4E8047510F6E4BE2669B861
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65630.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Paralyzed - Rumble & Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65631.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tyske Ludder - Weltenbuhne (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65632.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:123BAEB98A41E9DBE09D3FD414EAD8EFEFAFF0AC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65633.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:7420B254C030B3820CECF7736272246FE4D60ABA
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65634.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Last Bastion - Who We Are (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65635.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:536D610BC261A9A2A509EAE29882108B1DAD17F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65636.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:C0DD101CE4DC0168287FFBAC2CD11146CD30FD99
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65637.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Madam Radar - Motel (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65638.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Nemra - The End of the Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie, Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65639.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:26A273DF5A30A189FE98127F37F419A1F3698C68
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65640.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65641.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65642.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:3C92CBA8643AE240C6D2090704D505A449CF77EA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65643.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kim Wilde - Closer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71272.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71278.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71325.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71372.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71373.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71377.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71379.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jakob Dinesen - Slow Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71380.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71381.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hvalfugl - Bag Vore Øjne Strømmer Drømme Sagte Forbi (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71383.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Atmospheric Trio - Following Polaris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71384.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andy Middleton Quartet - Water and Sky (2025) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71385.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fontamar Consort - Ramour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71386.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ David Rose - My Happy Space (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71400.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ In Extremo - Kompass zur Sonne (2020) Extended Edition [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71409.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Ferrymen - Iron Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71410.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71413.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Carmen McRae - Sings Love Songs (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71422.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Soelaas - Salvus Ab Inferis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71424.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Einherjer - Studio Albums (11 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71428.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71437.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71442.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Keziah Jones - Alive & Kicking (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71463.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Larkin Poe - Bloom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country, Blues_
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71464.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71465.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71468.jpg" />
 </div>
 
 

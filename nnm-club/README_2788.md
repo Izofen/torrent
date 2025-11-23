@@ -1,3 +1,79 @@
+###  Публикация: 459203   (78824) от 27.02.2012
+
+Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу скандального нью-йоркского фотографа Эндрю Эйнхорна. Он ищет новых моделей для своей эротической фото-книги  среди обычных прохожих на улицах. Эйнхорн просто предлагает красивым девушкам сняться обнаженными. И многие соглашаются.... Все это время за ним следует оператор, готовый заснять каждое движение мэтра. Результаты трудов знаменитого фотографа можно увидеть в новом откровенном эротическом шоу на МУЗе.Жанр: Телешоу, эротикаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458879   (78826) от 27.02.2012
+
+Л.П.Дыко | Беседы о фотомастерстве [1977] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое учебное пособие всегда адресуется конкретному читателю, имеющему определенный уровень знаний. Эта книга написана для тех любителей фотоискусства, которые достаточно хорошо освоили элементарную технику фотографии...
+
+...Цель автора - помочь читателю преодолеть расстояние от снимков технически грамотных до фотопроизведений, где тема получает изобразительно законченное, образное решение. Чтобы преодолеть этот рубеж, необходимо глубокое понимание
+сложных творческих задач, настойчивая учебная работа, систематическая практика...1977Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5254E2342D20A4656498EA8F82B27D3A7BF58A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458917   (78828) от 27.02.2012
+
+Виталий Протов | Сексуальные "катастрофы" и как их избежать [2006] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виталий Протов - талантливый и озорной автор - позволил себе в этой книге отвечать на серьезные, а порой и мучительные вопросы со свойственной ему долей иронии и юмора, отражающей его убеждение: интимные отношения мужчины и женщины - это самая увлекательная и радостная сторона жизни, и нужно стремиться к тому, чтобы она не омрачалась. А для этого нужно обладать знаниями, ибо мужчина и женщина по отношению друг к другу - инопланетяне, которым для достижения понимания, гармонии и единства нужно серьезно изучить и себя, и того, кто находится "по ту сторону презерватива". И тогда любой поймет; то, что сейчас кажется "катастрофой", на самом деле всего лишь досадное и легко устранимое недоразумение.
+Тот,кто делает первые шаги в сексе,обязательно должен познакомиться с этой книжкой. Интимные отношения мужчины с женщиной это самая увлекательная и радостная сторона жизни.2006Жанр: Культура. Общество.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0EA7E23B5FD4183D81220B8850865F2776B61B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459122   (78835) от 27.02.2012
 
 Чиж & Co - Лучшее. Золотая коллекция 2CD (2010) [FLAC|Lossless]<Rock>
@@ -6,7 +82,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78835.jpg" />
 </div>
 
 
@@ -39,7 +115,7 @@ Dear Esther [Wineskin] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78839.jpg" />
 </div>
 
 
@@ -69,7 +145,7 @@ magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78842.jpg" />
 </div>
 
 
@@ -93,7 +169,7 @@ magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78844.jpg" />
 </div>
 
 
@@ -119,7 +195,7 @@ magnet:?xt=urn:btih:75878638E148433C80D438F123D4614D7D6B8C0E
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78845.jpg" />
 </div>
 
 
@@ -152,7 +228,7 @@ magnet:?xt=urn:btih:96FC65D87B32B479DFAC7101CC3CB40C11133659
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78848.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ Playboy: разденьте девушку / Undress a Woman (27.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78851.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ WinDoZa Boot by Core-2 v.24.2.12 [Английский + Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78858.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ WinDoZa Boot by Core-2 v.24.2.12 - Модифицированный загруз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78860.jpg" />
 </div>
 
 
@@ -253,7 +329,7 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78862.jpg" />
 </div>
 
 
@@ -279,7 +355,7 @@ Tropico 3 Gold Edition [Ru] [Native]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78863.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78868.jpg" />
 </div>
 
 
@@ -336,7 +412,7 @@ magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78871.jpg" />
 </div>
 
 
@@ -363,7 +439,7 @@ magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78872.jpg" />
 </div>
 
 
@@ -387,7 +463,7 @@ Patrick Cowley - 6CD (1981 - 2009)[FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78873.jpg" />
 </div>
 
 
@@ -415,7 +491,7 @@ Patrick Cowley - 6CD (1981 - 2009)[FLAC|Lossless]<Disco>
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78875.jpg" />
 </div>
 
 
@@ -440,7 +516,7 @@ ASUS Eee PC 1001PX вспомогательный DVD-диск Rev 1.2 [Русс
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78879.jpg" />
 </div>
 
 
@@ -465,7 +541,7 @@ Google Sketchup Free & Pro v8.0.11752 [Английский/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78880.jpg" />
 </div>
 
 
@@ -492,7 +568,7 @@ Generation П (2011) BDRip [H.264]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78885.jpg" />
 </div>
 
 
@@ -516,7 +592,7 @@ Need For Speed: Hot Pursuit 2 [Cider] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78889.jpg" />
 </div>
 
 
@@ -540,7 +616,7 @@ magnet:?xt=urn:btih:B97CCCC16301D079D31B5B1DC919E46457C1C9E9
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78890.jpg" />
 </div>
 
 
@@ -564,7 +640,7 @@ magnet:?xt=urn:btih:35DF97DE8D4B65FC209B15AF4094F1BA2FE43E3F
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78891.jpg" />
 </div>
 
 
@@ -588,7 +664,7 @@ magnet:?xt=urn:btih:36271727A9DB6C4EAEF3FA1D5CA3B305E57C6563
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78894.jpg" />
 </div>
 
 
@@ -601,80 +677,6 @@ magnet:?xt=urn:btih:36271727A9DB6C4EAEF3FA1D5CA3B305E57C6563
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1140044ADBD08CDA45928ADAF8016A59C7E4D7AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458719   (78897) от 28.02.2012
-
-Airwave - Atlas Winds / Chiricahua (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlas Winds (11:00)
-02. Chiricahua (10:17)2012Жанр: TranceПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773A1666C96C172DFC65CD9C580AAFE8482DCC58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459040   (78901) от 28.02.2012
-
-Сирокко / Sirocco / Damasco’25 (1951) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1925-й год… Гарри Смит - аморальный американский торговец оружием, продает оружие арабским мятежникам в Дамаске, пытающимся свергнуть французский протекторат. Последняя отгрузка лидеру мятежников Хассану перехвачена французами. Генерал Лазолл, захватывает заложников, а французские солдаты заманены в засаду. Полковник Фероуд требует переговоров, вместо этого, Смит все усложняет, похитив любовницу Фероуда Виолетту, стремящуюся убежать от командующего. Фероуд принуждает Смита встретиться с Хассаном, чтобы обсудить вопросы мирного урегулирования проблемы. Уважая храбрость Смита, прибывшего в укрытие мятежников в одиночку и без оружия, Хассан соглашается на дальнейшие переговоры. Однако, Смит, поверив Фероуду, допустил ошибку…
-(Существует еще одно название этого фильма: "Damasco’25".)Жанр: Боевик, ДрамаРежиссер: Кёртис БернхардтАктеры: Хамфри Богарт, Марта Торен, Ли Дж. Кобб, Эверет Слоун, Джералд Мор, Зеро Мостел, Ник Дэннис, Онслоу Стивенс, Людвиг Донат, Дэвид Бонд, Абдулла Аббас, Джон Блейфер, Питер Брокко, Арджентина Брунетти, Джефф Кори, Гарри ГуардиноПеревод: Многоголосый закадровыйПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCB568930414975FFBE4649DD34E440AEB6744D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459270   (78911) от 28.02.2012
-
-Журнал | Автокомпоненты [№2 (февраль)2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Периодическое издание освещающее все основные темы рынка автокомпонентов. Отличительная особенность издания – компетентность,всесторонний подход к событиям , знание автокомпонентов изнутри, их свойств, особенности эксплуатации, специфику подбора и стоимость, обзоры, аналитика, тесты, презентации новинок рынка, а так же, консультации специалистов и производителей автокомпонентов.№2 (февраль)2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE50B627188870A1A724BCCD929EFFA83CB825DF
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1601184   (151856) от 30.12.2022
+
+IceCream Ebook Reader Pro 6.23 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7FE3FD8D0FA8A7259197A900C70F7AFEB88B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434497   (151858) от 24.12.2020
+
+PDF Merge & PDF Splitter + 6.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151858.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Merge and PDF Splitter - это очень простое в использовании приложение, которое позволяет быстро объединять несколько PDF-файлов в один или разделять указанные страницы в новый PDF-файл.Тип издания: macOS SoftwareРелиз состоялся: 13.12.2020Разработчик: qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FCB965D9893FAB9BC9173500C6786F60A72D57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347555   (151872) от 23.12.2019
+
+Бронте Аурель | Волшебная зима. Рецепты и традиции Скандинавии для ярких новогодних праздников (2019) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что в зиме самое важное? Конечно, кроме пушистого снега, скрипящего под подошвой, и непобедимо свежего морозного воздуха? Чего мы ждем весь год, как чуда, на что возлагаем самые большие надежды? Естественно, новогодние праздники. И это время с одинаковым трепетом ждут в самых разных странах.
+Попробуйте в этом году отойти от традиционного сценария "оливье, шуба (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CC753721D3533ADEBF652172ED3F75AA320A79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434489   (151879) от 24.12.2020
 
 Noizio — focus, relax, sleep 2.0.8 [En]
@@ -6,7 +79,7 @@ Noizio — focus, relax, sleep 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151879.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Wise Disk Cleaner 9.6.2.685 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151888.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ BotRadio 1.7.0.0 + Skins + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151908.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:332BEB581F03A61283528B30084335186FEFF755
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151914.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ IObit Smart Defrag Pro 6.4.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151915.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ NVIDIA GeForce Desktop 417.42 BETA + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151916.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Lady Rizo - Indigo (2017) [FLAC|Lossless|tracks + .cue] <R&B, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151938.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Duplicate Finder and Remover 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151940.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Roland VirtualSonics (Legendary & AIRA Series) AAX, VST3, VST, Plug-Out 2018.12 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151943.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:FDBB0885222416390B7A7A42181AB93000472CFF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151945.jpg" />
 </div>
 
 
@@ -258,7 +331,7 @@ eM Client Pro 7.2.34208.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151951.jpg" />
 </div>
 
 
@@ -282,7 +355,7 @@ Yuri on ice / Yuri!!! on ICE / Юрий на льду [2016, TV, 12 из 12] WEB
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151960.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ MovieSherlock 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151971.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ Cisdem Duplicate Finder 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152006.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Bokura wa Minna Kawaisou / Kawaisou / Все мы живем в общежити
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152009.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ FastStone Image Viewer 6.1 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152010.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ VideoSolo DVD Creator 1.1.10 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152013.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ TheAeroClock 4.04 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152015.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ Luminar 3 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152021.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ DevID Agent 4.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152024.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ magnet:?xt=urn:btih:2EA20AD8C6D5FE932E801BD59968A0BF2B941A77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152028.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ magnet:?xt=urn:btih:4C5619F0464DF6B203C096F525BFE699105D31D9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152029.jpg" />
 </div>
 
 
@@ -553,7 +626,7 @@ URL Manager Pro 5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152052.jpg" />
 </div>
 
 
@@ -566,79 +639,6 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387156DA81E499E632B9D8D6F2C839014D21FB9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677129   (152060) от 16.11.2023
-
-uTorrent Pro 3.6.0 Build 46922 Stable Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152060.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA416DFE7B668F88B4A36902CB5C1A055C5D2E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434483   (152061) от 24.12.2020
-
-Net Worth Pro 2 v3.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Net Worth Pro - отслеживайте свою чистую стоимость, используя собственные категории активов и пассивов. Применяйте собственные теги к категориям. Поддерживает активы и обязательства в иностранной валюте.
-Чистая стоимость - это самый важный показатель ваших личных финансов. Отслеживание вашего собственного капитала дает вам наиболее точную картину вашего полного финансового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176310E5F28E4D8520DC4C404BA74615F5EC826C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347546   (152064) от 23.12.2019
-
-А.В. Исаев и др. | Битва за Крым 1941-1944 гг. (2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый суперпроект ведущего военного историка. Самое полное, фундаментальное и авторитетное исследование обороны и освобождения Крыма в 1941-1944 гг., основанное на документах не только советских, но и немецких архивов, большинство которых публикуются впервые. От прорыва Манштейна через Перекопские позиции до провала первых штурмов Севастополя, от Керченско-Феодосийской (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A112D97941CF667E04DA81B789CE167487F9282
 ```
 
 

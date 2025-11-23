@@ -1,3 +1,83 @@
+###  Публикация: 1684163   (127795) от 15.12.2023
+
+Men Eater - Men Eater (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grail [00:07:05]
+02. Hermit [00:05:36]
+03. Multitude [00:07:50]
+04. Worshipers [00:05:13](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E52619D4B9D3315AA8836A1BA55558539AE4FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684445   (127796) от 15.12.2023
+
+Джейн Остин | Эмма (2020) [MP3, Наталия Казначеева]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Золотая классика мировой литературы.
+Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
+«Эмма» (1816) – четвёртый большой роман Джейн (Остен) Остин, последний, опубликованный при её жизни. Самое едкое, точное и саркастичное (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук» , StorySide ABПродолжительность: 17:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452F334855FBE77A47855B6A337C637A637B473C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684524   (127797) от 15.12.2023
+
+Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silent Force - немецкая группа Heavy Metal/Power Metal, образованная в 1999 году.2000 - The Empire Of Future
+2001 - Infatuator
+2004 - Worlds Apart
+2007 - Walk The Earth(   Читать дальше...   )Жанр: Power MetalПродолжительность: 05:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684425   (127798) от 15.12.2023
 
 The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -6,7 +86,7 @@ The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127798.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127799.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ The Rolling Stones - Hackney Diamonds (Live Edition) (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127800.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ Soul Browser 1.3.92 Mod by ateuffel [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127801.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ magnet:?xt=urn:btih:D2B9F626BFF074CD5C8D5B1A3AA26B166636229E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127802.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127803.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ Opera One 105.0.4970.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127804.jpg" />
 </div>
 
 
@@ -186,7 +266,7 @@ Chromium 120.0.6099.110 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127805.jpg" />
 </div>
 
 
@@ -210,7 +290,7 @@ ALSA - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127806.jpg" />
 </div>
 
 
@@ -237,7 +317,7 @@ VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127807.jpg" />
 </div>
 
 
@@ -264,7 +344,7 @@ magnet:?xt=urn:btih:B312EB0ED525786C4D7A0002E9EFC21562DA1457
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127808.jpg" />
 </div>
 
 
@@ -288,7 +368,7 @@ magnet:?xt=urn:btih:1CD0317DF79D1B01A39FCFD4706EECBEC3A35B5E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127809.jpg" />
 </div>
 
 
@@ -312,7 +392,7 @@ Mozilla Thunderbird 115.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127810.jpg" />
 </div>
 
 
@@ -336,7 +416,7 @@ magnet:?xt=urn:btih:25ED37D2B3BB819A774E3ACD67AAB516C42D7009
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127811.jpg" />
 </div>
 
 
@@ -363,7 +443,7 @@ VA - Spreepark (Collected by Oliver Koletzki) - 2023 [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127812.jpg" />
 </div>
 
 
@@ -390,7 +470,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127813.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ magnet:?xt=urn:btih:13625AC9A809DA2FB0F67FF098166C15F5E78241
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127814.jpg" />
 </div>
 
 
@@ -438,7 +518,7 @@ magnet:?xt=urn:btih:207021DAB69913AA37F6EFC3EBD2BE70CCB7BCC6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127815.jpg" />
 </div>
 
 
@@ -462,7 +542,7 @@ System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127816.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ magnet:?xt=urn:btih:49C12326CA3DB194DC515C45E014467BC981000A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127817.jpg" />
 </div>
 
 
@@ -513,7 +593,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127818.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ magnet:?xt=urn:btih:7CDF525F7A39CB6786070F3F91391E4EE4C256CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127819.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ magnet:?xt=urn:btih:04B235CD3ED46078F0678CF9E4E8ED379CAC220D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127820.jpg" />
 </div>
 
 
@@ -576,79 +656,6 @@ magnet:?xt=urn:btih:04B235CD3ED46078F0678CF9E4E8ED379CAC220D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB73C4293B65B95B7059AF624D3C104966AF11AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684367   (127821) от 15.12.2023
-
-KMPlayer 4.2.3.7 Plus (x86) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127821.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A69933C79C8FBF7846B9F0E70F15782B4CD0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684369   (127822) от 15.12.2023
-
-Topaz Video AI 4.0.8 (x64) Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E466913377AAE9951735224B48F372F2697CBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684307   (127823) от 15.12.2023
-
-Керим Пыгамов | Простатит. Современный подход к диагностике и лечению (2023) [MP3, Денис Белых]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127823.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге врач-уролог Керим Пыгамов предлагает взглянуть на простатит с точки зрения доказательной медицины и разобраться в его причинах, симптомах, диагностике и современных методах лечения.
-Книга поможет вам лучше понять поставленный диагноз и найти подходящего врача, избежать ненужных процедур и препаратов. Доктор Пыгамов включил в нее разбор клинических случаев, (   Читать дальше...   )Жанр: Урология и нефрологияИздательство: ЭксмоПродолжительность: 03:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E88BEAB73D0B962350DABEE163DFB1D2E27C97
 ```
 
 

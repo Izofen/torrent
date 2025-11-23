@@ -1,3 +1,75 @@
+###  Публикация: 1518889   (152356) от 21.12.2021
+
+Adobe Photoshop Express 8.0.929 Mod by Balatan, Apps-Store [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop Express - великолепная программа для обработки фотографий, которая была разработана специально под Андроид. Здесь вы сможете в любой момент захватить нужный вам кадр, отредактировать его, поделиться им со своими друзьями и просто улыбнуться самым невероятным ее возможностям. Все это можно сделать абсолютно бесплатно, без всяких регистрация и прочего (   Читать дальше...   )Тип издания: Premium (Patched)Релиз состоялся: 14.12.2021Разработчик: AdobeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BC75187F2B049708E02C4C8091B488C41F517E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518837   (152357) от 21.12.2021
+
+Screaming Frog SEO Spider 16.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете их устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71DE4B5D02C3132CA95C47FEA3D7235FFAF6B88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347535   (152370) от 23.12.2019
+
+Navicat Premium 15.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347089   (152385) от 23.12.2019
 
 James Grant - The Anjunadeep Edition 283 2019-12-19 [MP3|320 Kbps] <Deep House>
@@ -6,7 +78,7 @@ James Grant - The Anjunadeep Edition 283 2019-12-19 [MP3|320 Kbps] <Deep House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152385.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Phase One Capture One 23 Enterprise 16.3.1.1718 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152389.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Wirecast Pro 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152395.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Windows 11 Manager 1.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152398.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152400.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ Duolingo Plus: изучение иностранных языков 5.39.3 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152401.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Coolutils Total PDF Converter 2.1.226 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152402.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Psiphon 3 build 180 (15.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152407.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ SmartOffice - View & Edit MS Office files & PDFs v3.12.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152411.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ NeoFinder Business 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152413.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Adware Zap Pro 2.7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152422.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ HWiNFO 7.16 Build 4650 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152425.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ EtreCheck Pro 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152429.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ CyberLink PowerDirector Ultimate 20.1.2415.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152439.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:D70670A06BA16988A4BE350AA6F7B8FA0233AA60
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152441.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Screenium 3 3.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152442.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ QuickTextPaste 3.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152460.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ magnet:?xt=urn:btih:073DC0B33550B31091ADE30DB2F6AF7F058D49C8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152474.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:DB35E83F0C9ABC7FA6C9197C3FCEFC2DCBC4548D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152480.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ PDFpenPro 11.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152484.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ Display Driver Uninstaller 18.0.4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152490.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1115) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152493.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ Computer Desktop Wallpapers Collection (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152495.jpg" />
 </div>
 
 
@@ -563,79 +635,6 @@ Computer Desktop Wallpapers Collection (13.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:014033C5E688C371DDCB7EC6B8EB7D45994CE40A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347323   (152497) от 23.12.2019
-
-ColorWell 7.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152497.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2019Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4266CA7261358E2C0F71FA3A57E98218AC424BE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601238   (152499) от 30.12.2022
-
-Wise Disk Cleaner 10.9.7.813 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B465993F8601CE4A8DE156E6D2A48D62509222CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518802   (152506) от 21.12.2021
-
-DjVu Reader Pro 2.6.2 [Ru/En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152506.jpg" />
-</div>
-
-
-###  Подробнее
-
-DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
-В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 FirmShell LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A684989EBCAF823C064B05AE0AB092394F0598
 ```
 
 

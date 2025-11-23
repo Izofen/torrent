@@ -6,7 +6,7 @@ Karmamoi - Strings From The Edge of Sound (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129802.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129817.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129820.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Isospin - Aftermath Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129836.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129869.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129881.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - A Very Metal Christmas (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129889.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129939.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129947.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129952.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129999.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130028.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130040.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130059.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130061.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|tracks|Web-DL] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130070.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130089.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Twelve Foot Ninja - Vengeance (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130093.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130101.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Cat Power - Covers (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130124.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130209.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130282.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:D9A45D679B46F3052AE0BC761C60356DAC2127ED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130362.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Blood Of Kingu - Sun In The House Of The Scorpion (2010) Reissue, 2020, Osmose P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130415.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Battle Beast - Circus Of Doom (2022) [MP3|320 Kbps] <Melodic Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130466.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Thousand Foot Krutch - The End Is Where We Begin (2012) [FLAC|Lossless]<Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130694.jpg" />
 </div>
 
 

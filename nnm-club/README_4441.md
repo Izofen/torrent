@@ -1,3 +1,77 @@
+###  Публикация: 1679470   (137334) от 25.11.2023
+
+Half-Life: Документальный фильм к 25-летию / Half-Life: 25th Anniversary Documentary (2023) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы отпраздновать 25-летие выпуска Half-Life, мы воссоединили первоначальную команду разработчиков, чтобы поделиться своими воспоминаниями о создании первой игры Valve.Производство: США, ValveЖанр: документальный, история, игрыРежиссер: Дэнни О’ДвайрУчастники: Келли Бэйли, Стив Бонд, Майк Хэррингтон, Бретт Джонсон, Чак ДжонсПеревод: многоголосый профессиональный (HDrezka Studio)Язык озвучки: русскийСубтитры: русскиеПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB671BDEE5A291593F8B391D4816C69F48E5D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601360   (137335) от 31.12.2022
+
+Эйке Шнайдер | Чистильщики (Книга 4). Наемник (2022) [MP3, Олег Троицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очутился раненым в чистом поле с одним мечом? Эрику не впервой. Рану залечит магия, меч добудет деньги: для наемника всегда найдется дело. Вот только от чего нужно охранять молодую жену благородного? И почему на эту работу принимают первого встречного без рекомендаций?Жанр: Боевое фэнтези, Детективное фэнтезиПродолжительность: 07:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C724F140DA110C64BCB58B09DDF0FEF121AE227
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196020   (137336) от 31.12.2017
+
+Франс Белльвиль-Ван Стоун | Скетчи! Как делать зарисовки повседневной жизни (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Упражнения по рисованию и практические советы - то, что пригодится как опытным художникам, так и тем, кто совсем не умеет рисовать.
+Городской скетчинг или практика ежедневного рисования "между делом" - новый тренд. А для представителей творческих профессий - это часто насущная необходимость, учитывая активный современный образ жизни.
+В этой вдохновляющей (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE2C590133E48F75ED1137A5A8DEC72CF6E4CCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521007   (137337) от 31.12.2021
 
 Павел Сергеевич Иевлев | Идеальный самогон. Секреты домашнего приготовления крепких напитков (2020) [PDF]
@@ -6,7 +80,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137337.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Tamara Williams Academy, Tamara Williams | The Art of Beauty Masterclass (2023) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137338.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:7F1556382A2F8F4C63346459B03387F6840440B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137339.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ magnet:?xt=urn:btih:0899544537228DE5072F795BCCC976042D19AB87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137340.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ LEGO Star Wars: The Force Awakens (2016) [PSVita] [EUR] 3.60 [NoNpDRM] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137341.jpg" />
 </div>
 
 
@@ -127,7 +201,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137342.jpg" />
 </div>
 
 
@@ -151,7 +225,7 @@ magnet:?xt=urn:btih:5D99A5AD5BE6251DE99ED3A0BC01137D019B4D39
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137343.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ magnet:?xt=urn:btih:0FCF577838CEF2606597A7D0F00CC972D01BE767
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137344.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ magnet:?xt=urn:btih:4B464F5DA6930CC39E5D81A8E1E3CC942E57ABA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137345.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137346.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:0D997BAF0C633DB43AB4C9C1923863A2117513A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137347.jpg" />
 </div>
 
 
@@ -272,7 +346,7 @@ magnet:?xt=urn:btih:2662F2B6F625D49AB26B3BE2C64FD57068810839
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137348.jpg" />
 </div>
 
 
@@ -296,7 +370,7 @@ magnet:?xt=urn:btih:E5367E87CCEF2E04ADB6C44F6AD6D9ABF3309893
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137349.jpg" />
 </div>
 
 
@@ -320,7 +394,7 @@ magnet:?xt=urn:btih:210F6EA481E0364355E76A1FF90A2B9309A389A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137350.jpg" />
 </div>
 
 
@@ -344,7 +418,7 @@ magnet:?xt=urn:btih:3544DB21D2C89C7949016E5A948E1EAAD5CC3F9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137351.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:4A5BB451B2D1F2EA72F509ED7D5AD4D0E405DBFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137352.jpg" />
 </div>
 
 
@@ -392,7 +466,7 @@ magnet:?xt=urn:btih:B8FF863D4FC743C56E7D80227E8BDEC331B70A10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137353.jpg" />
 </div>
 
 
@@ -419,7 +493,7 @@ Little Snitch 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137354.jpg" />
 </div>
 
 
@@ -444,7 +518,7 @@ magnet:?xt=urn:btih:D9CA65A5204474520126E68A90A4CD4288B74E3B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137355.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Doogie White - Collection: 21 albums, 28 CD (2000-2019) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137356.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ magnet:?xt=urn:btih:357AE10BA945C91B2FB842B80BB0D527A120822E
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137357.jpg" />
 </div>
 
 
@@ -519,7 +593,7 @@ magnet:?xt=urn:btih:F387FB256873B6F1518AAE82980F5694A23499C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137358.jpg" />
 </div>
 
 
@@ -543,7 +617,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -554,78 +628,6 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED4283BAE9524F29AA7F648CC93CE0575F58EB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970807   (137360) от 31.12.2015
-
-Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. Механики [Episodes 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон.Тип издания: RepackРазработчик: Mojang и Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349220   (137362) от 31.12.2019
-
-Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания / Roth Films, Walt Disney PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH) , Английские (Full)Продолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B18A6DA7D97B40D3B1A691293191F2ED1EDC7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521005   (137363) от 31.12.2021
-
-3D модели - Lamborghini 3D Car Collection 2019-2022 [FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137363.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модели автомобилей марки  LamborghiniФормат: FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8BE60DE7A796293A2FC14ED0B65538A648E236
 ```
 
 

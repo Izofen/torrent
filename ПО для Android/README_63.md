@@ -1,3 +1,75 @@
+###  Публикация: 1426911   (184954) от 26.11.2020
+
+Ultimate Background Eraser v2.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_184954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончательный Фоновый ластик обеспечивает быстрый и легкий способ изменить фотографии фона. Просто нажмите на область, которую вы хотите удалить, и автоматический ластик сделает остальную работу за вас. Вы также можете удалить ваши фотографии фона вручную нажатием пальца или с помощью Lasso (Image нарезка) инструмента. Удалить фон из ваших фотографий и сохранить (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 29.02.2020Разработчик: Iris Studios and ServicesПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591934   (185222) от 20.11.2022
+
+РИА v4.1.55 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185222.jpg" />
+</div>
+
+
+###  Подробнее
+
+РИА Новости — это оперативная информация о самых резонансных и важных событиях в России и в мире: оборона и безопасность, ключевые события и встречи мировых лидеров, курсы валют и цены на нефть, новости бизнеса, катастрофы и происшествия, новости науки и техники, региональные новости городов (события в Москве и события в Санкт-Петербурге). Официальное новостное приложение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 05.10.2022Разработчик: Медиагруппа «Россия сегодня»Поддерживаемая ОС: Android 5.0-12Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A865B8BC1CFA7821748D54D838A67E3CFBF129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103766   (185667) от 25.11.2020
+
+Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_185667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устройство угрожает отключением, потому что вы забыли зарядить его перед выходом из дома? Вы оставляете телефон включенным надолго, чтобы зарядить его  до уровня 100%, потому что просто не знаете, когда он зарядится полностью? Нужно знать, что такие условия зарядки могут с течением времени негативно отразиться на работоспособности батареи вашего устройства? Вам нужно (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 24.03.2020Разработчик: DigimasterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B9FDCFD40478868C444A0122926C85ADE62A49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426659   (185925) от 25.11.2020
 
 HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукописный (обновляемая)
@@ -6,7 +78,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185925.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185925.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ YouCut - Видеоредактор v1.592.1175 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186224.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186224.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_186233.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ FineReader Pro: PDF Scanner v15.2.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_186627.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186702.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186702.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186730.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186730.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ Dictionary 15.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186773.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186773.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186819.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186819.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186958.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_186958.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ XY VPN - Security Proxy VPN 4.7.199 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187060.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Shopping List SoftList v2.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187156.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187156.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ PDF Utils v15.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187319.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:82BBDFE8DBF51C9CCBFEBC016DAF7CA1B647C792
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187375.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187375.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187387.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187387.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187412.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187412.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ Universal Copy v6.3.5 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187433.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ Ocean Aquarium v1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187442.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187442.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187463.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187463.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:6FD4C3F23DA3D17916117BE72DEAA2BACE184DC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187468.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Sample VPN - Fast and Safe VPN 1.0.2 b5 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_187659.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ GPS АнтиРадар v38.0 Mod by Dymonyxx [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187972.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ Persona: Бьюти-камера v1.6.52 Mod by Alien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187976.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187976.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188090.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188090.jpg" />
 </div>
 
 
@@ -557,79 +629,6 @@ WiFi Analyzer v6.6 (b104) Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D51E5A6D4111BC3D173E8EEEAD1881CE5CCC83F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827489   (188091) от 21.10.2025
-
-Smart AudioBook Player Pro v11.5.5 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 21.10.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0210EC9E4A4E37C3ADD6C2ACC59986366DC0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827487   (188093) от 21.10.2025
-
-Vanced Tube v5.5.80.115 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 21.10.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF8320EE4513413EA4951D5EEA90587C5752FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661958   (188186) от 16.09.2023
-
-CarBit ELM327 OBD2 v3.5.2 Mod by vedserega [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для диагностики автомобиля, позволяет отображать данные различных электронных блоков (ЭБУ/ECU), используя OBD II ELM327 (ЕЛМ327) адаптер , выводить графики в реальном времени, а так-же сохранять их и просматривать позже, читать и стирать ошибки OBD 2 (DTC).
-Есть возможность настроить минимальное/максимальное значение для каждого датчика/PID, при выходе (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.07.2023Разработчик: MDA VRPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCB626523EEA28458BE5CC8E5EABD3F6385B20A
 ```
 
 

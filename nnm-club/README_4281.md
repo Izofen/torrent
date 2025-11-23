@@ -1,3 +1,83 @@
+###  Публикация: 596329   (131673) от 30.12.2012
+
+[Wallpapers] Large collection of wallpapers (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131673.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Large collection of wallpapers (30.12.12)
+Название: Large collection of wallpapers (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 4000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50069830EB3C09A319E34EAB6F3AAF4DFC60A8A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596345   (131675) от 30.12.2012
+
+[Wallpapers] A selection of sports wallpaper (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131675.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of sports wallpaper (30.12.12)
+Название: A selection of sports wallpaper (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C062610F5F87DCDB4FDB28965B282F57ADE175F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682324   (131676) от 06.12.2023
+
+Убийцы цветочной луны / Killers of the Flower Moon (2023) WEB-DLRip [H.264] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после Первой мировой Эрнест Беркхарт, отслуживший во Франции поваром, приезжает искать удачи в Оклахому, где находится крупная резервация индейцев племени осейдж. В тех краях живет его дядя Уильям Хэйл, который носит прозвище Король — он землевладелец, скотопромышленник, друг индейцев и большой человек. Король убеждает Эрнеста посвататься к Молли Кайл, молодой (   Читать дальше...   )Производство: США / Appian Way, Apple Studios, Apple TV, Imperative Entertainment, Sikelia ProductionsЖанр: драма, мелодрама, криминал, детектив, вестерн, историяРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Роберт Де Ниро, Лили Гладстоун, Джесси Племонс, Танту Кардинал, Джон Литгоу, Брендан Фрейзер, Кара Джейд Майерс, Дженей Коллинз, Джиллиан ДионПеревод: Дублированный (Le Doyen)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, full, SDH)Продолжительность: 03:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7813E159C2258C0A91D6337EC207E13DDF97F83E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682318   (131678) от 06.12.2023
 
 NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
@@ -6,7 +86,7 @@ NVIDIA GeForce Desktop Game Ready 546.31 Hotfix + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131678.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Heaven Below - Falling From Zero (2012) [MP3|320 кб/с]<Hard Rock | Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131679.jpg" />
 </div>
 
 
@@ -63,7 +143,7 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131680.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ magnet:?xt=urn:btih:086DD5A4E798562BB592F46D792A7B2408CFB0A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131682.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Eternal Life / Yong Sheng / Youngsheng / Immortality / Вечная жизнь [
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131684.jpg" />
 </div>
 
 
@@ -135,7 +215,7 @@ Infinitas - Journey To Infinity (2012) [MP3|320 кб/с]<Shoegaze Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131685.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ magnet:?xt=urn:btih:0984CF545D9472AD60C32FAC0B85D186B1D0A676
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131686.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ magnet:?xt=urn:btih:B466112884B64E24B27367B715DB9EB0B4D88533
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131687.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ magnet:?xt=urn:btih:7FD3F1FE2042940DC7FD2C6C01F2CA065EE39371
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131688.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ magnet:?xt=urn:btih:B7D296839A1A3366A8F61BC8E787B4CF11B665FA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131689.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ magnet:?xt=urn:btih:C63598146CA76301431D1E4AC5C4703A6B3ED495
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131690.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ magnet:?xt=urn:btih:122529FFF7A9F0E6125EDDA52829CE1BA97018A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131692.jpg" />
 </div>
 
 
@@ -316,7 +396,7 @@ magnet:?xt=urn:btih:4EFD4D2A7AC5BC185939EB0E49C8D22CF9CE5C12
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131693.jpg" />
 </div>
 
 
@@ -342,7 +422,7 @@ magnet:?xt=urn:btih:AE591036A0D988C7F69B238D7BC357D1265F730E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131694.jpg" />
 </div>
 
 
@@ -366,7 +446,7 @@ magnet:?xt=urn:btih:370BC4EEFAF66594426CF91316D85C0C6CFC70D7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131695.jpg" />
 </div>
 
 
@@ -394,7 +474,7 @@ magnet:?xt=urn:btih:EC16A2EC1090138C1E8E35889FA3B766F762F28D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131696.jpg" />
 </div>
 
 
@@ -418,7 +498,7 @@ Psiphon 3 build 180 (05.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131698.jpg" />
 </div>
 
 
@@ -442,7 +522,7 @@ magnet:?xt=urn:btih:BCAC8DB4B62D0CD0427BB1AC211751C104CB8B5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131699.jpg" />
 </div>
 
 
@@ -470,7 +550,7 @@ magnet:?xt=urn:btih:F9CE3F2866FF97DD88E333670C5D59048E4B0BB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131700.jpg" />
 </div>
 
 
@@ -494,7 +574,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131702.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131704.jpg" />
 </div>
 
 
@@ -542,7 +622,7 @@ AMD Radeon Software Adrenalin Edition 23.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131706.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131707.jpg" />
 </div>
 
 
@@ -586,83 +666,6 @@ Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DC1928B833F2A886979CFD498DC1950F07E7223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682279   (131708) от 06.12.2023
-
-Люди Икс: Первый класс / X-Men: First Class (2011) BDRip [H.264/1080p-LQ] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как сформировались профессор Ксавьер и Магнито, о процессе основания школы профессора для детей-мутантов и, наконец, о том, что же произошло между двумя закадычными друзьями и почему они расстались.Производство: США, Великобритания / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' Company, Marv Films, Marvel Enterprises, Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Мэттью ВонАктеры: Джеймс МакЭвой, Майкл Фассбендер, Кевин Бейкон, Дженнифер Лоуренс, Дженьюэри Джонс, Роуз Бирн, Оливер Платт, Николас Холт, Зои Кравиц, Калеб Лэндри ДжонсПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F58C158E11A3D9150CB562EDB10670DB246AD1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596326   (131709) от 30.12.2012
-
-[Wallpapers] Selection of wallpapers (30.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131709.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Selection of wallpapers (30.12.12)
-Название: Selection of wallpapers (30.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38105FA88526DBE2381CA18A21039A1B3D752A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682204   (131710) от 06.12.2023
-
-Истоки зла / Die Quellen des Bosen (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1993 год. Ужасная находка потрясла жителей небольшого городка на востоке Германии. В лесу нашли тело девочки с вырезанными на теле рунами.
-Расследование поручено местному комиссару Ульрике Бандо и  приглашенному коллеге из Гамбурга Кораю Ларсену. Но внезапно выясняется, что подобные убийства происходили здесь и раньше. Какие тайны скрывает запретная зона на границе (   Читать дальше...   )Производство: Германия / Wüste MedienЖанр: триллер, криминалРежиссер: Штефан РикАктеры: Генриетта Конфуриус, Фахри Ярдым, Анджелина Хэнч, Jonathan Wirtz, Хлоя Генрих, Filip Schnack, Karsten Antonio Mielke, Беттина Лампрехт, Sophie Pfennigstorf, Till Wonka и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9141108A7E88590C6BF1752F9D4636571A54052B
 ```
 
 

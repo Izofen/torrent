@@ -1,3 +1,157 @@
+###  Публикация: 1195483   (141797) от 29.12.2017
+
+VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossless|tracks + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Барон фон дер Пшик - М. Курдин
+02. Джеймс Кеннеди - Джаз-оркестр театра Краснознамённого Балтфлота
+03. Бомбардировщики - Леонид Утёсов, Эдит Утёсова
+04. Осень - Вадим Козин, "Танго-ансамбль" п/у Я. Хаскина(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720B419015C70599667B4E88D727D8B12E7D89AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348842   (141799) от 29.12.2019
+
+Alcest - 6 Albums, 2 EPs (2005-2019) [FLAC|Lossless|image + .cue] <Shoegaze, Blackgaze, Post Rock, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcest — французская группа из города Баньоль-сюр-Сез (фр. Bagnols-sur-Cèze). Её лидером и основателем является Neige (Stéphane Paut). Группа является первооткрывателем жанра Blackgaze, благодаря их мини-альбому Le Secret, выпущенному в 2005.Список альбомов:
+2005 - Le Secret
+2007 - Souvenirs D'un Autre Monde
+2009 - Les Discrets & Alcest(   Читать дальше...   )Жанр: Shoegaze, Blackgaze, Post Rock, Black MetalПродолжительность: 05:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B01B73418DF0173373A243CAEED11D32D37D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854358   (141800) от 29.12.2014
+
+Русский характер (2014) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141800.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 год, Украина. Военный моряк Максим Фадеев приезжает из Санкт-Петербурга в Крым, получив телеграмму о смерти деда. На полуострове прошло детство Максима, отсюда он уехал поступать в Суворовское училище, здесь живут его друзья и близкие… Максим узнает, что расположенный на берегу моря поселок терроризирует банда некоего Волощука, которого финансирует олигарх Юрий (   Читать дальше...   )Производство: Триикс МедиаЖанр: Драма, криминалРежиссер: Александр ЯкимчукПродолжительность: 01:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11CED47D3EB7137F23CE0B4AF7347C6B4AB8094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252948   (141801) от 28.12.2018
+
+Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream of Bunny Girl Senpai / Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сакута Азусагава — обычный старшеклассник, который в один прекрасный день видит перед собой девушку в костюме кролика. Он узнаёт, что девушка — его сенпай по имени Май Сакурадзима, которая также является известной актрисой, на данный момент прервавшей карьеру. Но это ещё не самое странное, люди просто перестали её видеть из-за некоего загадочного «синдрома полового (   Читать дальше...   )Жанр: комедия, романтика, драма, мистикаРежиссер: Соичи МасуиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9399C0D8A7CF332CC74932B2A5E023D0A3E8D94C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435802   (141802) от 29.12.2020
+
+Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141802.jpg" />
+</div>
+
+
+###  Подробнее
+
+A So Weit So Gut (Maxi-Version)
+Written-By – Jurgen Attig, Michael Reincke
+B Hinein Ins Wilde Pralle Leben
+Written-By – Michael Reincke(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF67F2776AE8044D64831086BCA1C0D993A2DC05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520418   (141803) от 28.12.2021
+
+Александр Бушков | "Сварог" Книга 21. Чудовища в янтаре. Дыхание мороза (2021) [MP3, Вячеслав Задворных]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько ни искали Крепость Королей, так и не нашли… Можно было бы уже допустить, что таковой попросту не существует. Но не сомневался Сварог: существует и смертельную угрозу являет собой исключительно для Талара. Просыпаются чудовища в янтаре. На планету вечного лета опускается белоснежная тайна.
+Ровными алыми буквами в пол-локтя проступает знак Гремилькара, старый, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 14:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570F5D82B82246683B87FA0DF5C297E6BD4D86AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088159   (141804) от 29.12.2016
 
 AOMEI Partition Assistant Technician Edition 6.1 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +160,7 @@ AOMEI Partition Assistant Technician Edition 6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141804.jpg" />
 </div>
 
 
@@ -30,7 +184,7 @@ magnet:?xt=urn:btih:9D65728EE4441CFC343CF64D248BD5CFB57FF592
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141805.jpg" />
 </div>
 
 
@@ -54,7 +208,7 @@ VA - Hit Lights '79 (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141806.jpg" />
 </div>
 
 
@@ -81,7 +235,7 @@ magnet:?xt=urn:btih:783D57E52F22271097228E96695F0A1C8FF7B93C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141807.jpg" />
 </div>
 
 
@@ -107,7 +261,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -134,7 +288,7 @@ magnet:?xt=urn:btih:5E6F89D9D1EC8FF53102CF4DB3172D3EF4E8480B
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141811.jpg" />
 </div>
 
 
@@ -158,7 +312,7 @@ magnet:?xt=urn:btih:72BA3EEE90EAAFB376E1B0C59C1C44F8FEF47783
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141813.jpg" />
 </div>
 
 
@@ -182,7 +336,7 @@ magnet:?xt=urn:btih:ED9D8AFF424B80B64158E2231961784B01888305
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141814.jpg" />
 </div>
 
 
@@ -206,7 +360,7 @@ magnet:?xt=urn:btih:D5C7FC6D2F93C9A0FF4B8B297FCE1C05AB182F56
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141815.jpg" />
 </div>
 
 
@@ -230,7 +384,7 @@ Aven Colony (2017) [Ru/Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141816.jpg" />
 </div>
 
 
@@ -254,7 +408,7 @@ magnet:?xt=urn:btih:2FE558665AD414F209AA91EB4EF8E15C31865A4D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141818.jpg" />
 </div>
 
 
@@ -278,7 +432,7 @@ magnet:?xt=urn:btih:B565E3769F684FA4C6FF27D3E8D0AE26487C110D
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141819.jpg" />
 </div>
 
 
@@ -302,7 +456,7 @@ BetterTouchTool 3 v3.215 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141820.jpg" />
 </div>
 
 
@@ -326,7 +480,7 @@ magnet:?xt=urn:btih:79D343D6E34227B55DE3AF2D80B4E13DC7AEC990
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141821.jpg" />
 </div>
 
 
@@ -350,7 +504,7 @@ magnet:?xt=urn:btih:B4F70C70C24D982E6C938D73EC346E19AF1B55B5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141824.jpg" />
 </div>
 
 
@@ -374,7 +528,7 @@ magnet:?xt=urn:btih:FA85E3476CCE0BCB889D2D6BEAE73E72F4FEE37C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141825.jpg" />
 </div>
 
 
@@ -398,7 +552,7 @@ magnet:?xt=urn:btih:957791715D3D0CC740144F723EC260960683A692
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141826.jpg" />
 </div>
 
 
@@ -422,7 +576,7 @@ magnet:?xt=urn:btih:DD7F52EB7A46D526265BC8A406A0B57CA75B1012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141827.jpg" />
 </div>
 
 
@@ -446,7 +600,7 @@ Sons Of Apollo - MMXX (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141828.jpg" />
 </div>
 
 
@@ -473,7 +627,7 @@ magnet:?xt=urn:btih:A0EB38F30B7133862E5D374220C3147841FAF674
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141829.jpg" />
 </div>
 
 
@@ -484,155 +638,6 @@ Projection Mapping | Logo Reveal Pack - отображение проекции,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF5A62C5FE5468F408B712F99228C2AABF9BA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520315   (141831) от 28.12.2021
-
-Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love After Dark
-02. Spanish Rose Prelude
-03. Smooth
-04. Flor D'luna(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBD96D5E841A735D42AD47572BBDA719F831A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195396   (141832) от 29.12.2017
-
-СашаТаня. Новогодняя серия (2017.12.28) WEB-DLRip
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production", ТНТЖанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DD723E5C50A6E5D4B301DEA3FBAD1DE1735595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678836   (141833) от 23.11.2023
-
-Shazam 14.3.1-231120 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shazam (шазам) распознает любую песню за секунды. Открывайте для себя новых артистов, видео, слова песен, плейлисты — и все бесплатно. Приложение уже загрузили более миллиарда раз, и это число продолжает расти.Тип издания: ModРелиз состоялся: 22.11.2023Разработчик: Apple, Inc.Поддерживаемая ОС: Android 9 и вышеЯзык интерфейса: Русский, Английский  и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A9323835216814B0CC9390791F1DE005991AA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590512   (141835) от 17.12.2012
-
-Windows 8 Codecs 1.34 + x64 Components [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8 Codecs - Набор кодеков от разработчиков Win7codecs, предназначенный для установки в новой операционной системе Windows 8. Он необходим для просмотра видео. Пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. В отличие от своего старшего собрата он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалит уже установленные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
-
-(   Читать дальше...   )Название программы: Windows 8 CodecsЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272700   (141836) от 28.12.2018
-
-Е.П. Моргунов | PostgreSQL. Основы языка SQL (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-практическое пособие охватывает первую, базовую, часть учебного курса по языку SQL, созданного при участии российской компании Postgres Professional. Учебный материал излагается в расчете на использование системы управления базами данных PostgreSQL. Рассмотрено создание рабочей среды, описаны языки определения данных и основные операции выборки и изменения (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBACE8FA6BC08055CF998F16A26F0A0EA98A443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970160   (141837) от 30.12.2015
-
-В. Н. Гарбузов и др. | Консерватизм и развитие. Основы общественного согласия (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замысел исследования состоит в сопоставлении идейной базы и политической практики современного политического консерватизма на Западе, отслеживании тенденции его развития и общественно-политических факторов, определяющих его состояние, и возрождающегося консервативного течения в России. На базе этого сопоставления предложены наиболее значимые положения концепции «консерватизм (   Читать дальше...   )Жанр: Политика, политологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BAE93D29A356C22735EE53100BD4F0E59271FC
 ```
 
 

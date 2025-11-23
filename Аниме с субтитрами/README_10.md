@@ -6,7 +6,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55219.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55303.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55865.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56298.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kuroi Ame ni Utarete | Жертвы чёрного дождя [1984, Movie] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56346.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56516.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TWD Express Rolling Takeoff | TWD-Экспресс: Плавный взлёт [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56659.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56665.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mother: Saigo no Shoujo Eve | Глаза Марса [1993, Movie] VHSRip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56795.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56877.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56878.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56881.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57390.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58897.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59447.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Kuramerukagari | Ослепляющая Кагари [2024, Movie] WEBRip 544p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59911.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60612.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60822.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Metallic Rouge | Металлическая Руж [2024, TV, 13 эп.] WebRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60915.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61210.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61472.jpg" />
 </div>
 
 

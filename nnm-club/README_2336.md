@@ -6,7 +6,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61102.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C8DD4E8B4EE6CED8B5E87BD7982097D5C61333D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61103.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3F2234FF32F7256A7994FC9DCF3C2A916CC1F10D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61104.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:239B0BA9AFFB86616641294A8F3F5217DBEC9635
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61105.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Adobe Acrobat Pro 2024.001.20629 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61106.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2CCE612E184DB451FC02B277E77CFD2090D855AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61107.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4AEC0DE39F4652CC0C39CFF7B9601B93AE5C3DB3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61108.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3F3194D8E47E605B31E178909350706146B93472
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61109.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61110.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C794DB68F68B13F043D6609EAB5EB8DA0C2BB17B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61111.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:46DCBA8AF968D8AEA874EEFEF1236CE5184DA89C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61112.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BE4E3BD59A4258018289A9332BBDD503860E0310
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61113.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F7CA696BACEBAA7EE3C4B41DD1BE194A93BA4580
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61114.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ YouTube ReVanced Extended 19.11.38 (RVP v2.223.0-dev.20) Mod by Number one' + mi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61115.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A36B025662C47300E4DCB95E8A648C69AE5E8A76
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61116.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Photomator for Mac 3.3.4 Patch [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61117.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61118.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C2701537EE0038875D84A4136498F9818A9FB4AF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61119.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:0CBDB1A7D9CC3546EB1DFF3E2189475AB2656722
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61120.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4292D66EF0F1D1D388286B81E0A83C37D0FB1CD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61121.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:4292D66EF0F1D1D388286B81E0A83C37D0FB1CD8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61122.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:0FA89DC13F4D0CACA713E65A5C7210D9BC33B892
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61123.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61124.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:949CAE06A478528593619601920757BBA8B5F7DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61125.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C8C99B63E66983A63D265917C9324341FF530547
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61126.jpg" />
 </div>
 
 

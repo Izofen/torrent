@@ -1,3 +1,75 @@
+###  Публикация: 1085342   (157648) от 21.12.2016
+
+K-Lite Codec Pack 12.7.5 Mega/Full/Standard/Basic + Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157648.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FC4C436FDC087F972A1AD9877B3CE20DC48577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600491   (157653) от 27.12.2022
+
+Path Finder 2149 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13F703F84E50E5A27263AB15049EF9F58E2D16E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346673   (157655) от 20.12.2019
+
+Cinemagraph Pro 2.8.3 (build 223) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinemagraph Pro от студии Fixel – приложение, при помощи которого мастер из любого короткого видео, снятого на камеру смартфона, сделает очередной хит для YouTube. Также программа работает с сериями фотографий, позволяя создавать "видеоколлажи" из набора фотографий. Программа Cinemagraph Pro, поможет Вам разнообразить свои фотографии с помощью эффекта «движения». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2019Разработчик: Flixel Photos Inc.Поддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453C116FF95638FE3F5BB279880D4AD6C32D5387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085408   (157666) от 21.12.2016
 
 Ведьма из Блэр: Новая глава / Blair Witch  (2016) BDRip [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157666.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ BROCKHAMPTON - Iridescence (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardco
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157683.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Mike Shinoda - Post Traumatic (2019) Deluxe Version, RE. [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157686.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:850FA73531F296392ACF9F8D9F22397C72B6743D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157701.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Calibre 5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157707.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157711.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ R-Wipe & Clean 20.0.2340 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157720.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:DF1D35C256CE76C0F62FD7BBCC830F480CC7883B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157742.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:93EBE62180E45895708CC8A17607D117648622BA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157744.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Q-Dir 10.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157752.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Twisted Psykie - Washed Away (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, UK G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157766.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Illingsworth - You're No Fun (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Unde
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157768.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Things 3 v3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157770.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ magnet:?xt=urn:btih:B331D8FC998B6045DFD84334B6854C41CB5F169C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157772.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ TG Pro (Temperature Gauge Pro) 2.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157780.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Weedcraft Inc. 1.3 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157795.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ DaVinci Resolve Studio 12.5.4 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157801.jpg" />
 </div>
 
 
@@ -436,7 +508,7 @@ CrystalDiskInfo 8.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157805.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ magnet:?xt=urn:btih:BFD39FF4CB5AB92923C4619F47EBC7AB7F6CED27
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157822.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ uDock 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157836.jpg" />
 </div>
 
 
@@ -508,7 +580,7 @@ Separation Studio 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157838.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ magnet:?xt=urn:btih:309E03B639529335CF9867D36D0A33217C5AEE87
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157842.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ Privacy Eraser Free 4.57.5 Build 3336 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157850.jpg" />
 </div>
 
 
@@ -568,82 +640,6 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBDFCCF6566759208CD0411CD62B4CB4A87B8179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588586   (157860) от 13.12.2012
-
-Журнал | Атлас. Целый мир в твоих руках №148 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157860.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F391EB7882B036C764D1642F833866087115FDD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967992   (157861) от 22.12.2015
-
-Синистер 2 / Sinister 2 (2015) BDRip [H.264/720p] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
-Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей — близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания / IM Global, Alliance Films, Automatik Entertainment, BlumhouseЖанр: Ужасы, Триллер, ДетективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон БизлиПеревод: Дублированный (Line)Язык субтитров: РусскийПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B3EF333A05B593E4047B37A990EAE6CAE0552B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194402   (157867) от 24.12.2017
-
-Аnsаtheus - In the Соnstellаtion of Кesil (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Berlin-School>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157867.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orbiter
-2. Deep Flight
-3. The Alnilam Trip
-4. Particular Signals from Mintaka(   Читать дальше...   )Жанр: Electronic, Ambient, Berlin-SchoolПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98AFD6717D6B39472F0579A32471777684312D9
 ```
 
 

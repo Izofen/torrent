@@ -6,7 +6,7 @@ Reg Organizer 9.88 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150752.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F7C2F6C87AB378AA9C961670F593F49C0AD5881F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150754.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 144.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150969.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser 144.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150977.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TreeSize Professional 9.6.1.2156 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150985.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OCCT 15.0.2 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150995.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe Acrobat Pro 2025.001.20813 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151290.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ PDF-XChange Editor Plus 7.0.328.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151634.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:62C118774CC94EE314CD8568A2616330F5935C49
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151660.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Help+Manual Server Edition 7.5.3 Build 4740 [En/De]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151889.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Acrobat Pro 2025.001.20813 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152354.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ASCOMP BackUp Maker Pro 8.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152384.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ UltraSearch 3.0.1.634 Free + Portable & Pro with patch [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152399.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ASCOMP Secure Eraser Pro 6.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152423.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ASCOMP F-Rename Pro 2.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152503.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ ASCOMP Text-R Pro 2.002 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152633.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ ASCOMP PDF Conversa Pro 3.003 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152661.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ ASCOMP Synchredible Pro 8.105 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152706.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ ASCOMP PDF Imager Pro 2.002 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152848.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ASCOMP Secure-PDF Pro 2.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152994.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ FontLab 7.0.1 (build 7276) [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153013.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ EaseUS Data Recovery Wizard Technician 16.0.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153056.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Veeam Endpoint Backup FREE 1.5.0.306 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153747.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Advanced SystemCare Pro 16.1.0.106 RePack by OctaneS [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154623.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154648.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154714.jpg" />
 </div>
 
 

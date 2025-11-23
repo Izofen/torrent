@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ExtraDisks 25.1.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32212.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Telegram Desktop 5.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32217.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Jigsawscapes® - Пазлы v3.6.10 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32221.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ IPTV Pro v9.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32227.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Internet Download Manager 6.42 Build 26 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32255.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ TikTok Private Plus (PayBack Edition) v38.0.15 Mod by TikTok Updates + Plugin Up
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32317.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PeaZip 10.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32325.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Files Inspector Pro 4.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32336.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Slimjet 45.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32337.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ TikTok 37.9.3 Mod by Dmitry Nechiporenko + Plugin 1.63 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32338.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FanControl V210 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32340.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DVDFab 13.0.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32389.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E700DA9784BB2BB6CF4BC8BCFE376B121EA94CC5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32393.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FontViewOK 8.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32394.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ QOwnNotes 25.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32411.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D5CC5CE3F4B952600B9266D68E10E67C775E9A57
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32416.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Soft Organizer Pro 10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32417.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Desktop Calendar 3.20.219.6934 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32420.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Dict Box - Английский словарь v8.9.7 Mod by Alex.Strannik [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32431.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Topaz Photo AI 3.4.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32435.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ AIMP 5.40.2653 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32436.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Wondershare UniConverter Ultimate 16.1.0.113 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32439.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ SoftPerfect RAM Disk 4.4.2 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32440.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WinTools.net Premium 25.1.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32446.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Topaz Photo AI 3.4.4 RC (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32464.jpg" />
 </div>
 
 

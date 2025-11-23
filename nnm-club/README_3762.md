@@ -1,3 +1,75 @@
+###  Публикация: 1700074   (117494) от 15.02.2024
+
+Adobe Acrobat Pro 23.8.20533 (x32-x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADA95E49FD2C0B8C133DBEC0C5432A3C41C02AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575977   (117495) от 15.02.2024
+
+Мариуполь (2022) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти 600 тысяч мариупольцев стали заложниками бойцов из "Азова" и ВСУ: людей не выпускали, дороги заминировали. Когда началось освобождение Мариуполя, ВСУ уничтожало граждан своей же страны. Почему и как город стал мощной базой батальона "Азов"? Об истории и наших днях города – фильм Андрея Медведева.Телекомпания: Россия / т/к "Россия", Кинокомпания «Мастерская», ВГТРКЖанр: документальный, война, пропаганда, историяЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB1C4F293F87767AAD8E3F79AE4894240E8AE0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552924   (117496) от 15.02.2024
+
+С.М.Беков и др. | 15 бригада Спецназ. Люди и судьбы. Афганистан глазами очевидцев [2009] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается об истории 15-й отдельной ордена Красного Знамени Республики Афганистан бригады специального назначения ГРУ ГШ ВС СССР, солдатах и сержантах, прапорщиках, офицерах и генералах, связавших свою судьбу со Спецназом. Глазами участников боевых действий в Афганистане раскрывается роль Спецназа ГРУ ГШ в афганской войне 1979-1989 гг., боевые будни (   Читать дальше...   )Издательство: М.: Русская панорамаФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25617008F6381AEC4E9A6B06A6FD4B2C3D782986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 420896   (117497) от 15.02.2024
 
 Иван Гончаров | Обломов (2004) [MP3, Вячеслав Герасимов]
@@ -6,7 +78,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117497.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ uTorrent Pro 3.6.0 Build 47012 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117498.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:29BDA910DEE91EB485D9724D4782983166F91E37
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117499.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:A70515F4BB4775C7B8A8093898E4D07D4A90B20D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117500.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:42F3B012B3BB737933B3662BC533502467171999
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117501.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117502.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:AAC7B1E1722C39558B15CFACDE7C7CB6FEB1DA1C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117503.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ magnet:?xt=urn:btih:49D44A711ADB2F836D0FCBC90A715C448DC9DC05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117504.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:9FAF5385536239AEAE6C4AFF49BBFEC3117C4588
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117505.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:2649A8F45B08982D104D306FF62E86166410FF4F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117506.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:A3859F857859AB7E4F9BCC2D83D06BF7F4B22BC3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117507.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:A784438DCCE2421306320E519B21199F9C9CD5EB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117508.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:3A0C1084DD26F60105B394DF4E1B136D62C71A93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117509.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ magnet:?xt=urn:btih:A05037A7FE118D3F2772EFC0CD25DAA71F1D0C15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117510.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:98F0B6B0FF309215B9063370E1D2B170AB78BA93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117511.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:80A5291BEDAD35AF7D7D5AD511C5132FB5304DE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117512.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:80A5291BEDAD35AF7D7D5AD511C5132FB5304DE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117513.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ FL Studio Producer Edition 21.2.3.4004 (X64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117514.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (14.02.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117515.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:FA7601CFABAA64F043BBAEB73FB1751B66B964FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117516.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:3CF687299B76DCD8A8766C187E3F2ADC94CD1B5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117517.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ HAYDEE II (2020) [Ru/Multi] (1.0.18.11/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117518.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:CC16BFB06AB186E4C865DA16795F750EC33460ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117519.jpg" />
 </div>
 
 
@@ -556,78 +628,6 @@ magnet:?xt=urn:btih:CC16BFB06AB186E4C865DA16795F750EC33460ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45EE68472CA37AA6D469A6EF52B437C450D7B1C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699692   (117520) от 15.02.2024
-
-Manjaro 23.1.3 Vulcan (xfce, KDE Plasma, Gnome) (Official images Manjaro Team) [x64] 12xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manjaro - это дружественный пользователю дистрибутив Linux, основанный на независимо разработанной операционной системе Arch. В сообществе Linux, Arch известен как исключительно быстрый, мощный и легкий дистрибутив, предоставляющий доступ к самому последнему передовому и "революционному" программному обеспечению. Однако Arch также ориентирован на более (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798240B6BADA1A99647F51F921704A12973F9B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632289   (117521) от 15.02.2024
-
-Борис Мосафир | Шибари (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шибари или сибари (с ударением на последнюю «и») — японское искусство связывания при помощи верёвок, которое сегодня известно, в основном, как садомазохистская практика. Техника бондажа восходит к техникам боевого связывания ходзё-дзюцу, возникшим в Японии в XV—XVI веках, однако в качестве эстетико-эротической практики шибари сформировалось только к середине XX века, (   Читать дальше...   )Жанр: сексология, пикап, искусство обольщенияЯзык озвучки: русскийПродолжительность: 11:40:05Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822739   (117522) от 10.10.2025
-
-Цвет настроения синий — история BSOD и палитра экранов смерти
-
->>Компьютеры и комплектующие
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_117522.jpg" />
-</div>
-
-
-###  Подробнее
-
-BSOD, или «Синий Экран Смерти» — cколько несохраненных документов, неотправленных сообщений и почти пройденных игровых боссов кануло в небытие по его милости?Современный облик BSOD (кстати, с лета 2025 года — без грустного смайлика и QR-кода) — лишь последняя итерация долгой эволюции. Почему он синий, в какой версии Windows появился, бывают ли экраны смерти другого (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

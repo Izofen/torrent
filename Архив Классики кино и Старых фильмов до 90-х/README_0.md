@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11863.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:29B88B435C73D780F58CD825397631E03A884DE4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11865.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:970AD40F0EFBCD5E2714BE91D4A85E78B78FF1C4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11871.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C84E85310361549B1F52CDEE24BFB23D65CA523D
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11872.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:F2E9D59C55F2D56C9563CE3D64F8B3CF6BA188E0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11876.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11890.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FC951C2984162D0EE262506C04204CD04F9141E8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11898.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:90F2CA5AC16221205DAF332B1A099257DD857962
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12511.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:90F2CA5AC16221205DAF332B1A099257DD857962
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12690.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:90F2CA5AC16221205DAF332B1A099257DD857962
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12698.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12722.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13097.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13103.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13120.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13122.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13125.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13129.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13131.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:65F0EC33AEDABBC378C969E3105BE266FE0D3F31
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13453.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:360058B8C578BB7811BD5A623D22396E5B2FE390
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13517.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:360058B8C578BB7811BD5A623D22396E5B2FE390
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13524.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13526.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13554.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13555.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14251.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C43A07E78D0A1530ED6F2C4D46F2F0189E2BB3A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14281.jpg" />
 </div>
 
 

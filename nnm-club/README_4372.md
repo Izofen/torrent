@@ -1,3 +1,93 @@
+###  Публикация: 592710   (134760) от 24.12.2012
+
+VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday, Pop, Blues, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham! - Last Christmas (4:28)
+02. Band Aid - Do They Know It's Christmas (3:49)
+03. Maroon 5 - Happy Xmas (War Is Over) (3:29)
+04. Human Nature - Away In A Manger (2:02)
+05. Michael Bolton - Joy To The World (4:06)
+06. George Michael - December Song (I Dreamed Of Christmas) (3:35)
+07. Diana Krall - Jingle Bells (2:13)
+08. Hillsong - Born Is The King (3:21)
+09. Marvin Gaye - I Want To Come Home For Christmas (3:28)
+10. The Jackson 5 - Up On The Housetop (3:14)(   Читать дальше...   )Жанр: Holiday, Pop, Blues, Jazz, RockПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680083   (134761) от 27.11.2023
+
+Зеркало для оборотня (2022) HDTVRip [H.264] (сезон 1, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера выходит замуж, как ей кажется, за «прекрасного принца» Дениса. Девушка даже не подозревает, что Денис – хитрый и двуличный человек, оборотень, не останавливающийся ни перед чем ради достижения своих корыстных целей. Став жертвой его циничных и жестоких манипуляций, отсидев в колонии по ложному обвинению в убийстве и фактически лишившись родительских прав, Вера (   Читать дальше...   )Производство: Россия | «Феникс-Фильм»Жанр: Остросюжетная мелодрамаРежиссер: Игорь МужжухинАктеры: Юлия Франц, Станислав Бондаренко, Прохор Дубравин, Иван Батарев, Юлия Юрченко, Ксения Энтелис, Андрей Харыбин, Анастасия Теплинская, Полина Давыдова, Денис МотковПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DF02F464A62A742B6C6725C5B8DD74F0021CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593592   (134762) от 24.12.2012
+
+James Newton Howard - Blood Diamond / Кровавый Алмаз (2006) [MP3|128 кб/с]<Instrumental> <OST>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blood Diamond Titles
+02 - Crossing The Bridge
+03 - Village Attack
+04 - R.U.F. Kidnaps Dia
+05 - Archer & Solomon Hike
+06 - Maddy & Archer
+07 - Solomon Finds Family
+08 - Fall Of Freetown
+09 - Did You Bury It?
+10 - Archer Sells Diamond(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929F27E0604721EFDDF5F2CC34069608329AC024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680041   (134763) от 27.11.2023
 
 USB Safely Remove 7.0.4.1319 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +96,7 @@ USB Safely Remove 7.0.4.1319 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134763.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ magnet:?xt=urn:btih:D47722FAA2168E21F1A637DCB37F413F53EC8B38
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134764.jpg" />
 </div>
 
 
@@ -54,7 +144,7 @@ magnet:?xt=urn:btih:C125D2811B1E5CF33C495319C47C643E96567458
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134765.jpg" />
 </div>
 
 
@@ -81,7 +171,7 @@ CCleaner Pro: ПО для очистки 23.22.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134766.jpg" />
 </div>
 
 
@@ -105,7 +195,7 @@ ABBA в Швейцарии / ABBA in Switzerland (1979) HDTV [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134767.jpg" />
 </div>
 
 
@@ -132,7 +222,7 @@ magnet:?xt=urn:btih:96D77AE18831AC7E9021DDEFF29C8AE6DB08DA0E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134768.jpg" />
 </div>
 
 
@@ -156,7 +246,7 @@ magnet:?xt=urn:btih:3F9CE3A03F4634D2B5708E52AE01225CAC7A9BDF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134769.jpg" />
 </div>
 
 
@@ -182,7 +272,7 @@ magnet:?xt=urn:btih:71857C60B3FC07CE878108BC9829F11742F833F8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134770.jpg" />
 </div>
 
 
@@ -206,7 +296,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134771.jpg" />
 </div>
 
 
@@ -239,7 +329,7 @@ magnet:?xt=urn:btih:0373D2C85DBF31F2BFFEC97966BC600A834D7088
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134772.jpg" />
 </div>
 
 
@@ -263,7 +353,7 @@ magnet:?xt=urn:btih:D0C23C1EEFDA276625A56D4F15910A48814E5160
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134774.jpg" />
 </div>
 
 
@@ -287,7 +377,7 @@ VA - Новогодний подарок от Взрослого Радио (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134775.jpg" />
 </div>
 
 
@@ -320,7 +410,7 @@ magnet:?xt=urn:btih:483762723C0C59A00BF8810765AA23AEDACE9EE3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134776.jpg" />
 </div>
 
 
@@ -344,7 +434,7 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134778.jpg" />
 </div>
 
 
@@ -372,7 +462,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134779.jpg" />
 </div>
 
 
@@ -405,7 +495,7 @@ Winter Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134780.jpg" />
 </div>
 
 
@@ -429,7 +519,7 @@ Space Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134781.jpg" />
 </div>
 
 
@@ -453,7 +543,7 @@ magnet:?xt=urn:btih:65C2538C05F3721B310BDBAB8CA5E0094FF25346
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134782.jpg" />
 </div>
 
 
@@ -477,7 +567,7 @@ magnet:?xt=urn:btih:36197E169A0D0B009AE0906B8358F676D3A47CAE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134783.jpg" />
 </div>
 
 
@@ -501,7 +591,7 @@ New year wallpapers 2013 (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134784.jpg" />
 </div>
 
 
@@ -525,7 +615,7 @@ WinTools.net Premium 23.12.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134785.jpg" />
 </div>
 
 
@@ -549,7 +639,7 @@ magnet:?xt=urn:btih:EE3D2555E02C6EF20F34F8ACF06D69539F73FC77
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134786.jpg" />
 </div>
 
 
@@ -573,7 +663,7 @@ Square Home Launcher 3.0.5 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134787.jpg" />
 </div>
 
 
@@ -584,87 +674,6 @@ Square Home - красивый, стильный и функциональный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680073   (134789) от 27.11.2023
-
-Wise Registry Cleaner Pro 11.1.2.717 RePack (& portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C625F6B5F3A252B0FC02FC35961321F2820B07A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679907   (134791) от 27.11.2023
-
-Ю.Н. Калачёв, Д.В. Самохвалов | SimInTech. Основы регулируемого электропривода. Антиучебник (2023) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные среды компьютерного моделирования позволяют создать цифровую модель проектируемого устройства и в цифровом пространстве проанализировать его поведение. По результатам этих виртуальных испытании? можно исследовать различные режимы работы элементов системы, искать ошибки в предлагаемой к реализации структуре, оптимизировать алгоритмы управления и даже автоматически (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A26DBD07F15237BBC3F5EF7063BDA7F1D70147D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593413   (134792) от 24.12.2012
-
-VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руслан Березовский - Ромашка
-02. Сергей Артемьев - Одной тебе
-03. Андрей Рубежов - Красотки-бортпроводницы
-04. Кабриолет - Не ревнуешь
-05. Бумер - Она одна
-06. Алексей Свешников - По снегу
-07. Сергей Сухачев - Первые цветы
-08. Жека - Кони
-09. Михаил Штукин - Любовницы, любовники
-10. Денис Мафик - Миллион разлук(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
 ```
 
 

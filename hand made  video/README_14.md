@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17821.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F0A9B2D68212A1A7476BADD46D5B80AD7202E431
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17836.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:49CDFC97FE48DE853FF4BCF81414421185A4B5F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17837.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6494D2DB2E3B8678139797B710D9D98C107FE552
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17841.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:ED10431E575C947D8D799FA7916B6043698A0E98
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17842.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:620E1B4A3C8243DE61CC953F86B4D471AC826FCF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17864.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2E64DB5F07EAF9A682061A0A1743C4683739243C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17865.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:CCB4CFA0D1BEDE492A5B7B4BFDD68AD05E643022
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17866.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:099BBBA48FE918BB091A9068AF9CDB0D295790D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17869.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [AV1/2160p] [4K, HDR, 1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17870.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:82F072EA37D71B018184D45A88B826FC38744054
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17902.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:53B8B8EBE561CDF4591EA4C067DE4EFFC1908818
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17914.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3181604B1526F78A56857330D6F3EE10D96694F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17921.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DE7A723575952E7E75678A16C08A8BB031890F77
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17927.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:BE5DA7EEC37B1B32D25B574665C5D5321BF9976F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17984.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DE3D37F9FF4A0C0FD044CADA2E64AEB893F99351
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17993.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D7C2882A9423C817FDC7A256FA883DAAAE4B87EA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17996.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:DCC3DD42D910C8C11DBC21AACE44D4FDF0766C04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17998.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18008.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:4D379C20BF02325DB57BD437120BF9B8803D7231
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18020.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:FA6F308AE7770AF168A70C72C96B7EE1730DE71E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18025.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9EA166F265D6FF986BC5EF38E907F54D10B95396
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18028.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:31DE17C28F87C216BC90B2059203D87A3D8DF7C4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18031.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AD22A3EA3B17F22A187542148ECE30F6492F9398
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18052.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A695A7DF2EF0B9A1233A5D433720029051BA9499
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18098.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18105.jpg" />
 </div>
 
 

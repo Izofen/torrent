@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CC88F9028AB0716819C54DA8367291C0CF12D7B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01DF507BD02C2254D9FE8BA41BECA5BE173EA436
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1557F3C6704F422B488024516BB9B084CB14119B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58426.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C74487FDBF396116D7A1190504BAD3A5896B451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58427.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:071344B503A89BDAA37E893CFFA3DD0CC8D96660
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58428.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C51C253CF97EF9300F261FE006822FF8B67EAC33
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58429.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DFFF1415F4F923D04DF0B29A05B9EF9010ED8BE6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58430.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft встроила рекламный блок прямо в меню «
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58431.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Unlocker 1.0.2 Portable by Eject [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58432.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D7CD3EAEC651D3BE2E9767E7C4F02039D9331CBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58433.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ BBC: Чудеса времен года / Seasonal Wonderlands (Earth's Greatest
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58434.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:46ACF50D1C7E24D00A7B66671501C0F43A28308E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58435.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E9775699297C5F42DD67CCCAF710018B3C460720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58436.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2B6F75FBA4F2381F4A79E494B8EBE7BC58AE736E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58437.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:61D7241A1729E17343294C74F7DE0A6A0F0D0994
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58438.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AFF33DA47AFD3306D6B4B650D4C31EC74EF12ED7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58439.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:88D5CD69207528BF92824C9F7EFDAB55A8E5CBF4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58440.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:75595EFF03E02F46335169DB65E13C4C4436427A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58441.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6805BCC9C91DE3005F4125B59124F1F673A54137
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58442.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:168635749934664B73F09B96C6B34C64C0E60CFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58443.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:168635749934664B73F09B96C6B34C64C0E60CFF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58444.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58445.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ByClick Downloader Premium 2.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58446.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MobaXterm 24.1 build 5208 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58447.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:95A291EB243E6A9E64E6F25E75F72018AE30C095
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58448.jpg" />
 </div>
 
 

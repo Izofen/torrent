@@ -1,3 +1,76 @@
+###  Публикация: 1657165   (192926) от 02.09.2023
+
+Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части книги вы получите базовые знания по Java и Eclipse. В этой части закладываются основы программирования, дается обзор технологии Java и показывается, что особенного в объектно-ориентированном программировании.
+Во второй части все вращается вокруг тонкостей языка Java, и именно здесь создаются первые небольшие Java-приложения, которым помогает тонкое (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Elektor PublicationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1CCFFE91D6868EC70B28D1DB6EA900E7850EF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657200   (192932) от 02.09.2023
+
+Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192932.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале книги вы познакомитесь с увлекательным миром структур данных и алгоритмов. Эта книга поможет вам узнать о различных алгоритмических методах, таких как динамическое программирование, жадные алгоритмы и обратный путь, а также об их применении для решения различных вычислительных задач. Затем книга научит вас анализировать сложность рекурсивных алгоритмов. (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657190   (192964) от 02.09.2023
+
+Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга призвана познакомить вас с типами вопросов, с которыми вы можете столкнуться на собеседовании, а также дать рекомендации по подготовке и выработке соответствующей стратегии. В книге подробно рассматривается семейство NoSQL и SQL, начиная с фундаментальных основ и заканчивая такими продвинутыми темами, как архитектура, оптимизация и практические примеры (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B571E02D1C58CAFD4181345E25B90CEE0C2E63FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587021   (193056) от 29.10.2022
 
 Тимур Машнин | Создание настольных Python приложений с графическим интерфейсом пользователя (2021) [EPUB]
@@ -6,7 +79,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193056.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193056.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193057.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193057.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193087.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193087.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:4FD70095CE24BCCF678EF4289E8001910ADC4BBC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193484.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193484.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193650.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193654.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193654.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193659.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193659.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193665.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193665.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ Einar Ingebrigtsen | Metaprogramming in C# (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194045.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194045.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ magnet:?xt=urn:btih:7819BCCB0FA0E2A90E4A639D3599CAAB878C82D6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194110.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194110.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194138.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194138.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194417.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194417.jpg" />
 </div>
 
 
@@ -299,7 +372,7 @@ magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194483.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194483.jpg" />
 </div>
 
 
@@ -323,7 +396,7 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194505.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194505.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194537.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194537.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194540.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194540.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194609.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194609.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194611.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194611.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194635.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194635.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ Addy Osmani | Learning JavaScript Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194643.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194643.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ Michael Dinder | Becoming an Enterprise Django Developer (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194839.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194839.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ Eric Smith | Game Development with Rust and WebAssembly (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194891.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194919.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194919.jpg" />
 </div>
 
 
@@ -561,81 +634,6 @@ magnet:?xt=urn:btih:EE53DE32B714CCF93191AA03A57A90D2CB7F4D96
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2EA7E1EF81E05541E69B21538418FF9BFA048ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649920   (194976) от 29.07.2023
-
-Бас Мейер, Рене Мозер, Лорин Хоштейн | Запускаем Ansible. Третье изд. (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой способ автоматизации управления конфигурациями и развертыванием приложений
-
-Среди множества имеющихся инструментов управления конфигурациями Ansible выделяется своими преимуществами, такими как небольшой объем, отсутствие необходимости устанавливать что-либо на управляемые хосты и простота в изучении и освоении.
-В этом обновленном третьем издании вы узнаете, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. КиселевИздательство: ДМК Пресс, O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649923   (194982) от 29.07.2023
-
-Макгрегор Дункан, Прайс Нэт | От Java к Kotlin (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга описывает практические приемы рефакторинга и переноса кода написанных на Java мобильных приложений для Android  на язык Kotlin с сохранением совместимости. Приведено подробное сравнение этих двух языков, даны примеры перевода проектов с Java на Kotlin, добавления поддержки Kotlin в сборку Java. Показан переход от классов Java к классам Kotlin, от коллекций Java (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B487053A6BEB616659B48288BBDF0FF117EA3347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648765   (195123) от 26.07.2023
-
-Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Java обычно решают сложные задачи разработки программного обеспечения с помощью объектно-ориентированного программирования (ООП). Однако не все проблемы подходят для ООП. Парадигма функционального программирования (ФП) предлагает другой подход к решению проблем, а Java предоставляет такие простые в освоении инструменты ФП, как лямбды и потоки. Если вы (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 ```
 
 

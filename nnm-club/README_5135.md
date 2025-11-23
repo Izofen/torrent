@@ -1,3 +1,175 @@
+###  Публикация: 1676065   (158916) от 12.11.2023
+
+VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Killers - Mr. Brightside (3:44)
+02. Bon Jovi - Livin' On A Prayer (4:11)
+03. Kiss - I Was Made For Lovin' You (4:28)
+04. The Rolling Stones - Paint It, Black (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600264   (158917) от 26.12.2022
+
+Девушка в ящике / Girl in the Box (2016) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158917.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 1977 года 20-летняя Колин Стен пыталась автостопом добраться на день рождения друга. Последующие 7 лет она провела в плену. Девушку похитили супруги — чета Хукер, Камерон и Джанис. Коллин стала сексуальной рабыней Камерона, но этого, видимо, было недостаточно, поэтому он регулярно подвергал ее издевательствам: избивал и заставлял спать в деревянном ящике, (   Читать дальше...   )Производство: Канада / GIAB Productions, Randy Murray ProductionsЖанр: драма, криминалРежиссер: Стивен КемпАктеры: Зельда Уильямс, Билл Лэйк, Эддисон Тимлин, Адриан Гриффин, Зейн Холц, Matt Cooke, Shawn Wright, Бриттани Аллен, Vivian Wright, Шилин ПатонПеревод: Одноголосый любительскиий (datynet)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE754E1E51A07D4B15750B764791CF31E10DC93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593136   (158918) от 26.12.2022
+
+Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158918.jpg" />
+</div>
+
+
+###  Подробнее
+
+GX-80 - это не просто еще одна эмуляция CS-80. GX-80 умело интегрирует набор отличительных функций GX-1 в архитектуру CS-80; что наиболее важно, массивная двухслойная архитектура, которая фактически сделала GX-1 эквивалентом двух CS-80, а затем и некоторых других. В GX-1 встроены уникальные высокочастотные резонансные импульсы и полосовые пилообразные волны, треугольные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2240C471E6F586EF3C04D772C7DBDF40A8D7E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676235   (158919) от 12.11.2023
+
+На глубине страха / Deep Fear (2022) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычное путешествие под парусом в Карибском море обернулось для прекрасной опытной яхтсменки Наоми самым опасным приключением в жизни. Отклонившись от маршрута из-за внезапного шторма, она решает помочь группе выживших в кораблекрушении. Спасенные люди оказываются наркоторговцами и берут Наоми в плен. Теперь под угрозой смерти ей необходимо достать с утонувшего судна (   Читать дальше...   )Производство: Великобритания, Ashland Hill Media Finance, Brilliant Pictures, Fred FilmsЖанр: боевик, триллерРежиссер: Маркус АдамсАктеры: Эд Вествик, Мадалина Генея, Макарена Гомес, Шэйн Роу, Ибрахима Гуйе, Майк Пэриш, Стани Коппет, Роберт Капелли мл., Марко Санадеа, Джон-Пол ПакеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E3B696A171D7AE4C826845D511779AA237980A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600268   (158920) от 26.12.2022
+
+LEGO Скуби-Ду!: Призрачный Голливуд / Lego Scooby-Doo!: Haunted Hollywood (2016) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158920.jpg" />
+</div>
+
+
+###  Подробнее
+
+О, Голливуд! Блеск, гламур... И Всадник без головы? Отправляйтесь вместе с любимцем зрителей Скуби-Ду и другими членами корпорации «Тайна» - в святая святых киносъемки - в легендарные голливудские студии. То, что начнется как обычная экскурсия станет настоящим детективным расследованием наших друзей! Город наполнен призраками и монстрами из знаменитых кинолент, и (   Читать дальше...   )Производство: США / Warner Bros. Animation, The LEGO Group, Hanna-Barbera ProductionsЖанр: мультфильм, ужасы, фэнтези, комедия, детектив, семейныйРежиссер: Рик МоралесПеревод: многоголосый любительский (Колобок)Субтитры: отсутствуютПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5B0B26A5AACC098393F4882B0E15A482C5CCC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676321   (158921) от 12.11.2023
+
+Technimatic - For All Of Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid Funk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8501D19DD419C24083FB68376498EB1D1A82FC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600183   (158922) от 26.12.2022
+
+Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
+Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F602AE55E55601873BF27A3621C26F3D9FEE4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676252   (158923) от 12.11.2023
 
 Песня девственниц / Devicanska svirka (1973) BDRip [H.264] [VO]
@@ -6,7 +178,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158923.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ magnet:?xt=urn:btih:38F902CAC704BA6DB502E9BCE5CEFB4C18337FB0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158924.jpg" />
 </div>
 
 
@@ -55,7 +227,7 @@ magnet:?xt=urn:btih:1DDA2520BBA68BB1417C5D6DE60AFF258C83B622
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158925.jpg" />
 </div>
 
 
@@ -79,7 +251,7 @@ magnet:?xt=urn:btih:0619D86BA939893D3C1BF879698380464195F39B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158926.jpg" />
 </div>
 
 
@@ -107,7 +279,7 @@ magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158927.jpg" />
 </div>
 
 
@@ -131,7 +303,7 @@ magnet:?xt=urn:btih:DF7FF12765D26743A5E0ED86F5D1D90FA2CA98E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158928.jpg" />
 </div>
 
 
@@ -155,7 +327,7 @@ magnet:?xt=urn:btih:D5B63B38812D80A22A9E1FB67E223EEA6E12EA65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158929.jpg" />
 </div>
 
 
@@ -179,7 +351,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158930.jpg" />
 </div>
 
 
@@ -205,7 +377,7 @@ RSS Guard 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158931.jpg" />
 </div>
 
 
@@ -230,7 +402,7 @@ magnet:?xt=urn:btih:BAD4B6BD0C658423C05E517543946E2EB617C4C8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158932.jpg" />
 </div>
 
 
@@ -254,7 +426,7 @@ VA - Trance In Motion Vol.366 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158933.jpg" />
 </div>
 
 
@@ -281,7 +453,7 @@ magnet:?xt=urn:btih:FE9D396D1920688A6F55E9D2D50882BA18E5005D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158934.jpg" />
 </div>
 
 
@@ -307,7 +479,7 @@ magnet:?xt=urn:btih:45E045E6A4DEC0C8ADAAB052302B2ABE2E27BE9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158935.jpg" />
 </div>
 
 
@@ -331,7 +503,7 @@ magnet:?xt=urn:btih:5315052B2807F8A7D7033B17F1947D767AB2AD5A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158936.jpg" />
 </div>
 
 
@@ -355,7 +527,7 @@ magnet:?xt=urn:btih:9CEE5C9F7475BDF9B68A59407D09F7498E82A936
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158937.jpg" />
 </div>
 
 
@@ -379,7 +551,7 @@ One Commander Pro 3.28.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158938.jpg" />
 </div>
 
 
@@ -404,7 +576,7 @@ magnet:?xt=urn:btih:E811AED33ACDEFA745259C6EC7B6CCEDA3CB9D15
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158939.jpg" />
 </div>
 
 
@@ -428,7 +600,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Node.js (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158940.jpg" />
 </div>
 
 
@@ -454,7 +626,7 @@ Pythius - Turmoil (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Neurofunk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158941.jpg" />
 </div>
 
 
@@ -465,184 +637,6 @@ Pythius - Turmoil (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Neurofunk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:070C4C4F7EEA6496C900918445F5F207AD5BC44D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600230   (158942) от 26.12.2022
-
-VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. Dub Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Microlot -  Sensory Cortex  (6:29)
-02.  Dexter Curtin, Marcus Jahn -  Own Breeding (Alexander Bogdanov Remix)  (6:47)
-03.  Dott. Santafeo -  Basileo Regolo  (6:20)
-04.  Mick Whitehouse -  Dotti  (5:08)(   Читать дальше...   )Жанр: Deep House, Tech House. Dub Techno, MinimalПродолжительность: 03:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49318A8B39D8F40CDBF75FED3103DEEE3D246DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676169   (158943) от 12.11.2023
-
-VA - Trance In Motion Vol.365 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allende - Horizon Painter (Original Mix)
-02. Myon - Albion (Pavel Khvaleev Extended Remix)
-03. Ron with Leeds - Obsidian (Extended Mix)
-04. Sunlight Project - Darkstar (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15194472E83BCBDAECE8AAF20E7C7EE0B93F69B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600165   (158944) от 26.12.2022
-
-KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modwave Native Wavetable Synthesizer Мощный синтезатор с характерными волновыми тембрами, Kaoss Physics и Motion Sequencing 2.0. Modwave, выпущенный в 2021 году, основан на наследии DW и превращает его в современный синтезатор-монстр с невероятно глубокими волновыми генераторами, великолепными фильтрами, невероятно гибкой модуляцией, сложным секвенсором паттернов (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6668ED20BD786C085BD3D54B89432B5661834727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674867   (158945) от 12.11.2023
-
-Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah
-02. Demon
-03. Don't Give Up
-04. Lies Feed On Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600161   (158946) от 26.12.2022
-
-Остин Пауэрс. Голдмембер / Austin Powers in Goldmember (2002) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158946.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 году отец Остина Пауэрса, знаменитый английский шпион Нейджел Пауэрс был похищен голландским злодеем Голдмембером. Теперь знаменитый шпион Остин Пауэрс решает помочь отцу. Заручившись поддержкой давнего врага, Доктора Зло с помощью его машины времени Остин совершает прыжок во времени. Он оказывается в 1975 году, в эпохе диско. Однако вскоре выясняется, что, (   Читать дальше...   )Производство: США, Gratitude International, Moving Pictures, New Line Cinema, Team ToddЖанр: комедия, фантастика, боевик, приключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе, Сет Грин, Майкл Йорк, Роберт Вагнер, Минди Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвэдж, Дайан Мизота...Перевод: дублированный (2 варианта), профессиональный многоголосый, авторские (Евгений Гранкин; Павел Санаев)Субтитры: русские, английские SDHПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5216B6682E9B093F9FF0CFBB433688B09717A44D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676316   (158947) от 12.11.2023
-
-Pablo Hasel письмо из тюрьмы. (11.11.2023) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pablo Hasél письмо из тюрьмы.Производство: Россия, Авторский блог Хосе Гонсалес ЛопесЖанр: ПолитикаЯзык озвучки: РусскийСубтитры: ОтсутствуетПродолжительность: 00:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F2D8103A7CEB7C774C92481BC2818FD6BB0D25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600167   (158948) от 26.12.2022
-
-KORG - Wavestate Native 1.1.1 Standalone, VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Korg выпустила программную версию синтезатора Wavestate. По словам компании, плагин идентичен своему аппаратному аналогу, благодаря чему пользователи могут обмениваться пресетами и патчами между ними.
-В основе виртуальной версий Korg Wavestate лежат те же технологии, что и в аппаратных изданиях синтезатора. Совместимость позволяет импортировать как созданные в плагинах (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF24305AAE0EC6A11BCD34B4A7EA055C71C406BA
 ```
 
 

@@ -1,3 +1,149 @@
+###  Публикация: 1195118   (141895) от 29.12.2017
+
+А.В. Перельмутер | Беседы о строительной механике (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обсуждаются некоторые принципиальные вопросы современной строительной механики, которые, как показывает опыт общения с пользователями программных средств, недостаточно усваиваются во время учебы в высшей школе. Целью книги является углубленное изложение основ тех методов, которые используются в расчетных программах с упором на анализ основных предпосылок (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E869405744801913659ACD6ED2E31489A657DCB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678870   (141897) от 23.11.2023
+
+Live Home 3D Pro Edition 4.8.3 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2023Разработчик: © 2023 Belight Software, Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85974FE2A3FA63D48111C8CB7962D38B7A120736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348589   (141898) от 29.12.2019
+
+Сто к одному (28.12.2019) WEB-DL [H.264] [MP4|1280x720]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270E58AE1558D852747E8A7990ADAA77A34414C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970342   (141899) от 30.12.2015
+
+Хоккей. Молодежный чемпионат мира 2015-2016. Группа B. Белоруссия - Россия. (29.12.2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белорусы – редкие гости в элите молодёжного чемпионата мира. Впервые они пробились в первый дивизион в 1999 году, когда главной звездой команды был Константин Кольцов. Впоследствии белорусы вылетали, возвращались обратно, были своего рода командой-лифтом. Также был период, когда наши соседи на протяжении трёх лет выступали в элитном дивизионе МЧМ. Однако перед тем, (   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 01:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD7F3091CF51A0DD72B6A8E2BAB26E023BC77D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435772   (141900) от 29.12.2020
+
+Ирвин Шоу | Допустимые потери (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141900.jpg" />
+</div>
+
+
+###  Подробнее
+
+В квартире литературного агента Роджера Деймона снова и снова раздается телефонный звонок – звонит таинственный шантажист по фамилии Заловски, угрожая Деймону смертью. Кто же этот шантажист? За что хочет его убить? Казалось бы, Деймон – обычный человек, не совершивший в жизни ничего плохого. Таким, как он, не звонят с угрозами.
+Деймон погружается в воспоминания, (   Читать дальше...   )Жанр: Зарубежная классикаПеревод: Глеб КосовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B910DB9451F9CAF6B35355CF656C4642F31F849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194793   (141902) от 29.12.2017
+
+Белый бизон / The White Buffalo (1977) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Отис, много лет назад убил миротворца, добивавшегося прекращения вражды между американцами и индейцами. Тогда же он столкнулся с огромным белым бизоном, который был величиной со слона и уничтожал всё на своем пути. С тех пор Джеймсу снится поединок с бизоном и каждый раз он просыпается в холодном поту. Приехав в маленьких городок, он всё ещё надеется встретиться (   Читать дальше...   )Производство: США / Dino De Laurentiis ProductionsЖанр: ВестернРежиссер: Дж. Ли ТомпсонАктеры: Чарльз Бронсон, Джек Уорден, Уилл Сэмпсон, Ким Новак, Клинт Уокер, Стюарт Уитман, Слим Пикенс, Джон Кэрредин, Кара Уильямс, Шэй ДаффинПеревод: Многоголосый, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5404ADB3F187A537D169F4DDC1C8BC874B571508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087913   (141903) от 29.12.2016
 
 DriverPack Solution 16.12 + Драйвер-Паки 16.12.4 [Multi/Ru]
@@ -6,7 +152,7 @@ DriverPack Solution 16.12 + Драйвер-Паки 16.12.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141903.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:35D07BA43FE1540803901759C3482DCF805B7293
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141904.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ Rhinoceros 8 v.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141905.jpg" />
 </div>
 
 
@@ -79,7 +225,7 @@ Movavi Video Converter 19.0.2 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141906.jpg" />
 </div>
 
 
@@ -103,7 +249,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141907.jpg" />
 </div>
 
 
@@ -127,7 +273,7 @@ magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141908.jpg" />
 </div>
 
 
@@ -154,7 +300,7 @@ GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141910.jpg" />
 </div>
 
 
@@ -181,7 +327,7 @@ magnet:?xt=urn:btih:32813B6FF506291DAD044457CAFA6B50E1F2C160
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141911.jpg" />
 </div>
 
 
@@ -205,7 +351,7 @@ magnet:?xt=urn:btih:B422CACC6512FC641B39DEC4CCDC0CB18E8C9187
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141912.jpg" />
 </div>
 
 
@@ -229,7 +375,7 @@ magnet:?xt=urn:btih:D033B9811252AA590E1A78807B2C033EB9616610
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141913.jpg" />
 </div>
 
 
@@ -253,7 +399,7 @@ magnet:?xt=urn:btih:05CEF2EBDA90CE22D342688EF8B8BB28AE170BAC
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141914.jpg" />
 </div>
 
 
@@ -277,7 +423,7 @@ foobar2000 1.3.14 Stable RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141915.jpg" />
 </div>
 
 
@@ -301,7 +447,7 @@ magnet:?xt=urn:btih:5C34AAC13379DCBF255E1830B86574C2AB575EAA
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141916.jpg" />
 </div>
 
 
@@ -326,7 +472,7 @@ magnet:?xt=urn:btih:340332680C4645482A7A3F35D16D35DCBE91C9B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141917.jpg" />
 </div>
 
 
@@ -350,7 +496,7 @@ IceCream Ebook Reader Pro 6.42 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141919.jpg" />
 </div>
 
 
@@ -374,7 +520,7 @@ magnet:?xt=urn:btih:62D0D6A936782DFD840D71653DF5AF94363CE87E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141920.jpg" />
 </div>
 
 
@@ -398,7 +544,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141921.jpg" />
 </div>
 
 
@@ -422,7 +568,7 @@ VA - Christmas Jazz Night 2022 (Finest X-Mas Jazz Music) (2021) [AAC|~318 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141923.jpg" />
 </div>
 
 
@@ -449,7 +595,7 @@ magnet:?xt=urn:btih:C56667F39943A46FF13B928FD149C60CCE1A52C8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141924.jpg" />
 </div>
 
 
@@ -474,7 +620,7 @@ magnet:?xt=urn:btih:ED873F5F5A454A322CB50470639BDFAD75F8EF02
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141925.jpg" />
 </div>
 
 
@@ -485,156 +631,6 @@ Christmas Pop-Up Book - очередной вариант анимированн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8EC45E353F843469C91E1E0334371D9DB274C22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348758   (141926) от 29.12.2019
-
-Oliver Koletzki - Fire In The Jungle (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Afro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melting Into the Surroundings  (6:16)
- 02. Lenny in the Sea with Dolphins  (5:30)
- 03. Rainbow Serpent  (6:32)
- 04. Fire in the Jungle  (7:10)(   Читать дальше...   )Жанр: Progressive House, Tech House, Afro HouseПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C6B8818EBAE27D0A3CF20F3B8979C4598B6DC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520463   (141927) от 28.12.2021
-
-Макабро / Macabre (1980) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн Бейкер, живущая в Новом Орлеане, заводит роман с мужчиной, Фредом, за спиной своего мужа и детей. Её дочь-подросток Люси подозревает, что её мать изменяет отцу. Джейн встречается с Фредом в комнате, которую она снимает в пансионе, принадлежащем миссис Дюваль, чей слепой взрослый сын Роберт также живёт в этом доме. Пока Джейн встречается с Фредом, Люси топит (   Читать дальше...   )Производство: Италия, A.M.A. Film, Medusa DistribuzioneЖанр: ужасыРежиссер: Ламберто БаваАктеры: Бернис Стиджерс, Станко Мольнар, Вероника Дзинни, Роберто Поссе, Фердинандо Орланди, Фернандо Паннулло, Элиза Кадиджа БовеПеревод: авторский (Сергей Визгунов)Субтитры: английскиеПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75426ED40382719126E7E7771936253393C139BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678844   (141928) от 23.11.2023
-
-Pauline Anna Strom - Echoes, Spaces, Lines (2023) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, New Age, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141928.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Trans-Millenia Consort:
-01. Emerald Pool (03:24)
-02. The Unveiling (05:32)
-03. Cult of Isis (07:42)(   Читать дальше...   )Жанр: Ambient, New Age, ExperimentalПродолжительность: 03:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B580B4397DD58EF54B6D6E901B08190E1F5FE294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195513   (141929) от 29.12.2017
-
-Маршалл / Marshall  (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о яркой странице в биографии Тергуда Маршалла, первого афроамериканца в рядах Верховного суда США. На заре карьеры ему достаётся спорное дело о чернокожем шофёре, обвинённом своей богатой работодательницей в сексуальном нападении. Молодой Маршалл объединяется с начинающим адвокатом-евреем, чтобы в эпоху расизма и антисемитизма сделать сенсационное (   Читать дальше...   )Производство: США / Chestnut Ridge Productions, China Wit Media, Starlight Media, Super Hero FilmsЖанр: драма, биографияРежиссер: Реджинальд ХадлинАктеры: Чедвик Боузман, Джош Гад, Кейт Хадсон, Стерлинг К. Браун, Дэн Стивенс, Джеймс Кромуэлл, Киша Шарп, Роджер Гуэнвёр Смит, Деррик Баскин, Барретт Досс, Джон МагароПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721983E7669ADF7BF651052DE6563BC7F333A268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970383   (141930) от 30.12.2015
-
-Хоккей. Кубок Шпенглера 2015. 1/4 финала. Йокерит (Финляндия) - Давос (Швейцария). (29.12.2015) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Шпенглера — старейший в мире международный хоккейный турнир. Турнир проходит в швейцарском городе Давосе ежегодно в промежуток между католическим Рождеством и Новым годом. В турнире традиционно принимает участие местная команда ХК «Давос» (усиленная лучшими игроками чемпионата Швейцарии) и сборная Канады (обычно составляющаяся из канадских игроков, выступающих (   Читать дальше...   )Телекомпания: Спорт 1 HDЖанр: СпортПродолжительность: 02:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1638D2B2301FA827FB91FF2700C381BC01CAD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272554   (141931) от 28.12.2018
-
-IObit Driver Booster Pro 6.2.0.198 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05506A2C1B146F23EAD28A48F26C58A0966E9E7
 ```
 
 

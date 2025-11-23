@@ -6,7 +6,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27137.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27137.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27139.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27158.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27158.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ GetAnalyst | Проектирование БД - подходы к решени�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27179.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27209.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ JUG Ru Group | GoFunc 2024 Autumn. Конференция по разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27224.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27224.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27261.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27261.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:7FEA0447825C14E506E678795270407C1E7D16A7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27264.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27264.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27270.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:11DEE239D94014BACF89BA90CA3037736D2AEB2E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27372.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27377.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ David East | Getting Started With React.js (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27382.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:548B663D21C431DE5A20607ED3E5F78C53EF5B34
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27421.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27421.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:DA80D464DC902283C2E20CC9B0026291B2A6CDB9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27462.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CAE88B3E1E65D4B06792E38B3F1134AEE9D1FBF6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27506.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27506.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Resonance Music Academy, Иван Романовский | Production. Курс 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27548.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27548.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27549.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27581.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27581.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27598.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:539D9360D67E67781C0DB654F8BE0BBB99E1EA0A
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27603.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27603.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E00F0A499D34F991FBB561705A881AC51EE8C740
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27632.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27632.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3C917F64343C9D3EB9646EDFE4127A798EB06651
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27645.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:EF1F1B62A1EC2E37EF27D9A5ED3560E8DC48B5F3
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27646.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27647.jpg" />
 </div>
 
 

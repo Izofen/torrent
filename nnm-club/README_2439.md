@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Bunker 69 (2019) [Ru/En] (1.0/dlc) Repack Other s [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63780.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3EC83A04B291508CE29E5AF5A2E7C21DDE1E8C10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63781.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:48719AE090FCE1653A76CB167EF98230B716B562
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63782.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Foxit PDF Editor Pro 2024.1.0.23997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63783.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DDF906FB3288DA4C50B483184167729AB19CFC0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63784.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:34B7B0E673BEBDD9388646D9F61C863ECE42554C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63785.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:02D5C33A06189081BA36C43124958C8C47AD9646
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63786.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D2DBBEC29B90AA9E2D34F62AFEE6779248299B96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63787.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:10E74EDAA1BE51DFB01A75B426ED69EE4683C0F0
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63788.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Remote Desktop Manager Enterprise Edition 2024.1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63789.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ QuickMemoryTestOK 4.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63790.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PDF24 Creator 11.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63791.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:DCC5F0B0D4021A58AAB84CDB95CB6FFB98B9F6D4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63792.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:1D14E852779E97F55EDBCC14EFB28E99801F5D8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63793.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1D14E852779E97F55EDBCC14EFB28E99801F5D8C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63794.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7D175C194E89FA5AF0391E9D64C08018210C1D26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63795.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:338EAFA0DC88AD4AA7DF5A46261545936C88AE0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63796.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A0A3477395DB7BB957024343D3B3391C79A79024
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63797.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D7135E20C8389691455848CCF69ED69946A476E3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63798.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7F87C1D6E876C4B7AD101056208204EDFE562AC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63799.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63800.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:B45D840C8215953D895C1AA3D238F15FFDB89F7F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63801.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ iA Writer 7.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63802.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:B4563AEC5DA7E0AC8962C8500180756FE082A30E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63803.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:429123E9886EDFE74B3C385E326670F16B2D8558
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63804.jpg" />
 </div>
 
 

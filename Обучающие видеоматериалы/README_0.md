@@ -6,7 +6,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2103.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2218.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E1062252D50A904CC3EA85608D112506768559E5
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2394.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:047CAADED39C8D0656F61BEEF4E4EAED19D5FBFE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2781.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:21FB8AF5778251B4DA12FC118BC513646899C042
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2790.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F4A3E3D4D6697C48216DE3F84AD54BB311EF9EEF
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2803.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E4BEB22E2C9AEC93E12DD2831377E49E96676D94
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2804.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:9EA3D2F83AD39A6D622931716DF2EC80E31A3FB0
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2809.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2827.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2844.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2878.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:BC2D8CD9BEB6809164ADE6CF55752148D548F6D8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2969.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0DEE313F55C43F7C2CD5D07F111A7559A526D67F
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3021.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Galina Miami, Галина Шувалова | Мастер-класс по по�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3025.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E3F47BCE32528B620B7CF4CF312161DA9F4B4EFF
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3034.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Stepik, Вера Атан | 10 шагов к красивой речи (2025) WE
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3045.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5C70043F432C75F6B9765E3B84FFD859AD6DD49F
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3065.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3373.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:79FA7D19E1195BCE276CB069CC7E954D6CFDBF9F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3662.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:BB69A385AAEE66095D792A9E866A8A63E1A0423E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3905.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Content Punks, Саша Чернышев | Хевирайтинг. Челлен�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3911.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Vugar Rustamov | Приватный канал Американский YouTube.
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3934.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VlaDeFi, Владислав Былинкин | Полный обучающий �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3957.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:9156E5DA69048526F25D52BC66B987689972F251
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4136.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:925761C9224D91828A0D065223E64DE487BADFA3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4194.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:00DA34CED0916887F82D6B46A6DA8BEB308CFB8F
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4197.jpg" />
 </div>
 
 

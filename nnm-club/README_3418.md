@@ -1,3 +1,84 @@
+###  Публикация: 1727188   (108550) от 01.06.2024
+
+Bongzilla - Dabbing Rosin in Europe (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sundae Driver (00:04:36)
+02 - King of Weed (00:05:46)
+03 - Free The Weed (00:06:26)
+04 - Greenthumb (00:04:06)(   Читать дальше...   )Жанр: Sludge, Doom, Stoner MetalПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200AC45E46E9DD252628FFE58839CDCA715D9211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727251   (108551) от 01.06.2024
+
+Demonic Manifestation - Necrokult (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infernal Nightmares
+02. Lake Of Blood
+03. Chainsaw Dismemberment
+04. Death Breath(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFC7C4FAA98AF102D31F27AC655CF2C11A56933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727015   (108552) от 01.06.2024
+
+Dead Head - Swine Plague (2017) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helhuizen
+02. Duhr
+03. Palfium
+04. Fortress Of Greed(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6374E11EFD332DA5FC2E18463FF61AB7A623D287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727246   (108553) от 01.06.2024
 
 Demonic Manifestation - World of Horror (2015) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +87,7 @@ Demonic Manifestation - World of Horror (2015) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108553.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ VA - Ibiza Chilled Nights (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108554.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Goat Explosion - Threatening Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108555.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:F5F40AA036951600D707DB3F374FCED104C4D64D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108556.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Beak> - >>>> (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-Hop, Experimenta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108557.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ magnet:?xt=urn:btih:EB0C0430E2D01AB7C1E663CA997957C38079FE57
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108558.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ magnet:?xt=urn:btih:CDA0519EFE08FB0515556614638C82391ED04FC6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108559.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ Pinhdar - A Sparkle on the Dark Water (2024) [FLAC|Lossless|WEB-DL|tracks] <Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108560.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ magnet:?xt=urn:btih:64B9AD352CA1DFF29730C8A4ABA90506A61BC24F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108561.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Flame Dream - Silent Transition (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108562.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108563.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ VA - DJ Hits15 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108564.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ magnet:?xt=urn:btih:FA4AFF9908D3B034F92F09AE6A071BE9E2D25FE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108565.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ magnet:?xt=urn:btih:B986F58635BDA32C42CBFBCD05CAAA50954E31EE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108566.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ magnet:?xt=urn:btih:E2E1CD044DC32CBA35DBA2C5F0E8C088521190E2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108567.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ Dave Brubeck - We're All Together Again For The First Time (1973) 1990, Atlantic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108568.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ Lee Ritenour - Portrait (1987) GRP [FLAC|Lossless|tracks + .cue] <Crossover Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108569.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ magnet:?xt=urn:btih:3A389754CA87CC674B0EBC4100A232838A72D13B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108570.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ magnet:?xt=urn:btih:16B48C76DAD75D1BB250614E860E4DE7FDFE1167
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108571.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ Dead Head - Slave Driver (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108572.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108573.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ VA - Armada Chill - Summer 2024 (2024) [MP3|320 Kbps] <Deep House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108574.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ magnet:?xt=urn:btih:C0A3A9069B292E1217C847D2484863C5EC6208D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108575.jpg" />
 </div>
 
 
@@ -590,87 +671,6 @@ magnet:?xt=urn:btih:C0A3A9069B292E1217C847D2484863C5EC6208D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CBA730EC3A668172F6B326D320A58C52F0ADAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727039   (108576) от 01.06.2024
-
-VA - Summer Body Fit 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disciple Beats - Get Down The Business (Original Mix) [02:46]
-02. Jayson Brown - Wast Your Life (Original Mix) [02:42]
-03. Black Shivers - Stay Alive (Original Mix) [02:50]
-04. Stasy Brown - Round & Round (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE56534F188A4CB92078B867C9603E6FD7B7B372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727170   (108577) от 01.06.2024
-
-Moderna - The Future Is Among Us (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro, EBM>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIE4U [00:05:05]
-02. The Future Is Among Us [00:04:24]
-03. Filter Me [00:04:55]
-04. Pappenheimer [00:04:14](   Читать дальше...   )Жанр: Electro, EBMПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FBB732122A80B4533A1A69BBBDFDEE2901E512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726312   (108578) от 01.06.2024
-
-Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + .cue] <Wellness / Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chin Begin - Essania
- 02. Crystal And Metal Part 1
- 03. Crystal And Metal Part 2
- 04. Crystal And Metal Part 3(   Читать дальше...   )Жанр: Wellness / MeditationПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3560FC10E55D2933E2C6D20397F76B22ADE8D06
 ```
 
 

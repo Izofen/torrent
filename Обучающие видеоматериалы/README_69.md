@@ -6,7 +6,7 @@ IAmTimCorey, Tim Corey | .NET Core AppSettings: Углубленный Курс 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164950.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Udemy, Nexttut, Victor Yamakado | Zbrush Character Likeness Sculpting Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165404.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165447.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Lighting Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165479.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Danil K, Данил Куширмский | Сборник курсов по ли
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165507.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165526.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165553.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165569.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Motion Design School, Данила Михайлов | Рисование спе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165647.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165677.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ RTFX Animation, Ринат Тимеркаев | Основы 2D FX анимац�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165679.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165753.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ RepairClinic | Как ремонтировать бытовую технику (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165853.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165891.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:260B254F35429749ADF5542AEBAEF22B2BC73E57
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165908.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:66AB099659ED193C529F3D64CB9A1CE98C95683B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165911.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:03F41198E5A61AC7FD8B28FA4E420D4687498FA0
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165912.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:3781BE1B4803FE52C19FB23A769B5C3445470208
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165965.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:9E070F10AA56F24B8BC68533B158C6F1D6E48882
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165990.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166203.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Liveclasses, Никита Чесноков | Blender: быстрый старт 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166206.jpg" />
 </div>
 
 

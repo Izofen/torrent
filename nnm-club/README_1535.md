@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40264.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40265.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40266.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40267.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F7418F62C7804444D27EB9D815E5B44EB3A31996
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40268.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:98049141FD2E134AD0E6A0F95F24D360022F7B9A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40269.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ FinePrint 12.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40270.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:10425221F9CD9ADB49B8BCA58116B9FFC28AF47D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40271.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:10A7F9ED3B787E48CCF67BCF459E6061AB5285BD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40272.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:A4B43037482C52BED8BEAAABFE61F95EA0761935
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40273.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:92FC12110689A935E917CA029F2BEF0D28AD138A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40274.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2B2B7CF1EB7151B615B107F6F58BB938EA882F69
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40275.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:AD49FFB6DED1D5DC6E4CCC095033CADBD905FA21
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40276.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9E9C94C88EA25997E91C42259FEC238C258281E9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40277.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BEA445452F576DC49318CF883F2D220FA58EC64A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40278.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Paul Anka - Paul Anka Gold Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40279.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Pop Heroes (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40280.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:5286E52F0A83ECFEE77415A76ACCCE804883AE99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40281.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Firefox Browser 131.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40282.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PdfFactory Std & Pro 9.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40283.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:1E2B9B56C894176E8459611FC5560E858D2A11E6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40284.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Telegram Desktop 5.6.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40285.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:38943883F55793A06A228B60F49D1B13EC59897A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40286.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:61620B8F71AEDB1765444EC415C8DB92C035A65F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40287.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Fashion Show Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40288.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:B3779B09B78A8279CC361DA5CBFA3AA85BD81D81
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40289.jpg" />
 </div>
 
 

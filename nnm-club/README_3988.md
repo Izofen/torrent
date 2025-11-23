@@ -1,3 +1,75 @@
+###  Публикация: 1691415   (123370) от 12.01.2024
+
+Три мушкетёра: Миледи / Les trois mousquetaires: Milady / The Three Musketeers - Part II: Milady (2023) TS [H.264/1080p] [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_123370.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах Д’Артаньяна похищают его возлюбленную Констанцию. Пока верные друзья, три королевских мушкетёра Атос, Портос и Арамис, сражаются на поле боя, Д’Артаньян вынужден объединить усилия с таинственной Миледи, чтобы спасти свою любимую. Но страшные тайны прошлого могут разрушить как новые союзы, так и старую дружбу.Производство: Франция, Германия, Испания, БельгияЖанр: Боевик, приключения, историяРежиссер: Мартен БурбулонАктеры: Франсуа Сивиль, Венсан Кассель, Ромен Дюрис, Пио Мармай, Ева Грин, Луи Гаррель, Вики Крипс, Лина Кудри, Джейкоб Форчун-Ллойд, Эрик РуфПеревод: многоголосыйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:46:12Реклама: присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691439   (123371) от 12.01.2024
+
+Грохот сквозь тьму / Rumble Through the Dark (2023) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Бушэ когда-то был непобедимым бойцом рукопашного боя, но в последние годы сильно сдал. Мало того что он не в состоянии драться как прежде, так ещё и весь в долгах - он должен огромную сумму денег местной криминальной королеве Большой Мамочке и банку, который вот-вот заберёт дом его умирающей приёмной матери. Джеку необходимо срочно что-то придумать и погасить (   Читать дальше...   )Производство: США / Phillips Pictures, Crooked Letter Picture CompanyЖанр: боевик, триллер, детективРежиссер: Грэм Филлипс, Паркер ФиллипсАктеры: Белла Торн, Аарон Экхарт, Ричи Костер, Марианн Жан-Батист, Лиз Феннинг, Вирджиния Ньюком, Elaina Guidry, Джо Херсли, Аманда Сондерс, Кристофер УинчестерПеревод: Многоголосый профессиональный (Jaskier), Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F376D468A15A7CF95E2BF7F740B54696D6B77A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691229   (123372) от 12.01.2024
+
+Журнал | Хакер №11 (296) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123372.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хакер» - журнал рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но на этом все не ограничивается. В журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой подачи (   Читать дальше...   )Жанр: Компьютерный журналИздательство: ООО «Эрсиа»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809639CE092169E45404C524A0B8199A2ADE05F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691159   (123373) от 12.01.2024
 
 Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repack Decepticon
@@ -6,7 +78,7 @@ Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123373.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123374.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123375.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:4184572A50CDEDDA05F47CA76991C5B4383E289E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123376.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:BC163718D78E4E933E22B918E355CD3547BA1F5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123377.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Office Tool Plus 10.6.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123378.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Windows 11 Debloater 2.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123379.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:D5F8A5C5AA313866E6EBF31E8D31A5167C1AEF66
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123380.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123380.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:D5F8A5C5AA313866E6EBF31E8D31A5167C1AEF66
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123381.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ MiniTool Power Data Recovery 11.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123382.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:A86AF988204F49CB6D9476F19026BC473A312F68
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123383.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:C3D724E5911CC52D9CED846BFA54F48EFFDC2DD2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123384.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Kruger - Агония (2024) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123385.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ RJ TextEd 16.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123386.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ Layla Zoe - Back to the Spirit of 66 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123387.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:1F0C267B4FA610312F788D15FD085838F3CCABBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123388.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123388.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:1F0C267B4FA610312F788D15FD085838F3CCABBA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123389.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:A79AC1AEC5C35D44FD04EC25B8DD97FCA761929B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123390.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ VA - Best of Phoenix Recordings 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123391.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ VA - 10 Years Of Suanda Music - Mixed by Aimoon (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123392.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ magnet:?xt=urn:btih:FD00040675A2F87EBCDE71A290D69ACF616E8EFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123393.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123394.jpg" />
 </div>
 
 
@@ -556,7 +628,7 @@ The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123395.jpg" />
 </div>
 
 
@@ -570,81 +642,6 @@ The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C780D879FAA231BF2F2D8EC57C7A8C7442EC4787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691210   (123396) от 11.01.2024
-
-Наталия Шолохова | Робин Гуд (2007) [MP3, Лев Дуров, Никита Высоцкий, Владимир Высоцкий и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робин Гуд – герой средневековых английских народных баллад, предводитель лесных разбойников. По преданию, действовал со своей шайкой в лесах около Ноттингема и боролся за справедливость – грабил богатых рыцарей и священников, отдавая добытое беднякам. Личность прототипа этих баллад и легенд не установлена. Предположительно, жил в начале XIV века, во время правления (   Читать дальше...   )Жанр: Детская литература, историческая повестьИздательство: СиДиКом, ЭлитайлПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833CB006C64F915BD8F1636382E83DCB81333D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691206   (123397) от 11.01.2024
-
-Татьяна Волхова | Северный мир (Книга 2). Падение (2023) [MP3, Виктория Томина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северный мир ждут тёмные времена. Сила огня не сможет противостоять приспешниками Нави, которые прорываются из-за границы миров и покоряют некогда свободный край. Иноземный колдун обманом обеспечивает победу войску нового князю. Истинных правителей Северных земель ждёт предательство близкого человека, который откроет двери города их врагам. Воинам Перуна придётся (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CD8985DB0195021260FDB3B24348ADFA173AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691179   (123398) от 11.01.2024
-
-First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riot Time 03:20
-02. The Abyss 04:32
-03. As They Fail Us 05:19
-04. Nightmare Lane 04:22(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C00F820E4B225D5F79B44C2DB2FF3BA152C2A9
 ```
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2DA3F388994E5E89C24F63772ED2380B7AAF230C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56864.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DC38064C185C2DB2F9B4B6CB27783F58C4D32AEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56865.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56866.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1F0E6DA9657864C24618B6699FF4202A6EB27E2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56867.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56868.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56869.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:CE1742733BD0B04913DC25DE6F6F51F484683968
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56870.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:9D5F3B54B8FBA773481E19C4FE8BC63A6DB2E064
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56871.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:24922D86B4BCDEAAB4307A7662BE25E6D9107426
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56872.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D45E6D1C1F82D40C69CDB561BD9CF82ACF7E2438
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56873.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:BAD2B4CAA1F33D92EA546E535C64A677E316D69A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56874.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Eguana - Destiny, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56875.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Déepalma Ibiza 2024 (2024) [MP3|320 Kbps] <House, Deep House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56876.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56877.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56878.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Шансон премьера 2023 август (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56879.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:A3AB74EB646DC92DB9EACBCC227678FF4382818A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56880.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56881.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ YT Downloader 9.7.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56882.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Big City Afternoon Chill Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56883.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56884.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:27EA06C666821BB1CEECFA54A85FC03D22049824
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56885.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:58BC1EC513255DE085B5FA2D6F66CFA52267DD2E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56886.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2131109077B7903CF054D18A760B7EFEDABB5C48
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56887.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:6652BFC4A6C2F4A89F56D4401F35F90FF999D0EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56888.jpg" />
 </div>
 
 

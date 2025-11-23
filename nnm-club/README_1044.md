@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27492.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7B69F33C1F9BE4968B5D2419FC783D79F8F5252B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27493.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7B69F33C1F9BE4968B5D2419FC783D79F8F5252B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27494.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EOBD Facile: OBD 2 авто сканер v3.71.1079 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27495.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27496.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0861F04AA10DC576A6FFDA94C0DB65FD622AE12F
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27497.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:31F9697B08FAC18680F76400D9F64AE97F2ADDD1
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27498.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ADMIN RSOTM | Оборотная сторона медали. Книга вто�
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27499.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27499.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C9DA631B0EDD5DFCC5A6DB93D5C064D0C995E9C6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27500.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Allavsoft Video Downloader Converter 3.27.8.9146 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27501.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:12B7845875B4DE0E224291AD889025FC064D9726
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27502.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:889D1BD3733AE4AB62CE34B1F20031E7AC5E2067
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27503.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:26BA8274936CB663CAF641A6F03FA53C052A6016
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27504.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F72CEC81D24275C98A59C2C6200599883B138B7E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27505.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:9FC7AB43D677BE8EC47379E12907173341E12C49
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27506.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27506.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:921DDE02D937250E0B6D0B15C57B42ABCF5AC49D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27507.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2DC9EB75E0B18791A5D4982A358171A430031AA2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27508.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (0.2.0.5.202502121057/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27509.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27510.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Atlantis Word Processor 4.4.4.1 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27511.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Crystal Impact Diamond 4.6.8 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27512.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ XRecode 3 1.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27513.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:9A728EF991959B7B584B6D51F3FCC4EC0672C0D9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27514.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27515.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.3.105740/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27516.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27516.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Plus Messenger (Telegram+) v11.7.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27517.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27517.jpg" />
 </div>
 
 

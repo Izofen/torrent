@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71100.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sandboxie 5.70.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71123.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chasys Draw IES 5.34.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71145.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RegCool 2.022 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71150.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5F9937DDF9E240DEA2BE99063A9C4353CCF0CD92
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71184.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Text Editor Pro 31.3.3 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71189.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ O&O DiskImage Professional 20.1 Build 340 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71204.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ EarthView 7.11.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71212.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AVS Image Converter 7.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71271.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CoolUtils Total Movie Converter 4.1.0.59 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71277.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Sigil 2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71284.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CoolUtils Total Image Converter 8.2.0.275 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71285.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Folder Player Pro v5.30 b332 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71296.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Vivaldi 7.1.3570.42 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71358.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ GeoGebra 6.0.873.2 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71398.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ GForce - Bass Station 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71431.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ TuneIn Radio Pro v37.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71450.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Telegram Desktop 5.10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71461.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Lighting calculations / Расчеты освещения v6.0.9 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71462.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Telegram Desktop 5.10.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71495.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 1 (2024) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71528.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Text Editor Pro 31.3.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71574.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ PhotoDirector v19.10.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71579.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ XYplorer 26.80.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71624.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ QOwnNotes 25.1.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71636.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:B245FF280CDDCFEB126873CD410CC12F90EF8C28
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71644.jpg" />
 </div>
 
 

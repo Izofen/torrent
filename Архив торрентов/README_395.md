@@ -6,7 +6,7 @@ November's Flame - На Обочине Больного Мира (ЕР) (2012) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94163.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94164.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94165.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94172.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:60DAF4AABFF08413A6D0B34ADF706CEE0AD3D1F4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94186.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94219.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1A2D745A4C8B3BA9CD71652E7C803F32DB3A7A3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94220.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0BA163510E2942C425A2BC5AEA348DBC10ABB982
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94222.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DJ Kocmoc - Electro Sensation vol.19 (23.02.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94226.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Ben Kweller - Go Fly A Kite (2012) [MP3|-V0 ~245 кб/с]<Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94227.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - 10 Full Moons (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94253.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94259.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Royal Flush Vol. 4 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94273.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94274.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94277.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94279.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ TagScanner 5.1.610 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94304.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94304.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94325.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94342.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Audiomatic - Weekend Society (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94345.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94345.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Win7codecs 3.5.1 Final + x64 Components / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94347.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94347.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94360.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Andain - Much Too Much (2012) HDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94364.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Gromth - The Immortal (2011) [MP3|240 - 320 кб/с]<Symphonic Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94375.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Ruff Ryders - Past Present Future (Hosted By DJ Khaled) (2012) [MP3|160 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94376.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Roadstar - Grand Hotel (2006) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94381.jpg" />
 </div>
 
 

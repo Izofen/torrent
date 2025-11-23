@@ -6,7 +6,7 @@ Clint Morgan - Codger (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43776.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steve Cropper and the Midnight Hour - Friendlytown (2024) [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43976.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Blues Won’t Leave Me Alone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44190.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Best of Whiskey Blues (Smooth, Relaxing Tunes) (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44605.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Slippin’ Away (Melancholic Mix for Long Lonely Nights) (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46071.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Luxurious Instrumentals for Relaxed and Happy Vacation Time (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46073.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Magnificent Soothing Tunes for Relaxed and Happy Vacation Time (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46075.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Groovy Ride, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Refreshing Soothing Easy Listening Tunes for Rest, Study or Travel (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46078.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chet Baker - Stairway To The Stars (1965) 1996, Prestige [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46082.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Jazz & Blues Smooth Mix for Warm Summer Nights (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46091.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Ultimate Chilly Soothing Instrumentals for Rest, Study or Travel (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46102.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ John Mayall & The Bluesbreakers - Up Close And Personal (Live In Texas) (2024) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46116.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46185.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Frank Sinatra & Tommy Dorsey - Learn To Croon (1940 - 1942) 1999, Buddha Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46815.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Betty Wright - My First Time Around (2012) [FLAC|Lossless]<Jazz, Funk, Soul, R&B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46821.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Phineas Newborn, Jr. - Please Send Me Someone To Love (1969) 1997, Original Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47330.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - Rat Pack Is Back (1996) Starlite [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47648.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Frank Sinatra - On The Sunny Side Of The Street (1993) Entertainers [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48165.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Peaceful Moments Serenity Chill and Charm Vacation Lounge Playlist (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48774.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dickey Betts - Live From The Lone Star Roadhouse New York City 1988 (2018) Reiss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48984.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Al Di Meola - Twentyfour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49607.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ George Barnes & Carl Kress - Guitars, Anyone? Why Not Start at the Top? & Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50692.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Al Di Meola - Eden (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51626.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Damon Fowler - Barnyard Smile (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51814.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Pedro - Tales from Starting Over (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51832.jpg" />
 </div>
 
 

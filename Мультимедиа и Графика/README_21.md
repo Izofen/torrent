@@ -6,7 +6,7 @@ Native Instruments Effects Plugins Pack 08.2024 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Teorex Inpaint 11.0.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ KMPlayer 2024.8.22.14 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45715.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GOM Player Plus 2.3.95.5366 (x64) RePack (& Portable) by Dodakaedr [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45717.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GOM Player Plus 2.3.95.5366 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45728.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Celemony - Melodyne Studio 5.4.1.004 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45967.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sweet Home 3D 7.5 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46062.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WonderFox DVD Video Converter 30.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46303.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Sonible - pure:comp 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46918.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Nuro Audio - Pro Vocal Production Bundle 08.2024 VST 3, AAX (x64) RePack by Zom 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46928.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ AVS Audio Software 10.5.1.23 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47029.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Nomad Factory - Analog Mastering Tools 2.0.0 VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47124.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Unfiltered Audio - Fault 1.4.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47128.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sonible - pure:EQ 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47231.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sonible - pure:limit 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47348.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Plugin Alliance & THX - Spatial Creator 1.1.0 VST 3, AAX (x64) RePack by TCD [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47420.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Plugin Alliance & Brainworx - bx XL V3 3.0.1 VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47424.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Togu Audio Line Instruments Collection 08.2024 VSTi, VSTi 3, AAX, CLAP (x64) [En
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47457.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sound Normalizer 8.7 (06.08.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47676.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47763.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kazrog - True Iron 1.4.2 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47859.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Producers Vault - Romantic Keys 2.8.4 VSTi 3 (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48061.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Excite Audio - Bloom Bundle 2024.7.31 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48270.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Benvista PhotoZoom Pro + Plug-in for Photoshop 9.0.2 RePack (& Portable) by elch
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48335.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Xara Web Designer Premium 19.0.1.65946 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48392.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Bitwig Studio 5.2.0 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48483.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19616.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Display Driver Uninstaller 18.1.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19617.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F84E6157A8697FB7E438E3019F4465FA262281C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19618.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4EBAEA934E851BA309686367DA1BCB5ABCCD1903
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19619.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E1EAD15D2EFFFD3B88BE1DF622982093207ED77B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19620.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19622.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:20447CEEE1E491D4A77C50CF2F3F63CB1633A4E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19623.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.4.55996 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19624.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (2025 Mix) (1972) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19625.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:5851D81C535A8BA4FB8ABB2167794090BD55EECF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19626.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D6717E61C722055542F9849A85C7D3D263388CF5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19627.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Princess Connect! Re:Dive OST (2018-2025) [MP3|320 kbps] <60CD+OST+Character Son
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19628.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:C0385924DEDED29FD1CECF2DAFE500A435365883
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19629.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AA26255662FB1B6E983DC49D9B6B43D1F3120798
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19630.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.0517) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19631.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:FD5906AD3DA3F1B5D851A50509F7939D950904A7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19632.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:55806915A08B01A559B38FB77650CA6CA443DB47
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19633.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F10E69015E3C500C0A15F7B020AA6C5FAFB66A3E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19634.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:CE719167AB4CEF4A4BDB64D23DD9DCE52FC0838A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19635.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19636.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:4F432AA10CF2F636F824268A0831232B6727E255
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19637.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F8DEF8EE8ADED99118EAC02F67701205A136A952
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19638.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Peter Coulson Photography - In The Garden With Stefania (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19639.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Starless Abyss (2025) [Ru/Multi] (1.011) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19640.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Intel и Microsoft зарегистрировали свои торговые з
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19641.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175957.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DB10F26ECEA369BE727C2533FDD9B7FCBEA8A7E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176107.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176107.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:61A9AC00145DAD3F253F446E7743993B74EF9E17
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176279.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:88003F5E2F99184851D4BCB42EFC3C32DFBE9BBF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176599.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C5D34AE959606CF6D3BA7427F2C3769D0B9F26AD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178250.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178250.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6A2C01A0F98FB391E3A71A7EEC5BC2CC5C479D14
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178658.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178658.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1859449FF88A0A886EF07B6181B7DCD01571B19D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179327.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:ADDEC7C912F563D23FC731EBAD55A1AC2E5F0EED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179458.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179458.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E522606B505DE4D3C22EDBAF621556FD560C4EDB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179570.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179570.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5A98CFB2BA2D34E7A361540928F47AD72A70CDC8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180384.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180384.jpg" />
 </div>
 
 
@@ -238,6 +238,30 @@ magnet:?xt=urn:btih:F03BF063CD945D9F326147BA85F703EEAE11B623
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428222   (180695) от 01.12.2020
+
+Под стук трамвайных колес / Dodeskaden (1970) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная история об обществе, выброшенном на свалку. Страна, выброшенная на свалку истории. Национальная культура, вытесненная на свалку американской псевдокультурой. И мальчик-идиот, ездящий всеми днями на воображаемом трамвае и имитирующий стук колес: до-дес-каден, до-дес-каден. Но в этом-то звуке и есть какой-то проблеск надежды, как та радуга над свалкой. Японское (   Читать дальше...   )Производство: Япония / Yonki-no-Kai Productions, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Ёситака Дзуси, Кин Сугаи, Тосиюки Тономура, Синосукэ Минами, Юко Кусуноки, Дзюндзабуро Бан, Киёко Тангэ, Митио Хино, Кэйдзи Фуруяма, Таппэй СимокаваПеревод: Одноголосый любительскийСубтитры: Русские, французскиеПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170867E9C5AFE63EB38E23DA053D311F17206CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593030   (181914) от 25.11.2022
 
 Сводные братья / Ibo kyoudai / Stepbrothers (1957) WEB-DL [H.264/1080p] [DVO]
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:F03BF063CD945D9F326147BA85F703EEAE11B623
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181914.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181914.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:4B522EFB360CA79819A61314A0CA62DFC76A0796
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182235.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182235.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ magnet:?xt=urn:btih:557975492F15F361521E5B75DAD6438DDDCC9802
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182775.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_182775.jpg" />
 </div>
 
 
@@ -319,7 +343,7 @@ magnet:?xt=urn:btih:3F9D6E16C25EEF2BA4CE1208519972F2563956CD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182782.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182782.jpg" />
 </div>
 
 
@@ -343,7 +367,7 @@ magnet:?xt=urn:btih:AAC67076705E5D69365DF66F8F0D0EEF99BD6CA3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182957.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182957.jpg" />
 </div>
 
 
@@ -367,7 +391,7 @@ magnet:?xt=urn:btih:26D6F0E71554D8D98617CF52C7504143E52943C7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183362.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183362.jpg" />
 </div>
 
 
@@ -391,7 +415,7 @@ magnet:?xt=urn:btih:BF559F306DC191015AA2109C647197456E77CE07
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183707.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183707.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:D489FAE5BBFD9E75A00D04222013C6C0D6EE68D9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183830.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183830.jpg" />
 </div>
 
 
@@ -440,7 +464,7 @@ magnet:?xt=urn:btih:E85D01EA0D8E2CAD7544B476CFE31D0E0AF6B4FF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184220.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_184220.jpg" />
 </div>
 
 
@@ -464,7 +488,7 @@ magnet:?xt=urn:btih:157969E8DB6695BBE75069C3980049B1588A2615
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184400.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184400.jpg" />
 </div>
 
 
@@ -488,7 +512,7 @@ magnet:?xt=urn:btih:D849C05A04ED49335A87DDE63BFCD186299E02E4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185119.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185119.jpg" />
 </div>
 
 
@@ -512,7 +536,7 @@ magnet:?xt=urn:btih:A432E445B595CDA80BFB2DD0FF0F5C1E2C992D83
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185795.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185795.jpg" />
 </div>
 
 
@@ -536,7 +560,7 @@ magnet:?xt=urn:btih:9942EE67744CDBF5778FA17186C1A17F2A59CB6B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186166.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186166.jpg" />
 </div>
 
 
@@ -560,7 +584,7 @@ magnet:?xt=urn:btih:4A588598E646DEFDB7A9808B3BAFDD942314943D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186192.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186192.jpg" />
 </div>
 
 
@@ -584,7 +608,7 @@ magnet:?xt=urn:btih:2908A5DDA625C3228EB68E2870C2CB50F483B885
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186193.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186193.jpg" />
 </div>
 
 
@@ -595,30 +619,6 @@ magnet:?xt=urn:btih:2908A5DDA625C3228EB68E2870C2CB50F483B885
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61104CAADABC9B066DB0E74A21F7E5796E5A2BE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663300   (186723) от 21.09.2023
-
-Король неба / Chang kong zhi wang / Born to Fly (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186723.jpg" />
-</div>
-
-
-###  Подробнее
-
-На высоте весь исход полета зависит от точно выверенных действий пилота. Чтобы не допустить роковых ошибок и получить важные данные, испытатели день за днем сражаются со смертью. Смогут ли они выполнить задание и вернуться живыми домой к своим родным?Производство: Китай / Alibaba Pictures, Aviation Industry Corporation of ChinaЖанр: Боевик, драмаРежиссер: Лю СяошиАктеры: Ван Ибо, Ху Цзюнь, Чжоу Дунъюй, Юй Ши, Бу Юй, Чжай Юйцзя, Ван Цзычэнь, Лу Синь, Цюй Чжэмин, Тянь ЧжуанчжуанПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced),  Английские (Full)Продолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492473C08397C5F426256087DD908902823EDD5B
 ```
 
 

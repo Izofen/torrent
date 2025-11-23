@@ -6,7 +6,7 @@ VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153246.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153284.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Только хиты тебе в уши (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153356.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153361.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153443.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153489.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153491.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153496.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - My Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153504.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153528.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153535.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ivanhoe - Last Warning (2020) 2xCD, Compilation, Japan Edition [MP3|320 Kbps] <P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153556.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153586.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Корпоратив 2017 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153624.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B �
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153851.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153952.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153983.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Record Super Chart 618 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154029.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154063.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154152.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Лучшие хитовые треки в стиле Industral Rock & Nu Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154189.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154190.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154201.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154219.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Best Car Xmas Edition 2019 (2018) Compiled by mCITY [MP3|320 Kbps] <Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154239.jpg" />
 </div>
 
 

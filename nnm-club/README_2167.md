@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ibis Paint X 12.1.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56708.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A0EAFCAAA1AD020E718427158F3114F7FBAEB04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C9DAFB83D98CBEE2861E2712B784D83FDE6C8844
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56710.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AAA104F0CB88445E347EF98F34FB6CE5616899D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56711.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DA5C737B1AE3E95BF716EDF9B78E9F06EA10E7FF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56712.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Notepad++ 8.6.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56713.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:4F2F69D99B97917B2526E7CBC086F4BBF5B10DF5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56714.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3EF1F7A03C84E71E7A89F321B66B96E3C6CA0343
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56715.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:73B2D4EE2710429B4BBDBC1D011A913A4DB79CD5
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56716.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1AE3935025B29B6996401BFE5A45ECEF78977942
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56717.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:13009E44264E67FB36E457F4AF8AEC70B48B56D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56718.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:13009E44264E67FB36E457F4AF8AEC70B48B56D6
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56719.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1CEED3F199D19F941125336ADDD5124AAA478BE5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56720.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1CEED3F199D19F941125336ADDD5124AAA478BE5
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56721.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9B03A5AC6B734D3FC62BBA57E65857BFD3E66AD7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56722.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ GoodSync Enterprise 12.6.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56723.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56724.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ uTorrent Pro 3.6.0 Build 47084 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56725.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:F356D64D173D51438843BF8AD616ECD157A9F2A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56726.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ iZotope RX 11 Audio Editor Advanced 11.0.0.3858 (x64) Portable by 7997 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56727.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ AIMP 5.30 Build 2549 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56728.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:AB941A759665112C3FEDEB40A34CDFE3FD14D641
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56729.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:B7C4F2021793BE486378C18E84E6766CDC39351B
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56730.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56731.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56732.jpg" />
 </div>
 
 

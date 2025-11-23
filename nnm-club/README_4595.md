@@ -1,3 +1,163 @@
+###  Публикация: 1520564   (142349) от 28.12.2021
+
+VA - Sensual Winter Chill, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Hartman - The Sun Goes Down (Original Mix) (4:05)
+02. Jens Buchert - Tranquilize (Original Mix) (4:49)
+03. Marc Hartman - Natural Elements (Original Mix) (3:17)
+04. Tapelapse - Walking in the Park (2:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB5EEF47D90BF4E2C1DEAEC26553E712F5DAB88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348498   (142350) от 28.12.2019
+
+VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.2 Маши - Не Буди (Video Edit) (3:59)
+2.Adon - Want You (2:51)
+3.Bear Grillz feat. Rx Soul - Nightmare (3:56)
+4.Camilo - La Difícil (By Dimelonacho) (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970044   (142351) от 29.12.2015
+
+Убойный огонек / Mi gran noche (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телезапись зрелищного «новогоднего огонька» оборачивается абсолютным сумасшествием, когда череда несчастных случаев обрушивается на съемочную площадку один за другим. Съемочный кран только что разгромил столик с массовкой… включая массовку. Одержимая фанатка шантажирует Адана, сексапильную сверх всякой меры поп-звезду. За легендарным певцом Альфонсо открывает вооруженную (   Читать дальше...   )Производство: Испания / Canal Plus, Enrique Cerezo Producciones Cinematograficas S.A., Telefonica Studios, TVEЖанр: КомедияРежиссер: Алекс де ла ИглесиаАктеры: Рафаэль, Марио Касас, Пепон Ниэто, Бланка Суарес, Уго Сильва, Кармен Мачи, Луис Кальехо, Карлос Аресес, Энрике Вильен, Сантьяго СегураПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4269B366B277A7D4DC9E4B66195667769B4FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195572   (142352) от 29.12.2017
+
+VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kygo & Selena Gomez - It Ain't Me [03:41]
+02 David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You [03:19]
+03 Robin Schulz & David Guetta & Cheat Codes - Shed A Light [03:12]
+04 The Chainsmokers - Paris [03:41](   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDB95AEDE15A5AB8A8F3FD18706578439A0BD3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087806   (142355) от 29.12.2016
+
+VA - Hits of My Soul Vol. 19 (2016) [MP3|320 кб/с]<Post Rock, Post Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Eleventh Vibration - Whales (05:25)
+02. Lights & Motion - Snow (06:39)
+03. Trifonic - Transgenic (Rust Mix) (03:41)
+04. Code I - The Ending That We Dream Of (04:55)(   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 04:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05020C001D7214E3D44913713447E03F3D99B55B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348595   (142357) от 28.12.2019
+
+Изображая жертву (2006) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия абсурда по одноименной пьесе братьев Пресняковых.
+Молодой человек Валя, закончив университет, ради заработка устраивается в милицию, где изображает жертв преступлений во время следственных экспериментов. Следственная группа в составе харизматичного капитана, вооруженной видеокамерой прапорщицы Люды и туповатого сержанта ежедневно вывозит подсудимых на места (   Читать дальше...   )Производство: Россия / Новые людиЖанр: КомедияРежиссер: Кирилл СеребренниковАктеры: Юрий Чурсин, Виталий Хаев, Александр Ильин (младший), Марат Башаров, Ольга Демидова, Анна Михалкова, Фёдор Добронравов, Марина Голуб, Андрей ФоминСубтитры: ОтсутствуютПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F534FD22699CD7A68D1A1BB16BFA2FE17D2C93DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195636   (142358) от 29.12.2017
 
 Кэрола Данн | Реквием для меццо (2017) [FB2]
@@ -6,7 +166,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142358.jpg" />
 </div>
 
 
@@ -33,7 +193,7 @@ magnet:?xt=urn:btih:7292D03523C240EF143C1D9B08929EACCBF9D10C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142359.jpg" />
 </div>
 
 
@@ -57,7 +217,7 @@ magnet:?xt=urn:btih:00AD1694A577A3D8C842AFC06ABC065423A2447A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142360.jpg" />
 </div>
 
 
@@ -81,7 +241,7 @@ magnet:?xt=urn:btih:961B5BFB2591FB5C65CCA05290FD41585C424A50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142361.jpg" />
 </div>
 
 
@@ -107,7 +267,7 @@ Wondershare PDFelement Pro OCR 10.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142363.jpg" />
 </div>
 
 
@@ -131,7 +291,7 @@ magnet:?xt=urn:btih:F1C6091E3032FB63D2ED3F1FD4D748D8240EE073
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142364.jpg" />
 </div>
 
 
@@ -155,7 +315,7 @@ magnet:?xt=urn:btih:AB0B5F988A3F0BE17B1BE5537AB522CB912AEDED
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142365.jpg" />
 </div>
 
 
@@ -181,7 +341,7 @@ magnet:?xt=urn:btih:015B7086EEBEDAEC142F58C7445BD0F3DD069F8E
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142366.jpg" />
 </div>
 
 
@@ -205,7 +365,7 @@ magnet:?xt=urn:btih:E2D579A16346D2DBAFC39CAF3EE256DF0AE8821B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142368.jpg" />
 </div>
 
 
@@ -231,7 +391,7 @@ OmniGraffle Pro 7.22.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142369.jpg" />
 </div>
 
 
@@ -255,7 +415,7 @@ magnet:?xt=urn:btih:B67355421D8FFD5A9147475ACD0E93464A17ADB7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142372.jpg" />
 </div>
 
 
@@ -279,7 +439,7 @@ Internet Download Manager 6.25 Build 10 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142373.jpg" />
 </div>
 
 
@@ -303,7 +463,7 @@ magnet:?xt=urn:btih:D3092264DB7069A60F2925156FB6577952510210
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142374.jpg" />
 </div>
 
 
@@ -327,7 +487,7 @@ magnet:?xt=urn:btih:C6DE2654935937B1FCAA0784BC3445F1B234ED19
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142376.jpg" />
 </div>
 
 
@@ -351,7 +511,7 @@ magnet:?xt=urn:btih:AD08798417A533C3D793E01A1E801A7E819160C4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142377.jpg" />
 </div>
 
 
@@ -375,7 +535,7 @@ magnet:?xt=urn:btih:7E994256591A9F6AB89DC13AF4525FD85B361CDF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142378.jpg" />
 </div>
 
 
@@ -399,7 +559,7 @@ magnet:?xt=urn:btih:908D08ADB3BAA0E385C8933BB6BAFA97CD61E93B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142379.jpg" />
 </div>
 
 
@@ -423,7 +583,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142380.jpg" />
 </div>
 
 
@@ -447,7 +607,7 @@ BlueStacks App Player 4.32.90.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142382.jpg" />
 </div>
 
 
@@ -472,7 +632,7 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142383.jpg" />
 </div>
 
 
@@ -483,150 +643,6 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E910E7A5F6244BA091971D8982D08033358023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637600   (142385) от 29.12.2015
-
-MAVEN Music Player Pro 2.48.39 [Ru] - Аудио плеер
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плеер с 7-ми полосным эквалайзером от компании по разработке 3D звука EMERSYS с простым и легко управляемым интерфейсом.  MP3, OGG, WAV (не поддерживает WMA, FLAC, AMR)Тип издания: ПираткаРелиз состоялся: 29.12.15Разработчик: EMERSYSПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9EEB607589642FE15CF5DC0954632740BFBDA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348652   (142386) от 28.12.2019
-
-Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Password Recovery Bundle – пакет программ, позволяющая менеджерам, администраторам по поддержке в области информационных технологий и правоохранительным органам получить доступ к различным защищенным паролями документам, которые были случайно или намеренно защищены паролями. Продукт использует новейшие и наиболее совершенные криптоаналитические алгоритмы расшифровки.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3300313D43885558F9935DE2A81100E2E1B75F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435801   (142388) от 29.12.2020
-
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №55 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4000x2666-9005x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A04972CD45870781E394F804F92FC0DAB2C4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969892   (142389) от 29.12.2015
-
-Скорость: Автобус 657 / Heist  (2015) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что обокрасть Фрэнка Поупа, владельца казино и босса мафии - это самоубийство. Но однажды некогда преданный ему крупье решается вынести из кассы казино несколько миллионов долларов. Все было продумано, но план не сработал. Скрываясь с места преступления, грабители захватывают автобус, полный заложников. На бешеной скорости автобус мчится к мексиканской (   Читать дальше...   )Производство: США, Emmett/Furla Films, Silver Plane Films, Mass Hysteria Entertainment, Tri Vision PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Скотт МаннАктеры: Джеффри Дин Морган, Роберт Де Ниро, Кейт Босворт, Дэйв Батиста, Джина Карано, Моррис Честнат, Марк-Пол Госселаар, Д.Б. Суини, Саммер Элтис, Алисса Джулия Смит, Лидия Халл, Кортни Би ТуркПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Михаил ЯроцкийСубтитры: ОтсутствуютПродолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA2B2CA77B72B7CB1724C6640A2B5B74D341913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272507   (142390) от 28.12.2018
-
-Самвел Аветисян | Между клизмой и харизмой (2019) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самвел Аветисян - первопроходимец российского маркетинга, известный благодаря участию в запуске и провокационному продвижению кампаний «Тинькофф», «Дарья» и «Техношок». В искрометной и ироничной попытке автобиографии Самвел рассказывает историю рождения российского бизнеса. Один из главных героев истории - типичный российский бизнесмен начала 90-х. Напористый и дерзкий (   Читать дальше...   )Жанр: Биографии и Мемуары, Просто о бизнесе, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6A936AE6DCC030F10A5403A53E59B44F50CBC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316445   (142392) от 28.12.2019
-
-Animal Planet: Удивительный мир животных (часть 2) / How do Animals do That (2019) HDTV [H.264/1080i] (эпизоды 21-35) (Обновляемая?)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные делают самые невероятные вещи, но задумывались ли вы когда-нибудь, как или почему? Ответы на самые острые вопросы мира природы. Например, как светлячки светятся в темноте? Как слоны слушают сквозь ноги? Почему собаки виляют хвостами? Всё, чтобы понять: как животные делают это?Производство: США, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Кети Бакланд, Гаретч СакалаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EEAC668A28E88D1849A919545E79C1C92E297A
 ```
 
 

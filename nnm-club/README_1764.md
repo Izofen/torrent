@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46219.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2D38B5F7566080079EAB5378C38C36F89811C113
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46220.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46221.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:112FF90AC0AF508322C772FC728F86BADAD65CBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46222.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0D561D05AAB89F46EAB42A7A2ACAB8298E9EE796
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46223.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3E12DD83BBC636DA7AC0656AAC70266676060DDC
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46224.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1FA12CE2C812C5251739FA8BBF01E7D94F2B696C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46225.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1FA12CE2C812C5251739FA8BBF01E7D94F2B696C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46226.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46227.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2B650319D9EA89208988DA7C1F4BCF5C23A40ABF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46228.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Microsoft Windows 11 [10.0.22631.4037], Version 23H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46229.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:CA5F09B05B6B31937BDC01A88D0D356B0647205F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46230.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:24EB5039B75E4EC13AC953E16080949FBD2F7D4D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46231.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:19DEA91CCC9123C880603C07181648768B5BA558
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46232.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Windows Server [10.0.25398.1085], version 23H2 (Updated August 2024) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46233.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:2831CBED62CEC2E73E17077FD536D7E0E570C07F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46234.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:358B091E77E14043C6D4D8B4D8D278EFD6949491
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46235.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46236.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46237.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FEAB848A15BC3B6C9CE60DC1D94C43990FFCBDB4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46238.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Microsoft Windows 10 [10.0.19045.4780], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46239.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46240.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46241.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Microsoft Windows 11 [10.0.22621.4037], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46242.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ qBittorrent 4.6.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46243.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:AC65A88CF99A4D181A180CC6A27891661241DDA7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46244.jpg" />
 </div>
 
 

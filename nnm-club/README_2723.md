@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71546.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:88E49EF26F323387757F8F012475677AE0BC2619
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71547.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71548.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ihsahn - Ihsahn (2024) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71549.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pallbearer - Mind Burns Alive (2024) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71550.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:FF5BC56EC381C1D416DF8739E73DA9E029DA90D3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71551.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:4594A7A156F771CAA46CA6043E53E4A21234CC7C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71552.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:DA9634FCE904B8C997706BA27EB3E994308676BC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71553.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:B7D923EEAF14B5D273000C9846E8DDDBE4C975A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71554.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4B1FDF47C80B9B729A57A1E07F93CA80186B1BED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71555.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Volkswagen Multivan T5 2010 — Минтранс (18.01.2025) WEBRip [H.264/720p
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71556.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71557.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71558.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71559.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71560.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C1600E32E5BDB81CD384494664CF03C227703DB4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71561.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Landfall - Wide Open Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71562.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71563.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Actionfredag - Lys Fremtid I Mø​rke (2024) [FLAC|Lossless|tracks + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71564.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bruno cattiste - Warriors of God (HARD ROCK) (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71565.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ronald Snijders - Penta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz-Funk,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71566.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ gAIno - More To Come (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71567.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2D613CCE546E03D88B678D5AC3892E7D523B8167
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71568.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Solaris - Martian Chronicles III (I Or A.I.) (2024) 2 x CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71569.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:FA2FF35F44C2FD9F4D088B07A71B8D50B350D5C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71570.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [OGG Vorbis|480 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71571.jpg" />
 </div>
 
 

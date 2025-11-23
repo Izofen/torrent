@@ -6,7 +6,7 @@ Singlets Labarca - Foggy River (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71832.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Haydock - Best Of The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71839.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ John Haydock - Change in the Weather (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71842.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Roadhouse Dogs - Duggan's Conversation Bar (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71845.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71860.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71917.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71921.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71930.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Soultide - Deep Blue Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71948.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gina and Johnny - Free your Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71950.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71960.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72105.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) [MP3|320 kbps]<Jazz,
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75001.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Erja Lyytinen - Songs From The Road (2012) [FLAC|Lossless]<Modern Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75837.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76463.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Chick Corea, Eddie Gomez and Paul Motian - Further Explorations (2012) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77475.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Sam Yahel, Ari Hoenig, Mike Moreno & Seamus Blake - Jazz Side of the Moon: The M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77495.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78078.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79123.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79140.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80146.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Roberta Flack - Let It Be Roberta – Roberta Flack Sings The Beatles (2012) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80217.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Stan Getz - The Bossa Nova Albums (2008) 5-CD Box Set [MP3|320 кб/с]<Jazz, Bo
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81375.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Acoustic Mood Orchestra - Songs from the Heart of Love (2001) [FLAC|Lossless]<Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81585.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81788.jpg" />
 </div>
 
 

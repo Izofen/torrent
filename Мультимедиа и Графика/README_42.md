@@ -1,3 +1,76 @@
+###  Публикация: 1591677   (186873) от 19.11.2022
+
+AIR Music Technology - TubeSynth 1.1.0  Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186873.jpg" />
+</div>
+
+
+###  Подробнее
+
+TubeSynth имитирует звучание классических винтажных аналоговых полисинтезов, оснащенных пятью встроенными воздушными эффектами. Инструмент создан AIR и основан на той же передовой технологии аналогового моделирования, что и в их широко известном настольном плагине synth Vacuum Pro
+Вы откроете для себя новые пышные звуковые ландшафты, о которых раньше и не мечтали. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7630FA270D34A2AC1413DDDE3961501DA94858D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591377   (187001) от 18.11.2022
+
+ON1 Effects 2023 17.0.2.13102 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187001.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Effects 2023 включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Программа включает самые популярные HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, Tone Enhancer, текстуры, границы, Film Looks, Split Tone и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95825BCB7C8CDF239B14B9FE5E308D076EF32647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591352   (187026) от 18.11.2022
+
+ON1 NoNoise AI 2023 17.0.1.12976 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187026.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 NoNoise AI 2023 призван обеспечить лучшие результаты, чем любое другое приложение для шумоподавления на рынке. Он разумно удалять шум изображения, используя машинное обучение ON1 на основе искусственного интеллекта для удаления яркости и цветового шума, сохраняя при этом максимальное количество деталей на фотографиях. ON1 NoNoise AI разумно удаляет все шумы изображения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA7E9FF43F91FF585F9C5E1FBC1EAD6094204CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591397   (187027) от 18.11.2022
 
 ON1 HDR 2023 17.0.2.13102 [Multi/Ru]
@@ -6,7 +79,7 @@ ON1 HDR 2023 17.0.2.13102 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187027.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187027.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ AIR Music Technology - Hype 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187143.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187143.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Rob Papen - BLUE III 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187167.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187167.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Way Out Ware - Odyssey 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187189.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187189.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ Boris FX Sapphire Plug-ins 2023.0 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187328.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187328.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Stepok Recomposit Pro 8.0.0.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187417.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187417.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ A.O.M. Total Bundle 1.15.4 VST, VST3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187761.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ Kiive Audio - ADC1 Compressor 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187775.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187775.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ AegisubUE [Unofficial Edition] v2 (3.3.3, 9643) RePack (& Portable) by xetrin [M
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188022.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188022.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ Apeaksoft Video Converter Ultimate 2.3.20 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188728.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188728.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ Nomad Factory - Integral Studio Pack 3 5.13.5 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188746.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188746.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ reFuse Software - Lowender 1.5.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188795.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188795.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ BLEASS - Megalit 1.0.9 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188823.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188823.jpg" />
 </div>
 
 
@@ -326,7 +399,7 @@ reFuse Software - Bucketverb 1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188833.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188833.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ Positive Grid - BIAS FX 2 Elite Complete 2.5.1 STANDALONE, VST, VST3 , AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189580.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189580.jpg" />
 </div>
 
 
@@ -374,7 +447,7 @@ iZotope - Vinyl 1.11.0 VST, VST3, NKS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189916.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189916.jpg" />
 </div>
 
 
@@ -398,7 +471,7 @@ Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190135.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190135.jpg" />
 </div>
 
 
@@ -422,7 +495,7 @@ Techivation Full Bundle 07.11.2022 VST, VST 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190294.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190294.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ Everyone Piano 2.5.9.4 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190871.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190871.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ iZotope - Insight 2 2.4.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191083.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191083.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Lite RePack by MKN [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191175.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191175.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ BluffTitler 16.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191274.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191274.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ iZotope - VocalSynth 2 2.6.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191466.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191466.jpg" />
 </div>
 
 
@@ -556,80 +629,6 @@ VocalSynth 2 - захватывающий вокальный опыт, кото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF5745294FA5316BDCB8F9D46817462C56AFF505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658252   (191477) от 07.09.2023
-
-MediBang Paint Pro 29.1 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191477.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сути, MediBang Paint является графическим редактором, в котором авторами реализованы классические инструменты для создания рисунков: кисть, карандаш, различные художественные элементы, приемы и фильтры. Возможности приложения позволяют превратить, в умелых руках, монитор вашего устройства в настоящий цифровой холст. Тот набор инструментов, что предлагает этот (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD740EFB8B4F1FC34B6A2EECACC3918EA87328DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588482   (191588) от 04.11.2022
-
-E-Phonic - Invader 2 1.0.10 VSTi 3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой, но мощный - Invader 2 - это 8-голосный полифонический синтезатор. Он был разработан таким образом, чтобы его было легко программировать, в то же время предлагая широкий спектр звуков и возможностей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C544D434F3C08837B5C4B1791BA2507DD1170D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588198   (191821) от 03.11.2022
-
-VoosteQ - Material Comp 1.7.1 VST, VST 3, AAX (x64) RePack by MOCHA [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ультрасовременный компрессор, оснащенный технологией ”DFP”, на разработку которой VoosteQ потратил 3 года, чтобы досконально воспроизвести нюансы аналоговой схемы.
-Технология обработки сигналов уровня Mastering может быть достигнута при чрезвычайно низкой загрузке процессора.
-Внутренняя обработка полностью 64-разрядная и воспроизводит звуки с невероятной прозрачностью.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6D1EF3D052C39C92A5397DB5518E4E599D7785
 ```
 
 

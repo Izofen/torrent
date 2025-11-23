@@ -1,3 +1,175 @@
+###  Публикация: 1599613   (159552) от 24.12.2022
+
+Юрий Симоненко | Год 2077-й (2022) [MP3, Олег Шубин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятьдесят восемь лет минуло после Войны, в ходе которой противостоявшие друг другу сверхдержавы уничтожили прежний мир, применив всё имевшееся у них оружие массового поражения. Война вызвала эффект ядерной зимы, убивший подавляющее большинство населения планеты; единицы пережили долгую, затянувшуюся на многие месяцы холодную ночь, за время которой погибла бóльшая (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB941BA6DCF3ABD4D34588AD74FB01BC59F48A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599502   (159553) от 24.12.2022
+
+А.В. Кенеман | Детские подвижные игры народов СССР (1988) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии представлены наиболее распространенные игры народов союзных республик, а также автономных республик, входящих в состав РСФСР, в которые дети играют на физкультурных занятиях и в свободное время; предлагаются методические рекомендации по использованию игр в целях нравственно-патриотического, интернационального и физического воспитания дошкольников.
+Книга (   Читать дальше...   )Жанр: Пособие для воспитателя детского садаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA4872655AA947396410B2186044CAC1779D29A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599456   (159554) от 24.12.2022
+
+Питер Акройд (Peter Ackroyd) | Сборник произведений [33 книги] (2000-2022) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер Акройд (Peter Ackroyd) – английский прозаик и поэт, литературный критик, лауреат нескольких литературных премий. Питер Акройд родился пятого октября 1949 года в Лондоне (Великобритания). В 1971 году получил степень магистра в Кембриджском университете, затем два года провел в Йельском университете. По возвращении на родину он работал редактором в "The (   Читать дальше...   )Жанр: Исторический детектив, приключения, проза, история, биографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF477EDF95621728100EE9116876234867977C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599614   (159555) от 24.12.2022
+
+3D print - Amaterasu [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аматерасу, также известная как Ōkami Amaterasu является вымышленным персонажем видеоигры Ōkami от Capcom. Она - белый волк, основанный на японской богине Аматерасу в японской мифологии.
+
+Модель предоставлена в разобранном виде (6 частей)
+Оригинальные размеры модели: ~102x86 h:123mmФормат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47844F465F8F1C68695C204A92B3501702C8C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599694   (159556) от 24.12.2022
+
+3D print - Pokemon Houndour Evolution [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаундур - четвероногий клыкастый покемон с коротким черным мехом и красным подбрюшьем и мордой. Уши и хвост короткие и заостренные. Из верхней челюсти выступают два клыка, а треугольный нос черного цвета. На лодыжках есть белые полосы, а на спине - ребристые гребни. На лбу у гончара упрощенный, стилизованный череп с глазницами, образующими бровь над глазами. У него (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8A38F2BD3C04D474155FCAB1A36E6F124AE26B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599789   (159557) от 24.12.2022
+
+Журнал | Моделист-конструктор №11 (2022) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159557.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Моделист-конструктор" — ежемесячный популярный научно-технический журнал. Издаётся с августа 1962 года. В каждом номере журнала публикуются чертежи и схемы самых разнообразных конструкций — от приспособлений для домашнего хозяйства до самодельных микроавтомобилей и любительских самолётовЖанр: Научно-технический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B8EADF61FA89765B8BE020C3D4CCE42F3711E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599648   (159558) от 24.12.2022
+
+Ламборгини: Человек-легенда / Lamborghini: The Man Behind the Legend (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159558.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самого дерзкого стартапа в мире суперкаров. Путь страсти, проб и ошибок Ферруччо Ламборгини и его превращения из сына фермера, мастерившего тракторы, в создателя легендарной машины, бросившего вызов самому Энцо Феррари.Производство: Италия, США / Ambi Pictures, Grindstone Entertainment GroupЖанр: биография, спорт, драмаРежиссер: Роберт МорескоАктеры: Фрэнк Грилло, Романо Реджани, Маттео Леони, Ханна ван дер Вестхойзен, Мира Сорвино, Гэбриел Бирн, Элиана Джонс, Франческа Тиццано, Джорджа Пальяччи, Леонардо ЧеккиПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CC2C368A6AE1DD4392FAF2C3284A339ACE45CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599633   (159559) от 24.12.2022
 
 3D print - Pokemon Planter Set [STL]
@@ -6,7 +178,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159559.jpg" />
 </div>
 
 
@@ -33,7 +205,7 @@ magnet:?xt=urn:btih:F6F168C7EFF6B88C8342FE214C7B63412FD0E336
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159560.jpg" />
 </div>
 
 
@@ -57,7 +229,7 @@ magnet:?xt=urn:btih:42A36AB06F302F66441913C9EF0351A05E63DD04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159561.jpg" />
 </div>
 
 
@@ -81,7 +253,7 @@ magnet:?xt=urn:btih:B54C7173A3313A89C2B5ED1D313FEBB30B4AF491
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159562.jpg" />
 </div>
 
 
@@ -106,7 +278,7 @@ magnet:?xt=urn:btih:9C5CE6732D3AAF7D5F65AB084AB2FC4996F2F18F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159563.jpg" />
 </div>
 
 
@@ -130,7 +302,7 @@ Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159564.jpg" />
 </div>
 
 
@@ -158,7 +330,7 @@ MIUI-ify v1.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159565.jpg" />
 </div>
 
 
@@ -182,7 +354,7 @@ Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159566.jpg" />
 </div>
 
 
@@ -206,7 +378,7 @@ King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159567.jpg" />
 </div>
 
 
@@ -233,7 +405,7 @@ magnet:?xt=urn:btih:2B2A6C5873EF71857A00FFA20EDFC16AA9EF1FEF
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159568.jpg" />
 </div>
 
 
@@ -257,7 +429,7 @@ magnet:?xt=urn:btih:6302D3ACA9B5372940168B02F6DACABB4B01C2CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159569.jpg" />
 </div>
 
 
@@ -281,7 +453,7 @@ magnet:?xt=urn:btih:1BA467723CF53D4BEF7BA009FC8ED3D4A6062ED0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159570.jpg" />
 </div>
 
 
@@ -305,7 +477,7 @@ magnet:?xt=urn:btih:B9CDEA29901A17581EB9E9E4CC683D4DB3C65DA3
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159571.jpg" />
 </div>
 
 
@@ -332,7 +504,7 @@ magnet:?xt=urn:btih:D0865AF5D93D831503DC3AF93BC2A9A74E7995AC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159572.jpg" />
 </div>
 
 
@@ -356,7 +528,7 @@ magnet:?xt=urn:btih:6FB8D1B39E2A0FDADA1F949966F7EFC2E56853CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159573.jpg" />
 </div>
 
 
@@ -380,7 +552,7 @@ Bottom Quick Settings v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159574.jpg" />
 </div>
 
 
@@ -405,7 +577,7 @@ magnet:?xt=urn:btih:D8C4427B8E952397DCD4AF7654A6D5442AD19B04
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159575.jpg" />
 </div>
 
 
@@ -429,7 +601,7 @@ magnet:?xt=urn:btih:D00C7EBB54FD11EEAFD9A4315B7A6A350E00620D
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159576.jpg" />
 </div>
 
 
@@ -455,7 +627,7 @@ magnet:?xt=urn:btih:229FD8C846C0D04E1F58C2F648786D30FEA7F4C3
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159577.jpg" />
 </div>
 
 
@@ -466,183 +638,6 @@ magnet:?xt=urn:btih:229FD8C846C0D04E1F58C2F648786D30FEA7F4C3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D313CB93C40C341A2CC5790A9EF00D453494E80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598968   (159578) от 24.12.2022
-
-Tommy Vext - 3 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Grand Theft Audio
-2022 - Uncovered, Vol. 1
-2022 - Uncovered, Vol. 2Жанр: Alternative MetalПродолжительность: 3 CD, 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE40F9198E9B1BA459978E8D21BC7F875F7F59D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599755   (159579) от 24.12.2022
-
-Александр Дюма | Виконт де Бражелон, или Десять лет спустя (2022) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени нашей последней встречи с неразлучными мушкетерами прошло еще десять лет. У власти Людовик XIV, который проводит жизнь в бесконечных пиршествах и увеселениях. Его верный подданный – лейтенант королевских мушкетеров Д'Артаньян скучает в Версале, не видит никакого смысла в продолжении своей службы и в один из дней подает его величеству прошение об отставке. (   Читать дальше...   )Жанр: исторические приключения, литература 19 векаПродолжительность: 72:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D01DCA52D5854E02ED3FA805B4102343BBE3E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599542   (159580) от 24.12.2022
-
-Людмила Мартова | След на весеннем снегу (2022) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159580.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одно утро размеренная жизнь тихого городка переворачивается с ног на голову. Учительница английского языка Мила на прогулке с собакой находит клад старинных монет. Перед этим ее чуть не сбил известный архитектор – оказывается, совсем рядом он строит необычный дом для одного из отцов города. И вскоре там же, в Кузнецкой слободе, находят тело местного предпринимателя. (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC87965F1D0978C48703A3884A816EDC871C416B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599812   (159581) от 24.12.2022
-
-System Of A Down - System Of A Down (2011) 5xCD, Box Set, Compilation [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159581.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - 1998 - System Of A Down
-CD - 2 - 2001 - Toxicity
-CD - 3 - 2002 - Steal This Album!
-CD - 4 - 2005 - Mezmerize(   Читать дальше...   )Жанр: Alternative Metal, Alternative Rock, Heavy MetalПродолжительность: 03:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC4668A3231F69F4E73EA5E17C7F5B8875B3EE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217901   (159582) от 24.12.2022
-
-Terror - Always the Hard Way (2006) [FLAC|Lossless|image + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All For Revenge
-02. Strike You Down
-03. Survival Comes Crashing In
-04. Always The Hard Way(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E449DD374D4CF0D8FD9CBAC63D40B4646F0004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599700   (159583) от 24.12.2022
-
-Смерть в Брунсвике / Death in Brunswick (1990) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатилетний Карл Фицджералд живёт в развалюхе, работы у него нет, жена ушла, а мамаша постоянно пилит. Однажды ему всё же удаётся найти работу и почти сразу же познакомиться с будущей возлюбленной, барменшей Софией, а заодно и с вышибалой ночного клуба по имени Лори, который становится самым лютым врагом Карла...Производство: Австралия, Australian Film Finance Corporation (AFFC), Film Victoria, Meridian FilmsЖанр: комедия, криминал, триллерРежиссер: Джон РуэйнАктеры: Сэм Нилл, Зои Каридес, Джон Кларк, Ивонн Лоули, Ник Латурис, Николас Пападеметриоу, Борис Бркич, Дебора Кеннеди, Дорис Юнейн, Дэнис МурПеревод: профессиональный многоголосый (Рен ТВ), авторский (Антон Алексеев)Субтитры: английские SDHПродолжительность: 01:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F36A1BBDC1296558CC1E55C0F903A81E29856D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599622   (159584) от 24.12.2022
-
-Приключения мышонка / Rodencia y el Diente de la Princesa (2013) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в густых и широких лесах стояло прекрасное королевство Роденсия — место, где обитали удивительные создания и могущественные волшебники. Приключение, которое произойдёт здесь, расскажет нам о любви между неуклюжим учеником мага маленьким мышонком Эдамом и красивой и уверенной мышкой Бри, которым придётся преодолеть много опасных препятствий, для того (   Читать дальше...   )Производство: Перу, Аргентина, США / Grindstone Entertainment Group, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Red Post Studio, Simka Entertainment, Vista Sur Films S.r.l.Жанр: мультфильм, семейныйРежиссер: Давид Бисбано, Михал СимкаАктеры: Эрнан Браво, Наталия Росминати, Рикардо Эланис, Энрике Порсельяна, Серджо Бермехо, Освальдо Салас, Грегг Салкин, Гонсало Уртисбереа, Марсело Чиринос, Хосе Луис ПертикариниПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A52F23B322FDF0B554F0F5A98390D7BA7F0D58
 ```
 
 

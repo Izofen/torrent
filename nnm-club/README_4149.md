@@ -1,3 +1,81 @@
+###  Публикация: 1684685   (127561) от 16.12.2023
+
+Журнал | ТН звёзды №50 (Декабрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127561.jpg" />
+</div>
+
+
+###  Подробнее
+
+ТН — журнал о знаменитостях с телепрограммой. Каждую среду выходит свежий номер с откровенными интервью ваших любимых звезд. Кумиры доверяют нам, а мы делимся с вами интересными подробностями из их жизни. Звезды приглашают наших журналистов к себе домой — согласитесь, всегда интересно посмотреть, как живут знаменитости.Жанр: ДосугИздательство: ООО «Медиа ресурс»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1B0E22B72FCB6794821988885123E2DD5137B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684650   (127562) от 16.12.2023
+
+Смерш - ... (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Гражданская	04:13
+02.	День победы	03:31
+03.	Два народа	04:21
+04.	Примирение	04:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2139E226B67A1529D1A1F15DFBD1D7B601F3419C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684651   (127563) от 16.12.2023
+
+Минтранс (16.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127563.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Экспертиза машины при постановке на учет. Как она проходит? Есть ли установленные сроки для процедуры?
+🔸 Тест-драйв Сузуки Витара - 2023. Насколько надежен японский гибрид?
+🔸 Сроки ремонта. Что делать, если страховщик и сервис долго согласовывают объем работ и стоимость?
+🔸 Греть или не греть? Что будет, если не прогревать автомобиль?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD9D63A63B7D314EEFDB2FEE5B3D9B50017D943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684321   (127564) от 16.12.2023
 
 VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +84,7 @@ VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127564.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127565.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Asia - Live at the Pabst Theatre, Milwaukee, Wi, USA, 23 April 2008 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127566.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ YouCut - Video Editor v1.603.1181 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127567.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127568.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic De
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127569.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:95852CF71B279C17184BEE994A1F3C758915E923
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127570.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:47FD9A5856C5E3CEC485859599030EC642C5B467
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127571.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127572.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:C6E42F11100B8C915AC6F98BAEB78076D48442C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127573.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127574.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Lee Gallagher - The Falcon Ate the Flower (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127575.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Stuka Squadron - Zeppelin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127576.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:23C6AAC3BB9A2495E0DAC45FAF1F39C43CD500AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127577.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127578.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ In Vision - Manuscript (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127579.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ magnet:?xt=urn:btih:A50DE41E1A89B0E2CB0006563389AC7C857096DA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127580.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127581.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127582.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Photo Lab PRO v3.12.83 Mod by Mixroot, LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127583.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Palace Of The King - Friends In Low Places (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127584.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ magnet:?xt=urn:btih:55CDB07CD6D064266E0867A69128A5F926CFA828
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127585.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Delux
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127586.jpg" />
 </div>
 
 
@@ -599,83 +677,6 @@ The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Delux
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684636   (127587) от 16.12.2023
-
-Главная дорога (16.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Циклон «Ваня» принес в столицу аномальные снегопады, многие автомобилисты попали в снежные ловушки.
- Продавец — банкрот, машина — под арестом, проблемы — у законного владельца: неужели в такой ситуации придется платить чужие штрафы?
- Чем больше льешь, тем хуже видно! Многие водители грешат на качество «незамерзайки» и слишком грязные дороги. Андрей Федорцов и Денис (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DFD96E026163F4189EFD258B334BE5C91B97A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684641   (127588) от 16.12.2023
-
-Поедем, поедим! Югра: в гостях у оленеводов, сибирский замес и рагу из лося (16.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди в Югре покормил оленей, попил кровушки, поплавал с акулами, попробовал красные пельмени и приготовил фантастическое рагу из лосятины. А еще путешественник попал в сибирский замес и насладился кулинарным богатством Севера.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B92A59618FAB07E0D5981B2D6DD9136F8438CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684338   (127589) от 16.12.2023
-
-VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dsnt Matter - Overused (Extended Mix) [5:05]
-02. Dirkie Coetzee & Deeper Calling - Starship Orion (Extended Mix) [5:56]
-03. HALIENE - Forgive You Anyway (NIO Remix) [3:30]
-04. Ginchy - Leading You (Extended Mix) [5:47](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
 ```
 
 

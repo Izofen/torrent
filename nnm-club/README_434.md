@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11508.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:49BDA56112F1CE32D3B0CB3E248FD660045FFFAD
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11509.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4EE7E656FFBA991C463623E0AB511829CE42219C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11510.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Shadow of the Night (2023) [En] (2.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11511.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11512.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ FireAlpaca 2.13.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11513.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:255998723C3B1DC885FF675C505B61430862F9F1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11514.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EBEA6E606F0C151CEF60699CF1D14592E3E3591C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11515.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BFC0E8EB5B2B60703791E61C8470B7DAFB313B52
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11516.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C6615171CE35A564C8637FE31483DF11ED6D1078
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11517.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4CC6FCD53B88B2FA4A44C15A8FB548C704997DAB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11518.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Music News For Forum vol.113 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11519.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Black Sabbath - The End (4 February 2017 - Birmingham) (2017) Box Set, 3XCD, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11520.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C7B005C31CE030397B95E820DCE18DD4B8BB9807
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11521.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0C505255B1BB4C6D3A505A716146BA4EB5A09417
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11522.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:03C9491177E2326DF728C5AF8B7D45D69A5DA56D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11523.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:45E38D3D137892F19E76B24F8B06A1791595C2F6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11524.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:3E9E555BD1BD83569B671F71EE2FFDE14F61E5AE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11525.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:537CDB85DD93F89E94B7E257030C740C8FD6BE23
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11526.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:5DC5E7871D3EB463C2BF2F50E476D5DF5F86EC70
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11527.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:39ECC21071D948F85586D1470FBE06E4EC5EAB18
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11528.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:2A171681296B4DF72E4BC8F01D8DAB3EAAE0B6C7
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11529.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11530.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:FDF63E1B1560E6C6A12FEB507E6A4D1D527B0DEC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11531.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:132D821C0316867FE277B458C238555DBF485306
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11532.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7140159BFF2E45BDFFEF5809B11C16CB00AD5733
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11533.jpg" />
 </div>
 
 

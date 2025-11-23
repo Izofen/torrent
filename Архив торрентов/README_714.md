@@ -1,3 +1,76 @@
+###  Публикация: 1519341   (149817) от 23.12.2021
+
+Cockos REAPER for Mac v6.43  [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 Cockos IncorporatedПоддерживаемая ОС: macOS 10.5 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD36D0F907829E85108E77D4D2C9BC89079F2B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677587   (149820) от 18.11.2023
+
+Maxon ZBrush 2024.0 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149820.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZBrush — программа для 3D моделирования, созданная компанией Pixologic. Отличительной особенностью данного ПО является имитация процесса «лепки» трёхмерной скульптуры, усиленного движком трёхмерного рендеринга в реальном времени, что существенно упрощает процедуру создания требуемого трёхмерного объекта. Каждая точка (называемая пиксель) содержит информацию не только (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB7D8F44DD5CB530F42AEF999CD7B8C01497DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519350   (149826) от 23.12.2021
+
+DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 DxO LabsПоддерживаемая ОС: macOS 10.15.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F86D7CDCE9DE9F3EBF839B7DF67EE0E2051A96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271509   (149832) от 23.12.2018
 
 ActivePresenter Professional Edition 7.5.2 [Multi/Ru]
@@ -6,7 +79,7 @@ ActivePresenter Professional Edition 7.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149832.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ WizFile 2.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149837.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:F78F39108CE9DA626880C7EDC933307DE9E31125
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149849.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ magnet:?xt=urn:btih:708AB69EB1204E728D94A3024BECA3BFC8FE46ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149869.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ MonsterTools - Renegade (2019) [MP3|320 Kbps] <Darkwave, Electro Industrial rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149870.jpg" />
 </div>
 
 
@@ -133,7 +206,7 @@ Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149876.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ magnet:?xt=urn:btih:C80D6DEF6760F15B8C723934489927929EFC53F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149878.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ magnet:?xt=urn:btih:C80D6DEF6760F15B8C723934489927929EFC53F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149882.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ magnet:?xt=urn:btih:F658AEE78D6BA23967A0A7F2036459B299E7C4C0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149895.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ Wise System Monitor 1.4.8.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149900.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ BestReminder v2018.12.22.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149908.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ MAGIX Vegas Pro 21.0 Build 187 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149918.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ Inklet 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149924.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ Wise Force Deleter 1.48.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149931.jpg" />
 </div>
 
 
@@ -354,7 +427,7 @@ magnet:?xt=urn:btih:233B01662AAA069C7FDB9FD115B6F7CAE8B7194F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149936.jpg" />
 </div>
 
 
@@ -378,7 +451,7 @@ magnet:?xt=urn:btih:5DDF42FB4D76DEB0A642AD76E145C5713211865F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149942.jpg" />
 </div>
 
 
@@ -402,7 +475,7 @@ Zoom It 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149948.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ HashMyFiles 2.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149965.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ XCap 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149969.jpg" />
 </div>
 
 
@@ -476,7 +549,7 @@ Bird Mail PRO 2245.97 [Ru/Multi] - Почтовый клиент
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149970.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ magnet:?xt=urn:btih:9102CEB5DBC7608DE497CBEC286E9991CD47C1F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149977.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ Viper FTP 5.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149982.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ Scrollow 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149986.jpg" />
 </div>
 
 
@@ -560,78 +633,6 @@ Scrollow позволяет управлять различными параме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF0E54F714AEFB163C63DDFEA85F31514AE023DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589181   (149990) от 14.12.2012
-
-Джанго освобожденный / Django Unchained (2012) [1080p] HDTVRip [Трейлер]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентричный охотник за головами, также известный как «Дантист», промышляет отстрелом самых опасных преступников на Диком западе. Работенка пыльная, и без надежного помощника ему не обойтись. Но как найти такого и желательно не очень дорогого? Беглый раб по имени Джанго — прекрасная кандидатура. Правда, у нового помощника свои мотивы — кое с чем надо разобраться…Жанр: Вестерн, ДрамаРежиссер: Квентин ТарантиноАктеры: Джейми Фокс, Кристоф Вальц, Леонардо ДиКаприо, Керри Вашингтон, Сэмюэл Л. Джексон, Джона Хилл, Джеймс Руссо, Эмбер Тэмблин, Джеймс Римар, Дон ДжонсонПеревод: ДублированныйПродолжительность: 00:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDAC6673BE78736FF3D6B991FAD6D77CD05DA40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589184   (149999) от 14.12.2012
-
-Тихоокеанский рубеж / Pacific Rim (2013) [1080p] HDTVRip [Трейлер]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда из морских глубин поднялись легионы чудовищ, известных как Кайдзу, началась война, которой суждено было забрать миллионы жизней и свести «человеческие ресурсы» почти к нулю всего за несколько лет. Чтобы сражаться с пришельцами, было создано специальное оружие: огромные роботы, названные Джегерами, они управлялись одновременно двумя пилотами, чьи сознания соединены с помощью нейронной связи. Но даже Джегеры оказываются почти бессильны перед лицом безжалостных Кайдзу. На грани поражения у защитников человечества нет выбора, кроме как обратиться к двум весьма сомнительным героям — никому не нужному бывшему пилоту и неопытному стажеру — которые объединились, чтобы повести в бой некогда легендарного, но сейчас устаревшего Джегера. Вместе они оказываются единственной надеждой человечества, последним препятствием перед надвигающимся апокалипсисом.Жанр: фантастика, боевикРежиссер: Гильермо дель ТороАктеры: Идрис Эльба, Рон Перлман, Чарли Ханнэм, Ринко Кикути, Чарли Дэй, Клифтон Коллинз-мл., Макс Мартини, Берн Горман, Хитер Дирксен, Диего Клаттенхофф, Брэд Уильям Хенке, Роберт Казински, Дэвид Ричмонд-ПекПеревод: ДублированныйПродолжительность: 00:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9862B821806F90BF1BDFB2BA7429800231172FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271314   (150002) от 23.12.2018
-
-PDF Shaper Premium 8.9 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3630464BC0AC6361D6F45289164887CDCD1112FA
 ```
 
 

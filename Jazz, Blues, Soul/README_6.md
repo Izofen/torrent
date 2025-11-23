@@ -6,7 +6,7 @@ Felipe Renfro - Love, Hope and Misery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16681.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16681.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Debbie Bond - Live at the Song Theater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16682.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16682.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Christopher James - Psilocide blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16685.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16685.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Vincent - Good Crook (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16686.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carl Cox - Philly Strut (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16687.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16687.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bryan Lee - Homage to 4 Kings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16688.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16688.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Between the Bricks - Quiet Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16689.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Andres Sanchez - Wish (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16690.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alex Henley - Slow Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16713.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16713.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16779.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16806.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16827.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Joe Pass - For Django (1964) 1998, BGO Records [FLAC|Lossless|tracks + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16870.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dianne Reeves - That Day... (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17089.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dee Alexander - Songs My Mother Loves (2014) Blujazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17295.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17295.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17524.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17562.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17562.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dizzy Gillespie - Jambo Caribe (1964) 1998, Verve Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17564.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aretha Franklin - Who’s Zoomin’ Who? (1985) [FLAC|Lossless|tracks + .cue] <E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17671.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Emanuel Casablanca - Hollywood Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18619.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Beegie Adair - The Great American Songbook (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18822.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18828.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19756.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19756.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19774.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19775.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20364.jpg" />
 </div>
 
 

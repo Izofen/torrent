@@ -6,7 +6,7 @@ Skype 8.80.0.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129668.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera 83.0.4254.19 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129672.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:116CF0CBA36BD5A02481A9C7B39265E187A1047B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129678.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RogueKiller Anti-Malware 15.2.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129686.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:081C405F7742C22A48E2A572B2BDA1D84E58DBFA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129688.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Java SE Development Kit 8.0.3210.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129689.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ RAM Saver Professional 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129701.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:505E68D64855529C7D6D431FDC8B85859BA18E3A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129703.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Google Chrome 97.0.4692.99 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129709.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MAGIX Video Pro X13 19.0.1.138 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129712.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ WinTools.net Premium 22.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129713.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Java SE Development Kit 17.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129714.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Лучшие Хиты Love Radio Часть 8 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129717.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CA13C7654C0DB2CE618A8DDFB378C7B6DCEC31DA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129718.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pixelmator Pro 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129720.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mozilla Thunderbird 12.0.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129738.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129739.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:F8E8A935911BDDE31D3C4BC3C3E04571B4E7F302
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129750.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:97FA709309DCCFCB6C91754218629132A82C7E11
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129753.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:38433F8A9259557ABD0E64B1FDBAA28999310C88
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129756.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Skype 8.80.0.143 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129767.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.116 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129773.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Google Chrome 97.0.4692.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129780.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ GPU-Z 2.44.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129786.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Chain Reaction - Коллекция (11 дисков, 27 винилов) (1995-2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129793.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Wise Data Recovery 3.03 Beta + Portable [Мульти, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129798.jpg" />
 </div>
 
 

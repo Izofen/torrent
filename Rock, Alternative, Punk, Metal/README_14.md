@@ -6,7 +6,7 @@ Cronos Compulsion - Lawgiver (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17420.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sepultura - Roots (1996) 2 x CD, Compilation, Reissue, Remastered, 2017, Roadrun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17424.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stellar Silence - Reditus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17503.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chopped in Half - The End of Human Tragedy (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17511.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eric Clapton - Me and Mr Johnson (2004) [FLAC|Lossless|tracks + .cue] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17517.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17528.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17529.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Citadel - Descension (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17537.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Child Sized Coffin - Feast (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17538.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17538.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Obús - Vamos Muy Bien (2006) 2 x CD, Compilation, Reissue, 2007, Sony BMG Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17566.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17566.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Diamond Head - Lightning To The Nations (1980) 2XCD, Reissue, Remastered, 2022, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17625.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Brutalt - Reason with Death (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17660.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cirith Ungol - Servants Of Chaos (2001) 2 x CD, Compilation, Reissue, 2011, Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17670.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Siege of Power - This Is Tomorrow (2023) [FLAC|Lossless|image + .cue] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17677.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17677.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rush - Rush 50 (2025) 4CD Anniversary Super Deluxe [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17981.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fleetwood Mac - Like Crying: The Songs of Danny Kirwan (2025) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17988.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Guns N' Roses - Appetite For Democracy 3D (2014) BOX Set, 2xCD, Limited Edition 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18179.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Queensrÿche - Empire (1990) BOX Set, 3xCD, Compilation, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18408.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:EF1CCD17E7662DD333CFFF933830EBFEE6AEC7AE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18577.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cain's Dinasty - Dinastía de Caín (2025) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18621.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sting - 3.0 Live (2025) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18642.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:9E7E400355D5C47718E4DEDFF47C994FD1F1D400
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18810.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nightfall - Children of Eve (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18824.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Probot - Probot (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Hardcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18827.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Game Over - Face the End (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18830.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ghost - Rite Here Rite Now (Original Motion Picture Soundtrack) (2024) 2 x CD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18925.jpg" />
 </div>
 
 

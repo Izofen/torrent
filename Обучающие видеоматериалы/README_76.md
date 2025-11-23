@@ -6,7 +6,7 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175627.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175634.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175634.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175661.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175722.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175722.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175765.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175765.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175781.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_175781.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8985128AEA0687912DAC97346E239D9D0CB43D41
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175793.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176192.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176192.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Brejestovski Language School, Антон Брежестовский | Основ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176225.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176225.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176278.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176278.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Node University | Подборка курсов по разработке на N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176288.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176288.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176348.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176348.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176360.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176368.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176379.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1C9E3EFA9E8F5947492F309743E8E6854BC1925C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176387.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176398.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:AAA5AAE05B1D45F8D1D787143A988B159D530EF5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176416.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EF128DD5F3604A8D25D2734B571B251E80440F45
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176427.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ HolyJS 2020 Moscow | Конференция для JavaScript-разработч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176449.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176449.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:35501C1D122314031B8C6362879A6D6727DB97D8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176486.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:97502094BEF42527017CADCBAA12E74D1B61D36D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176492.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177151.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy, Никита Ильин | Польский язык: С нуля до Б1
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177177.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1EB6DE549A0712AF16E9113B03C1485E94AE884E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177182.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:0EF8FA72C99627F082B5F1B4391A6CC6309999BA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177214.jpg" />
 </div>
 
 

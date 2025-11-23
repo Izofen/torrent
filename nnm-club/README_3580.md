@@ -1,3 +1,78 @@
+###  Публикация: 1710106   (112762) от 26.03.2024
+
+Книжная серия | Очерки по истории геологических знаний (1953 - 2022) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советское и российское серийное академическое научное издание на русском языке по истории геологии. Серия основана в Институте геологических наук АН СССР, издаётся с 1953 года, первый ответственный редактор - В. В. Тихомиров.Жанр: ГеологияИздательство: НаукаФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710234   (112763) от 26.03.2024
+
+Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. О мое солнце (Э. Капуа)
+02. Аве Мария (Ф. Шуберт)
+03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710376   (112764) от 26.03.2024
+
+Pale Moon 33.0.2 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с многими расширениями Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FC078B37D9C50C0309CBBDF974E4B77A29ECE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710229   (112765) от 26.03.2024
 
 OneCommander Pro 3.72.0.0 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ OneCommander Pro 3.72.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112765.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Sync Folders Pro 4.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112766.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ System Dashboard Pro 1.10.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112767.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ WiFiSpoof 3.9.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112768.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112769.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:43B38019C9072A55552CCE77D996CBC9D835C2ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112770.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112771.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ Maypole - The Real (1971) Reissue, 2005, Gear Fab Records [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112772.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:E27ADDDE0CE2AD53DDB42D99A46AE44A3C7F05FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112773.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112774.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112775.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ VA - Domingo Rockero (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112776.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ magnet:?xt=urn:btih:4A1AF493429C631755D38B73E2BB08767345AC39
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112777.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ magnet:?xt=urn:btih:1F17DE9BB5753DC458EA7D0E9989ABAA947E4D75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112778.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ magnet:?xt=urn:btih:60930483A6858C0615A0198D5263113476A12D7C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112779.jpg" />
 </div>
 
 
@@ -383,7 +458,7 @@ Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112780.jpg" />
 </div>
 
 
@@ -410,7 +485,7 @@ Night Crowned - Tales (2023) [FLAC|Lossless|image + .cue] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112781.jpg" />
 </div>
 
 
@@ -437,7 +512,7 @@ Hellfueled - Volume One (2004) Reissue, 2005, Art Music Group [APE|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112782.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ Hellfueled - Emission of Sins (2009) [APE|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112783.jpg" />
 </div>
 
 
@@ -491,7 +566,7 @@ Hellfueled - Born II Rock (2005) Reissue, 2006, Art Music Group [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112784.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ Night Crowned - Hadanfard (2021) [FLAC|Lossless|image + .cue] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112785.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ Night Crowned - Impius Viam (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112786.jpg" />
 </div>
 
 
@@ -572,7 +647,7 @@ Hellfueled - Memories in Black (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112787.jpg" />
 </div>
 
 
@@ -586,82 +661,6 @@ Hellfueled - Memories in Black (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C0786899A47AC73320E7F0CBC5851FCEC900CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709434   (112788) от 25.03.2024
-
-Necrosanct - Desolate (1993) Reissue, 2013, Abhorrent Productions [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed
-02. Reprisal
-03. Plagued Mind
-04. Epitaph(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23725FF5E6EAD7543E0AB46ECF9B2E55EC719520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709611   (112789) от 25.03.2024
-
-VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 продолжительностью 01:09:33
-1. Charles Webster & Ursula Rucker – Begin Anew (Quivver & Dave Seaman Beginapella)Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C51EAF8C830638C61E2624A2FBF4298C047C84B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709485   (112790) от 25.03.2024
-
-Сергей Гран | Gran Collection (Подкаст) (2017-2022) [MP3, Сергей Гран]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все грани классической рок музыки в авторской программе Сергея Грана - GRAN COLLECTION. От истоков до современности, от Led Zeppelin до Maroon5. В качестве бонуса периодически выходят выпуски программ в рамках актуального хита-парада от музыкального журнала BILLBOARD Автор и ведущий - Сергей ГранЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 96:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B9CDA7E9258A7CD6715D3F3C58FF5EFACA9C2A
 ```
 
 

@@ -6,7 +6,7 @@ Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107003.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116425.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116428.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Chu Feng: B.E.E. / Позывной: «Пчёлка» [2015, TV, 6 эп.] WEBRip
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122460.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125851.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126820.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128578.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128580.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128581.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128630.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128631.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128632.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128633.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Promare | Промар [2019, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128853.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128873.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129038.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129044.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Eternal Life / Yong Sheng / Youngsheng / Immortality / Вечная жизнь [
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131684.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ The Land of Miracles / Shen Lan Qi Yu Wushuang Zhu / The Magic Kingdom of the Go
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132303.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135138.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136845.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Hatsune Miku - Magical Mirai / Живой концерт Хатсуне Мику
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142192.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Winter 2020 Anime Preview | Зима 2020 Превью Аниме [2020, Обз�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147061.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151665.jpg" />
 </div>
 
 

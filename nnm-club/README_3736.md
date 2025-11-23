@@ -1,3 +1,75 @@
+###  Публикация: 1701085   (116818) от 19.02.2024
+
+Из глубины / No Way Up (2024) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious MediaЖанр: боевик, триллер, драма, приключенияРежиссер: Клаудио ФахАктеры: Софи Макинтош, Колм Мини, Филлис Логан, Дэвид Самартин, Скотт Кокер, Джеремия Амур, Уильям Аттенборо, Джеймс Кэрролл ДжорданПеревод: Профессиональный двухголосый (ViruseProject | 18+)Язык озвучки: РусскийСубтитры: английские (full, SDH)Продолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AD8777CA59D97F701E868BDAA4876030CFA935
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701121   (116819) от 19.02.2024
+
+Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam: Siberian Mayhem – это возможность погрузиться в долгое и опасное путешествие по российским пустошам, где получится сразиться против сил Ментала. Игра является дополняющей частью к оригинальной серии, в которой получится взять под управление "Крутого" Сэма Стоуна. Придется столкнуться с полчищами тварей, что выползают на поверхность планеты (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Action (Shooter), Add-On, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700835   (116820) от 18.02.2024
+
+SnippetsLab 2.4.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116820.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 18.02.2024Разработчик: © 2015-2024 Renfei SongПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A274111E4DAECF1DF4CDE508D2B35404132B5EDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700884   (116821) от 18.02.2024
 
 iBarcoder 3.14.5 [Multi/Ru]
@@ -6,7 +78,7 @@ iBarcoder 3.14.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116821.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116822.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116823.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) None
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116824.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Sujin - Save Our Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116825.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116826.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116827.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116828.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116829.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116830.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Deaf & Dumb - Evildarkrooted... Total Dumb (2013) Compilation [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116831.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116832.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:E29D0B127A93C9434970DA1E3CF47AB7A3D5BFD8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116833.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:C49421CBD50801E1B2D0B71D30BB2EFDDD1204CC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116834.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:47DB0BBD40447A53191C0901F0A3696F9435EAA6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116835.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116836.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ magnet:?xt=urn:btih:845D3022A11735657F6A260550BC97EA2E54D968
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116837.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ Folder Icons 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116838.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ BusyCal 2024.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116839.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116840.jpg" />
 </div>
 
 
@@ -532,7 +604,7 @@ Corvus - Immortals (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116841.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ Iridient Developer for Mac 4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116842.jpg" />
 </div>
 
 
@@ -583,7 +655,7 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116843.jpg" />
 </div>
 
 
@@ -597,82 +669,6 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0B7121A1E4CDF297D53B1A2EBA8915CB4E7C07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700722   (116844) от 18.02.2024
-
-Stardust - Kingdom of Illusion (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War (4:44)
-02. The Fire (3:36)
-03. Losing Me (5:01)
-04. Sacrifice (3:37)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71845A64FFD0E9A4D91E12350E14F4CC93280F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700729   (116845) от 18.02.2024
-
-BusyContacts 2024.1.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116845.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2007-2024 Busy AppsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B502BD91A873516C91F794C63B72B1D31FEE8A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700839   (116846) от 18.02.2024
-
-Кукла для избалованной дочери / The Spoiled Darling's Doll (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капризные дети это всегда фу-фу-фу! И если родители обожают свое дитя и считают её просто ангелом, то у прислуги совсем иное мнение на этот счет. И нет никакой управы на неё! И никто не сможет исправить ее скверный характер? А если применить волшебство?Производство: США, Thanhouser Film CorporationЖанр: короткометражный, драма, фантазия, немое киноРежиссер: нет сведенийАктеры: Хелен Бэджли, Мари Элайн, Дэвид ТомпсонПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D992DC97F11CDE957C91CF544785836A4CF1D6C3
 ```
 
 

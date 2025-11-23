@@ -1,3 +1,81 @@
+###  Публикация: 1699566   (117780) от 13.02.2024
+
+Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glamour Of Life [00:00:13]
+02. Honky Tonkin’ (I Guess I Done Me Some) [00:03:20]
+03. Real Good Itch [00:02:34]
+04. Who's Foolin' Who [00:02:51](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C17643CD1F8B0733BC20577D0A6442E50A5966A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699551   (117781) от 13.02.2024
+
+TechSmith Camtasia 2023 Studio 2023.3.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0163E18A9CE78E19525EE66F313F07A6A6BAC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699353   (117782) от 13.02.2024
+
+Topor - Wieczna kazn (2023) [MP3|320 Kbps] <Thrash, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Gates of Valhalla (03:01)
+02. Zimna jak stal (03:59)
+03. Fight for Metal (03:14)
+04. Wieczna kaźń (03:30)(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4AFF65DA5E7B0E15B60059FB63F553943FD8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699388   (117783) от 13.02.2024
 
 Torchia - The Coven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -6,7 +84,7 @@ Torchia - The Coven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117783.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:A1562C00E103BBBF6E276B692301805A4B2AD5CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117784.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ EasyGantt Classic  4.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117785.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Myary 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117786.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117787.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117788.jpg" />
 </div>
 
 
@@ -160,7 +238,7 @@ Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117789.jpg" />
 </div>
 
 
@@ -187,7 +265,7 @@ magnet:?xt=urn:btih:F6DA81201D15AFF4760AB2762B112B0D4F1B79A9
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117790.jpg" />
 </div>
 
 
@@ -211,7 +289,7 @@ Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117791.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ ScrollNavigator 5.15.4 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117792.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ DirPrintOK 6.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117793.jpg" />
 </div>
 
 
@@ -286,7 +364,7 @@ magnet:?xt=urn:btih:0D1BC82039BFD65C7AA663C97464B65179759370
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117794.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ Bright & Black - The Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117795.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ YT Downloader 9.6.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117796.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ magnet:?xt=urn:btih:BB10FE1E24EDBA33866A264E04EA1411E17A4A51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117797.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:BB10FE1E24EDBA33866A264E04EA1411E17A4A51
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117798.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117799.jpg" />
 </div>
 
 
@@ -439,7 +517,7 @@ magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117800.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ Fort Firewall 3.11.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117801.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ magnet:?xt=urn:btih:19DB95906E7B626D3F17723FF563AEEAF4D4F886
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117802.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ Infuse PRO 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117803.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:660F2B3657E642DAA8FC37130D5BE8E2DC7EE224
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117804.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечнос�
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117805.jpg" />
 </div>
 
 
@@ -575,82 +653,6 @@ Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечнос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A782736ED7EE4CA8F18EF458C05C3247872F84EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699346   (117806) от 13.02.2024
-
-VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (Rapino Brothers Mix)
-02. Flm - Megdoglom Erted (Master Mix)
-03. M People - How Can I Love You More
-04. Soul System - It's Gonna Be A Lovely Day(   Читать дальше...   )Жанр: Electronic, Pop, Euro House, EurodanceПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE10164E0C951CAA58AADC2A7F31153EE6DFA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699412   (117807) от 13.02.2024
-
-Directory List & Print Pro 4.29 + Standalone [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Directory List & Print – менеджер каталогов, предназначенный для просмотра и печати содержимого папок или каталогов. Программа дает возможность выбрать нужные файлы или папки и печатать их во время просмотра деталей. Directory List & Print способен открывать список файлов и папок в документах Word и Excel, сохранять в виде текстовых файлов, PDF, HTML и XML-таблицах (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BC3D19B4A4A3FEAEB7527BEF818445364A6542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699593   (117808) от 13.02.2024
-
-TechTool Pro 19 v.19.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117808.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2023 Micromat Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F89C1C2E27B1ACBED23835E3A7790081F2E445
 ```
 
 

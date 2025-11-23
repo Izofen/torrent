@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34102.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:25542B38EA56E8F5F6D785F376F53858287F5D50
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6FBB3FEA173CCE7DE5BEE86F3C8DD078F10493C9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E3CBBBD9C82DC69065B2E564F76EDBEB8D965741
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34105.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34106.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F1025D572D84ADDA4D09CBE6A92760380055B6F5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34107.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hot Wheels Monster Trucks: Stunt Mayhem (2024) [Multi] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34108.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:744F51F73429FCFF3705BE3BA994E6C268C7FE4A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34109.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ TreeSize Professional 9.3.0.1954 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34110.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ iFind Data Recovery 9.7.17.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34111.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Conquistadorio v25 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34112.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ State of Decay 2 (2020) [Ru/Multi] (38/dlc) Repack FitGirl [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34113.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:2B1EFC1374C0A4FEB667D2582F2B00DF2DE0FC94
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34114.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B8F01FF4211767030501968F100461C1A13970D4
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34115.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FontExpert 2025 20.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34116.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:DDCF4F1C88F3962CE4718DC446FD1EAA6B4BADCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34117.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34118.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34119.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Plugin Alliance - MEGA Bundle Effects 12.2024 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34120.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Laibach - 1 Albums, 5 Singles (2023-2024) [FLAC 16, 24/44.1, 48, 96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34121.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Celemony - Melodyne Studio 5.4.2.006 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34122.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:0E3595352197976BCBC9CBB268F5F08214F8BCEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34123.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4593B9DB859F0FC644F89BE7107BB6F21665A561
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34124.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:56F396D98AB27C2E66F2C8DC7115576CA10E0968
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34125.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Disk Drill 5.7.916 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34126.jpg" />
 </div>
 
 

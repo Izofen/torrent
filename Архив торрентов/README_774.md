@@ -1,3 +1,75 @@
+###  Публикация: 1675940   (159278) от 11.11.2023
+
+Fitify: Фитнес тренировки дома 1.59.1 Mod by Balatan [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к более чем 10 миллионам людей, которые занимаются с помощью тренировок и планов от Fitify. С нами вы можете тренироваться дома с использованием только веса вашего тела (без оборудования!). Однако мы здесь представляем единственное приложение, которое также предлагает тренировки и тренировочные программы с использованием снарядов для фитнеса.Тип издания: ProРазработчик: Fitify Workouts s.r.o.Поддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C8ADD9057BD4DF64FD5AF3E7F6868BFF9AF0DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600024   (159291) от 25.12.2022
+
+Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159291.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B0AFD423C81C392AE9A490A06D94FBC2A6C6D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675939   (159295) от 11.11.2023
+
+Photo Studio PRO v2.7.1.2139 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: ProРелиз состоялся: 17.11.2023Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30801692394450FF9D2EB253F2FD84E278D97AD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675919   (159296) от 11.11.2023
 
 Photo Lab PRO v3.12.75 Mod by Mixroot, maxi123444 [Ru/Multi]
@@ -6,7 +78,7 @@ Photo Lab PRO v3.12.75 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159296.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159306.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ YouCut - Video Editor v1.600.1178 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159311.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159324.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ K-Lite Codec Pack Update 17.3.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159328.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Live Wallpaper & Themes 4K Pro 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159331.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ VivaVideo Video Editor v9.12.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159345.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Seal 1.11.0-rc.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159347.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ MediaInfo 22.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159351.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ Battery Indicator for Mac 2.14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159372.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Tipard Blu-ray Player for Mac 6.2.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159374.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Professional Recorder & Editor 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159394.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ KMSAuto++ Portable 1.8.6 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159401.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Adobe Acrobat Pro DC 23.6.20380 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159403.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ GrandTotal 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159404.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ GIFfun - Video,Photos to GIF 9.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159406.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ iCollections 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159410.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ Total Commander 11.02 LitePack & PowerPack + Portable 2023.11 by SamLab [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159413.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Total Commander 11.02 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159417.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ Rogue Amoeba Farrago 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159423.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Stardock Start 2.0.0.6 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159432.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ GroupsPro 5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159434.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ Office 2013-2024 C2R Install + Lite 7.7.6 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159439.jpg" />
 </div>
 
 
@@ -555,80 +627,6 @@ Office 2013-2024 C2R Install + Lite 7.7.6 ++ Portable by Ratiborus [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:932BAEE3E0FB10546289813C9DD4348BE652AB1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599943   (159444) от 25.12.2022
-
-PreviewMarkdown 1.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предварительный просмотр Easy Markdown QuickLook и миниатюры значков. PreviewMarkdown обеспечивает предварительный просмотр файлов QuickLook и миниатюры значков файлов для документов, созданных с использованием популярного формата разметки markdown.
-Приложение предоставляет два расширения приложения: Previewer и Thumbnailer, которые можно просматривать и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022. Tony SmithПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D345C89CC0444460F4885070DCBBDA84F50B413D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675761   (159445) от 10.11.2023
-
-Adobe Acrobat Reader 2023.006.20380.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA70F2B3294B171844411FB60049D79C4166BFA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599936   (159446) от 25.12.2022
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0626E4398796A071C0753DBB7A20F4C6D1E10D
 ```
 
 

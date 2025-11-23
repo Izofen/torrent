@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9613.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:984F1F73222BDD951603B2E38482F916AA4C5217
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9615.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:001DA301B8C9AD2F6FA63A1A2A0A2B502D2D7C92
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9616.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9617.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ R-Studio Network / Technician 9.5 Build 191578 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9618.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:7D56AE85CA0F90BAE4AC6E6AB2D34567FC79D26C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9619.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7D56AE85CA0F90BAE4AC6E6AB2D34567FC79D26C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9620.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Relaxing Time 2: Italy Tour / Время отдыха 2: Итальянское 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9621.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Wave Arts - Power Suite 7 2025.7.17 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9622.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Relaxing Time: Paradise Resort / Время отдыха: Райский кур�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9623.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ TechSmith Camtasia 25.2.1.11234 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9624.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:09FCE3683ABCD43CE8B3FFA95F174B532B83022E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9625.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F1C11502C796B995FBEDA99B736A29211F81B10D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9626.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:0F3BBF2187340BAE1D0DFC4DB09DC8669032458F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9627.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:306291D1E6D29A22A3F5C959CC1D44DDD6B50A22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9629.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:306291D1E6D29A22A3F5C959CC1D44DDD6B50A22
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9630.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:3F9EB1151DB46BB2AF41DA1A9737E9B263C6EC7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9631.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6E3B227EDC908A0B6686F843837E7EA1906D5D2E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9632.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6EF87A5A75096E9B8F0287F508EFA068CA086F79
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9633.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IK Multimedia - T-RackS 6 6.3.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9634.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ PrivaZer Pro 4.0.109 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9635.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Scaler Music - Scaler 3 3.1.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9636.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3D42621429C8AC3F1EDB1D2BB6C4460E8CA01C9E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9637.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:E47CE3690BED977F0078498F7BFA3D31E98D8D03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9638.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:AD48AA09A64A8B3ED73155FBF6F690A0DE2324B1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9639.jpg" />
 </div>
 
 

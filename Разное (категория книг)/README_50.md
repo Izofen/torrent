@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F07A89E7436F0DF7EFB3E465D3946E0DA1228A0A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86573.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9F725EE8CB63EA9201B8E433E44A8057BC505CD2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86574.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:9F75DD015D8516D532E5A6E5522324BEC77294B5
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86581.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:7B3124660412732916B221CC5452493476A44203
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86582.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:86C84C07C340BCC10C840D422AE5B2F7450E2375
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86585.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:755356588124D6C0A57CA55DE626EF164AC958F6
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86601.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C71F89789B4D3DFDF8FC214E81AF5B435F743269
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86606.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:EE9297D8680EBDC4DBDC1ABB8380AA30D840B0FA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86627.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F1F62129F0420B6180DF7784F003203E813381C8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86635.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:2C4C887304651822705712C9CB8D0297D4DA69A4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86642.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86664.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E4D6C738464BAF4CC57273D12AC446AD7C215C78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86732.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:45C17A1946D9DE6088388F5EE2CD89BCAE19FE81
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86762.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:A94B4F81F0406765E9378E7EE96E98D5F8E2428D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86791.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:8C270BDD8ECD8C8A05E4E4C78E8F77F815496FAB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86794.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4EEC03482987B4AC19AECF2DE2BBB9477CF722DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86795.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:0DE0E7A25A9FF78B2066374C41AF7A0D10CF2FE7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86837.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4D0B25236A9250C618438C1531D03FDAF016CC8D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86940.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:445329EECDE49BD0CFD22665DCD5C11DD08BF046
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86962.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:95A4899D19024963819B8BA23711ED54ABFA6788
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87040.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:FAC604A4846EB36F6030E7734EF2C2093A016493
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87050.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87129.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:65E97FF6F634A8DE11F6FB8D3BA53C8156191F69
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87137.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:74ED24F872E350165DCADD09954E723AAD7F749A
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87178.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ magnet:?xt=urn:btih:A70DD4EBE287520ED591338B7F4867F4241D4024
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87183.jpg" />
 </div>
 
 

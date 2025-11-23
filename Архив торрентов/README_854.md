@@ -1,3 +1,102 @@
+###  Публикация: 1515345   (170228) от 06.12.2021
+
+MAGIX Movie Edit Pro 2022 Premium 21.0.1.107 (x64) [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никогда еще не было так легко вдохновить кого-то своими собственными видеозаписями. Видео делюкс сочетает в себе эффективные инструменты редактирования, широкие возможности оптимизации и до 1 500 эффектов и титров в одной высококлассной программе редактирования видео. Реализация ваших идей в 100% соответствии с задумкой.Язык интерфейса: Английский, Немецкий, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4A34DD152605921898EE02CD0ADFDD3D039CDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515289   (170230) от 06.12.2021
+
+Firefox Browser 95.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1283A990F7A644DBCFB3B0B728C9240933D818AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344432   (170233) от 10.12.2019
+
+Adobe Bridge 2020 10.0.1.1 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C570B7A04EC70E689E3360C2A0EC2C88384F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672091   (170246) от 27.10.2023
+
+Melon VPN - Secure Proxy VPN 7.9.533 Mod By Derrin [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Melon VPN - это быстрый, неограниченный, стабильный и полезный VPN (виртуальная частная сеть).
+Обходите ограничения местоположения на сверхбыстрых скоростях.
+Обходите географические ограничения и интернет-фильтры, пока вы на работе или в школе.
+Наслаждайтесь несколькими прокси-серверами и несколькими режимами VPN, чтобы обойти заблокированные веб-сайты и приложения, (   Читать дальше...   )Тип издания: ModРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7562991EF5E5A4934FC9DB8E38240A64346C9545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515406   (170249) от 06.12.2021
 
 TechSmith Camtasia 21.0.14 (Build 34324) RePack by elchupacabra [Multi/Ru]
@@ -6,7 +105,7 @@ TechSmith Camtasia 21.0.14 (Build 34324) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170249.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ Adobe Flash Player 32.0.0.303 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170250.jpg" />
 </div>
 
 
@@ -54,7 +153,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170263.jpg" />
 </div>
 
 
@@ -79,7 +178,7 @@ Brave Browser 1.46.140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170268.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ Screenshot touch 1.8.9 Pro + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170271.jpg" />
 </div>
 
 
@@ -127,7 +226,7 @@ QuickTextPaste 8.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170272.jpg" />
 </div>
 
 
@@ -151,7 +250,7 @@ Avast Premium Security 20.10.2442 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170282.jpg" />
 </div>
 
 
@@ -175,7 +274,7 @@ Audio Editor - Merge Split And Edit 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170283.jpg" />
 </div>
 
 
@@ -199,7 +298,7 @@ Extreme Picture Finder 3.65.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170285.jpg" />
 </div>
 
 
@@ -223,7 +322,7 @@ LibreOffice 7.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170286.jpg" />
 </div>
 
 
@@ -247,7 +346,7 @@ Auslogics Windows Slimmer 2.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170296.jpg" />
 </div>
 
 
@@ -271,7 +370,7 @@ Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170300.jpg" />
 </div>
 
 
@@ -298,7 +397,7 @@ Wireshark 4.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170302.jpg" />
 </div>
 
 
@@ -323,7 +422,7 @@ Radiant Photo 1.1.2.324 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170307.jpg" />
 </div>
 
 
@@ -347,7 +446,7 @@ Macrorit Partition Expert 7.1.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170320.jpg" />
 </div>
 
 
@@ -371,7 +470,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170323.jpg" />
 </div>
 
 
@@ -396,7 +495,7 @@ Photo Supreme 2023.2.0.5078 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170326.jpg" />
 </div>
 
 
@@ -420,7 +519,7 @@ Avast Free Antivirus 20.10.2442 (build 20.10.5824.618) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170336.jpg" />
 </div>
 
 
@@ -444,7 +543,7 @@ CPU-Z 1.91.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170340.jpg" />
 </div>
 
 
@@ -468,7 +567,7 @@ SanDisk SSD Dashboard 3.2.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170343.jpg" />
 </div>
 
 
@@ -493,7 +592,7 @@ Topaz Photo AI for Mac 2.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170344.jpg" />
 </div>
 
 
@@ -517,7 +616,7 @@ Adobe Flash Player 32.0.0.303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170349.jpg" />
 </div>
 
 
@@ -528,107 +627,6 @@ Adobe® Flash® Player - плагин для браузеров Internet Explore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4DA5DD8B077D95140E7223A6C92F3B6C20AA5C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515403   (170356) от 06.12.2021
-
-Live Home 3D Pro Edition 4.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
-Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: © 2021 Belight Software, Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317E1CC4DD318324731DE6A47CCC3FF422A61CA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430455   (170364) от 10.12.2020
-
-Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515401   (170372) от 06.12.2021
-
-GoodNotes 5 v5.7.52 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
-Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00A8DA3F5B31EB511AE806AA5665B179A795D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344307   (170373) от 10.12.2019
-
-VA - Psygressive Vol. 5 (2019) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindwave - Soyuz (Original Mix)
-02. Flexus & Estefano Haze - Time Spirit (Original Mix)
-03. Mindbenderz - Processing… (Original Mix)
-04. Reverse - The Ritual (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C07A75110E08929202C56DFFDD0740B5065381
 ```
 
 

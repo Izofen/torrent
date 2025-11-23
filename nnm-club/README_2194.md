@@ -6,7 +6,7 @@ Freemake Video Converter 4.1.13.175 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Serif Affinity Designer 2.4.2.2371 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57411.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AyuGram - неофициальный клиент Telegram 10.10.1 Mod by NURIK 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57412.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BSPlayer Pro 3.20.248-20231218 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57413.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1F22B4F9772AABD60A70198B38F398C876C8BD53
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57414.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:00908CC315C5C3F152B87BE9E4BA970A30B6B965
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57415.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:00908CC315C5C3F152B87BE9E4BA970A30B6B965
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57416.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Any Video Downloader 8.8.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57417.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2AB9C873964C01B1719975C1620035E0E7957B92
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57418.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:627E7BBA3DDCF3AD81BBE600DF8CAE3D0A56325E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57419.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:BF1E38C50547CF21423B6405F2F09E248F348DE4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57420.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:A1EB144EEB87285F60BB6C22337A0177AFA6F89F
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57421.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:288FF5C0965E127E24B4FA9321C6A10B7DCB3082
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57422.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:8BB9A16BFDA7967FAE113018E2D3CEAF3E58E9FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57423.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:54E47511CB636A26A1B8F00243ABAB5ABE0FB791
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57424.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57425.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:44809E5CF877F2735F204F2D52117ADB7C9DAF5B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57426.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ GIMP 2.10.38-0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57427.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:CA83B7F93BFF28DA50C0FC6168DAF27835163179
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57428.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57429.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57430.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Internet Cafe Evolution (2024) [Multi] (1.2.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57431.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57432.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:ABE9DA7057CFBF89D4A050673A17AA91B95D4F10
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57433.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ FurMark 2.3.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57434.jpg" />
 </div>
 
 

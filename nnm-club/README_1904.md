@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4BCC1046005C947BABD3484BA6034C0576979916
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49860.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49861.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FBReader Premium v3.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49862.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49863.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3BDAEDE317AFADA077A71685D8522F2006AC8EDC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49864.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49865.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6E21F05B28350BF4E15B1BA4809176B871DA6290
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49866.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:588AA86A4CE6758B737AD5B24D83BBB729BB8412
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49867.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:3B62E766D965D93C34409B9C9282F67FA299E488
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49868.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:FD8D3A31A54708BF1D6CC96A9B1493D48AC3632D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49869.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:8A86AE63F9D06643C5749EBF6B4FD0D44C86722A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49870.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E3E9A13E6CD007613EA2BCF0AEAD8893C0E44385
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49871.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Microsoft Windows 11 [10.0.22631.3880], Version 23H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49872.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:FDC07619F613DDDC24F3D2697DAD588480019FC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49873.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows Server [10.0.25398.1009], version 23H2 (Updated July 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49874.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VirtualBox 7.0.20 Build 163906 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49875.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Heaven & Hell - Neon Nights: 30 Years of Heaven & Hell - Live in Europe (2009) (
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49876.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E7DAF9CE3039375907DCA8698804A7368BADD398
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49877.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:ECEC9AF557C6BD4BD17BBD005495CBA85A6DB1A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49878.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft Windows 10 [10.0.19045.4651], Version 22H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49879.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:50B34A996C44BCE240E1C2BB07F674FDE21474A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49880.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:DC3F6B6DFF71CCC0FAB470CD0CB221FFF57876DD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49881.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:3CD5D2FAA1549FD179A143C7C3C679EC6324F833
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49882.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9AFCC7412E1AF185853A4106618EA4EF4040789F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49883.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:53F5C167D6078A5DD8B96D88415C6A60FFA311EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49884.jpg" />
 </div>
 
 

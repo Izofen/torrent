@@ -1,3 +1,82 @@
+###  Публикация: 1687217   (125606) от 26.12.2023
+
+Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tennis
+02.  Sweet Kiss
+03.  Since I Don't See You Anymore
+04.  Dancing Girls(   Читать дальше...   )Жанр: Soft Rock, Rock, Pop RockПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F9665BF744E9E1CAAC386B441189FEFF4AC2D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687390   (125607) от 26.12.2023
+
+Тесс Герритсен | Джейн Риццоли и Маура Айлз (Книга 5). Смертницы (2021) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатом Маура Айлз обнаруживает, что в морге по ошибке оказалась живая женщина – Алёна. Каким образом она оказалась при смерти, кто она – не известно ничего, кроме имени. Её удаётся реанимировать, но, очнувшись, она захватывает заложников в больнице. В их числе – и детектив Джейн Риццоли, которая вот-вот должна стать матерью.
+
+Как спасти заложников? Почему (   Читать дальше...   )Жанр: Американская литература, Зарубежные детективы ТриллерыПеревод: Ирина ЛитвиноваИздательство: Азбука-АттикусПродолжительность: 10:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694658C125746C274C5C1B023095C4638381DD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687427   (125608) от 26.12.2023
+
+Робин Кук | Сборник произведений [12 книг] (1994-2022) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кук Робин (Robert Brian Cook) (р. 1940) — американский писатель, врач, автор романов «Год интерна» (1972), «Кома» (1977), «Мозг» (1981), «Лихорадка» (1982), «Мутация» (1989), «Зараза» (1996), «Хромосома-6» (1997), «Токсин»(1998) и др.
+Окончил медицинскую школу Колумбийского университета, затем учился в Гарварде, работал в Массачусетской клинике Глаза и Уха.
+Робин (   Читать дальше...   )Жанр: Детектив, Фантастика, Медицинский триллерИздательство: Лиесма системс, Издательский Дом Ридерз Дайджест, АСТ, Новости, Транзиткнига, Пресса, АркадияФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF168BECCFC836BCAA166D004CF07380AAD23538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687401   (125609) от 26.12.2023
 
 Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
@@ -6,7 +85,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125609.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:1E8234478073D5DA9C3A6AB73CDA6EAC47ECC9A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125610.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ magnet:?xt=urn:btih:62F4FB806CA48D23995CEC45C0CCA22EB6FBAF08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125611.jpg" />
 </div>
 
 
@@ -78,7 +157,7 @@ Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native ameri
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125612.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ magnet:?xt=urn:btih:ACB67818317638833F36525E4C928202AE167ED4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125613.jpg" />
 </div>
 
 
@@ -130,7 +209,7 @@ magnet:?xt=urn:btih:41749A41050666ACEF211143AA2BC5C4B57DF3CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125614.jpg" />
 </div>
 
 
@@ -155,7 +234,7 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125615.jpg" />
 </div>
 
 
@@ -179,7 +258,7 @@ magnet:?xt=urn:btih:153877C9F6306811893A628445C5057E53476E64
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125616.jpg" />
 </div>
 
 
@@ -203,7 +282,7 @@ magnet:?xt=urn:btih:B536FFFC805F6420EF4E34F379ABADDBBB2224C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125617.jpg" />
 </div>
 
 
@@ -227,7 +306,7 @@ magnet:?xt=urn:btih:F19C45F83001AF0A3CA2E4388483D7BCB4D9F5EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125618.jpg" />
 </div>
 
 
@@ -251,7 +330,7 @@ magnet:?xt=urn:btih:7E62365DED15E8124843708069D24E088AD62124
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125619.jpg" />
 </div>
 
 
@@ -275,7 +354,7 @@ Duplicate Cleaner Pro 5.21.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125620.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ Wondershare PDFelement 10.2.2.2587 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125621.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ magnet:?xt=urn:btih:19D124838875AD8DF49F8BD543D9F9B46DB8FFB7
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125622.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ magnet:?xt=urn:btih:932FBE7CEE6D5D58906CFE81FB19FCA7353A3683
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125623.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ magnet:?xt=urn:btih:BD08FB2B934CBE6C712238680D7879BB59644235
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125624.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ magnet:?xt=urn:btih:F539767A101CA90C96B59E0693AED8A18FF02A0F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125625.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ IceCream Ebook Reader Pro 6.44 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125626.jpg" />
 </div>
 
 
@@ -446,7 +525,7 @@ Glarysoft Malware Hunter PRO 1.177.0.797 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125627.jpg" />
 </div>
 
 
@@ -471,7 +550,7 @@ magnet:?xt=urn:btih:4206798CC1B83C9BC22D79F7C1CF89DA78762DE9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125628.jpg" />
 </div>
 
 
@@ -495,7 +574,7 @@ Kalacheva School, Анна Цымбал | Новые основы леттери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125629.jpg" />
 </div>
 
 
@@ -520,7 +599,7 @@ magnet:?xt=urn:btih:7EAE9CEB015F90D46232DE95F1E0D057802FBAE0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125630.jpg" />
 </div>
 
 
@@ -544,7 +623,7 @@ magnet:?xt=urn:btih:3A06BF06A9084C63E72BF71D0FDA075DD2C4EF0F
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125631.jpg" />
 </div>
 
 
@@ -557,81 +636,6 @@ magnet:?xt=urn:btih:3A06BF06A9084C63E72BF71D0FDA075DD2C4EF0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A7F3B76B884E004F0CE80730AFC8889D0CEB481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687057   (125632) от 26.12.2023
-
-С. А. Лукиянов | Половое воспитание 18+. Всё о чём ты хочешь знать, но боишься спросить (2022) [PDF (A4), PDF (А6), EPUB, FB2, RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первую очередь эта книга про отношения, без которых невозможно построить качественную сексуальную жизнь. И в то же время она поможет ответить на тревожные вопросы о сексе, которые иногда стыдно спросить даже у самых близких людей.
-
-Половое созревание – что происходит с телом, чувствами и мыслями? Как долго длится и что происходит с телом и психикой? Мастурбация (   Читать дальше...   )Жанр: Половое воспитаниеФормат: PDF (A4), PDF (А6), EPUB, FB2, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1CCFBE56D903C282932454F24134D9DE5CCD3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687310   (125633) от 26.12.2023
-
-Андрей Панченко | Болотник (Книга 5) (2023) [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Кирилла Найдёнова. Главный герой с большим трудом но вернулся домой. Главная тайна болота разгадана, но впереди ещё много интересных приключений. Читаем продолжение истории нашего современника, волею судьбы попавшего в прошлое.Жанр: фантастика, фэнтезиИздательство: Клуб любителей аудиокнигПродолжительность: 07:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E03736BD3FC0B0BC8F6F2E2F9959CE7ABDF8F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687452   (125634) от 26.12.2023
-
-Н.П. Стружкин, В.В. Годин | Базы данных. Проектирование. Практикум (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматривается практическое применение теоретических основ разработки и реализации баз данных. Данное издание является практикумом к одноименному учебнику авторов. Книга позволяет приобрести практические навыки создания модели базы данных, готовой к внедрению в информационную систему в качестве физической базы данных.
-В учебном пособии методические (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮрайтФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4710AD8CCCED3621A298FF106F8E558A990649A
 ```
 
 

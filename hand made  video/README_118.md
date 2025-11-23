@@ -1,3 +1,77 @@
+###  Публикация: 1836276   (252424) от 
+
+Назад в будущее 3 / Back to the Future Part III (1990) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_252424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на просьбы Дока не навещать его в XIX веке, Марти вновь хочет вмешаться в ход событий и на машине времени уносится в 1885 год, навстречу Дикому Западу.
+Это путешествие, как и все прежние, не обходится без опасных приключений, но смелый Марти, рискуя жизнью, предотвращает трагедию в жизни Эммета Брауна. Тот, в свою очередь, без памяти влюбляется в очаровательную (   Читать дальше...   )Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, комедия, приключения, вестерн, семейныйРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Мэри Стинберген, Томас Ф. Уилсон, Лиа Томпсон, Элизабет Шу, Мэтт Кларк, Ричард А. Дайсарт, Пэт Баттрем, Гарри Кэри мл. и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские, английские (PGS)Продолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6723FE15CBCD110DAD7E18B8F73BE8FE74344785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836629   (254334) от 11.11.2025
+
+Между небом и землей / Just Like Heaven (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселившись в арендованную квартиру в Сан-Франциско и начав наводить там порядок, Дэвид неожиданно встречает в своем новом жилище привлекательную молодую женщину Элизабет, которая уверяет его, что именно она является хозяйкой этих апартаментов.
+Когда же Дэвид начинает склоняться к мысли, что произошло какое-то недоразумение, Элизабет исчезает так же внезапно и загадочно, (   Читать дальше...   )Производство: США / DreamWorks SKG, MacDonald/Parkes ProductionsЖанр: фэнтези, драма, мелодрама, комедияРежиссер: Марк УотерсАктеры: Риз Уизерспун, Марк Руффало, Донал Лог, Дина Спайби, Бен Шенкман, Джон Хидер, Ивана Миличевич, Кэролайн Аарон, Розалинд Чао, Рон Кэнада и др.Перевод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2F6B87725267631D388CC9009BCCB5D3DB9289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632366   (254466) от 10.05.2023
+
+ДМБ (2000) DVDRip [H.264/1080p] [handmade Remastered Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Похождения друзей, разными путями попавших в армию, ставшими "из никем - всем" и о главной военной тайне, комедия, практически вся разобранная на цитаты, с философским подтекстом.Производство: Россия, Киностудия ПолигонЖанр: комедияРежиссер: Роман КачановАктеры: Станислав Дужников, Александр Белявский, Юозас Будрайтис, Виктор Павлов, Иван Охлобыстин, Сергей Габриэлян, Сергей Арцибашев, Роман Качанов, Петр Коршунков, Дмитрий НеживойПродолжительность: 1:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C57E1A85287DFA8413B37C8EB33A555AF458A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627524   (255007) от 19.04.2023
 
 Аватар: Путь воды / Avatar: The Way of Water (2022) WEB-DLRip [H.265/1080p] [10-bit, 60 fps]
@@ -6,7 +80,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255007.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255007.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:BF6291C065359140C9516A2F871E8B182E36BAEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255114.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255114.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:0C6951F5ED03F9E5C12F7F46295392C731C6A63A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255219.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255219.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:D5BB3AE7AB379B9863DC787EA6AA257B3FDA4CBC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255313.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255313.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:C699D53538EBDC6002784D2F73F7A704D0400813
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256390.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:7964CA51F159024DFFF6E464B8A9D2A1B23FDC9C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256604.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:53C00D3C04FD3B0CACC8A22F63106F2B764BEFDA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256677.jpg" />
 </div>
 
 
@@ -166,7 +240,7 @@ magnet:?xt=urn:btih:E9B9F68F2B54A4A81F1D57BFAE33EB182EE7A6FC
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837313   (256790) от 
+###  Публикация: 1837313   (256790) от 17.11.2025
 
 Очаровательная проказница / La belle noiseuse (1991) BDRip [H.264/1080p] [Handmade correction AI]
 
@@ -174,7 +248,7 @@ magnet:?xt=urn:btih:E9B9F68F2B54A4A81F1D57BFAE33EB182EE7A6FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256790.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256790.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:85943CDB2F28B803F8EF9BC6BCC23DDB5469249F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256840.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256840.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ magnet:?xt=urn:btih:161913C52434ED6FD1E2188BF285202DA1E112AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256855.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256855.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ magnet:?xt=urn:btih:0E9A4CCD62EC9BAD8F972D35249E505C989F50BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257762.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257762.jpg" />
 </div>
 
 
@@ -270,7 +344,7 @@ magnet:?xt=urn:btih:65DC476166A334C078804B2AEABB2859A6ABAF7D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257811.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257811.jpg" />
 </div>
 
 
@@ -294,7 +368,7 @@ magnet:?xt=urn:btih:16AE4FAF9EC54699A49C4FBEECF0FEA4E5C26626
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257840.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257840.jpg" />
 </div>
 
 
@@ -318,7 +392,7 @@ magnet:?xt=urn:btih:553A1BA1D8A9F8D947805AFE2C6FCCC1817EEB44
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257864.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257864.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:619C9E7E004698F0C5835C659B9002134544AAA8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257876.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257876.jpg" />
 </div>
 
 
@@ -368,7 +442,7 @@ magnet:?xt=urn:btih:9226FFDFFCF1BE684096CBE3AADDD87772242B21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257880.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257880.jpg" />
 </div>
 
 
@@ -393,7 +467,7 @@ magnet:?xt=urn:btih:041205D3C157019E24D8AA07628B02B0954ECF47
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257882.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ magnet:?xt=urn:btih:968EC6FD154104755B22260AADC0BEDA3BC10F11
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257901.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257901.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ magnet:?xt=urn:btih:50F639755DB53A6296D8E351136F868D8487450E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257903.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257903.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:DDB5C2412F0DBF4BA6619B3546C3FA88D9164AB1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257904.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:84E70381351B334E025DA7AAAE790739488A1123
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257914.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ magnet:?xt=urn:btih:070188F770DA3A637877EEA52760277552D7D648
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257915.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257915.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ magnet:?xt=urn:btih:A90EFCB1C0774232E228AF06B7CD379DB5B9184C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257916.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257916.jpg" />
 </div>
 
 

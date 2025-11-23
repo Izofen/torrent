@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2025.001.20744 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:71BF9DB50110E7970293B727E4609E61A84574B3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_870.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:579FD5643E92761AAEC972AF32581A955B16454E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_871.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D63DF34211924E3F8CEB1944A5A064F565D56819
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_872.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CC806A314509F98FF358BAC1EB1CFB2F0AA0A046
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_873.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:EA50380757F52173BA26335445DC42DC2490D476
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_874.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8D8AB2B899B2FFD3F65D61E8DBEE574D0084C7D5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_875.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_876.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_877.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_878.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:7A88CB3C66BD8E94E15AD8F2B9297C2AA50DA03B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_879.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:90EC58698B9662E8B4CABFBD9C9D94EBA1484834
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_880.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:52AF8D344A02B6439E28801C068F6EAC492E6890
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_881.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A19B75F530CA093D2D284E50AE3027B3C4F66D9D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_882.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:021A4C069BC475D916645B57820F30223F40FA40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_883.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_884.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A971580136666036DE264BE2086238A00D274F3E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_885.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7B64C1F32CA94BC50ED5BB862F043452EED29FAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_886.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:9E059A1C00658CF20DD9A0AFF05259AC7DF82CEC
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_887.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_888.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Futari Solo Camp | Solo Camping for Two | Соло кемпинг на двои�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_889.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:030FE576D3327CE0AC40B14094C899DD4D3A48F7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_890.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B305EAEF88627360A130D7F156721E0BA492BCB5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_891.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:B305EAEF88627360A130D7F156721E0BA492BCB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_892.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:20550D418744331A9988A4F823BF2F2A4B47F0A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_893.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6347FDFA7AFA790E9450267A002FAFA37706F41B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_894.jpg" />
 </div>
 
 

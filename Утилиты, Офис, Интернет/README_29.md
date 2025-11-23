@@ -6,7 +6,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Megacubo 17.5.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51111.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ONLYOFFICE 8.1.0.169 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51114.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Comodo Dragon 125.0.6422.142 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51165.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51185.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ CCleaner 6.25.11131 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51219.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Winaero Tweaker 1.63.0.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51236.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.54.120, Speccy 1.33.079) R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51260.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51297.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Icecream PDF Editor Pro 3.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51301.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ FBackup 9.9.926 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51310.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PC Cleaner Pro 9.6.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51329.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ WinScan2PDF 8.88 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51403.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8E48CF849B3FD7F09AB02063875313CC4CD16915
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51431.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Driver Easy Pro 6.0.0.25691 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51432.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ uTorrent Pro 3.6.0 Build 47124 Stable Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51451.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ LibreWolf 127.0.2-2+ Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51696.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Piriform Recuva 1.54.0120 All Editions RePack (& Portable) by Dodakaedr [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51743.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Process Monitor 4.01 RePack by KLASS [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51825.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brave Browser 1.67.123 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51952.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Speccy 1.33.079 Professional | Business | Technician Edition RePack (& Portable)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51953.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mem Reduct 3.5.2 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52130.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Far Manager 3.0.6565 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52140.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ IObit Driver Booster Pro 13.0.0.143 (DC 2025.09.25) RePack (& Portable) by elchu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52141.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VueScan Pro 9.8.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52142.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:25F67802C53E20CAF7A7469497DFDA9C35ADE201
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52228.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33997.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33998.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mystery Trackers 20: Reflections of the Past / Охотники за тайна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33999.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PotPlayer 241216 (1.7.22398) Stable RePack (& portable) by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34000.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ RUTUBE - видео, шоу, трансляции 29.10.2.TV-androidtv [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34001.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F253E36A1EB40CA22D78E069DB409D19E06BA422
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34002.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:695FF117D65D694CFAA844E3FBAC33C391CBF6E3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34003.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Scrap Mechanic (2016) [Ru/Multi] (0.7.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34004.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Autopsy Simulator (2024) [Ru/Multi] (Build 153 413) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34005.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AVS Video Software 13.10.7.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34006.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:2140A86DB77592678D87E47BA2777918C1F7DB51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34007.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A4F85ED77FB108C3617B7163306732752ABF3ADF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34008.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:2E1914BD20143D57ED3962ACDF8FBA5D3C3B3B35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34009.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34010.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.8/dlc) Repack seleZen [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34011.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34012.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ IsMyLcdOK 5.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34013.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Skul: The Hero Slayer v1.0.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34015.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34016.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Metrolist 10.7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34017.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34018.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:08DED6CED450831CA6561293EAB039F07768AA8E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34019.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34020.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:894A609F6D3D35405321431E24C32022B1AAFAB8
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34021.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Forbidden Fantasy (2024) [Ru/Multi] (Build 16582417/dlc) Repack Let'sРlay [Supp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34022.jpg" />
 </div>
 
 

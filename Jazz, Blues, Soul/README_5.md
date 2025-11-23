@@ -6,7 +6,7 @@ Jon Cleary - The Bywater Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15446.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Noir & Gerber - Partout Partout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15447.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hat Fitz & Cara - At The Couch Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15448.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jennifer Lyn & The Groove Revival - Retrograde (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15449.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15452.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fantastic Negrito - 6 Albums, 2 EP (2014 - 2024) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15495.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mark Murphy - Mark Murphy Sings (1975) 1995, Muse Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15537.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15556.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Michael Bloomfield - The Best Of Michael Bloomfield (1997) Compilation [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15739.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15743.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15761.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Keb' Mo' - 19 Albums, 1 EP (1980 - 2025) 22 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15812.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15838.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Canned Heat - 52 Albums (1967 - 2024) (68 CD) [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16051.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellingt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16527.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16641.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16641.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ron&Bjorn - Worlds Apart (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16642.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16642.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Misty Blues - Other Side of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16643.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16643.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mickey Jupp - Dance with Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16644.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mick Clarke - Rust Busters (The Collection) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16645.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16646.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16650.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16652.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16653.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ John Christopher Morgan - Right On Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16654.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Interstate Blues - Lone Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16680.jpg" />
 </div>
 
 

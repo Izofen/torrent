@@ -1,3 +1,51 @@
+###  Публикация: 1638479   (197258) от 09.06.2023
+
+Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой оригинальной ролевой игре о взрослении вы окунетесь в жизнь Нини - подростка, который только что прибыл на Землю, в причудливый японский городок Асихара. На дворе август 1983 года. Исследуйте городок, подружитесь с жителями и бейтесь с кегаями в пошаговых сражениях. Их исход зависит от отношений, которые вы построите, и решений, которые вы примете. У Нини (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638138   (197334) от 07.06.2023
+
+Bastard Bonds (2016) [En] (1.2.9) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bastard Bonds - это тактическая ролевая игра с первоклассной пиксельной графикой и возможностью детальной кастомизации игрового персонажа за счет чего перед игроками открывается необычайно огромный простор для экспериментов. Остров Лукатт стал местом обитания отпетых злодеев, ведь именно здесь отбывают свои наказания наемники, убийцы и прочие преступники, и именно (   Читать дальше...   )Тип издания: LicenseРазработчик: BigfingersЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638173   (197342) от 07.06.2023
 
 Legend of Radiance (2023) [En] (1.0) Scene Tenoke
@@ -6,7 +54,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197342.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Fuga: Melodies of Steel 2 (2023) [Multi] (1.02/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197479.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197479.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197788.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Edelweiss (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198455.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198455.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198674.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Cursed Mansion (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198757.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198757.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200541.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ SuccuSeka: Resist Succubus Temptation (2023) [Multi] (1.0a/dlc) License GOG [18+
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200613.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200613.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Phantom Brigade (2023) [Ru/Multi] (10688478) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200760.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200760.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200920.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200920.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201520.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201810.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201810.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201899.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201899.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202112.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202192.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202250.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202250.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Primitive Hearts (2023) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202336.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202336.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202471.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ magnet:?xt=urn:btih:2A9DA71A609A63ECE3EACF655EE289E46EE1C228
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202524.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202524.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202742.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203058.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203058.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203196.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203196.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D4BB27AA6F119E6146B0BEAA215BD5809EFC3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602555   (204425) от 06.01.2023
-
-Din's Legacy (2019) [En] (1.013) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Din's Legacy - изометрическая RPG, выполненная в духе игр старой школы. События развиваются в фэнтезийном мире, где вы играете за героя, обладающего магическими способностями. Побеждая врагов, копятся очки опыта, которые можно потратить на улучшение навыков. Развивайте персонажа по одной из нескольких веток, выбирая свой уникальный стиль игры.Тип издания: LicenseРазработчик: Soldak EntertainmentЖанр: Экшны, Ролевая игра, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581789   (205214) от 07.10.2022
-
-BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что ждет человечество спустя примерно девять тысяч лет после даты, известной как Рождество Христово? Это прошлое Земли или ее будущее? Узнайте в классической RPG с элементами action. Действие происходит в мире, называемом Терра, по крайней мере, сами его жители так его называют. Прошлое ли это Земли или её будущее? Точно никому не известно. В ночном небе можно наблюдать (   Читать дальше...   )Тип издания: LicenseРазработчик: Saturn-plus, OrionЖанр: Ролевая игра, Экшны, ФэнтeзиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
 ```
 
 

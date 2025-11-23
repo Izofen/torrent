@@ -1,3 +1,93 @@
+###  Публикация: 466619   (96442) от 12.03.2012
+
+Каталог оружия Mossberg Catalog [2011] [PDF] [En]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Моссберг и Сыновья» одной из первых приступила к массовому производству дробовых многозарядных ружей помпового типа. Но главным достижением компании «Моссберг и Сыновья» стало создание дробового помпового ружья, названного Модель 500. На основе этого дробовика разработано множество ружей различного калибра и назначения. Они используются в спорте, охоте, военными и полицией.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4B1DE8DD673ACB1BB8EAA83D9498CB40C78C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467024   (96445) от 12.03.2012
+
+Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore, Alt.Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antarctica (4:06)
+02. Don't Look Now, I'm Being Followed, Act Normal (3:14)
+03. This Ain't No Place for Animals (4:07)
+04. Spineless Crow (3:34)
+05. Starving to Death in the Belly of a Whale (3:34)
+06. A Clown and His Pipe (3:27)
+07. The Definition of Not-Leaving (2:28)
+08. Lion Skin (4:19)
+09. One Hundred (3:28)
+10. Watchmaker (4:02)(   Читать дальше...   )2012Жанр: Post-Hardcore, Alt.Rock, ElectronicПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA14969BA324BBBCA8A7074265C86BF7D38FA4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465574   (96446) от 12.03.2012
+
+KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Parker Intro
+ 02. Tote Gunz
+ 03. Forever (Feat. Channel Live)
+ 04. All Day
+ 05. The Solution
+ 06. Cypher Remix
+ 07. Introducing
+ 08. I Do This For You
+ 09. Comin’ In
+ 10. Do It(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466708   (96447) от 12.03.2012
 
 Большой каньон / Grand Canyon (1991) [1080p] BDRemux
@@ -6,7 +96,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96447.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96447.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96450.jpg" />
 </div>
 
 
@@ -63,7 +153,7 @@ DJ GraF aka Slava - Sabotage (2012) [MP3|320 кб/с]<Minimal-Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96452.jpg" />
 </div>
 
 
@@ -93,7 +183,7 @@ VA - Муз-прорыв Русского радио Весна (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96453.jpg" />
 </div>
 
 
@@ -126,7 +216,7 @@ magnet:?xt=urn:btih:AA40794564F571C2E3A1A579E750B623F39757A7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96456.jpg" />
 </div>
 
 
@@ -150,7 +240,7 @@ Glenn Hughes - Live In Wolverhampton (2CD) (2011) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96459.jpg" />
 </div>
 
 
@@ -183,7 +273,7 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96461.jpg" />
 </div>
 
 
@@ -209,7 +299,7 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96463.jpg" />
 </div>
 
 
@@ -233,7 +323,7 @@ Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubste
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96465.jpg" />
 </div>
 
 
@@ -257,7 +347,7 @@ Kyau & Albert - 15 Years (The Album) (12.03.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96466.jpg" />
 </div>
 
 
@@ -290,7 +380,7 @@ SuperDетки - Бикини-мини (2007) [FLAC|Lossless]<Pop-Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96478.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96478.jpg" />
 </div>
 
 
@@ -323,7 +413,7 @@ DJ Ger - Man / The Nonexistent World (tracks + mix) (2012) [MP3|320 кб/с]<Psy
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96479.jpg" />
 </div>
 
 
@@ -356,7 +446,7 @@ magnet:?xt=urn:btih:B76CB536F750CD70B16F9850007666043ECF71AC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96480.jpg" />
 </div>
 
 
@@ -380,7 +470,7 @@ Beyond The Bridge - The Old Man And The Spirit (2012) [FLAC|Lossless]<Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96483.jpg" />
 </div>
 
 
@@ -413,7 +503,7 @@ Beyond The Bridge - The Old Man And The Spirit (2012) [FLAC|Lossless]<Progressiv
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96484.jpg" />
 </div>
 
 
@@ -439,7 +529,7 @@ Steve Howe - Time (2011) [FLAC|Lossless]<Progressive rock, Instrumental rock,>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96485.jpg" />
 </div>
 
 
@@ -472,7 +562,7 @@ Steve Howe - Time (2011) [FLAC|Lossless]<Progressive rock, Instrumental rock,>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96487.jpg" />
 </div>
 
 
@@ -496,7 +586,7 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96488.jpg" />
 </div>
 
 
@@ -529,7 +619,7 @@ magnet:?xt=urn:btih:7FBD323C96B1E9C8361A51A7CBA30CE28AB7EF58
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96489.jpg" />
 </div>
 
 
@@ -553,7 +643,7 @@ magnet:?xt=urn:btih:7FBD323C96B1E9C8361A51A7CBA30CE28AB7EF58
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96491.jpg" />
 </div>
 
 
@@ -577,7 +667,7 @@ magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96494.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96494.jpg" />
 </div>
 
 
@@ -603,7 +693,7 @@ magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96495.jpg" />
 </div>
 
 
@@ -627,112 +717,13 @@ Sumatra PDF 2.0.5876 (x86/x64) + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96497.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96497.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен (   Читать дальше...   )Язык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466563   (96499) от 13.03.2012
-
-Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Alwacker - Sunrise (Emotional Mix)
- 02. Marasin Sanya - The Beautiful Melody Of The Night (Original Mix)
- 03. Rene Ablaze & Tech Trek - Naranja (Original Mix)
- 04. Ehren Stowers - Desire (Original Mix)
- 05. Starline - Perfect Spring (Uplifting Trance 2012)
- 06. Azima - Mousewille (Original Mix)
- 07. Azima - The Saturn (Original Mix)
- 08. N-Gate - Be Fire (Original Mix)
- 09. MAXIMA - Solar Unity (Original Mix)
- 10. Perfect Sound - The Cloudless (Original Mix)(   Читать дальше...   )11.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D013BFE333FF7BE5EF9AB4D5EA6705F581718A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467000   (96500) от 13.03.2012
-
-VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lucenzo feat. Don Omar - Danza Kuduro
-02 - Elena - Midnight Sun
-03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
-04 - Alexandra Stan - Get Back (asap)
-05 - R.I.O. - Miss Sunshine
-06 - Avicii - Fade Into Darkness
-07 - Sak Noel - Loca People
-08 - Nicky Romero & Mitch Crown - Schizophrenic
-09 - Inna feat. Flo Rida - Club Rocker
-10 - Benny Benassi feat. Gary Go - Cinema2011Жанр: DanceПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D53EF58A0D3E61A11C7F6FC45FA0A4E173BD71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466959   (96501) от 13.03.2012
-
-Al MacDowell - Time Peace (1989) [FLAC|Lossless]<Fusion, Contemporary Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantastic Voyage
-02. St Alban's Tango
-03. Nina's Line Of No Return
-04. Somewhere
-05. Fantasia
-06. Maybe
-07. Feng Shui
-08. Ode Bra
-09. View From A Window
-10. Come See Tomorrow(   Читать дальше...   )1989Жанр: Fusion, Contemporary JazzПродолжительность: 00:47:16
 
 ## Скачать торент
 ```bash

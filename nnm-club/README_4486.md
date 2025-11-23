@@ -1,3 +1,99 @@
+###  Публикация: 1087231   (138769) от 31.12.2016
+
+Майкл Муркок | Спящая волшебница (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элрик Мелнибонийский тоскует по своей Симорил. И вот однажды он находит замок, в котором спит прекрасная незнакомка, как две капли воды похожая на его утраченную возлюбленную... Как знать — не дала ли ему судьба «второй шанс»? Но коварный колдун Телеб К'аарна тоже не дремлет... И вновь Элрику придётся защищать не только себя...Жанр: Героическое фэнтезиПродолжительность: 05:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08881E74F50CF3A68CF8831C571C1EE65E97F518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970894   (138770) от 31.12.2015
+
+Журнал | РадиоЛоцман №12 (55) (Декабрь 2015) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Радиолоцман» будет интересен всем, кто интересуется электроникой. Разнообразная тематика статей охватывает области, интересные как для широкой аудитории, так и для профессионалов и любителей в области электроники.Жанр: Журнал для радиолюбителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681CB9B0BF9126C1BF926DF16828E95F7524DD4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349007   (138771) от 30.12.2019
+
+Перспектива / Prospect (2018) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В надежде разбогатеть отец с дочерью отправляются на отдалённую луну, где планируют добывать драгоценные камни, сокрытые в глубине опасных лесов. Быстро выясняется, что на луне есть и другие люди, желающие поправить собственное финансовое положение. В итоге вся операция превращается в попытку выжить и сохранить свои жизни. Вынужденная сражаться не только с внешними (   Читать дальше...   )Производство: Канада, США / Depth of Field, Ground Control, BRON StudiosЖанр: Фантастика, триллер, драмаРежиссер: Кристофер Колдуэлл, Зик ЭрлАктеры: Софи Тэтчер, Джей Дюпласс, Педро Паскаль, Люк Питцрик, Артур Деранло, Андре Ройо, Алекс МакКоли, Даг Доусон, Криста Джонсон, Брайан ГантерПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full)Продолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8600F92A1DCFDE070F0C094393994DEBA3A764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520777   (138772) от 30.12.2021
+
+Когда часы двенадцать бьют (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда часы двеннадцать бьют, все ждут исполнения желаний и новогодних чудес.. О том же мечтал и менеджер Гришенька, опоздав к бою курантов и возвращаясь к жене Настеньке далеко за полночь. Но чудо случилось совсем другого толка...Производство: РоссияЖанр: Короткометражный, комедия, мелодрамаРежиссер: Ника АббасоваАктеры: Станислав Бондаренко, Елена Саар, Юрий СазоновСубтитры: ОтсутствуютПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB13D547EA4BCC9FD8B2B1EA9BD6F3932A9F411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272823   (138773) от 30.12.2018
 
 Антон Текшин | Oldschool (2018) [MP3]
@@ -6,7 +102,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138773.jpg" />
 </div>
 
 
@@ -31,7 +127,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138775.jpg" />
 </div>
 
 
@@ -55,7 +151,7 @@ magnet:?xt=urn:btih:BF77360895DCD3DA26E3232FF74958B4654A2545
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138776.jpg" />
 </div>
 
 
@@ -79,7 +175,7 @@ VSO ConvertXtoVideo Ultimate 1.6.0.47 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138777.jpg" />
 </div>
 
 
@@ -103,7 +199,7 @@ magnet:?xt=urn:btih:2B72B44CE8B0591A5388D24B4A9E9AE0AB6A5D53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138778.jpg" />
 </div>
 
 
@@ -127,7 +223,7 @@ magnet:?xt=urn:btih:2C00A17313757EBEF1242AC8620A89CB83108E01
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138779.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ WinCatalog 2017 17.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138781.jpg" />
 </div>
 
 
@@ -175,7 +271,7 @@ Fausto Papetti - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138782.jpg" />
 </div>
 
 
@@ -202,7 +298,7 @@ magnet:?xt=urn:btih:6B00EDDD6B84AAAF1230E52D34C73D3B97850E93
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138783.jpg" />
 </div>
 
 
@@ -226,7 +322,7 @@ Paint.NET 4.0.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138784.jpg" />
 </div>
 
 
@@ -250,7 +346,7 @@ magnet:?xt=urn:btih:BFD795B5B0B8B4557FD9B4699BB4837F2057C6EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138785.jpg" />
 </div>
 
 
@@ -274,7 +370,7 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138786.jpg" />
 </div>
 
 
@@ -301,7 +397,7 @@ magnet:?xt=urn:btih:D516CEA9BAF3347D90F41457B075ACEDCC615AC2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138788.jpg" />
 </div>
 
 
@@ -328,7 +424,7 @@ VA - The Urban Rock Music (2020) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138789.jpg" />
 </div>
 
 
@@ -355,7 +451,7 @@ magnet:?xt=urn:btih:A98903D428B49E17776D66E8457E3D9A67E0C62F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138790.jpg" />
 </div>
 
 
@@ -379,7 +475,7 @@ magnet:?xt=urn:btih:44D4A8BAEFB37527401FE7F56B6E3A65EE6C021C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138791.jpg" />
 </div>
 
 
@@ -403,7 +499,7 @@ magnet:?xt=urn:btih:95551E02621C3208271D4D5DBE3DB64EFF15442D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138792.jpg" />
 </div>
 
 
@@ -427,7 +523,7 @@ magnet:?xt=urn:btih:1C3C1D219A54346AEBBF3FAD59BECAEB1CF27711
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138793.jpg" />
 </div>
 
 
@@ -454,7 +550,7 @@ Topaz DeNoise AI 3.4.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138795.jpg" />
 </div>
 
 
@@ -478,7 +574,7 @@ magnet:?xt=urn:btih:BADD8F23BFA444702E5DA11E29D59435CAC17C04
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138796.jpg" />
 </div>
 
 
@@ -503,7 +599,7 @@ magnet:?xt=urn:btih:A1B7FB03DA0C71DA48D24353E9F19E7896719186
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138797.jpg" />
 </div>
 
 
@@ -527,7 +623,7 @@ Monamour: Любовь моя / Monamour (2005) HDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138798.jpg" />
 </div>
 
 
@@ -538,108 +634,6 @@ Monamour: Любовь моя / Monamour (2005) HDRip [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2074547D8B0E428D57975DEAC6044D5F429EF48A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195734   (138799) от 31.12.2017
-
-VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138799.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Atlanta  -  Romantic Break  5:06
-02.  Modern Talking  -  You're My Heart, You're My Soul  5:33
-03.  Spagna  -  Easy Lady  6:53(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi NRGПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5071C46F7AE81317BE93C05A4F28FE02EEF132EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514680   (138800) от 24.11.2023
-
-Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Second Edition (2020-2023) [PDF] [3 версии книги с дополнительными материалами] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная, практичная и простая в освоении программа, которая поможет вам с нуля построить готовые к работе API за несколько недель.
-Зачем изучать ASP.NET Core Веб API?
-Почему вы должны вкладывать свое время и деньги в эту программу?
-С момента появления .NET Core 1.0 вся экосистема .NET, похоже, получила новую жизнь. Фреймворк был обновлен, и теперь с версией 3 он стал (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: CodeMazeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088580   (138802) от 31.12.2016
-
-Журнал | В мире науки №12 (декабрь 2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138802.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В мире науки» — русская версия самого известного в мире ежемесячного научного обзорного журнала «Scientific American». Это информация и научно-популярные статьи о развитии мировой науки и передовых технологий, взаимодействии науки и общества, инновационной политике, образовании и месте науки в современной культуре, рецензии на книги о науке.Жанр: Научно-информационный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F5555E4C606D25A7507924DFFF23CD8E815AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273189   (138803) от 30.12.2018
-
-Вкус счастья (2018) WEB-DLRip (серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138803.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Леры нет никого ближе и роднее, чем младшая сестра Наташа, которую она с 18 лет воспитывала сама. Чтобы сестра ни в чем не испытывала недостатка, Лера отказалась от своей мечты и не поступила в медицинский институт. Сестры живут душа в душу, пока однажды младшая не едет в столицу на поиски лучшей жизни. А потом и вообще девушкам приходится столкнуться друг с другом (   Читать дальше...   )Производство: Украина / Star MediaЖанр: мелодрамаРежиссер: Александр БудённыйАктеры: Клавдия Дрозд, Анна Кошмал, Александр Пашков, Владимир Лилицкий, Михаил Химичев, Сталина Лагошняк, Алексей Смолка, Ксения Мишина, Влад Никитюк и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB43D74F80D947159049542ADC252E3D61852735
 ```
 
 

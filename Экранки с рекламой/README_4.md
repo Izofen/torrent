@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11850.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3EE69649893B09C0C848295BA6220E9AF474AE5A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11858.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7377107AEFA0C88361962377F2D7E8802B2B768
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12564.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:444EC641352120482478C9EA99BB90010649BC1B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12567.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5AECF34D87B2D127A854E3EDD6C56474DB675CE3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12573.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5D63897DD879AD00EE788280E19EC047E06B2C41
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12589.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3DD5D7B9832A9D220A28B1D38C78A5BBC06B704F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13314.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C4FCCA554DC82F71F39EB2F5217E8BB0F24DC105
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13321.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:741FE374264EE3CFE658734A8A7C48996C495569
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13393.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0629D34DEFB33D4053282E9E4872FCC848B2BF2D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13430.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D65F24E5FF2ECB548F631EC71E360E0E5F747320
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14035.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:98774489622D35CB74278888BC3E94E6696E2A33
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14057.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0CC90864BE7EC817E00C66431C5035375A382525
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14615.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:8AD33060927462247DE865921F93FFE115CC4C43
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14662.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C67974D4BE0F867A003C18E2FAF55BBFCC882892
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14754.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:1EAE2ECBACD59F89AF34DC4A31B7C0733C45ACC4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14769.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:FE534623A61DE4761C32EF2606D128E84C14D0C1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15077.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:25714870A2F9752EA4186095BFDE10DBD6E50C01
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15096.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4B1E5BA558108E58C3C699E98EEB0524DFE278BE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15482.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A42496CA4E85818B8E1B700B8EA12289A413411B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15489.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:78E4B74DF05AF01DB1704DBF6F3617FEC2E1F44A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15494.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:BAD77B4525835679B62924B22865859C04D8C5DF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15498.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4EDCB22BAD9C49EA414B1A0F2CE9073B7D159610
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16359.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:7AE2B43CB9AA15D7369788212E74D95270329F38
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16430.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:9FD41C030CA0BB4951A2359AAD4311D5364AFA9C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17238.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:D981CE0075476C8FBC54F5B7672AB5219BA84A45
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17252.jpg" />
 </div>
 
 

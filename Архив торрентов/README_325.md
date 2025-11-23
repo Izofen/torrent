@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Музыка и ритмы народов мира - Пакистан и А
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80784.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Windows 7 Codec Pack 4.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80785.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Windows 7 Codec Pack - мощный набор кодеков, который с
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80803.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:F8D0A78DF7795B2343F5472BF08F2E7A7B108925
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80804.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:00D9B7E5AA97695F097A981D4F0C694B0ACBB751
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80808.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ CentOS 5.8 [x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80814.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:5A80AE6607C5B8F750D0B86A23E6DDF88B1BC4D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80818.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:C31A9F66F1234C307EACF4622D195B2DA11849DB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80825.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:F8096DB1C4928B1E363C89651F326458904A5248
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80827.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CentOS 5.8 [i386] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80829.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ RealStrat Standalone VSTi v1.1.1 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80856.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ RealStrat – виртуальный инструмент основанный �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80861.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ RealStrat – виртуальный инструмент основанный �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80862.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Hardbass (2012) [FLAC|Lossless]<Hardstyle, Hardbass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80867.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Hardbass (2012) [FLAC|Lossless]<Hardstyle, Hardbass>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80870.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DB180A383C29AB9F512CCD98EFEECDD7299B1D1C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80873.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DB180A383C29AB9F512CCD98EFEECDD7299B1D1C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80874.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:70A81DFC8C096C6160156CB66D04A10B8D3CCF43
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80891.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A44C0194D4EA58C3C9D8B51BDBF9C9D872A0F01D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80903.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A44C0194D4EA58C3C9D8B51BDBF9C9D872A0F01D
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80905.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:1A78D545BF6FEB41487A0A28105DB304BF942B27
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80950.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:4E9573D6EB4CD1E566F7D66D3232527F7FA0AD53
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80953.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:36ED1512F7748586367CF902B79F8CC4C5848331
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80955.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:36ED1512F7748586367CF902B79F8CC4C5848331
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80965.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:36ED1512F7748586367CF902B79F8CC4C5848331
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80966.jpg" />
 </div>
 
 

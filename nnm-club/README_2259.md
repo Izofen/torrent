@@ -6,7 +6,7 @@ GPU-Z 2.59.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59099.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.04.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59100.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EEEB820D7D1E77D6295257D6D1B096F7B1795394
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59101.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1895E7DF8F473744C3ADBB39461FC047931A3EC8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59102.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1DDD180F1DBF4445712CC25BAFF06E1B35610436
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59103.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:58D1E34AAB1B30FEE0B9410D33B3EE3A9DDE2374
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59104.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59105.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0CA4590DE3E268263FC34B8819EEEAF731586B5B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59106.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59107.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Turbo Kid (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59108.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Vladimir Vissotski (Владимир Высоцкий) - 2 Albums (1987-1995) [F
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59109.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:AC8A91DC2007A1F64540ACDAEBB600E9738522B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59110.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A283C2FEA3AD9CFF1F8C8BB3001DC70EC44A9E3E
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59111.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4FD4026B64F350D87795A1F9A6AB42CBFB54BBA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59112.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AC8422757BE5DABF27D1AE59ECBAFC45A9716087
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59113.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:AC8422757BE5DABF27D1AE59ECBAFC45A9716087
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59114.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:59165C9B10E00B8A9B4C1F68B7AAD573439FA142
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59115.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:6040BE014FCE99CE4564F9ACCC303DEDCA763C4F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59116.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C7414CF5E84A1B9CE0AEC845A7CF88C95211FBCA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59117.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F401D13C90D0D695BB4C008818A1492F89F0E4C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59118.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F401D13C90D0D695BB4C008818A1492F89F0E4C5
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59119.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:57D965F8AB0AF21977DFEFF6293F72976C96C3BB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59120.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D09A3A07C2D0F3237270500FAC25C73716696138
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59121.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8998626FF152951E88B1864273DF9DE5337B393D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59122.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59123.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Bat! Professional 11.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59124.jpg" />
 </div>
 
 

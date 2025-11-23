@@ -6,7 +6,7 @@ Youtube Downloader HD 5.7.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50355.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Floorp Browser 11.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50356.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Viber 23.1.0.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50358.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FastStone Capture 10.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50360.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Wipe Pro 2407 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50361.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6452FEEF9AAA2C42D1F53240D75B6A7B284A55E6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50362.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wise Care 365 Pro 6.7.4.649 (акция GiveAway) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50363.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50364.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Hosts File Editor+ 1.5.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50378.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:644440754D09452DC05C6ADAAD34C41DF55DB55B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50380.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:558F552CB7279E6C0BF4EEA44B3E9E31128BF9BF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50382.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Master PDF Editor 5.9.85 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50383.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Duplicate File Finder Pro 2404 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50384.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Tor Browser Bundle 13.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50388.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ AnyDesk 8.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50399.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Auslogics BoostSpeed 13.0.0.8 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50422.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Maplesoft Maple 2024.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50430.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ CyberLink PhotoDirector Ultra 15.6.1901.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50433.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ CPU-Z 2.10.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50438.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ DxO PhotoLab Elite 7.7.2 build 234 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50441.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Nitro Pro 14.26.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50443.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DiskGenius Pro 5.6.0.1565 (x64) Portable by zeka.k [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50445.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Free Download Manager 6.24.0.5818(20) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50446.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Microsoft .NET 8.0.7 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50448.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AIMP 5.30 Build 2560 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50451.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Topaz Video AI 5.2.0 (x64) RePack by KpoJIuK (09.07.2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50454.jpg" />
 </div>
 
 

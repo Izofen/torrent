@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34387.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lee Abraham - Origin Of The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34388.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34389.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34390.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34391.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, Worl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34392.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34393.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34394.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34395.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34396.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Wizard Tattoo - Living Just For Knife Fighting (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34397.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34398.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34399.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:295E2F36BD8C9941D2FFE1AB0958423763AFCB29
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34400.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A0BFE7C3FEEB99499E0A5B5DC58719B193DACFCC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34401.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Ed
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34402.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34403.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mario Nieto - Chord Generator 1.0.0 Standalone, VSTi 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34404.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9A1E53845B148C1D23C2C44EBEE31938559F6B26
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34405.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Love Music Zone, Marco Rinaldo, Sensual Lounge Music Universe, Sexual Piano Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34406.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:36CEDF8211C4A5CE45628A0F51AF401CCD5D5CAD
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34407.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:EAD6DE7C7365B2B29581D0DBC0CBF50FB57F5E9E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34408.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kovoclak 1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34409.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34410.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ U-he - Repro-1 1.1.3 VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34411.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34412.jpg" />
 </div>
 
 

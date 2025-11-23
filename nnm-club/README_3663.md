@@ -1,3 +1,75 @@
+###  Публикация: 1703706   (114920) от 01.03.2024
+
+Выжившие: Яна (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир поразила эпидемия неизвестного вируса. Теперь те, кто проспит больше двух часов, уже не просыпаются. В такой страшной реальности существует и бывший менеджер нефтяной компании Максим. Он живёт в квартире и поддерживает жизнь спящей жены. Каждый день он ставит ей капельницы с глюкозой и потихоньку чинит в гараже машину. Максим рассчитывает однажды довезти жену (   Читать дальше...   )Производство: Россия / Лук-фильмЖанр: фантастика, триллер, драмаРежиссер: Евгений ЕмелинАктеры: Егор Корешков, Анастасия Куимова, Аслан Цаллати, Юрий Анпилогов, Мария ВасильеваПродолжительность: ~00:08:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BFFFEB3427A8C910FB8A81BB95AB9B65086F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703687   (114921) от 01.03.2024
+
+Выжившие: БЛОГГГЕР (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постапокалипсис заставляет людей совершать самые разные поступки: уходить в леса, заниматься мародёрством, грабежами и убийствами. Парень Гоша не ушёл в лес и не переехал в бабушкин дом в деревне, он нашёл в сельской местности вдали от посторонних глаз церковь, которую переоборудовал практически в умный дом. Теперь Гошу кормят сразу несколько специально разработанных (   Читать дальше...   )Производство: Россия / Лук-фильмЖанр: фантастика, триллер, драмаРежиссер: Павел ТимофеевАктеры: Георгий Кудренко, Артур Мухамадияров, Филипп Авдеев, Богдан Голощук, Алексей Алексеев (II), Александра Ревенко, Александр Лырчиков, Николай Самсонов, Матвей Осокин, Алексей ОвсянниковПродолжительность: ~00:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B857CD887CD50DF970C9C7DFAE79FB8831A431D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703752   (114922) от 01.03.2024
+
+Тот, кто смотрит / Stranger in the Woods (2024) WEB-DLRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США / WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: Русский, АнглийскийСубтитры: Русский, АнглийскийПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A676B78892D6C8C6A01129B27F00B4DABED5A52E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703809   (114923) от 01.03.2024
 
 Космонавт / Spaceman (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +78,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114923.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:B386079BF90CD0B5DFC803902505B7F6CFED6F1E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114924.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:40B4FCF8E882078D53FE2169A90F93584A8D6AAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114925.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:9A0A7EFA21A6CF50D34882548EC11A065B17C062
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114926.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ The Bat! Professional 11.0.4.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114927.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114928.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114929.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:E2231A4955BEE0BB97325971A31A2102E05F8F37
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114930.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:1F778B45A8FFBCE12BAE93BD04FD32213E64F97E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114931.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:03302C3CCA21B53C19038224388635629272A454
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114932.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:688776150F29BAD0DD7FBC29669605DD3D708932
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114933.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114934.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Paul Rodgers & Projects: The Firm, The Law - 15 Albums, 1 EP (1983 - 2023) 21 CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114935.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:9BF02E3AF0D161D8CFEE44F6DAFF0071F1329798
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114936.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ magnet:?xt=urn:btih:12A447B283BC0D1247F9B9822ECF380E7D789329
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114937.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:0D83F84D6C8A82DE25B320A56951E5E5781FA97B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114938.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:4F3C511A91511FA864C2A12102FC03954FDE5429
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114939.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Ace Frehley (Frehley's Comet) - Discography: 14 аlbums, 22CD (1978-2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114940.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:A58E2C101131656429618DACC1CE535C1D6296B7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114941.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:66CE6C4BEEC878678E07394514D19909655A20C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114942.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:314872D695911280FDADFF2ECA2380DE8F49B0B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114943.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:F6324FF42A9368CC0EF3F09D10706CC65BC7E52A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114944.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114945.jpg" />
 </div>
 
 
@@ -560,78 +632,6 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C566BB65854A36B9D0C128CDFEF45634BE125DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703726   (114946) от 01.03.2024
-
-Тот, кто смотрит / Stranger in the Woods (2024) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливия, пережившая гибель жениха и попытку самоубийства, отправляется со своими друзьями на природу. Ее близкие уверены, что свежий воздух и смена обстановки пойдут девушке на пользу. Но вместо этого Оливию начинает одолевать тревога. Она не может избавиться от ощущения, что леса вокруг их хижины таят опасность, а остановившийся по соседству сводный брат одного из (   Читать дальше...   )Производство: США / WonkЖанр: триллерРежиссер: Адам НьюачекАктеры: Холли Кенни, Брендин Браун, Пэрис Николь, Радек Антчак, Тедди Спенсер, Девон СтюартПеревод: Дублированный (ОККО)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9541DF0AB87365C0B8881E41699836A06777C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703639   (114947) от 01.03.2024
-
-Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nathan Morgan: Dilemma ставит вас на место детектива Натана Моргана, которому поручено распутать загадочное убийство. Действие игры разворачивается в стенах величественного особняка Беннеттов, где произошло теневое преступление. Ваша главная задача как детектива - установить личность преступника. Для этого вам придется прочесывать особняк в поисках улик, скрупулезно (   Читать дальше...   )Тип издания: RepackРазработчик: 98 INTERACTIVEЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Турецкий, Немецкий и другиеЯзык интерфейса: Русский, Английский, Турецкий, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703674   (114948) от 01.03.2024
-
-Adobe Illustrator 2024 28.3.0.94 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Adobe Illustrator 2024 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC921132BDB620B9C5243CB6A8A34C1E0ADB42F0
 ```
 
 

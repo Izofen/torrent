@@ -1,3 +1,81 @@
+###  Публикация: 1759177   (103297) от 07.11.2024
+
+Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festival Belo Horizonte, Brazil 2024-09-14) (2024-11-06) [MP3|320 Kbps] <Melodic House, Techno, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT & Vintage Culture - ID w/Celeda - The Underground (Acappella)
+02. Adriatique & Argy - ID
+03. SCRIPT - Higher
+04. Max Styler & Gorgon City - Touch(   Читать дальше...   )Жанр: Melodic House, Techno, Tech HouseПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B617D4F41753BDFFFD960AD52C570160D2B92E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759130   (103298) от 07.11.2024
+
+Мужчины-болваны / De dumme Mandfolk (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая веселая история и, если отбросить технические отличия, совершенно современная. Две молодые девушки, энергичные, озорные, вошли, как говорится, в пору. Им хочется личного счастья (что вполне естественно) и они дают брачное объявление. Ведь легче выбирать из бОльшего количества вариантов. А еще хочется поозорничать и можно назначить одно и тоже время и место (   Читать дальше...   )Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Sofus WolderАктеры: Фредерик Бух, Alma Hinding, Фредерик Якобсен, Holger Syndergaard, Лиззи Талер, Birger von Cotta-SchønbergПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8AAFA4C4C8D183C992E297F0E83BEB83D2DC41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759311   (103299) от 07.11.2024
+
+Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet Me On The Corner (3:51)
+02. Let's Go Rent A Video (4:31)
+03. The Neon Phantom (3:51)
+04. Christine (5:52)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CC84AA0325E8E61AD95FFBD09D4C51EAFD46C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759315   (103300) от 07.11.2024
 
 TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +84,7 @@ TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103300.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Turbulence - Binary Dream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103301.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103302.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Steelcity - Reverence (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103303.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Cleanbreak - We Are The Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103304.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ magnet:?xt=urn:btih:7F7A1D090D48D83BC7645BFD22B902607FAF8F4E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103305.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:0037B6FB360778FE65D435EBE5A29B434DEE7AC1
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103306.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103307.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103308.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103309.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Delain - Dance with the Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103310.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103311.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ magnet:?xt=urn:btih:98D29AA6564504124F2807342DA95788B5F498A9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103312.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Druidess - The Product Of My Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103313.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ magnet:?xt=urn:btih:CC4E17C5AA6EEA3C672BDB6F1F6ACFE2CC4A9356
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103314.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Windrow - Deus Universi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103315.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ InnerWish - Ash Of Eternal Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103316.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:11F130B6F9F5D4B1862DBC84A4A33E786E96BE2A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103317.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ magnet:?xt=urn:btih:5BBBC81E51E59130AD99EE02474BE5C27E753CF9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103318.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103319.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Paragon - Metalation (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103320.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103321.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103322.jpg" />
 </div>
 
 
@@ -595,85 +673,6 @@ magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEF0EDBC4B0CB8B590F6D8DCD43DC62CAF2CD125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759143   (103323) от 06.11.2024
-
-Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dizzy
- 02.  Osaka
- 03.  We Live We Die
- 04.  Part Time Psycho(   Читать дальше...   )Жанр: Electropop, indie popПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758935   (103324) от 06.11.2024
-
-Avarice In Audio - Tear Heaven in Half (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start The Show [00:04:18]
-02. Wicked Die Alone [00:03:43]
-03. You Are The Carbon [00:04:09]
-04. Drowning One [00:03:42](   Читать дальше...   )Жанр: EBM, Synthpop, ElectroПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D07E1B1BA6B7174243EBF48E016DBC2F53B38D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759060   (103325) от 06.11.2024
-
-Журнал | Квантик №7 (июль 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103325.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F203134370A576858964FE41821EFF771C6360
 ```
 
 

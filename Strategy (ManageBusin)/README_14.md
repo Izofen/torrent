@@ -6,7 +6,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228593.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_228593.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229032.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229292.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229292.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235999.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235999.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Glory of the Roman Empire / Величие Римской Империи [Ru] (R
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246689.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246689.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247002.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Moonbase (RePack) [En] 1990 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_248256.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250338.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250338.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250597.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250597.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252005.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252005.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252130.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252130.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ACRES (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252479.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252479.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252777.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256759.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256759.jpg" />
 </div>
 
 

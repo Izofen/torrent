@@ -1,3 +1,179 @@
+###  Публикация: 1677503   (150524) от 18.11.2023
+
+VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Digweed - Continuous Mix CD1
+02. John Digweed - Continuous Mix CD2
+03. John Digweed & Nick Muir - FuturaScent (Intro mix)
+04. Carerra & Tavares - Mind(   Читать дальше...   )Жанр: Tech House, Progressive, Breaks, TechnoПродолжительность: 05:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7129E87426C3E200E523D7EF79E7C3E1370468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677572   (150525) от 18.11.2023
+
+Аркадий Арканов | Арканов такой, Арканов сякой (2014) [MP3, Герасимов Вячеслав]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150525.jpg" />
+</div>
+
+
+###  Подробнее
+
+А я ничего не хочу видеть. Я ничего не хочу слышать. Но я все вижу и все слышу. Я различаю каждого, но ни на ком стараюсь не задерживать своего взгляда. Приоткрытые в расслабленном ожидании рты тех, которые ничего не понимают. Тучные непробиваемые лица тех, которые ничего не хотят понимать. Подернутые злой полуусмешкой губы тех, которые все понимают и как бы спрашивают: (   Читать дальше...   )Жанр: Современная проза, юморИздательство: Нигде не купишьПродолжительность: 09:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB738AA326952CD4FA64D3BF7743F23E076F989E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677534   (150526) от 18.11.2023
+
+Поедем, поедим! Йошкар-Ола: набережная Брюгге, марийские традиции, трехэтажные блины и подкоголи (18.11.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в Йошкар-Олу и…перепутает ее с Европой! Набережная как в Брюгге, венецианские и флорентийские дворцы, и даже сыры здесь такие же, как готовят в Италии. Но ведущий нашел здесь и то, чего нет нигде в мире: марийские традиции, обряды и песни. И, конечно же, попробовал самые знаменитые блюда местной кухни: трехэтажные блины, печной суп, палыш, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB141E35EBD6C81A33934D00EBAEFAAD444D73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677495   (150527) от 18.11.2023
+
+George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oleo [10:20]
+02. Lil's Darling [11:00]
+03. All The Things You Are [8:33]
+04. Invitation [12:20]Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769D1A766F0E7D1EB0FF8452656D5C23029776FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677547   (150528) от 18.11.2023
+
+Корова и президент / La vache et le president / The Cow and the President (2000) DVD5 [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетний Лукас живет вместе со своим отцом в маленькой деревне. У Лукаса есть верный друг. Как это не странно - это корова по имени Маева. Все идет прекрасно, но вдруг на ферме заболевает одна корова страшной для всех животных болезнью. Анализы покажут, что болезнь заразная и опасная и что всем коровам грозит забой. Отец Лукаса получает сообщение, что через 12 (   Читать дальше...   )Производство: Франция / Canal+ (fr), Gaumont, TF1 Films ProductionЖанр: комедия, семейныйРежиссер: Филипп МуилАктеры: Бернард Йерле, Флоранс Пернель, Мехди Ортелсберг, Кристиан Бюжо, Бернард Блох, Шарль Шнайдер, Жан-Мари Корниль, Gérard Sergue, Мишель Трилло, Патрик РомбиПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, французскийСубтитры: русские, китайские, английскиеПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B21165AF18C9912AD6A83412D6D422CC164923C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677620   (150529) от 18.11.2023
+
+Perfectly Clear WorkBench 4.6.0.2616 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B3C5B024020A22AA6159210B6432AFDC39300B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677691   (150530) от 18.11.2023
+
+Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150530.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7B919847CAEDA208613D6FB63CB019A288B041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677566   (150531) от 18.11.2023
 
 Абнер, невидимый пёс / Abner, the Invisible Dog (2013) WEB-DL [H.264/720p] [AVO]
@@ -6,7 +182,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150531.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ magnet:?xt=urn:btih:7562D4932E60B0EC3139E6BE68A1715730636B16
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150532.jpg" />
 </div>
 
 
@@ -54,7 +230,7 @@ Dogma - Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Female Voca
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150533.jpg" />
 </div>
 
 
@@ -81,7 +257,7 @@ VA - Aperitivo Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150534.jpg" />
 </div>
 
 
@@ -108,7 +284,7 @@ VA - The Best Of House 2023 Part 2 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150535.jpg" />
 </div>
 
 
@@ -135,7 +311,7 @@ VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150536.jpg" />
 </div>
 
 
@@ -162,7 +338,7 @@ Blank & Jones - Chilltronica EP 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150537.jpg" />
 </div>
 
 
@@ -189,7 +365,7 @@ magnet:?xt=urn:btih:C7A8FB69C9795AE1BEE653B17AD1794A0550D713
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150538.jpg" />
 </div>
 
 
@@ -216,7 +392,7 @@ Zoner Photo Studio X 19.2309.2.507 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150539.jpg" />
 </div>
 
 
@@ -240,7 +416,7 @@ magnet:?xt=urn:btih:AFF3C6F6ADB4F9ACF6C17C2C35C095E30816DECF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150540.jpg" />
 </div>
 
 
@@ -264,7 +440,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150541.jpg" />
 </div>
 
 
@@ -289,7 +465,7 @@ Succubus - The Eternal Curse Of Existence (2023) [FLAC|Lossless|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150542.jpg" />
 </div>
 
 
@@ -316,7 +492,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150543.jpg" />
 </div>
 
 
@@ -343,7 +519,7 @@ magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150544.jpg" />
 </div>
 
 
@@ -367,7 +543,7 @@ VA - Acid Jazz & Funky Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150545.jpg" />
 </div>
 
 
@@ -394,7 +570,7 @@ VA - Acid Jazz Today 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150546.jpg" />
 </div>
 
 
@@ -421,7 +597,7 @@ VA - Black Hole House Music 11-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150547.jpg" />
 </div>
 
 
@@ -448,7 +624,7 @@ magnet:?xt=urn:btih:1DAFCA8133188C905A4D3BCE17F4AFAE750C293A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150548.jpg" />
 </div>
 
 
@@ -473,7 +649,7 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150549.jpg" />
 </div>
 
 
@@ -487,186 +663,6 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4169A66D92628507588FA9101FD99099A6346D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677687   (150550) от 18.11.2023
-
-Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sophisti-pop, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Want to Know (1999 Remaster) (4:07)
-02. N.Y.C. (1999 Remaster) (4:09)
-03. Your Painted Smile (1999 Remaster) (3:14)
-04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Sophisti-pop, Soft RockПродолжительность: 02:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD0AE25CB545A12A906B7CB80EF8CD08F976DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677579   (150551) от 18.11.2023
-
-VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bass Bumpers - Keep On Pushing
-02.  Uc Colours feat. Cool Reg - U Got The Rhythm
-03.  Holetzky - Lato
-04.  Plaza - Wild Is The Night(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1496DE8F155ABFC8F147C92926EB4F67014D5934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677667   (150552) от 18.11.2023
-
-VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  2 Brothers On The 4th Floor feat. Des'Ray And D-Rock - Come Take My Hand
-02.  Rytmica - Up To The Sky
-03.  Interface - There Are No More Limits
-04.  Erica C. - Voice Of Fortune(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677619   (150553) от 18.11.2023
-
-Длинная тень / The Long Shadow (2023) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_150553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал повествует о самых масштабных розыскных мероприятиях за всю историю уголовного делопроизводства Британии, проходивших с октября 1975 по январь 1981, когда полиция искала Питера Сатклиффа, прозванного Йоркширским потрошителем, за убийство тринадцати женщин. К данным поискам было привлечено более тысячи констеблей, и это дело сильно изменило методы работы полиции (   Читать дальше...   )Производство: Великобритания / All3Media International, New PicturesЖанр: драма, криминал, историяРежиссер: Льюис АрнольдАктеры: Джек Дим, Крис Хитченс, Ли Инглби, Майкл МакЭлхаттон, Хлоя Харрис, Дэвид Моррисси, Стивен Уоддингтон, Лиам Гэрриган, Кристофер Хатрэлл, Джон Хеншоу и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677683   (150554) от 18.11.2023
-
-Благовест | Освящение дома (2014) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150554.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной работе рассказывается о православной традиции освящения жилища, рассматриваются вопросы о том, зачем необходимо освящать свой дом, в чем смысл этого обряда. Для наглядности в издании приведено последование освящения жилища, которое использует Православная Церковь в своей практике. В заключении освящаются некоторые практические моменты, связанные с христианским (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAF238069BBFF013BFDE349E262C5DC0ACAAF9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677632   (150555) от 18.11.2023
-
-Бернард Шоу | Деревенское сватовство (Радиоспектакль) (2018) [MP3, Валентин Гафт, Елена Королёва]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Из архива «Гостелерадиофонда».
-Радиоспектакль по одноимённой пьесе Джордж Бернард Шоу (1856–1950).
-Общение, начавшееся на отдыхе – лёгкий флирт и болтовня, не исключающая игру ума, перерастает в нечто большее, даже если Он – «литератор и джентльмен», а Она – «скромная сельская девушка, впрочем оказавшаяся не такой уж простушкой...
-Отточенное действие, великолепные (   Читать дальше...   )Жанр: Зарубежная литература, классика, пьеса, комедияИздательство: ГостелерадиофондПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5664C5E14E4E9F7690C41695A93F2BA26355E2DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677563   (150556) от 18.11.2023
-
-Этот парень Дик Миллер / That Guy Dick Miller (2014) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о ветеране-актере Дике Миллере, чья карьера в Голливуде и за его пределами насчитывает почти 200 фильмов на протяжении шести десятилетий, содержит разнообразные интервью с режиссерами, звездами и современниками.Производство: США, Plausible FilmsЖанр: документальный, история, биография, кинематографРежиссер: Элайджа ДреннерУчастники: Дик Миллер, Лэйни Миллер, Гилберт АдлерПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английскиеПродолжительность: 01:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C5599B8201194EE990D20CBB07EF5631A09FED
 ```
 
 

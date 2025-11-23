@@ -6,7 +6,7 @@ Don't Sleep 9.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Start Menu X 7.77 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56486.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DVDInfo 1.3.7 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56799.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ScrollNavigator 5.15.5 RePack by KpoJIuK [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57322.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57341.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B9592DC34A0D95DFC2DA6C68FE69BDEDFDA9FB43
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57348.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Snooper Professional 3.4.9 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57517.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Delete.On.Reboot 3.31 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57525.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ NewFileTime 7.21 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57822.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ AutoPowerOptionsOK 5.77 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57824.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Unlocker 1.0.2 Portable by Eject [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58432.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Winstep Nexus 22.7 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58487.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Hasleo Windows ISO Downloader 2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59250.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Free Alarm Clock 5.2.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59666.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hot Alarm Clock 3.1.0.0 [Мульти\Рус.]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59790.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ASUS Armoury Crate 5.8.6.0 (11.04.2024) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59857.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AutoHideDesktopIcons 6.12 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60232.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ TheAeroClock 8.55 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60256.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ iVentoy 1.0.20 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60896.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ StopUpdates10 4.6.2024.0403 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60907.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ GetWindowText 4.94 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61699.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Edge Blocker Portable 2.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61844.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ PointerStick 6.35 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62750.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63262.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63291.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Print.Test.Page.OK 3.04 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63723.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Master PDF Editor 5.9.88 (x64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26175.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26175.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.9.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26199.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Activation Program 1.07 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26231.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ ISO Workshop Pro 13.3  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26237.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PicPick Free+Pro 7.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26246.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tablacus Explorer 25.2.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26247.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vivaldi 7.1.3570.58 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26250.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sante DICOM Editor 10.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26259.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26259.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sante DICOM Viewer Pro 14.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26265.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26265.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6B63A8F309C88F34D47B7CBC8A165FFEF662E069
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26266.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26266.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Native Instruments - Kontakt 8.2.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26269.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Windows Manager 2.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26282.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Master PDF Editor 5.9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26289.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26289.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7301 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26291.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26291.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Google Chrome 133.0.6943.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26292.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26292.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FxSound 1.1.30.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26308.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ MiniTool Power Data Recovery 12.4 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26313.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ CPU Temp 1.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26317.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FurMark 2.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26320.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7E4F926F17012B35B8C9393433ADCD1C8A9FD33D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26334.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ StartAllBack 3.9.5 build 5256 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26341.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Zettlr 3.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26351.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Google Chrome 133.0.6943.142 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26352.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26352.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Alfa eBooks Manager 9.1.16 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26354.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26354.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ HWiNFO 8.22 Build 5670 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26372.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26372.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ GPU-Z 2.64.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26373.jpg" />
 </div>
 
 

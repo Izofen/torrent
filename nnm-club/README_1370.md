@@ -6,7 +6,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Deep Night Deep House 7 (2024) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35974.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Notepad++ 8.7.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35975.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:B5CD2B2165573A3D6BA03AD1A56ADBE3F58B1682
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35976.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:48C183CB27774DC4459957186756D91DB3FAF7D5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35977.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4DA4484458B8FE6F922E788555EAE5B653988808
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35978.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E329D46B8D30731A65CEC8E06BE2E1F33EA92052
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35979.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ iZotope - Tonal Balance Control 2 2.9.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35980.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:35CD573BFDEC20CAF1DFA44045EAAA7335760F0B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35981.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Valhalla DSP - Valhalla Delay 3.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35982.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:99A31D0DAA716B0CB286B20146F3E9F548589BC6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35983.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:558CBEF165970B4B8120B9A12F4D274D4205FA7A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35984.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:7DD1A7FA5C26AACED9AE6F295D46906545D790D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35985.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ iZotope - Cascadia 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35986.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:3C2EFF11EBDB8E1A0BF760F219E1DF6334BCB6AE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35987.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:DDCE7E5A9160C6E9A556FA3FFD6A2FB3BA040B7D
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35988.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:781A883E9E82AFA1604E8FC7DDE573C79D5E9F8F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35989.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:C7C7EBA3614EA728CA92D9CD3711EBCBE25BACFC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35990.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16538909) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35991.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35992.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:A0E9F7447C6F3040C1D5DD89E0EE5706915D87CE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35993.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:CDC29C255F3ABDCBDA8CEB998408C8D89C0F5472
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35994.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ K-Lite Codec Pack 18.7.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35995.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:57F9394BF2E6AF617BA93B96125580FCF70EE655
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35996.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:79E231E79EA426865F3DA4D5FC6CB24DD507F5E7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35997.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ iZotope - Aurora 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35998.jpg" />
 </div>
 
 

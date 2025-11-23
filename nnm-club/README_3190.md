@@ -1,3 +1,84 @@
+###  Публикация: 490832   (102527) от 01.05.2012
+
+Мачо и ботан / 21 Jump Street (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое новоиспеченных горе-полицейских отправляются на задание. Им предстоит заново стать учениками средней школы, в которой процветает наркоторговля.Производство: Cannell Studios / Columbia Pictures / Metro-Goldwyn-Mayer / Original Film / Relativity MediaЖанр: Боевик, комедия, криминалРежиссер: Фил Лорд, Крис МиллерАктеры: Джона Хилл, Ченнинг Татум, Бри Ларсон, Дэйв Франко, Роб Риггл, Айс Кьюб, ДеРэй Дэвис, Дакс Флэйм, Крис Парнелл, Элли КемперПеревод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Русский (форс.)Продолжительность: 01:45:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490527   (102528) от 01.05.2012
+
+Тема для Windows 7 Prometheus 2012 [Rus/Eng]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_102528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prometheus - тема сделана по мотивам одноименного фантастического фильма ожидаемого в этом году. Очень качественно выполнена, особенно радует то что нету разнообразных излишеств, простой строгий полупрозрачный стиль.Название программы: Тема для Windows 7 PrometheusЯзык интерфейса: Rus/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490520   (102529) от 01.05.2012
+
+Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — Автобус
+ 02 — В старинном городе О.
+ 03 — Вечная молодость
+ 04 — Мышка (Колыбельная хиппи)
+ 05 — Русская (Хочу чаю)
+ 06 — Глазами и душой
+ 07 — Houchie Coochie Man
+ 08 — Она не вышла замуж...
+ 09 — Такие дела
+ 10 — Глупенькая песня (Ассоль)(   Читать дальше...   )2012Жанр: RockПродолжительность: 04:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490641   (102530) от 01.05.2012
 
 Магазинчик БО (27 серий из 27) (2003) DVDRip
@@ -6,7 +87,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102530.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:FE1D4AB53E4E9750F34E57C5AE3D01A7CFDD09DC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102533.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102533.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ magnet:?xt=urn:btih:FE1D4AB53E4E9750F34E57C5AE3D01A7CFDD09DC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102534.jpg" />
 </div>
 
 
@@ -83,7 +164,7 @@ magnet:?xt=urn:btih:FE1D4AB53E4E9750F34E57C5AE3D01A7CFDD09DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102535.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102536.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 30.04.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102539.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102541.jpg" />
 </div>
 
 
@@ -179,7 +260,7 @@ Fallout 3 Game of The Year Edition / Fallout 3 Золотое издание + 5
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102542.jpg" />
 </div>
 
 
@@ -203,7 +284,7 @@ magnet:?xt=urn:btih:6037E01072F16D27CC881ECDD91AE450E983A163
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102545.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102545.jpg" />
 </div>
 
 
@@ -227,7 +308,7 @@ magnet:?xt=urn:btih:6037E01072F16D27CC881ECDD91AE450E983A163
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102548.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ Microsoft SQL Server 2012 Developer Edition (x86 and x64)  (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102549.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ SQL Server Developer Edition 2012 - это надежная, эффективн�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102550.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102552.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Bus Simulator 2012 + patch 1.3.2 (L) [Gе] 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102554.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Microsoft SQL Server 2012 Express (x86 and x64)  (Russian)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102557.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ SQL Server 2012 Express – это бесплатная версия SQL Server,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102558.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ SSD Fresh 2012.4 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102561.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ SSD Fresh – это приложение для оптимизации неко
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102563.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ magnet:?xt=urn:btih:317FADFCE3EB0C2EEB2FB3C127AACD7961941541
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102564.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:8473D573A89B1F85309A0D1602D28965CC316374
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102565.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ Astrud Gilberto - Verve Jazz Masters 9 (1993) [FLAC|Lossless]<Vocal Jazz, Bossa 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102568.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102568.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ Astrud Gilberto - Verve Jazz Masters 9 (1993) [FLAC|Lossless]<Vocal Jazz, Bossa 
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102574.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ magnet:?xt=urn:btih:552666DA01159609E5BEF1383BE05B01B70BD40E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102576.jpg" />
 </div>
 
 
@@ -571,93 +652,6 @@ magnet:?xt=urn:btih:552666DA01159609E5BEF1383BE05B01B70BD40E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B75D6E51CC85344D224504E313F2935C3A1A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491312   (102580) от 02.05.2012
-
-Ruby Braff - I Hear Music (2000) [FLAC|Lossless]<Jazz,Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.I Hear Music
-2.Chicago Medley:Chicago My Kind OF Town
-3.Baby,Won't You Please Come Home
-4.Wouldn't It Be Loverly?
-5.Yesterdays
-6.Anything For You
-7.We're All Through2000Жанр: Jazz,SwingПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491203   (102581) от 02.05.2012
-
-Журнал | Conde Nast Traveller [Россия] №7 (май 2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102581.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28FE1F027B2974D90F6F150218412DE88648330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490504   (102585) от 02.05.2012
-
-Aziza Mustafa Zadeh - Contrasts I & II (2006 - 2007) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - 01:47
- 02. Mozart's Jazz Ballade - 03:30
- 03. Guarding Dreams - 02:28
- 04. The Queen Of The Night - 02:58
- 05. Gothic Jazz - 04:26
- 06. Red In Black - 03:32
- 07. If You Love Me - 03:55
- 08. Bachmania - 02:40
- 09. Do Not Tell Me - 03:36
- 10. One Day, Perhaps - 01:58(   Читать дальше...   )2006 - 2007Жанр: JazzПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15568105EA768B163973EF7944AC8768BEBC07A
 ```
 
 

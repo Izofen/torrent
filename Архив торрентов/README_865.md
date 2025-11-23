@@ -1,3 +1,100 @@
+###  Публикация: 1671198   (171499) от 23.10.2023
+
+Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322B78F98672CCE5A77C5197C61F092EE892EFF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671214   (171501) от 23.10.2023
+
+Firefox Browser 119.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D76FF60CEF15C1B8711878CFE00883D6DE0CDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671136   (171503) от 23.10.2023
+
+OneCommander Pro 3.57.0.0 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171503.jpg" />
+</div>
+
+
+###  Подробнее
+
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17FADB58549F450A002D19C06B80E880E8A889D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671153   (171505) от 23.10.2023
+
+Artweaver Plus 7.0.16.15569 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artweaver - это полнофункциональный инструмент рисования с огромным набором предопределенных реалистичных кистей.Предназначен для рисования и для обработки изображений. Имеется большое количество инструментов, позволяющее имитировать рисование мелком, пастелью, кистью, губкой,карандашом, акриловой, масляной красками или углем. Кисти легко настраивать в соответствии (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B33CF05DE0D760D0641869647D59EAAE0120D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671218   (171507) от 23.10.2023
 
 Revo Uninstaller Pro 5.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +103,7 @@ Revo Uninstaller Pro 5.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171507.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ Joplin 2.12.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171508.jpg" />
 </div>
 
 
@@ -55,7 +152,7 @@ VueScan Pro 9.8.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171513.jpg" />
 </div>
 
 
@@ -79,7 +176,7 @@ Optimizer 16.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171515.jpg" />
 </div>
 
 
@@ -105,7 +202,7 @@ Topaz Photo AI 2.0.6 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171516.jpg" />
 </div>
 
 
@@ -129,7 +226,7 @@ MusicBee 3.5.8692 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171518.jpg" />
 </div>
 
 
@@ -153,7 +250,7 @@ Sumatra PDF 3.5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171519.jpg" />
 </div>
 
 
@@ -178,7 +275,7 @@ Imagine 1.3.3 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171522.jpg" />
 </div>
 
 
@@ -202,7 +299,7 @@ JRiver Media Center 31.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171524.jpg" />
 </div>
 
 
@@ -226,7 +323,7 @@ Revo Uninstaller Pro 5.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171526.jpg" />
 </div>
 
 
@@ -250,7 +347,7 @@ Wondershare PDFelement 10.1.3.2510 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171530.jpg" />
 </div>
 
 
@@ -274,7 +371,7 @@ Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171532.jpg" />
 </div>
 
 
@@ -298,7 +395,7 @@ Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171536.jpg" />
 </div>
 
 
@@ -322,7 +419,7 @@ K-Lite Codec Pack Update 17.8.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171537.jpg" />
 </div>
 
 
@@ -346,7 +443,7 @@ TechSmith Camtasia 2023 Studio 2023.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171544.jpg" />
 </div>
 
 
@@ -370,7 +467,7 @@ Wondershare PDFelement 10.1.3.2510 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171546.jpg" />
 </div>
 
 
@@ -394,7 +491,7 @@ VueScan Pro 9.8.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171550.jpg" />
 </div>
 
 
@@ -418,7 +515,7 @@ O&O DiskImage Professional 18.4 Build 334 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171552.jpg" />
 </div>
 
 
@@ -442,7 +539,7 @@ DxO ViewPoint 4 for Mac v.4.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171555.jpg" />
 </div>
 
 
@@ -467,7 +564,7 @@ Topaz Photo AI for Mac 2.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171558.jpg" />
 </div>
 
 
@@ -491,7 +588,7 @@ Principle 6.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171559.jpg" />
 </div>
 
 
@@ -515,7 +612,7 @@ Sketch 98.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171567.jpg" />
 </div>
 
 
@@ -526,106 +623,6 @@ Sketch - это инструмент для векторного дизайна 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E048DDA9C6391D0D48E109444804962BD5AF27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671225   (171571) от 23.10.2023
-
-EditReady 23.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный видео-конвертер, позиционируемый как самый быстрый в отрасли.
-Умеет сохранять метаданные при конвертации видео, а так же, при необходимоcти, редактировать их. Имеет поддержку аппаратной обработки h.264.
-
-Поддерживает контейнеры:(   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2014-2022 The Sync FactoryПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1139832E32EEFC8050CCEF785C69761CACCB66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671230   (171575) от 23.10.2023
-
-Things 3 v.3.19.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2023Разработчик: © 2007-2023 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8946CAC82413F28E89F11212BC1833844D6483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671213   (171576) от 23.10.2023
-
-Get Backup Pro 3 v.3.7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2008-2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F6FF2261EEF4E939AA17C36496084DBCAF59EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671112   (171577) от 23.10.2023
-
-PD (Progressive Downloader) 6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Progressive Downloader — теперь уже платный менеджер закачек под Mac.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2023Разработчик: © 2021 Maxim TrushinПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5199AAD8EDEB882BE123B59F80CD33537CA07DAE
 ```
 
 

@@ -1,3 +1,178 @@
+###  Публикация: 1517192   (161364) от 17.12.2021
+
+Разница в возрасте (2021) WEBRip [H.264] (сезон 1, серии 1-24 из 24)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — судьбы родных сестер — 26-летней Марго и 38-летней Екатерины. Так сложилось, что с самого детства они никогда не были близки. Во взрослой жизни почти не общаются и мало что знают друг о друге. Однако неожиданные трудности в жизни Екатерины, которые фактически выбивают почву у неё из-под ног, и безудержное желание Марго завоевать сердце любимого (   Читать дальше...   )Производство: Украина | «Кинокомпания "БРЕНДКОМ"»Жанр: Лирическая комедияРежиссер: Алексей КирющенкоАктеры: Дарья Егоркина, Ольга Атанасова, Владимир Горянский, Алексей Нагрудный, Нина Нижерадзе, Евгений Кошевой, Лилия Ребрик, Станислав Боклан, Алексей Вертинский, Валентин ТомусякЯзык озвучки: РусскийПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD499D102B67B0F7B1213660170E0122D7BC09E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674268   (161365) от 05.11.2023
+
+Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vektor — американская прогрессив/трэш-метал группа из Темпе, основанная в 2002 году. Тексты группы сосредоточены вокруг научных, философских и футуристических тем.2009 - Black Future
+2011 - Outer Isolation
+2016 - Terminal Redux
+2021 - Activate (Single)Жанр: Progressive Thrash MetalПродолжительность: 03:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598986   (161366) от 21.12.2022
+
+WidsMob AI Retoucher 3.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161366.jpg" />
+</div>
+
+
+###  Подробнее
+
+WidsMob AI Retoucher — это универсальный фоторедактор с искусственным интеллектом. Он позволяет легко и эффективно улучшать фотографии, редактировать изображения и применять фильтры AI. Он включает в себя ряд передовых технологий искусственного интеллекта, в том числе ретушь искусственного интеллекта, портрет искусственного интеллекта, мозаику искусственного интеллекта, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7632A8BEAC4A49CAAE689BD1837D7E41590983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433171   (161367) от 20.12.2020
+
+Rise to the Sky - 4 Albums (2019-2020) [FLAC|Lossless|tracks + .cue] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Grave of a Forgotten Soul [00:05:42]
+02. Poor Empty Soul [00:04:05]
+03. Rise to the Sky [00:04:20]
+04. Sailing Away [00:04:14]Жанр: Atmospheric Doom MetalПродолжительность: 4 CD, 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4231154204315C58FA8A5BB9C3361B4550356F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599023   (161368) от 21.12.2022
+
+DxO PhotoLab 6 ELITE Edition 6.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33999CF5C5FF2AFCB8BC80251DE93D897FC91F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517863   (161369) от 17.12.2021
+
+Мать/Андроид / Mother/Android (2021) WEB-DL [H.264/1080p] [EN / EN, ESP Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джорджия и Сэм пытаются покинуть страну, охваченную войной с искусственным интеллектом. Пара надеется достигнуть безопасности до родов Джорджии, для этого им придется пересечь территорию, полностью подвластную андроидам.Производство: США / Miramax, 6th & Idaho ProductionsЖанр: фантастика, триллер, драмаРежиссер: Маттсон ТомлинАктеры: Хлоя Грейс Морец, Стивен Маркус Робертсон, Оскар Уолберг, Рауль Кастильо, Элджи Смит, Лиам Макнил, Оуэн Бурк, Кейт Аваллоне, Jared Reinfeldt, Киара ПикардоПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанскиеПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54195831AFC50CE1B804635BC953B0A6841E2974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674436   (161370) от 05.11.2023
+
+Lucky Patcher 11.0.0 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 31.10.2023Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A78662342EA253E5BEA79AE489BD274F4A32ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433159   (161371) от 20.12.2020
 
 Waterhill - Sleepwalker (2020) [MP3|320 Kbps] <Melodic-Rock>
@@ -6,7 +181,7 @@ Waterhill - Sleepwalker (2020) [MP3|320 Kbps] <Melodic-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161371.jpg" />
 </div>
 
 
@@ -33,7 +208,7 @@ magnet:?xt=urn:btih:17123C72ADCDEAA26080E9E106BA3D5B75BC0C00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161372.jpg" />
 </div>
 
 
@@ -58,7 +233,7 @@ magnet:?xt=urn:btih:FC53B1343B099D4F250380DD97F046DFAAE8615A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161373.jpg" />
 </div>
 
 
@@ -82,7 +257,7 @@ magnet:?xt=urn:btih:BD2BB321FAD58B27C26D8E6D97E0D7BE04AA2EC0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161374.jpg" />
 </div>
 
 
@@ -106,7 +281,7 @@ magnet:?xt=urn:btih:B9632772D4D5902B91A13559993DC2ADE40E6FBF
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161375.jpg" />
 </div>
 
 
@@ -131,7 +306,7 @@ magnet:?xt=urn:btih:5A1364A575BAFBB251324AD4654E16A473A7D9C4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161376.jpg" />
 </div>
 
 
@@ -155,7 +330,7 @@ VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161377.jpg" />
 </div>
 
 
@@ -182,7 +357,7 @@ magnet:?xt=urn:btih:5158D6D1CD66B0733A5D21CFDDB530562D82B95E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161378.jpg" />
 </div>
 
 
@@ -209,7 +384,7 @@ magnet:?xt=urn:btih:C41518DAB5D9A139632D197E96952BC3EF20E55B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161379.jpg" />
 </div>
 
 
@@ -233,7 +408,7 @@ Speedtest от Ookla 5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161380.jpg" />
 </div>
 
 
@@ -257,7 +432,7 @@ Super PhotoCut Pro 2.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161381.jpg" />
 </div>
 
 
@@ -281,7 +456,7 @@ magnet:?xt=urn:btih:F8976334DEBFC0CA59D1C080FFD0B853D1B711EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161382.jpg" />
 </div>
 
 
@@ -305,7 +480,7 @@ Mark Murdock - The Phoenix Has Risen (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161383.jpg" />
 </div>
 
 
@@ -332,7 +507,7 @@ VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161384.jpg" />
 </div>
 
 
@@ -359,7 +534,7 @@ magnet:?xt=urn:btih:8A4A12462DA36C7F70156591787D5C1461C710FB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161385.jpg" />
 </div>
 
 
@@ -383,7 +558,7 @@ Algoriddim Neural Mix Pro 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161386.jpg" />
 </div>
 
 
@@ -407,7 +582,7 @@ Sketch Fashion 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161387.jpg" />
 </div>
 
 
@@ -434,7 +609,7 @@ WidsMob Panorama 4.28 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161388.jpg" />
 </div>
 
 
@@ -459,7 +634,7 @@ magnet:?xt=urn:btih:F6287EFC17F12072B74DE2DE78753BFF243514D0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161390.jpg" />
 </div>
 
 
@@ -470,182 +645,6 @@ magnet:?xt=urn:btih:F6287EFC17F12072B74DE2DE78753BFF243514D0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1FB789DA3826CBC1E390B100F3CC07744F82463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598894   (161391) от 21.12.2022
-
-Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) SoulFactory [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Groove Merchant [7:13]
-02. September in the Rain [4:20]
-03. Cheek to Cheek [7:34]
-04. Someone's Rocking My Dreamboat [5:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A8236BD6AA9CC7F0EB10859463CE1F8D988C3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433472   (161392) от 20.12.2020
-
-AudioFinder 6.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161392.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioFinder — программа для управления вашей фонотекой.
-С ее помошью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: Iced AudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529984FAAC965CE64A0C95CF6B5603374BB80E33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598948   (161393) от 21.12.2022
-
-WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161393.jpg" />
-</div>
-
-
-###  Подробнее
-
-WidsMob ImageConvert - универсальный конвертер фотографий, позволяющий обрабатывать сотни или тысячи изображений одновременно. Если вам нужно преобразовать RAW в JPEG, изменить размер, сжать, переименовать, добавить границу, добавить водяной знак в текст или изображение, вы всегда можете превратить фотографии в желаемый формат одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5C1FF123BA2759A95FD0E00D451955E2515C10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433423   (161394) от 20.12.2020
-
-Яна Перепечина | Непридуманная сказка (2020) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161394.jpg" />
-</div>
-
-
-###  Подробнее
-
-После свадьбы, которой обычно заканчиваются фильмы и книги, начинается настоящая жизнь… Иногда далеко не такая радужная, как хотелось бы. Но две подруги, Ангелина и Александра, продолжают мечтать: одна страстно хочет стать матерью, а другая ищет свою любовь. Только мечты, которые они стремятся воплотить в жизнь, почему-то больше похожи на страшные сказки. Однако (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE348D64303511BA5C06B8A4B3505D099C7BAB5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598957   (161395) от 21.12.2022
-
-djay - DJ App & AI Mixer 4.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161395.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B797D4B3FBBDF5A2D35331A0B2E3E76A06A10D49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517917   (161396) от 17.12.2021
-
-Давид Муате | Проект «Новая Земля» (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161396.jpg" />
-</div>
-
-
-###  Подробнее
-
-2125 год. Уровень мирового океана поднялся на десятки метров. Сохранившиеся клочки суши перенаселены. Лишь немногие избранные – Неприкосновенные – живут под куполом, не знают нужды, любуются растениями и питаются свежими овощами. Остальные – Серые, обитатели трущоб, мечтают лишь о выигрыше в лотерею, гарантирующем место на «Новой Земле».
-Каждую неделю миллион счастливчиков (   Читать дальше...   )Жанр: Социально-психологическая фантастикаПеревод: Наталья КлючарёваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986C291BA0EF0718B5023CF96A53E5DE41B54D31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433126   (161397) от 20.12.2020
-
-Ермак! - Птицы (2020) [MP3|320 Kbps] <Post-Hardcore, Chaotic-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На память (Instrumental) [00:03:56]
-02. Из колодца видно звёзды (Instrumental) [00:04:13]
-03. Отрок (Instrumental) [00:04:00]
-04. Дотла (Instrumental) [00:02:58](   Читать дальше...   )Жанр: Post-Hardcore, Chaotic-HardcoreПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6961CB900DC24A04DADD9919CCC15D1F81BFD4
 ```
 
 

@@ -6,7 +6,7 @@ Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Best Sound of Chill & Lounge 2025 – Summer Edition (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66479.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - GIMME THE FUNK_ 90's Funky Tracks (Funk Grooves & Funky House Tunes from th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Jazz Kissa (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66490.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Jazz House Instrumental Volume 4 (Jazzy Soulful Tracks And Instrumental Clu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66491.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chris Connor - Warm Cool: The Atlantic Years (1956 - 1968) 2CD, 1999, 32 Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66549.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mikio Masuda - Smokin' Night (1988) JVC [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66568.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rosemary Clooney & The Count Basie Orchestra - At Long Last (1998) Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66569.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mikio Masuda - Black Daffodils (1998) JVC [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66571.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66657.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aretha Franklin - Respect And Other Hits (1997) CD, Compilation [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66679.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andy B. AND SoulFolk - Tellin' Myself Weird Li'l Stories (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66698.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Frode Wassvik - Sense Of Spring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66699.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mama Lucky - Linda Sue and Dorothy Jean (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66701.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Heitor Neves - Bandoo Blues (Live at ForestLab) (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66704.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kenny Dorham - Four Classic Albums: Second Set (1955 - 1961) 2CD, 2018, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66707.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66708.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Alison Joy Williams - How You Look At Things (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66711.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kinland Station - Electric! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66712.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Voodoo Ramble - In the Heart of the City (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66726.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bernie Marsden - Icons (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66728.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Brad "Guitar" Wilson - The Californian (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66731.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mako, Kanoa - Blues in the Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66732.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Brother Jack McDuff - Gin And Orange (1969) 2008, Dusty [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66801.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66831.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66852.jpg" />
 </div>
 
 

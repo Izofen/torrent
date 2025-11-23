@@ -1,3 +1,89 @@
+###  Публикация: 465028   (96154) от 09.03.2012
+
+Эдита Пьеха - Пьеха, знакомая и незнакомая (1995) [APE|Lossless]<Ретро/Эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_96154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моё сердце стучит (2:21)
+02. Осенний мост (3:37)
+03. Биби-юба (2:05)
+04. Осень (4:11)
+05. Каравелла (3:28)
+06. Места (3:08)
+07. Только ты (2:01)
+08. Метелица (3:47)
+09. Сама садик я садила (2:55)
+10. Королева звёзд (3:00)(   Читать дальше...   )1995Жанр: Ретро/ЭстрадаПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465036   (96155) от 09.03.2012
+
+Забытый вождь. Александр Керенский (2012) DVDRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся биография Керенского – цепь тайн, мистификаций и недомолвок. В тридцать шесть лет он стал самым молодым избранным правителем России, а уже в тридцать семь – и на всю оставшуюся долгую жизнь – беглецом, изгнанником. Верховная власть находилась в его руках только три месяца, но время ему досталось такое, что один день стоил года: Керенский успел многое.
+Он отменил все национальные и вероисповедные ограничения, покончил с "чертой оседлости". Он упразднил помещичье землевладение, уравнял женщин в правах с мужчинами. Он провел широкую амнистию, выпустив из тюрем тысячи заключенных (в том числе бандитов, которых остряки называли "птенцами Керенского"). Он покончил с хождением старых денег и ввел в оборот новые, которые вошли в историю под его именем – "керенки".
+Он арестовал царскую семью и провозгласил Россию республикой…
+Но можно посмотреть на сделанное им и под другим углом. Именно Керенский разрушил основы тысячелетнего российского государства. Он реформировал судебную систему, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Алексей ПищулинПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465062   (96158) от 09.03.2012
+
+Мазерати - Триумф инженерной мысли / Maserati - Victory by design (2003) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мазерати (Maserati), это итальянская компания, которая специализируется на выпуске комфортабельных, но в то же время спортивных автомобилей с элегантной внешностью и высокими динамическими показателями. С недавнего времени входит в состав крупнейшей итальянской автомобильной корпорации «ФИАТ».
+Каждый из братьев Maserati - Карло, Биндо, Альфьери, Марио, Этторе и Эрнесто - в какой то мере, внесли свой вклад для развития своей компании, которая до сих пор носит их фамилию.
+Карло, старший из братьев, первым в семье начал заинтересованно заниматься автомобилями. Первый автомобиль Maserati, был сделан именно его руками, который был оснащён двигателем V1 и сконструирован на очень простым шасси. Но, к сожалению, из-за болезни и последовавшей за ней смертью 29-летнего Карло Мазерати, пришлось прервать работу.Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABB4C349D84AE7675C80ED08239BB2E279D1DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465104   (96159) от 09.03.2012
 
 Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<Heavy metal,Hard rock,Glam metal>
@@ -6,7 +92,7 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96159.jpg" />
 </div>
 
 
@@ -39,7 +125,7 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96162.jpg" />
 </div>
 
 
@@ -63,7 +149,7 @@ magnet:?xt=urn:btih:44931C6C148394E0879EBD87A903796C0319CAD9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96163.jpg" />
 </div>
 
 
@@ -88,7 +174,7 @@ magnet:?xt=urn:btih:3F1F794BE95FAC968964AF12216C29ED8CB15013
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96166.jpg" />
 </div>
 
 
@@ -113,7 +199,7 @@ VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96172.jpg" />
 </div>
 
 
@@ -137,7 +223,7 @@ MoShang - Further East (2010) [FLAC|Lossless]<Chillout, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96174.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96174.jpg" />
 </div>
 
 
@@ -168,7 +254,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<U
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96176.jpg" />
 </div>
 
 
@@ -201,7 +287,7 @@ VA - Звезды Танцевальных Хитов. Зарубежный (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96178.jpg" />
 </div>
 
 
@@ -234,7 +320,7 @@ VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96181.jpg" />
 </div>
 
 
@@ -267,7 +353,7 @@ Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96183.jpg" />
 </div>
 
 
@@ -299,7 +385,7 @@ Obscura - Illegimitation (Compilation) (2012) [FLAC|Lossless]<Technical Death,Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96187.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96187.jpg" />
 </div>
 
 
@@ -327,7 +413,7 @@ VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96188.jpg" />
 </div>
 
 
@@ -358,7 +444,7 @@ magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96189.jpg" />
 </div>
 
 
@@ -382,7 +468,7 @@ magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96194.jpg" />
 </div>
 
 
@@ -406,7 +492,7 @@ Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96196.jpg" />
 </div>
 
 
@@ -439,7 +525,7 @@ magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96198.jpg" />
 </div>
 
 
@@ -463,7 +549,7 @@ magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96200.jpg" />
 </div>
 
 
@@ -487,7 +573,7 @@ Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96201.jpg" />
 </div>
 
 
@@ -518,7 +604,7 @@ VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96202.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96202.jpg" />
 </div>
 
 
@@ -551,7 +637,7 @@ CD1: On The Beach (01:13:46)
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96203.jpg" />
 </div>
 
 
@@ -583,7 +669,7 @@ Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96204.jpg" />
 </div>
 
 
@@ -616,7 +702,7 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96208.jpg" />
 </div>
 
 
@@ -649,7 +735,7 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96209.jpg" />
 </div>
 
 
@@ -661,94 +747,6 @@ VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465298   (96211) от 10.03.2012
-
-VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 MM Dance - Отдыхаем (Dj Alfred extended mix)
-02 DJ Robert.T - Disco Crazy (Radio Edit)
-03 DJ HaLF & Tom Stem - Ready 2 Go (Radio Mix)
-04 Kay - M.A.J.O.R. (Tiesto Remix)
-05 DJ Half & Tom Stem - Любовь По Венам (MainstreamOne feat. DJ
-06 DJ Feel feat. Loona - I ll Find Myself (original mix)
-07 ViRUS! - ЧЗF
-08 Aly & Fila - Rising Sun (Bjorn Akesson remix)
-09 Mc Zali & Don Omar - Девочки мэйд ин раша (Dima Molotov Russian bootleg)
-10 Nicky Romero - Toulouse (original mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465500   (96213) от 10.03.2012
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96213.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Armada Presents The Miami Soundtrack 2012 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 03:57:22Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Antillas ft Fiora - Damaged (Main Mix)
-02. W&W - Invasion (ASOT 550 Anthem) (Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465745   (96223) от 10.03.2012
-
-Олег Курылев | Знамена Германии. Иллюстрированная энциклопедия [2010] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вашему вниманию книга посвящена флагам и знаменам германских государств, которые в разное время располагались на территории будущей Германской империи в границах 1871 года и Австрии. Исследование охватывает исторический промежуток от XIII века до наших дней.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1688557   (125138) от 30.12.2023
+
+HitPaw Video Enhancer x64 1.7.1.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125138.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Video Enhancer - одна из лучших программ для улучшения видео. Она помогает создавать качественные видео и улучшать изображение. Попробуйте этот софт сейчас, чтобы ваше видео заиграло новыми красками. Лучшее программное обеспечение с передовым искусственным интеллектом для работы с видео.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD860FB6418C70DB862CAC45BC5A9C9175666D33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688532   (125139) от 30.12.2023
+
+Снова и снова / Round and Round (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйчел застревает во временной петле в день вечеринки в честь Хануки. Единственный, кто может ей помочь, это Зак, парень, с которым у неё не заладились отношения.Производство: США / Canadian Film or Video Production Tax Credit (CPTC), CorusFront Street PicturesЖанр: фэнтези, комедияРежиссер: Стэйси Н. ХардингАктеры: Vic Michaelis, Брайан Гринберг, Рик Хоффман, Дэвид Аттар, Дэвид Эпштейн, Марни Мэханна, Амитай Мэрморштейн, Miles Marthaller, Николь Оливер, Пола ШоуПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE95764D6840FC195EC3BC87FDFDAE86209FCC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688721   (125140) от 30.12.2023
+
+Преступный бургер / Taeter Burger (2023) WEBRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 2161: один андроид и трое сотрудников сети ресторанов быстрого питания с человеческим мясом должны сразиться с армией мутантов, созданных террористами.Производство: Италия / NecrostormЖанр: фантастика, боевикРежиссер: Джулио Де Санти, Тициана МачеллаАктеры: Илария Калойси, Дамиано Чионни, Питер Косгров, Кристиан Коррадетти, Джулио Де Санти, Дэн Уайлдер, Кристиан Рива, Магдалина Бойл, Вишал Раджпут, Вилмар ЗимозаПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3300BD727A428B2C770A41F91FF731859E019957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 420232   (125141) от 30.12.2023
 
 Жюль Верн | Вокруг света за 80 дней (Аудиоспектакль) (2006) [MP3, Альберт Филозов и др.]
@@ -6,7 +78,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125141.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:F193FDC1B1F631976C137427251D21EE711E6B7B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125142.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:EC276FC036ACC8C479CFAB411A1E6C143540B2B0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125143.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:EF4E0CE12EA66C7C006968255D5213864702E5FE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125144.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:7FA0D004C23CF90D55E4193DC64BEFF68BD64BC5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125145.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:2D077C8F6BB042BBE899670C2212F904F38A445B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125146.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:921F80F6D0FA48606DC32ABF9B6F72A84BEB922A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125147.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:1696F910906A69ACFFC0419774257AFDC73B5014
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125148.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:9D22AD356BF53BD239207B7680C3AC16451E6045
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125149.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:9075DCA458837F725076D6C335288E99F5E44222
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125150.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:F0C5510B3877AAE7F1DE12BD09981B707FB8EB5C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125151.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Kori - Húszra (Huszra lapot) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125152.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ David Benoit - Remembering Christmas (1996) GRP [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125153.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ magnet:?xt=urn:btih:B30CD921B08216A873C3BC0E5F205B3D541B3119
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125154.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ Memory Garden - 1349 (2021) [FLAC|Lossless|image + .cue] <Power Metal, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125155.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ magnet:?xt=urn:btih:5B86BDF860BB4DCA020C214D868A2D8C8A233592
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125156.jpg" />
 </div>
 
 
@@ -406,7 +478,7 @@ Nobuo Hara & His Sharps & Flats - Big Band Congress (1970) 2013, Nippon Columbia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125157.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ Tadd Dameron - Four Classic Albums (1948 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125158.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ magnet:?xt=urn:btih:5DF3AE6D80869A39131AB3798A9CCB4C9CB19357
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125159.jpg" />
 </div>
 
 
@@ -484,7 +556,7 @@ magnet:?xt=urn:btih:A563F828E16F4082143BBA4FFE8A460BCFF39DDB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125160.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ magnet:?xt=urn:btih:C311A3CCB616D4C05E59BF4C62518B16C6C1BFCE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125161.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125162.jpg" />
 </div>
 
 
@@ -564,7 +636,7 @@ magnet:?xt=urn:btih:D4216D88557B8D07776A7EC4866B5B3C77FD17C9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125163.jpg" />
 </div>
 
 
@@ -575,79 +647,6 @@ magnet:?xt=urn:btih:D4216D88557B8D07776A7EC4866B5B3C77FD17C9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A16A310BDD4862E714A44C8A51F6D84A6E8ECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650154   (125164) от 29.12.2023
-
-Тамара Михеева | Не предавай меня! (2021) [MP3, Наталья Истарова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена распространённой проблеме в жизни молодых людей - самооценке, поддержке, становлению своего я.
-Восьмиклассница Юля чувствует себя счастливой: она привлекательна, хорошо учится, у неё любящая семья. Но всё в одночасье рушится, когда Юля случайно подслушивает разговор школьного психолога со своим классным руководителем: она узнаёт, что результаты психологического (   Читать дальше...   )Жанр: книги для подростковИздательство: 1С-ПаблишингПродолжительность: 03:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADA9CF99E74BFC9A5D928589073E0BF5FF83D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645607   (125165) от 29.12.2023
-
-Елена Березина | Мои уютные сказки (2020) [MP3, Елена Березина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как засыпает мышонок? Чему радуется мыльный пузырь? Где живёт сказка? О чём говорят снежинки? Какое задание выполняют парашютисты цветочного штаба? Об этом и не только «Мои уютные сказки». Четырнадцать музыкальных релакс-историй помогут ребёнку настроиться на сон. Из них малыши узнают, что такое радуга и когда бывает роса, кто любит гулять по солнечной травке, почему (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, книги для детей, сказкиЯзык озвучки: русскийИздательство: ЛитРесПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30406597B6DF5DE41FBD1B5EB623E6D6E5115133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614707   (125166) от 29.12.2023
-
-Дмитрий Наркисович Мамин-Сибиряк | Сказка про славного царя Гороха и его прекрасных дочерей царевну Кутафью и царевну Горошинку (2019) [MP3, Маргарита Елшанкина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125166.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Баю-баю-баю… Один глазок у Алёнушки спит, другой – смотрит; одно ушко у Алёнушки спит, другое – слушает. Спи, Алёнушка, спи, красавица, а папа будет рассказывать сказки. Кажется, все тут: и сибирский кот Васька, и лохматый деревенский пёс Постойко, и серая Мышка-норушка, и Сверчок за печкой, и пёстрый Скворец в клетке, и забияка Петух…»Жанр: литература 19 века, русская классика, сказкиПродолжительность: 01:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA287A3BF9BE187BEAF9F4F1018A74B08E3A94C
 ```
 
 

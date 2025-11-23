@@ -1,3 +1,84 @@
+###  Публикация: 1770287   (100535) от 31.12.2024
+
+VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Smoke Orchestra - Kuiper Belt (4:06)
+02.  Venus Ship - Tupac Amaru (4:32)
+03.  Vito Lalinga (Vi Mode Inc. Project) - FBI Investigations (4:01)
+04.  Soulstance - Fast River (4:37)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 01:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539DEFCF25B74F1B63164586667554C90F6B655B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770362   (100536) от 31.12.2024
+
+River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Damn It, Fred (4:13)
+02. In the Neighborhood (4:01)
+03. Queen of Hearts (4:56)
+04. Bayou & I (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEE254595642CFA111FAECD75C20D271136DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770365   (100537) от 31.12.2024
+
+Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Feeling You (4:37)
+02. Lonnie Brooks' Blessing (0:14)
+03. Blues In My DNA (4:48)
+04. My Love Will Make You Do Right (4:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770371   (100538) от 31.12.2024
 
 Константин Селезнёв - Anima Terrae (2017) [MP3|320 Kbps] <Heavy Metal, Modern Melodic Metal>
@@ -6,7 +87,7 @@
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100538.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100539.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100540.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ magnet:?xt=urn:btih:548E544EC5D08C6137A9CA9FF776401AA12BE269
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100541.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100543.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100544.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100545.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100547.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100548.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100549.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100550.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100551.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100552.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ Rick Fowler Band - RFB (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100553.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ John Di Martino - Passion Flower: The Music Of Billy Strayhorn (2020) Sunnyside 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100554.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ Leavin' Trunk - The River (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100555.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ Juanma Torres - Swing City Sessions #3 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100556.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ A Plane To Catch - Soul Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100557.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ Bump2Soul - Bump2Soul Live Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100558.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100559.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100560.jpg" />
 </div>
 
 
@@ -604,84 +685,6 @@ magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABF470833157516C0DF2C5A5F85FC643A0A5701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770181   (100561) от 30.12.2024
-
-Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 2024, EMI [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo
-02. I’m Going Slightly Mad
-03. Headlong
-04. I Can’t Live With You(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877F142B8F6EBAD58F09EFE233DD4B1915B4E342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770026   (100562) от 30.12.2024
-
-Steel Rain (2015) [Multi] (1.9.0b) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: PolarityFlow, Adrian ZinggЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Португальский, Бразильский ПортугальскийЯзык интерфейса: Английский, Немецкий, Португальский, Бразильский Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769793   (100563) от 30.12.2024
-
-Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 2024, EMI [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Ga Ga
-02. Tear It Up
-03. It’s a Hard Life
-04. Man on the Prowl(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29DCEC253F2A1D730F97740045A92C97B49D57A
 ```
 
 

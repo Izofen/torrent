@@ -6,7 +6,7 @@ Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95725.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95726.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Yori Swart - Yori Swart (2012) [MP3|320 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95730.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95730.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95738.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95740.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:B36F2E25555F2211C4E4EBBE667B76E1B5920A36
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Interpret Reality (2011) [MP3|320 кб/с]<Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95755.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DB75C36E5335836601581C85787433F2D594B71A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95758.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:EA051C35410E55F715727692BCBF17E4CEBDA8DB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95765.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0BEEE9F1076C197D84ED1F1E78A4ED99449D2DBD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95792.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95792.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Marcus Miller - Original Album Classic (1993-2007) [5CD Box Set] (2009) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95796.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:2CC200D8CDF02E23EE78F43690D3CEB3D3253402
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95803.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Ace Ventura - Rebirth (2007) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95804.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Area 51 Vol. 3 (2007) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95815.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Visions Of Atlantis - Maria Magdalena (2011) EP [FLAC|Lossless]<Power Metal,Symp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95821.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95821.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Arminstel - Trance Evolution vol.70 (04.03.2012) [MP3|320 кб/с]<Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95850.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:A60CB3D1262A962FA0EFDC12DAEDC338B9D04BC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95854.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:41CC086960BA9C33AB5BC4F32CB1B76F3F2052D4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95885.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:45EDCDF4544375C95FCE617C5E2D23A4D3DB5271
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95892.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:5140BC6A725331E7FAC2AC876269688A7C3A7388
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95894.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:F6C1FFFC360B01E5D39E221A9D7368A53E99B026
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95896.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DF4EAA6A8E6A0CD3D28A108C83C585E5A119C310
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95897.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:14968058AAD45960B14C0A9BDA40A3BC56A30D1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95898.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:54DC5AE6D336A4857AA841808EA8FB436EAD4CB2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95900.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ magnet:?xt=urn:btih:D539C74D1E8B4CBA3DA1E4BF52F85BB0B668425A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95902.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ DJ Kocmoc - Electro Sensation vol.21 (7.03.2012) [MP3|320 кб/с]<Electro House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95903.jpg" />
 </div>
 
 

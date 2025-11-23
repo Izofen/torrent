@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07C564103BC1D597A3339707CB088758037945D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53796.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53797.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53798.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53799.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53800.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53801.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53802.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53803.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53804.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53805.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53806.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53807.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53808.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53809.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53810.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53811.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:095A5E339BF2CCD414E3295963C8AAFB2A82C400
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53812.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Highrise City (2022) [Multi] (20240603/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53813.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53814.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9DF6568A05F7C66588BD5F2D42CD496F93AFA540
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53815.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:872BBD51DCC70EBC76BF02E6C2DD6F0EF3D3DB9F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53816.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D83E34CA7BAADC17B44FB91EEBD9F47678F28FF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53817.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Airhead (2024) [Ru/Multi] (13431795) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53818.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:9D26F0EA476C2979C777AFF2DB1BA603BD096E9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53819.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3C0E21C201CC5BE3AAF72C04B0074EDE858DEC86
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53820.jpg" />
 </div>
 
 

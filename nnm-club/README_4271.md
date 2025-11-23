@@ -1,3 +1,78 @@
+###  Публикация: 596200   (131321) от 30.12.2012
+
+Harry Hamernik | Face Off. How to Draw Amazing Caricatures & Comic Portraits / Как научиться рисовать карикатуры и шаржи [2006] [PDF] [En]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой пошаговое руководство для желающих научиться рисовать карикатуры и шаржи. Представлены различные виды техник, приемы создания черно-белых и цветных рисунков. Отдельно, поэтапно представлен процесс рисования отдельных частей лица (глаза, брови, нос, губы и т.д.), а также различных типов лиц.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DD9592092312C2AD7309EE61A9B5A513114EB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596394   (131322) от 30.12.2012
+
+GParted LiveCD 0.14.1-6 [i486, i686pae, amd64] (3 x miniCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел новый релиз GParted GNOME Partition Editor - Linux/Debian ОС, для редактирования дисковых разделов, который используется для различных операций с разделами (и файловыми системами, находящимися на них), таких как: создание, уничтожение, изменение размера, перемещение, проверка и копирование. Это необходимо при создании пространства для новых операционных систем, реорганизации использования диска, копировании данных находящихся на жёстких дисках и зеркалировании одного раздела на другой (создании образа диска).
+
+В этом релизе ядро 3.2.35-2; Debian репозиторий 'sid' на дату 2012-12-23.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682550   (131323) от 07.12.2023
+
+Midori Browser 11.1.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Midori – легкий и быстрый веб-браузер для Windows с открытым исходным кодом. Уважает конфиденциальность пользователей, не собирает информацию и не продаёт инвазивную рекламу. Вы всегда будете контролировать свои данные, анонимно, конфиденциально и безопасно.
+Браузер изначально разрабатывался как часть среды рабочего стола Xfce. Он был создан для обеспечения высокой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949243444EC49328D4D2080C43173D3D5224BAEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682505   (131324) от 07.12.2023
 
 Астрал. Ритуал Малум / Malum (2023) WEB-DLRip [DVO] [AD]
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131324.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131325.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Frank Duval - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131326.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Frank Duval - Greatest Hits (2CD) (2012) [FLAC|Lossless]<Pop>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131327.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:445AA9FCC271C78EB388005D9A69E6D6CAFF72D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131329.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:6FDF01FA672A99692FC3B0266A21A474FAA009FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131330.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131331.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:4E94C7F7B478A93678B344B7E678E7869D9C3081
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131332.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131333.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131334.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:9DCF2B68B1CB0C3A975209168EE6C104542B5AE4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131335.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131336.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ magnet:?xt=urn:btih:AED206A970DF2C733C228676EA154BAC7B75B1F5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131337.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ magnet:?xt=urn:btih:C6A4415851873B40054C1D94EC194FD2FCD74D48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131338.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ LibreOffice 7.6.4.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131339.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ magnet:?xt=urn:btih:F1F69F4E0A3E6E01B7469DE3133120B47B4A05DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131341.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ magnet:?xt=urn:btih:7D7AF20561FC416BE96C56B93FA600E83C5A5135
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131342.jpg" />
 </div>
 
 
@@ -431,7 +506,7 @@ Halie Loren - 3 альбома (2010-2012) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131344.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131346.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131347.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131348.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:58F105FA232A7C87B01FB1E0236CEA1D027C3253
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131349.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ magnet:?xt=urn:btih:B569AD9DF83A82F168B18C7A9A555D562934F708
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131350.jpg" />
 </div>
 
 
@@ -578,85 +653,6 @@ magnet:?xt=urn:btih:B569AD9DF83A82F168B18C7A9A555D562934F708
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF8957DB3873593AC3E03C3B7160EDF3ED2E1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682533   (131351) от 07.12.2023
-
-Инди Видум | Крылья Мальгуса (Книга 5). Ступень третья. Том 2 (2023) [MP3, Петров Никита (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ступень третья. Том 2» – роман, пятая книга цикла «Крылья Мальгуса», жанр городское фэнтези, попаданцы, бояръ-аниме.
-
-Жизнь идет своим чередом. Клан Ярослава продолжает прирастать не только врагами, но и собственностью.Жанр: Городское фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62725EC2CE761C9568DAA9B78B7E60C7B9707222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682424   (131352) от 07.12.2023
-
-Венера Хабирова | Начни - курс оздоровления ЖКТ (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого я запускаю онлайн-группу "начни"?Для тех, кто хочет уже наконец понять:
-Что же происходит с моим жкт, какие системы в дисбалансе? Разложить всё "по полочкам"что я могу делать уже сейчас сам, какой порядок действий подойдёт именно мне, если у меня "вереница симптомов или уже диагнозов"?
-
-Программа онлайн-группы "НАЧНИ с (   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 26:27:58Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659DB5EA3E1C186572F0034DAA5A08682A404F6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682419   (131353) от 07.12.2023
-
-AmigosCode, Nelson Djalo | Functional Programming & Java Streams (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите изучить новейшие методы функционального программирования на Java? Не смотрите дальше! Наш комплексный курс программирования охватывает все, что вам нужно знать, от основ функционального программирования и лямбда-выражений до сложных тем, таких как пакет функционального интерфейса Java и потоки Java.
-
-Java — это язык программирования, который спроектирован (   Читать дальше...   )Производство: AmigosCodeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 02:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D596B1B53E8B7FCD2B1BEE1B275988D3A197BAC2
 ```
 
 

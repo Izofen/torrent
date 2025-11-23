@@ -1,3 +1,153 @@
+###  Публикация: 1088052   (142681) от 29.12.2016
+
+VA - Новая Русская Дискотека (Лучшие 2) (2016) [MP3|256-320 Kbps] <Поп, Диско>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аракадиас - На белом покрывале января
+02. Фея Моргана - День как день
+03. Любовь Попова - А я солгу
+04. Сергей Трощенков - Мой грустный дождик(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 05:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C57492F228F27C290A79E31DEA89CA7D9B6476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679001   (142682) от 23.11.2023
+
+Vehemence - God Was Created (2002) [FLAC|Lossless|image + .cue] <Metal, Melodic Death Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Made For Her Jesus [5:59]
+02 - She Never Noticed Me [7:01]
+03 - Fantasy From Pain [6:06]
+04 - Christ, I F**king Hate You! [5:03](   Читать дальше...   )Жанр: Metal, Melodic Death Metal, Death MetalПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B39375008FE35891D2A8E3AB59F578D539DC519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272570   (142683) от 28.12.2018
+
+DiskDigger 1.20.8.2677 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142683.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CE9F78A1362D4B0790DF554C8A884EBD5916C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347980   (142685) от 28.12.2019
+
+Intel готовит революционную систему охлаждения для ноутбуков
+
+>>След.
+>>Компьютерные новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142685.jpg" />
+</div>
+
+
+###  Подробнее
+
+На выставке CES 2020 компания Intel покажет новый дизайн теплового модуля, который позволит на треть увеличить эффективность систем охлаждения ноутбуков. Там же покажут готовые решения на его основе.Этот проект входит в инициативу Intel Athena. Конструкция состоит из комбинации испарительных камер и графитовых листов. Также, помимо новых материалов, изменится и компоновка. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590426   (142686) от 17.12.2012
+
+Работы художников - Художник Danijel Frka
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Художник Danijel Frka
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1C607159512B31B767D8BBE3A0766BC59AACCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195420   (142687) от 29.12.2017
+
+Студия Союз (2017.12.28) WEB-DLRip (выпуск 21: Дайджест)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07676792BA47083A99552151B0318C44F721799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 845000   (142688) от 29.12.2014
 
 Моцарт в джунглях / Mozart in the Jungle (2014) WEBRip [H.264/720p-LQ] (Сезон 1, серии 1-2 из 10) (Ozz) (обновляемая)
@@ -6,7 +156,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142688.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:57CB87CE1DC39EFDAEBEA572523447800E4CCD65
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142689.jpg" />
 </div>
 
 
@@ -56,7 +206,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 8 (2021) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142690.jpg" />
 </div>
 
 
@@ -83,7 +233,7 @@ magnet:?xt=urn:btih:FE948AD0FC392F4B47A5903135861990D50C17A0
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142691.jpg" />
 </div>
 
 
@@ -108,7 +258,7 @@ VA - Acoustic 90's (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142692.jpg" />
 </div>
 
 
@@ -135,7 +285,7 @@ Dropshare 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142693.jpg" />
 </div>
 
 
@@ -160,7 +310,7 @@ magnet:?xt=urn:btih:E72F0D1EDA31A1C066629F9003B902037CE4612E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142694.jpg" />
 </div>
 
 
@@ -184,7 +334,7 @@ magnet:?xt=urn:btih:5E1671611607EAF5B854C6DC25294E8E310FA982
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142695.jpg" />
 </div>
 
 
@@ -208,7 +358,7 @@ magnet:?xt=urn:btih:13E214944925170F36B96DDC104001FE1915C47D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142696.jpg" />
 </div>
 
 
@@ -232,7 +382,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142697.jpg" />
 </div>
 
 
@@ -259,7 +409,7 @@ Vehemence - Forward Without Motion (2015) [FLAC|Lossless|tracks + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142698.jpg" />
 </div>
 
 
@@ -286,7 +436,7 @@ magnet:?xt=urn:btih:E74F9410BA4D63C29A5DC6CA6E3ABA74AC51B87D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142700.jpg" />
 </div>
 
 
@@ -312,7 +462,7 @@ magnet:?xt=urn:btih:EB7C733821316B7AD9339D27977492C05041D483
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142702.jpg" />
 </div>
 
 
@@ -336,7 +486,7 @@ magnet:?xt=urn:btih:3571711971E0476F9C8E46107AEC46D963BBE747
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142703.jpg" />
 </div>
 
 
@@ -360,7 +510,7 @@ magnet:?xt=urn:btih:1DCA6B39E84201F6DB4DC91D4146908617D3D82D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142704.jpg" />
 </div>
 
 
@@ -384,7 +534,7 @@ magnet:?xt=urn:btih:14A5C4445E86960C6DF30D824830512C6166EA88
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142706.jpg" />
 </div>
 
 
@@ -408,7 +558,7 @@ magnet:?xt=urn:btih:F6CC232C02C32394DF8D0489C2C54FA5395E2388
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142707.jpg" />
 </div>
 
 
@@ -432,7 +582,7 @@ Lindi Ortega (Линди Ортега) - Little Red Boots (2011) Last Gang Recor
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142708.jpg" />
 </div>
 
 
@@ -459,7 +609,7 @@ magnet:?xt=urn:btih:3A4A246E1526B49438E3F9714390CD559E956C2A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142709.jpg" />
 </div>
 
 
@@ -492,7 +642,7 @@ magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142710.jpg" />
 </div>
 
 
@@ -503,156 +653,6 @@ magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1422ACB7992C190976D28AF27B713BF93224357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678880   (142711) от 23.11.2023
-
-Veil of Mist - Another End Is Possible (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Prog Metal / Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indelible [00:05:04]
-02. A Scarlet Path to Virtue (The Archangel of Terror pt.II) [00:04:58]
-03. Another End Is Possible [00:06:09]
-04. Unconditional [00:04:02](   Читать дальше...   )Жанр: Symphonic Gothic Prog Metal / Female VocalsПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF53E2B453A46682AFECB4C746444AB8B481CFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970087   (142712) от 29.12.2015
-
-Журнал | Советы профессионалов №1 (январь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142712.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Советы профессионалов» - журнал для тех, кто любит свой дом и стремится своими руками сделать его пространство максимально удобным и красивым. Издание составлено из лучших материалов журналов «Дом», «Сам» и «Сам себе мастер». В каждом выпуске — одна главная тема и несколько дополнительных.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789E4062139E4B1468609142E9AED1C606D92706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435715   (142714) от 29.12.2020
-
-Chaos Control Premium 1.11 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос-контроль: органайзер целей и задач на базе GTD.
-Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
-Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 3717   (142715) от 29.12.2013
-
-Первые фильмы братьев Люмьер / The Lumiere Brothers' First Films (1895/1996) DVDRip [Коллекция]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142715.jpg" />
-</div>
-
-
-###  Подробнее
-
-85 коротких фильмов с комментариями великого классика французского кино Бертрана Тавернье. Выпущен в 1996 году к столетию первого публичного показа кинофильма (28 декабря 1895 года). Комментарии Тавернье касаются не только истории братьев Люмьер, но и истории раннего кинематографа в целом. Ну а сами фильмы, от легендарного "прибытия поезда" и "политого (   Читать дальше...   )Производство: ФранцияЖанр: классическое кино, документальный, хроника, историяРежиссер: Тьери ФрэмоПеревод: Отсутствует. Тавернье ведет свой рассказ на английском. Внятно и очень простыми фразами - школьнику понятно.Язык озвучки: АнглийскийПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F03AFDE5C8C6510639177DC656AD6F617DE24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348550   (142716) от 28.12.2019
-
-Неестественный отбор / Unnatural Selection (2019) WEB-DL [H.264/1080p] (серии 4 из 4) [EN / RU, EN Sub]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142716.jpg" />
-</div>
-
-
-###  Подробнее
-
-От истребления болезней до выбора цвета глаз ребёнка, генное редактирование даёт людям шанс "хакнуть" биологию. Встречайте реальных людей, стоящих за этой наукой. Документальный фильм рассказыввает о генной инженерии и, в частности, о технологии редактирования генов CRISPR-Cas9 – со стороны учёных, корпораций, а также биохакеров, работающих над своими проектами (   Читать дальше...   )Производство: США, Radley Studios, Reel Peak Films, Twist and Turn Films, NetflixЖанр: Документальный, познавательный, научно-популярныйРежиссер: Джо Эгендер, Лиор КауфманПеревод: отсутствуетСубтитры: русские, английские (форсированные, полные и SDH)Продолжительность: 01:10:10 + 01:03:32 + 01:02:10 + 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 22001   (142717) от 27.12.2021
-
-Геноцид 90-х русского населения в Чечне (2004) TVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142717.jpg" />
-</div>
-
-
-###  Подробнее
-
-За сводками военных сообщений о ходе антитеррористической операции осталась как бы "за кадром" страшная работа, которую начала проводить Генеральная прокуратура в освобожденных районах Чечни. Это вскрытие массовых захоронений людей, убитых при прежней чеченской власти.
-По данным Главного управления Генпрокуратуры по Северному Кавказу, уже "повсеместно (   Читать дальше...   )Жанр: документальныйПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
 ```
 
 

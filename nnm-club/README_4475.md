@@ -1,3 +1,75 @@
+###  Публикация: 1436183   (138406) от 30.12.2020
+
+Александр Зайцев | Отражение (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный персонаж – военный корреспондент с опытом работы в горячих точках и страстью к фехтованию, которую привила ему жена, мастер спорта. Герой погибает в самом начале книги и попадает в тело подростка, обитающего в ином мире. Подросток непрост. Он рейг – воин излома. Иными словами, он способен перемещаться в параллельное пространство, в котором становится для (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, ПопаданцыПродолжительность: 12:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AB7B256ECAD332BDE8D7276A66A64B51EBADC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196062   (138407) от 31.12.2017
+
+Орел и решка. Звёзды (2017.12.31) WEB-DL [H.264/1080p-LQ] (Люксембург)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65686B2E953540D69B2D286F982E9224E456343B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970913   (138408) от 31.12.2015
+
+Skype 7.17.0.106 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7F8C03520E68B10659CC065AB4C2E25C7AAA0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679472   (138409) от 25.11.2023
 
 Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Esoteric [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +78,7 @@ Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Eso
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138409.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:FFEA7AC89E16D3B9972A962200343E0622200F1E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138410.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:5FF6044DA923EA112122584270317DEB78E43F64
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138412.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:386C40ABC70C406421A854D3D79E7EA00E3B9A26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138413.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138415.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138416.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138418.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ magnet:?xt=urn:btih:A71154981C00D77112AB627C4E1841F844B95ED7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138420.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ magnet:?xt=urn:btih:9CFC4BCA3530F371F5378CC12CB7BE46425DD74C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138421.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138422.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138423.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ magnet:?xt=urn:btih:B0605E85A21E329CD7FACCCDDDE9519197D8ADA6
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138424.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138426.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138427.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:9802A1113898E907363C119A950D4071FE13C9B3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138428.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138429.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138430.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ magnet:?xt=urn:btih:C75F27500C1CF31B8F3EFE08919B4DE866D125A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138431.jpg" />
 </div>
 
 
@@ -455,7 +527,7 @@ magnet:?xt=urn:btih:A0B1DA5A0D99F6846E688CDFF13FC1EAA9355EC1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138432.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ NVIDIA GeForce Desktop 310.70 WHQL + For Notebooks [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138435.jpg" />
 </div>
 
 
@@ -509,7 +581,7 @@ NVIDIA GeForce Desktop 310.70 WHQL + For NotebooksПоддержка всех в
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138436.jpg" />
 </div>
 
 
@@ -533,7 +605,7 @@ magnet:?xt=urn:btih:413F3098ED6DE31061ABD88C471396BE2AA47B18
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138437.jpg" />
 </div>
 
 
@@ -559,7 +631,7 @@ magnet:?xt=urn:btih:033DEA8D4B23BAC7FEBD55081AFA847E33D91970
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138438.jpg" />
 </div>
 
 
@@ -570,81 +642,6 @@ magnet:?xt=urn:btih:033DEA8D4B23BAC7FEBD55081AFA847E33D91970
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD86D0F8085CFC8CD50F107180AB62E45D53301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970835   (138439) от 31.12.2015
-
-VA - Rock Collection 1989 (2015) [MP3|256 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Dream Theater - A Fortune in Lies
-02. Terrorizer - After World Obliteration(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 25:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679550   (138440) от 25.11.2023
-
-Tempomate 4.7 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tempomate - умный и красивый метроном.Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2016-2022 René LasseronПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F8792AD118478DAB7E14FA85BD7F27FE5B0D6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283410   (138443) от 30.12.2019
-
-КВН-2019. Высшая лига (2019.12.30) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 01:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD32A6C9F98808A2884BA0DF63D7C7E1F99D70B
 ```
 
 

@@ -1,3 +1,93 @@
+###  Публикация: 470386   (97388) от 21.03.2012
+
+VA - Весенние Танцевальные Хиты. Зарубежный (2012) [MP3|256 кб/с]<Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Otherview - So Long (Rivaz Club Mix)
+ 002. Sugababes - Freedom (Radio Rip)
+ 003. Jack Holiday & Mike Candys - Children (Radio Edit)
+ 004. Christina Perri - Jar of Hearts
+ 005. E-Partment feat. Kandy - Hang On (Original Mix)
+ 006. LaRoxx Project - Jabba Jabba (Radio Edit)
+ 007. Jochen Miller - Flashback (Gregori Klosman Remix)
+ 008. BunHeaD - Am The Best (Kuba S Remix)
+ 009. The Disco Boys - Around The World
+ 010. Sophie Zelmani - Dreamer2012Жанр: Dance, РорПродолжительность: 05:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793F300312D8159CEA0059BC8CB100FB0F6B2561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471095   (97390) от 21.03.2012
+
+Cynic - The Portal Tapes (2012) [FLAC|Lossless]<Progressive Metal / Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_97390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Endeavors (3:55)
+02. Karma's Plight (5:20)
+03. Circle (5:10)
+04. Costumed in Grace (4:24)
+05. Cosmos (4:20)
+06. Crawl Above (3:57)
+07. Mirror Child (5:03)
+08. Road to You (4:24)
+09. Belong (4:19)
+10. Not the Same (4:29)2012Жанр: Progressive Metal / ExperimentalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471211   (97391) от 21.03.2012
+
+Скажи "Да" / Sae-yi yaeseu / Say Yes (2001) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара по случаю годовщины свадьбы отправляется в поездку, даже не догадываясь, каким ужасом все это обернется после встречи в кафе со странным незнакомцем, которому нужно лишь одно - стереть счастье с лица счастливого мужа и заглушить свою собственную боль...Он никогда не спит и думает на два шага вперед, он везде и нигде...и от него не скрыться.Жанр: Триллер, ДрамаРежиссер: Сун-Хун КимАктеры: Пак Чун Хун,  Чу Сан Ми,  Чу-бон ДжиПеревод: Одноголосый закадровыйПродолжительность: 01:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7A913238F7C5F9E0B1B9A58A15236C274E65E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471168   (97394) от 21.03.2012
 
 Питер Чейни | Смыться можно всегда [2003] [MP3] [96 kb/s]
@@ -6,7 +96,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97394.jpg" />
 </div>
 
 
@@ -32,7 +122,7 @@ magnet:?xt=urn:btih:2A6DE8DBF118FE35E275BC4E9E79B5EF6CAE7B63
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97395.jpg" />
 </div>
 
 
@@ -56,7 +146,7 @@ magnet:?xt=urn:btih:C487428ADA76E32154B50C1216EA6C9EF5F437E9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97397.jpg" />
 </div>
 
 
@@ -84,7 +174,7 @@ magnet:?xt=urn:btih:CE9DD649981DE6AA906389DF43FF6212BF2D0A0D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97399.jpg" />
 </div>
 
 
@@ -112,7 +202,7 @@ VA - 200-ка Самых Самых 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97400.jpg" />
 </div>
 
 
@@ -145,7 +235,7 @@ VA - XXXL Турбомодный 50/50 Весна (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97402.jpg" />
 </div>
 
 
@@ -178,7 +268,7 @@ magnet:?xt=urn:btih:FBE11AD18E2A2E70707FFDFA6E01234033DD5045
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97406.jpg" />
 </div>
 
 
@@ -202,7 +292,7 @@ The Pirat Bay отправит свои сервера в стратосферу
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97409.jpg" />
 </div>
 
 
@@ -227,7 +317,7 @@ The Pirat Bay отправит свои сервера в стратосферу
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97412.jpg" />
 </div>
 
 
@@ -253,7 +343,7 @@ VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97415.jpg" />
 </div>
 
 
@@ -286,7 +376,7 @@ magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97417.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97417.jpg" />
 </div>
 
 
@@ -310,7 +400,7 @@ VA - 100% Relax - Wildlife (2012) [MP3|192 kbps]<New Age | Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97418.jpg" />
 </div>
 
 
@@ -343,7 +433,7 @@ VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Ful
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97419.jpg" />
 </div>
 
 
@@ -376,7 +466,7 @@ magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97420.jpg" />
 </div>
 
 
@@ -404,7 +494,7 @@ magnet:?xt=urn:btih:6FF5E2F5797905ED97CCC1B44FD38EE976D35B1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97422.jpg" />
 </div>
 
 
@@ -432,7 +522,7 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97423.jpg" />
 </div>
 
 
@@ -465,7 +555,7 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97425.jpg" />
 </div>
 
 
@@ -497,7 +587,7 @@ Dünedain (Dunedain) - Magica (2012) [FLAC|Lossless]<Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97426.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97426.jpg" />
 </div>
 
 
@@ -530,7 +620,7 @@ VA - The Voice Kids - The Songs (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97428.jpg" />
 </div>
 
 
@@ -563,7 +653,7 @@ VA - XXXL Танцевальный 50/50 Весна (2012) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97430.jpg" />
 </div>
 
 
@@ -596,7 +686,7 @@ magnet:?xt=urn:btih:9EF0D45CE5EE5331FB0BD8FDE093357C97691B2E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97432.jpg" />
 </div>
 
 
@@ -620,7 +710,7 @@ VA - Sound RMX (2012) [MP3|320 kbps]<Club | Dance | House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97433.jpg" />
 </div>
 
 
@@ -653,7 +743,7 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97435.jpg" />
 </div>
 
 
@@ -673,102 +763,6 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8EC9669B208DF8DE8E6C6A9FEEA53CBF428CE9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471671   (97436) от 22.03.2012
-
-Pybus Groove Quartet - Good Evening (2011) [MP3|192 кб/с]<Jazz, Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Good Evening (6:02)
-2.Natural Blend (6:17)
-3.Green Tea (5:18)
-4.Chatterbox (5:57)
-5.Sweet Soul (6:32)
-6.Fot-li (3:57)
-7.Misterios al Descubierto (6:21)
-8.Shamtime (5:15)2011Жанр: Jazz, FunkПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418B4286ADBB410358C360A46F8E56AE1CD8F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471442   (97437) от 22.03.2012
-
-Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Epochalypse 06:08
-2. Roots 05:55
-3. The Beauty of Dead Cities 04:15
-4. The Earthling 06:51
-5. The Plains of Memories 04:27
-6. Mount Regency 06:08
-7. Frostrite 04:50
-8. The Winter Eclipse 08:45
-9. In a Deeper World 05:422012Жанр: Black Metal / Progressive Viking/Folk MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470990   (97438) от 22.03.2012
-
-SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (DiZou, DNИL, Benny)
-02. О своём (Benny, DNИL, DiZou, Alex Grey, SLY)
-03. Отрадный (solo: DNИL)
-04. Возвращение (DNИL & KSENIA)
-05. Все реже (DNИL & DiZou)
-06. Каждому своё (DNИL & DiZou)
-07. НеделА (DiZou, DNИL, Benny)
-08. Давай братан (solo: DiZou) 256 кб/с
-09. Время (DNИL & DiZou)
-10. Пару историй (Benny & DNИL)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
 ```
 
 

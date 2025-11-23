@@ -1,3 +1,181 @@
+###  Публикация: 1598182   (163474) от 18.12.2022
+
+Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invoking Rana Sahib, Satyrical Goat Of Mendes
+02. Concubinal Celibatic Myrmidonian Whores
+03. Abandonment Of Chastity
+04. Hymeneal Altar Of Messianic Salacitation(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0B0D13D18A78F4EDAD215EAA772D42A8DA799E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346520   (163475) от 19.12.2019
+
+НП «АВОК» | Р НП «АВОК» 5.5.1-2018 Расчет параметров систем противодымной защиты жилых и общественных зданий (2018) [TIF, PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Положения настоящих рекомендаций развивают и дополняют требования, изложенные в Федеральном законе от 22 июля 2008 г. № 123-ФЗ (ред. от 02.07.2013) «Технический регламент о требованиях пожарной безопасности», СП 60.13330.2016, СП 7.13130.2013 в части особенностей функционального назначения и спец­ифики противопожарной защиты зданий.Жанр: СтроительствоФормат: TIF, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED251EF4F19BD482A1308F435CA7C5AC0194A0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432042   (163476) от 17.12.2020
+
+Владимир Шведа | Как собрать кубик Рубика 3х3х3. Простой метод для начинающих (2020) [FB2, RTF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163476.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете один из способов для начинающих, как можно быстро и очень легко собрать кубик Рубика. По моему опыту, множество людей способны собрать кубик с помощью метода, описанного в этой книге, за время, менее 2 минут из любого его состояния запутанности. В рамках этой книги я постараюсь научить вас технике сборки кубика Рубика, которую я сам освоил (   Читать дальше...   )Жанр: Хобби, головоломкиФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6CF9A865CB1EBB4CCC73389D5FA161A5728E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598121   (163477) от 18.12.2022
+
+Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Final Bow [00:07:08]
+02. The Flight of No Return [00:08:01]
+03. Event Horizon [00:12:06]
+04. Cryosleep [00:09:30](   Читать дальше...   )Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 3 CD, 02:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230D26CE9CEBFCEF05EB78F2E2BE0800EDA3CF5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673889   (163478) от 03.11.2023
+
+А.И. Яковлев и др. | Отечественная война 1812 года (2006) [MP3, Алексей Ковалёв]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот диск посвящен Отечественной войне 1812 года, которая постоянно живет в памяти народа.
+Диск состоит из двух частей. В первой части представлена книга доктора исторических наук А.И. Яковлева, в которой ярко и с множеством интересных деталей описаны все этапы войны, от зарождения этой идеи у Наполеона I и вторжения многонациональных войск на территорию России до (   Читать дальше...   )Жанр: Историческая проза, классика, поэзияИздательство: ДеоникаПродолжительность: 04:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28459DC004E954E94C0C28C87B6C6DBA256E3C11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673857   (163479) от 03.11.2023
+
+Surge for Mac 5.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Surge — это набор сетевых инструментов для опытных пользователей и высокопроизводительный прокси-сервер HTTP/SOCKS5 . Он способен перехватывать и регистрировать сводку сетевого трафика, а также передавать трафик на другие прокси-серверы в соответствии с гибкой системой правил. Поддерживается несколько протоколов прокси, включая HTTP, HTTPS, SOCKS5, SOCK5 через TLS. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 Surge Networks Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62CDD9310A9A29A978E8DA6D0305685C61C6A36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598332   (163480) от 18.12.2022
+
+Boz (Bollox Of Zatan) - Fury of Pegana (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lord Of All The Waters [00:02:43]
+02. Chaunt [00:06:32]
+03. Preacher [00:08:51]
+04. Ritual [00:07:34](   Читать дальше...   )Жанр: Sludge, Doom, Thrash MetalПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA93C1CAB49C37CD0571EFE5371CEF5F4CC6724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346417   (163481) от 19.12.2019
 
 Internet Download Manager 6.35 Build 18 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +184,7 @@ Internet Download Manager 6.35 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163481.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163482.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ magnet:?xt=urn:btih:A906A51E2B372FA9E99112EFEB687D9F67038FA2
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163483.jpg" />
 </div>
 
 
@@ -79,7 +257,7 @@ magnet:?xt=urn:btih:07D0417CA1319C0B9BE18A4429C8B552B05C2F47
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163484.jpg" />
 </div>
 
 
@@ -103,7 +281,7 @@ Microsoft Windows 10.0.19042.685 Version 20H2 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163485.jpg" />
 </div>
 
 
@@ -128,7 +306,7 @@ magnet:?xt=urn:btih:3DED2E526D2062298FB6CC647BC88611539DDF2F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163486.jpg" />
 </div>
 
 
@@ -152,7 +330,7 @@ Chet Baker - Blue Room (1979) 2CD, 2023, Jazz Detective [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163487.jpg" />
 </div>
 
 
@@ -179,7 +357,7 @@ magnet:?xt=urn:btih:6FF9DBEC92A11B0986C6D850CFAA7ED9727D2C2B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163488.jpg" />
 </div>
 
 
@@ -203,7 +381,7 @@ magnet:?xt=urn:btih:FBA1D41FB7E4BBE76BC006BFB4DBD6A8B4F1D3EF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163489.jpg" />
 </div>
 
 
@@ -227,7 +405,7 @@ magnet:?xt=urn:btih:8B6D7C1093D5FBD702EA059A37F08BBB2BA33BBC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163490.jpg" />
 </div>
 
 
@@ -251,7 +429,7 @@ Native Instruments - Guitar Rig 6 Pro 6.1.1 STANDALONE, VST, AAX (x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163491.jpg" />
 </div>
 
 
@@ -275,7 +453,7 @@ magnet:?xt=urn:btih:865E6E0EE34590CDA29CED9B55729B606F01BF87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163492.jpg" />
 </div>
 
 
@@ -299,7 +477,7 @@ magnet:?xt=urn:btih:CA7FCF818EF6722B29A66F0C7F45F61CC84B0651
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163493.jpg" />
 </div>
 
 
@@ -323,7 +501,7 @@ magnet:?xt=urn:btih:FD744026D3249D10B876BC523EC7A519CD75153C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163494.jpg" />
 </div>
 
 
@@ -348,7 +526,7 @@ Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163495.jpg" />
 </div>
 
 
@@ -375,7 +553,7 @@ Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163496.jpg" />
 </div>
 
 
@@ -402,7 +580,7 @@ Nova Skellis - Life Amongst The Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163497.jpg" />
 </div>
 
 
@@ -429,7 +607,7 @@ VA - Soft Pop (relax) (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163498.jpg" />
 </div>
 
 
@@ -456,7 +634,7 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163499.jpg" />
 </div>
 
 
@@ -468,184 +646,6 @@ Microsoft Windows 10.0.19041.685 Version 2004 (Updated December 2020) - Ориг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D93D4CB49BF0A2600746A42DC8DAABE7FDEAACAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346549   (163500) от 19.12.2019
-
-Сплин - Тайком (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Воздушный шар
-2. Тайком
-3. Атом
-4. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60E9E08CD7B2212ADAEA609A4D47785EA9090B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432318   (163501) от 17.12.2020
-
-Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598232   (163502) от 18.12.2022
-
-Balrog - Bestial Satanic Terror (2006) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01- Intro
-02- Through The Eeyes Of The Beast
-03- Give War A Chance
-04- Nazgül Warlord(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F65261B7AA3B828D1180008A803FB2CAC10EE9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517294   (163503) от 14.12.2021
-
-Autorun Organizer 5.13 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autorun Organizer - простое в использовании приложение, позволяющее управлять программами, которые запускаются при старте системы. Инструмент является надежным менеджером автозагрузки, который позволяет просматривать и управлять программами, запускающимися автоматически при старте системы. Вы можете просмотреть свойства программ, проверять на вирусы с помощью онлайн-антивируса (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6D19DF9065606A972806B4D0BFDFA3A6384761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673898   (163504) от 03.11.2023
-
-Sync Folders Pro 4.6.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
-Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 GreenWorldSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EE73B39F9E5756C553DD7EA1F89FC1460DE6D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346469   (163505) от 19.12.2019
-
-Сплин - Тайком (2019) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воздушный шар
-02. Тайком
-03. Атом
-04. Гимн(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13611BEEC196ACD6DD7F07AECE746DB0FBD52DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517298   (163506) от 14.12.2021
-
-FBackup 9.4.464 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163506.jpg" />
-</div>
-
-
-###  Подробнее
-
-FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942B2C1334592084C0B876869A199980EFAB1725
 ```
 
 

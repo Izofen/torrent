@@ -1,3 +1,97 @@
+###  Публикация: 484093   (99788) от 16.04.2012
+
+Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baby D - Deliverance (1996)
+Год: 1996
+Жанр: Breakbeat, Hardcore, D'n'B
+Продолжительность: 01:28:06
+Лейбл: Systematic
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481428   (99796) от 16.04.2012
+
+VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten feat. Armin Van Buuren - Brute (Original Extended Mix)
+02. Super8 Tab - Awakenings (Original Mix)
+03. Swedish House Mafia - Greyhound (Original Mix)
+04. Mark Knight - Together (Original Club Mix)
+05. Kyau Albert - This Love (Original Mix)
+06. Laidback Luke, Arno Cost, Norman Doray - Trilogy (Original Mix)
+07. Jackwob - Electrify (Seamus Haji Club Mix)
+08. Betsie Larkin Sied Van Riel - The Offering (Extended Mix)
+09. Emma Hewitt - Colours (Armin Van Buuren Rmx)
+10. Kirsty - Twilight (Armin Van Buuren Rmx)(   Читать дальше...   )10.04.2012Жанр: DanceПродолжительность: 03:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483055   (99799) от 16.04.2012
+
+Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_99799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flamenco Sketches 16:04
+02. Freddie Freeloader 9:33
+03. Blue in Green 8:08
+04. So What 7:45
+05. All Blues 6:53
+06. Nardis 9:05
+07. Serpent's Tooth 3:382012Жанр: Latin Jazz, Piano JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482589   (99800) от 16.04.2012
 
 Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -6,7 +100,7 @@ Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99800.jpg" />
 </div>
 
 
@@ -39,7 +133,7 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99801.jpg" />
 </div>
 
 
@@ -72,7 +166,7 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99802.jpg" />
 </div>
 
 
@@ -98,7 +192,7 @@ magnet:?xt=urn:btih:CF10298DCE1B0BC8D03101CC0E7F2AAEB278DF5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99811.jpg" />
 </div>
 
 
@@ -124,7 +218,7 @@ magnet:?xt=urn:btih:97039D0D5F5661F45A8DCE8D2F7382581BFF4562
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99819.jpg" />
 </div>
 
 
@@ -148,7 +242,7 @@ magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99821.jpg" />
 </div>
 
 
@@ -172,7 +266,7 @@ Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99826.jpg" />
 </div>
 
 
@@ -205,7 +299,7 @@ magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99828.jpg" />
 </div>
 
 
@@ -234,7 +328,7 @@ magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99829.jpg" />
 </div>
 
 
@@ -258,7 +352,7 @@ VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99830.jpg" />
 </div>
 
 
@@ -291,7 +385,7 @@ VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99833.jpg" />
 </div>
 
 
@@ -324,7 +418,7 @@ magnet:?xt=urn:btih:0CD6F6001968539F0769D689A0A525274C8F90B8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99838.jpg" />
 </div>
 
 
@@ -356,7 +450,7 @@ magnet:?xt=urn:btih:F9D2FCACCD54493EE0EDE90DB93B7090D03F41BD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99839.jpg" />
 </div>
 
 
@@ -380,7 +474,7 @@ Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99840.jpg" />
 </div>
 
 
@@ -410,7 +504,7 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99841.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99841.jpg" />
 </div>
 
 
@@ -435,7 +529,7 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub T
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99846.jpg" />
 </div>
 
 
@@ -459,7 +553,7 @@ Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99851.jpg" />
 </div>
 
 
@@ -490,7 +584,7 @@ Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99852.jpg" />
 </div>
 
 
@@ -517,7 +611,7 @@ Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99853.jpg" />
 </div>
 
 
@@ -550,7 +644,7 @@ Curandero - Aras (2010) [MP3|320 кб/с]<World>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99855.jpg" />
 </div>
 
 
@@ -579,7 +673,7 @@ DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99859.jpg" />
 </div>
 
 
@@ -612,7 +706,7 @@ Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99864.jpg" />
 </div>
 
 
@@ -636,7 +730,7 @@ magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99865.jpg" />
 </div>
 
 
@@ -647,96 +741,6 @@ magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CF97F5A9C0C297A9BA5E0CF1BFD3DAE4106E72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483605   (99867) от 17.04.2012
-
-Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cd 12012Жанр: Club, DanceПродолжительность: 01:12:30
-01. Lloyd Ft Andrй 3000 - Decidation To My Ex (Miss That)
-02. Carly Rae Jepsen - Call Me Maybe
-03. Train - Drive By
-04. Gavin Degraw - Soldier
-05. Chris Hordijk - Won't You Stay
-06. Katy Perry - Part Of Me
-07. Racoon - Don't Give Up The Fight
-08. Keane - Silenced By The Night
-09. Afrojack & Shermanology - Can't Stop Me(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C07BE4EBAC7CDA6F5C1DEA5F14053B42F902D2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484525   (99869) от 17.04.2012
-
-Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 01:33
- 02. Doubts And Struggles 03:16
- 03. Crossed Paths 03:02
- 04. Echoes 02:17
- 05. Wilfully Blind 03:47
- 06. No Love, No Regret 03:11
- 07. Despair 01:09
- 08. To Conceive/Insight 02:59
- 09. Discontent 03:11
- 10. Time We Lost 02:37(   Читать дальше...   )2012Жанр: Melodic HardcoreПродолжительность: 00:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA87BC6EFC240CF5FF917DB900D61BA1C8D8394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484459   (99870) от 17.04.2012
-
-[Wallpapers] Army and military equipment Wallpapers (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
 ```
 
 

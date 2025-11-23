@@ -6,7 +6,7 @@ VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90856.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Золотые Хиты Кавказа 2 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90941.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92010.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93028.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - 538 Dance Smash 2012 Vol.1 (2012) [MP3|320 kbps]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93361.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93759.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93782.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93784.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93845.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93979.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93983.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93985.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93989.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94083.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94091.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94145.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94328.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94335.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94570.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Music News For Forum vol.137 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94705.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94761.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94793.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94835.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94999.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95462.jpg" />
 </div>
 
 
@@ -799,7 +799,7 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95604.jpg" />
 </div>
 
 

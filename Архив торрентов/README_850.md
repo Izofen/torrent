@@ -1,3 +1,101 @@
+###  Публикация: 1344571   (169704) от 11.12.2019
+
+Google Chrome 79.0.3945.79 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9D17336C5637F75752C4AE26E252D9B42B1B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515513   (169707) от 07.12.2021
+
+iPulse 3.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
+Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C063F956B7E5F40140F793542DA5D6DAE0E3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672225   (169708) от 27.10.2023
+
+Adguard 7.15.1 (7.15.4386.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9DFFFCF9FE87FDA3B8F1EA13B702592B5E214E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515459   (169712) от 07.12.2021
+
+Submerge 3 v3.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1251590EC13D2F0F3A6BDB5F15E87F992CB5F13B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430844   (169716) от 11.12.2020
 
 Vivaldi 3.5.2115.81 + Portable (Standalone) [Multi/Ru]
@@ -6,7 +104,7 @@ Vivaldi 3.5.2115.81 + Portable (Standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169716.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ magnet:?xt=urn:btih:56F0118A4A1073174B7715B6C66799F767EF019C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169720.jpg" />
 </div>
 
 
@@ -57,7 +155,7 @@ Skype 8.55.0.135 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169721.jpg" />
 </div>
 
 
@@ -81,7 +179,7 @@ LosslessCut 3.29.1 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169722.jpg" />
 </div>
 
 
@@ -105,7 +203,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169726.jpg" />
 </div>
 
 
@@ -129,7 +227,7 @@ Macrorit Data Wiper 6.5.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169727.jpg" />
 </div>
 
 
@@ -153,7 +251,7 @@ Tor Browser Bundle 13.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169728.jpg" />
 </div>
 
 
@@ -177,7 +275,7 @@ Opera GX 64.0.3417.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169729.jpg" />
 </div>
 
 
@@ -201,7 +299,7 @@ Skype 8.55.0.135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169731.jpg" />
 </div>
 
 
@@ -225,7 +323,7 @@ SpamSieve 2.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169736.jpg" />
 </div>
 
 
@@ -250,7 +348,7 @@ HiBit Uninstaller 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169741.jpg" />
 </div>
 
 
@@ -275,7 +373,7 @@ Apple MainStage 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169743.jpg" />
 </div>
 
 
@@ -302,7 +400,7 @@ Telegram for Android 9.2.2 (2965) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169746.jpg" />
 </div>
 
 
@@ -326,7 +424,7 @@ O&O Defrag Professional 27.0 Build 8050 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169748.jpg" />
 </div>
 
 
@@ -351,7 +449,7 @@ Sublime Merge Dev Build 2064 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169753.jpg" />
 </div>
 
 
@@ -375,7 +473,7 @@ LosslessCut 3.29 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169756.jpg" />
 </div>
 
 
@@ -399,7 +497,7 @@ Magic Battery 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169761.jpg" />
 </div>
 
 
@@ -424,7 +522,7 @@ VA - Chillhop Essentials - Winter (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169766.jpg" />
 </div>
 
 
@@ -451,7 +549,7 @@ Pixelmator Pro 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169769.jpg" />
 </div>
 
 
@@ -476,7 +574,7 @@ Dropshare 5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169775.jpg" />
 </div>
 
 
@@ -501,7 +599,7 @@ System Toolkit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169779.jpg" />
 </div>
 
 
@@ -525,7 +623,7 @@ magnet:?xt=urn:btih:96243419CDD42A3D6595116C5B75292B4891AF19
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169786.jpg" />
 </div>
 
 
@@ -538,103 +636,6 @@ magnet:?xt=urn:btih:96243419CDD42A3D6595116C5B75292B4891AF19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDED672DCC6D0D9F9E2D0497683D9AD4C4B5ED5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344666   (169794) от 11.12.2019
-
-GoodSync Enterprise 10.10.15.5 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169794.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6565F2D6144B6A23D09E2CDB72251A0549949E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596406   (169804) от 10.12.2022
-
-Мой домашний крокодил / Lyle, Lyle, Crocodile (2022) WEB-DL [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Примм переезжает в Нью-Йорк, где выясняется, что в их доме на чердаке живёт поющий крокодил Лайл. Лайл помогает адаптироваться после переезда маленькому Джошу Примму. Но злобный сосед мистер Грампс хочет, чтобы зверя изолировали от людей.Производство: США / Sony Pictures Entertainment (SPE), Sony Pictures Animation, TSG Entertainment, Eagle Pictures, Hutch Parker Entertainment, Speck & GordonЖанр: мюзикл, семейный, комедия, фэнтезиРежиссер: Джош Гордон, Уилл СпекАктеры: Хавьер Бардем, Уинслоу Фегли, Шон Мендес, Констанс Ву, Скут МакНэри, Бретт Гельман, Эго Нводим, Лайрик Херд, Джейсон Кравиц, Бен ПалашиосПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, AнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C696A18BD047AB00E521A668528991339701FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430734   (169811) от 11.12.2020
-
-cDock 4 v4.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная фишка cDock — это возможность менять темы. Если вы привыкли к старому не плоскому доку, то сможете найти классическую тему в списке. Также здесь есть 3D темы, тёмный док и другие, более вычурные варианты.
-Устанавливая разные значения, можно изменять размер, скорость появления и отступы между иконками. Есть функция «Dim hidden items», позволяющая затемнить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2020Разработчик: Wolfgang BairdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2072E84C518C8DA0C0F8686A2656342AE55DCB10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672078   (169814) от 27.10.2023
-
-eM Client Pro 9.2.2157.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169814.jpg" />
-</div>
-
-
-###  Подробнее
-
-eM Client - мощный клиент электронной почты. Помимо основного функционала, необходимого для полноценной работы с e-mail корреспонденцией (прием, отправка, чтение, написание, удаление, переадресация, сортировка, массовая рассылка электронных писем), он имеет в своем арсенале множество новинок. В их числе отличный мультифункциональный органайзер со встроенной адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6021EC487DFF6696B825556E55227C7F76AEE4
 ```
 
 

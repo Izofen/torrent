@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33321.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2B468C44BD48963594102F9D77ADA1C4589748D0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33322.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33323.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AA75967A70773793F115EE8EB0605DB465D2111B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33324.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DA5552EDCB02CC4CC80829F866E31066775DC04B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33325.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DA5552EDCB02CC4CC80829F866E31066775DC04B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33326.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5A6ED8F233CBD32BDBBC6D77035C657AE1F06B5E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33327.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C3036389D6AC44968E231371B4AC4660B60B1B53
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33328.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:454B61BB4DAB5DED38F283DDE4D82579221BFD5D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33329.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Wise Registry Cleaner Pro 11.1.9.724 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33330.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E021580E185C36B5BDF0FF020A98D71000AD62D4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33331.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:22EB40A9000476DA9F859AF36F5ED6EFA326FF11
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33332.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33333.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fritz Powerbook 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33334.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8D8B0A36D809F2D736CD72BCFEE534D31472147B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33335.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1BD10AAED9998B3C91748606D1A2D1A7EEFDBB20
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33336.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:96C7BECAD6C3D79653C46E197400A6A118E5F922
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33337.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Tracktion Software - BioTek 3 3.0.3 VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33338.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33339.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C8C22CD4645D1AFF24B64AB274530E13065897D1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33340.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:ECCCB9F82495A992B004BABEE4BA8DC362BF8F17
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33341.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Новогодняя тридцатка 2025 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33342.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:C66C741FC84A1F5F83C5DE7A2D4FDC2A286B1D0D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33343.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:CB4DA5FD1B37E6B4AF9EF492B859A40B61A84495
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33344.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33345.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:C713BC218180531BF87E700FB359B03FBA8E30BE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33346.jpg" />
 </div>
 
 

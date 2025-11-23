@@ -1,3 +1,27 @@
+###  Публикация: 965089   (228000) от 13.12.2015
+
+Что? Где? Когда?  Зимняя серия игр. Игра 3 (2015.12.12) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_228000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТелепередачаПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A37CC2DE85C664F1A54D224C88639E545217767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583582   (228884) от 15.10.2022
 
 Сто к одному (15.10.2022) WEBRip [H.264/720p-LQ]
@@ -6,7 +30,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228884.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_228884.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:99E910A31BD262FDB86FFEBF7A6A52425AB93653
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228930.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_228930.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:96A9AA8A23F77657E5B9A0B322865AAC04714B3F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229791.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_229791.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:AC2C7EDF118D8C53DFFA589BA9E0AA0126739DFE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231798.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231798.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:C461588077EED442C7372E38CE8238BF9B021208
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231814.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231814.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:763AB30CFDC73108611FA5CB620ED38EA182E8B9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231969.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_231969.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:C61743C3134CFE55F8DF1F1851F3361220B0ECE1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_232002.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:202F71565090495F0D9A7B0BCE6909A17E736B5B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232624.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:45D5540A6E1B54218139DBA0658DD0140596F22F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233315.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233315.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:D91BE975489997D7DB6B6D2FBCD6161487F60404
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233366.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233366.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:37740AB574A37B793F76F8B3FF4EF8FE47735811
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_233969.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:8AD2C364CF58201FC333D07D1E04CA1DFF04DD32
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234203.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:2218336D2C3B86451ED40F50CECE99B47AAD1769
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234347.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234347.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:11E75D18B99751A4CB9E00DAA35463F76E68E7F0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234485.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234485.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:1F89DB32F66645BF19B874C93F57357F43319204
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234503.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234503.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:A08253DDE525D7F028715AFB7E7FC65E990F80AF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234703.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_234703.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:0E53CB75C38E7CED5E6836608540D7434B07A288
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234895.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:30D3304B962D5AA53371C3D90BB772B5CAD20644
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_235201.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:0990C4528A83F0CEA933375237942BE6A19F4A5C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235229.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235229.jpg" />
 </div>
 
 
@@ -462,7 +486,7 @@ magnet:?xt=urn:btih:9BE6C7685DB304CE39AFE74BDA68216B33F0EEBF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235320.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235320.jpg" />
 </div>
 
 
@@ -486,7 +510,7 @@ magnet:?xt=urn:btih:AA410FEBCF468F66ADB9C991C3A4A36F197F882D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235334.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235334.jpg" />
 </div>
 
 
@@ -510,7 +534,7 @@ magnet:?xt=urn:btih:3505F8BCAC11BD2477A9377C6946B24A23558FE4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235359.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235359.jpg" />
 </div>
 
 
@@ -534,7 +558,7 @@ magnet:?xt=urn:btih:13E85A0CF8E9F7D1C38638F748C4A6D1091DEE72
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235385.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235385.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ magnet:?xt=urn:btih:848BCE04C1D380ED3C2BD3B38A748DFA2C22DA2A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235600.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235600.jpg" />
 </div>
 
 
@@ -582,7 +606,7 @@ magnet:?xt=urn:btih:91961CAEC9544FE82F078C1004190D831C512528
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235618.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_235618.jpg" />
 </div>
 
 
@@ -593,30 +617,6 @@ magnet:?xt=urn:btih:91961CAEC9544FE82F078C1004190D831C512528
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE17B69316DA29292241BDE13B420BDFE07E6F69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615242   (235855) от 25.02.2023
-
-Пятеро на одного (25.02.2023) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BA0A35636B206E4EC5D7276C568CF00EA011EB
 ```
 
 

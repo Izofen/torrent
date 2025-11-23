@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52468.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52469.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:79B1C4FC98E90553883E9A492E12E493997CA8C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52470.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GForce Software - Oberheim OB-E 2.6 Standalone, VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52471.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ CopyQ 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52472.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:56CD6E6D2A12E6FF740AA4460B086361649A036A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52473.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:047F87C27B360F7F47974D7558F3FE5F1C5CFB83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52474.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:99C549A42FD660F76030479A26CC6E6F9BAAED36
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52475.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D4BE9F75AF97286F9513B78A5625C37208DF5E64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52476.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52477.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Luminar Neo 1.20.0.13512 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52478.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52479.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52481.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:44A7151F386D0146E3601F1D287CC8DE14AD7A0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52482.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52483.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52484.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ WinDynamicDesktop 5.5.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52485.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:92B87E90328F0D03D4D0E5F8F7134586FD48361D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52486.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ English Galaxy v1.7.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52487.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D134FA3ABEB1CD5FDC03908BA10F62C43E44E0CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52488.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:D134FA3ABEB1CD5FDC03908BA10F62C43E44E0CA
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52489.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:85E92AE06AD81D64DF75AD5F65249B4F3DE4F3F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52490.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Zhiyong Tan | Acing the System Design Interview (2024) [PDF]  [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52491.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:658C46CF86A0584F983949CA7CB1940E8892DE6A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52492.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B241C17B09E0F307DC77F4644FD750C0B14D4074
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52493.jpg" />
 </div>
 
 

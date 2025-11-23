@@ -6,7 +6,7 @@ Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15441.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15442.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rick Tobey - Sippin It Slow Radio Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15443.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul Cargnello - Combat Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15444.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nancy Cassidy - The Devil Wins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15445.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jon Cleary - The Bywater Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15446.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Noir & Gerber - Partout Partout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15447.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hat Fitz & Cara - At The Couch Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15448.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jennifer Lyn & The Groove Revival - Retrograde (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15449.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pagan Altar - Never Quite Dead (2025) [MP3|320 Kbps] <NWOBHM, Heavy Metal, Doom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15450.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:94994C13A95E7778F4DABC373455E2B94CA76635
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15451.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Rolf Ericson & Lennart Aberg - Ellington & Strayhorn (1995) Sittel AB [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15452.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Excessive - Cycles (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15453.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:02FEE23AD670F591AFEFAD01B74D9F9A8D594344
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15454.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E2440D0BD0E37AE8B0C35848717DF9AD94DA8ECE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15455.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Crematory - Destination (2025) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15456.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A93DFCF6C425B9970CC48E055BC66C8691369E2C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15457.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:59E0AF58EE4606F25E6A94BCCE93340F93B43444
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15458.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:278FE603559182A934786554DC1A96900F6F9C04
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15459.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:371C5DC350FC0B65497403B445AA380FAB16F995
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15460.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0CEEDF98F3FDF85EFD1A405D1A8878E0AF61F374
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15461.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15462.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:BCE79062004401CC8271E50906B60864F4513897
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15463.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15464.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:430CBAB71A40D448A70F4C0AFAE6A49A01D42CF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15465.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15466.jpg" />
 </div>
 
 

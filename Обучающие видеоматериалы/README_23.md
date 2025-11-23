@@ -6,7 +6,7 @@ plants.coach, Яна Строинская | Мини-курс по переса�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50146.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50205.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ elena-udalova.ru, Елена Удалова | Курс немецкого язы
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50473.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Luke Goodhue | Обработка пиломатериалов от чернов
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50671.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51023.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Gary Rogowski | Столярные работы с ручным фрезером
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51082.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51230.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51231.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ LiveClasses, Константин Тимофеев | Основы моделир
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51255.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51336.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51362.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51367.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51371.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51426.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51450.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:ACCF8962E4F9BD6C8FE1BFA15DCD356A6439AD83
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51516.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51523.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:5B58DD035FD41689F119B07D98665EA7FF85D0F3
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51531.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:90E1906B699B7AF4098A02120900DA5E63E9DCE0
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51537.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:32DC038DFBE6FA0CFED6BAADA44DF48825391B25
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51744.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Pluralsight | Разработка печатных плат с Eagle (2015) PCR
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51893.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Austin School of Furniture & Design, Alex Lohn | Конический журна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52039.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52055.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Udemy, Vassilyi Gudomarov | HTML5 и CSS: Полный курс верстки �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52436.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52438.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Krav-maga, Антон Фарб  | Sucker Punch: Искусство подлог�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53045.jpg" />
 </div>
 
 

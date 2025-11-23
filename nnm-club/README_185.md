@@ -6,7 +6,7 @@ Bandicam 8.2.1.2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4868.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FDBA0A25F659CCE51B904561ED4ABE42B228EAC1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4869.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6689AE5806131428E5760985E70C45DF3A2B1129
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4870.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MyLanViewer 6.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4871.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4873.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Mechabellum (2023) [Ru/Multi] (1.7.1.0.1780/dlc) Repack Let'sРlay [Premium Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4874.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C81846511D61020F98096C844B3FD8FD4D64C0F1
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4875.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:23EAB0386502409A5A59E9648ECB16346FFF8FDA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4876.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:69A24299F69A583CC982CF4F00847D25411A5695
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4877.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C0DAB0CE8FD0A98097B03DECE18F604661969354
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4878.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4879.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:DD67FE848764A8543D2789F0E41D7BF1439BCFDF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4880.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7425944B97BA8C868FB30283B15211CECF417707
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4881.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3F61E1A83A1052E5010A329E8774DBE65E227339
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4882.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:CDAF2A9B184175D9F37050B007E2A1FBB01AF058
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4883.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D7C6BD9E991C59FCB5FFAE2EA06786AD7A78E00E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4884.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:86E68C202666ABD3C5326496146AE1C731D87993
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4885.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:86E68C202666ABD3C5326496146AE1C731D87993
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4887.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C3D098C424253CF2B0C87DD8A93DE866E298D90F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4888.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:7F72F04B0DB1BA83539F4675EF1866FEC3D7315A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4889.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 27.08.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4890.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4891.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Multiboot Collection Full v.8.7 (Обновляемая)  [Ru/En]
 >>92
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4892.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:25D47DB739C62400B6B73003E755B089D1655162
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4895.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Multiboot Collection Full (ISO) v.8.7 (Обновляемая)  [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4896.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:867406CC34781D92B9C9AA9531207615640AFB53
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4897.jpg" />
 </div>
 
 

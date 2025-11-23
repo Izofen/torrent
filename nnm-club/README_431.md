@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11422.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:29323C119638EB738234150D37539E0D09AB6F36
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11423.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11424.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B318E98D2463813D787D4EB6F1406A8061F0C980
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11425.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B318E98D2463813D787D4EB6F1406A8061F0C980
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11426.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Movavi Screen Recorder 24.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11427.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows Server 2022 LTSC [10.0.20348.3932], Version 21H2 (Updated July 2025) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11428.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1450659797A6DD5C66F1EE5DE1171AF92CA0FEBF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11429.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Microsoft Windows 10 [10.0.19045.6093], Version 22H2 (Updated July 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11430.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:33325AD3A325B3141644762165F5BE6D09E5CB9A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11431.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Cent Browser 5.2.1168.57 Beta Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11432.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B8EEFC4BE11FD426FC475F325FC7D71A075670F7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11433.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VirtualBox 7.1.12 Build 169651 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11434.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ OBS Studio 31.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11435.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11436.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (15.07.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11437.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B36B7C02D5580A21D9C725C3F86412BF126271F6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11438.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11439.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:0E18B253ECA697868AD04F17EAD5D5D0D51E44EC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11440.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Driver Easy Pro 7.0.1.19430 RePack (& Portable) by elchupacabra (14.07.2025) [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11442.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Balun.Courses, Владимир Балун | Concurrency в GO (2025) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11443.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:14A84FE07F70123C8D7633D4FE5639E23A19017A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11444.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:62F06B83DCF3E6DB71C1491433CB05599253562E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11445.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:62F06B83DCF3E6DB71C1491433CB05599253562E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11448.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:62F06B83DCF3E6DB71C1491433CB05599253562E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11449.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FBReader Premium v3.8.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20423.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9B64C98B61815D31026074D7015FBE44544490E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20425.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:130900A2FF4A8ED7417EF0823D3FBE68B4A167D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20426.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20426.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9733F735DF814ADB90ACC12E4189F7EB1BC6C792
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20428.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20428.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ v2rayN 7.11.2 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20429.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 27 Public Beta 2 RePack by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20430.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20430.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20431.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20432.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20432.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FCD15098988A502CB55F0F71B9E0B71725EB8A18
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20433.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BB8387998A02DE1722A059BB7D2683464F15D269
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20434.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20434.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:70E29387A51231FA3B2283EE03AB62A1E8CA800F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20436.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Reg Organizer 9.71 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20437.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20437.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D246A12EDAC9BC7D7641FEB290B0397CDF9ED5BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20438.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20438.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20440.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20440.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ashampoo 3D CAD Professional 12.0.0 Portable by FC Portables [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20441.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:AA03E6D132E2FCBD03A0DF54B6373819B419F262
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20442.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:42137FA22E5D777D99489111453A675C8673E6DD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20443.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:274531EEA629BD15D9B9833D88FEB47EA29395BB
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20444.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20444.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Scorpions - Compilation (1972-2022) [MP3|320 Kbps] <Hard rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20445.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ StartAllBack 3.9.8 build 5270 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20446.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:B06F79FEF6EEF1B9EE57EA7214E0AEDA3A5A0780
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20447.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20448.jpg" />
 </div>
 
 

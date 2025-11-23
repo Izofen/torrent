@@ -1,3 +1,76 @@
+###  Публикация: 1600209   (158986) от 26.12.2022
+
+Wondershare UniConverter 14.2.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
+Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBF58C48B5F54531B37600BB9E0144C7679DA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600281   (159000) от 26.12.2022
+
+Apeaksoft iPhone Transfer 2.0.60 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apeaksoft iPhone Transfer может передавать файлы гибко, чтобы удовлетворить различные потребности пользователей. С безопасностью и высокой скоростью, это делает бесплатной передачу данных между устройствами iOS, ПК и iTunes. Это альтернатива, но превосходит iTunes. Вот что он может сделать для вас. Благодаря высокой скорости 60x вы можете быстро передавать фотографии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.12.2022Разработчик: © 2022 Apeaksoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742810900B9ECB53AF76178B17A474DA88A72ACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676233   (159007) от 12.11.2023
+
+OmniReader Pro for Mac 2.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159007.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04403E6DD5CE3E386E84658C842F765B54856C71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676241   (159016) от 12.11.2023
 
 Vellum 3.6.1 [En]
@@ -6,7 +79,7 @@ Vellum 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159016.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ AnyMP4 iPhone Transfer Pro 9.0.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159021.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159035.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159051.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ The Invincible (2023) [Ru/Multi] (44.304/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159058.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159075.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:CE691D0F707AFB0F5071A3BA7083904F3D4EF2A7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159097.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ magnet:?xt=urn:btih:6F2EF4240F2715D1CE13660AB2D7A3D1AF5F58D7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159105.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159107.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ Maxon Cinema 4D Studio 2023.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159185.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159189.jpg" />
 </div>
 
 
@@ -279,7 +352,7 @@ Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159190.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ PIDKey Lite 1.64.4 b36 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159206.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ WPS Office + PDF 18.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159216.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ DVDFab StreamFab 6.1.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159220.jpg" />
 </div>
 
 
@@ -375,7 +448,7 @@ Notepad++ 8.4.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159222.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ MailWasher Pro 7.12.184 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159229.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ Image Uploader 1.3.3 Build 4957 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159232.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ Cockos REAPER 6.73 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159236.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ Skype 8.108.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159241.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ Pipette 2022-10-22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159246.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159248.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ PictureThis - Plant Identification v3.69 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159274.jpg" />
 </div>
 
 
@@ -555,78 +628,6 @@ PictureThis - Plant Identification v3.69 Mod by youarefinished [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B162E96FCAC70960923493E0C8B580CEC344DB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675940   (159278) от 11.11.2023
-
-Fitify: Фитнес тренировки дома 1.59.1 Mod by Balatan [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к более чем 10 миллионам людей, которые занимаются с помощью тренировок и планов от Fitify. С нами вы можете тренироваться дома с использованием только веса вашего тела (без оборудования!). Однако мы здесь представляем единственное приложение, которое также предлагает тренировки и тренировочные программы с использованием снарядов для фитнеса.Тип издания: ProРазработчик: Fitify Workouts s.r.o.Поддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C8ADD9057BD4DF64FD5AF3E7F6868BFF9AF0DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600024   (159291) от 25.12.2022
-
-Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159291.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B0AFD423C81C392AE9A490A06D94FBC2A6C6D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675939   (159295) от 11.11.2023
-
-Photo Studio PRO v2.7.1.2139 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: ProРелиз состоялся: 17.11.2023Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30801692394450FF9D2EB253F2FD84E278D97AD2
 ```
 
 

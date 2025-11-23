@@ -1,3 +1,77 @@
+###  Публикация: 594216   (133811) от 25.12.2012
+
+Contre Jour [Игра] (Android)
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вам игру Contre Jour, где Вам предстоит отправиться в необыкновенный мир, причудливо взаимодействует свет и тьму. Управление очень простое и интуитивное. Вы можете одним пальцем трансформировать пейзаж, которое приводит таинственное существо в безопасность. Хитрая головоломка не оставит Вас равнодушным! Это одна из наикрасивейших игр года.
+
+В игре множество особенностей: 5 глав, которые показывают 100 уникальных уровней, бесконечные часы увлекательной игры, потрясающая визуализация, Вы можете осваивать 12 элементов: рогатки, порталы, воздуходувки, щупальца и многое другое, потрясающий саундтрек идеально подходит для необычного путешествия этого существа по имени Petit, откройте различные, столь увлекательные достижения.Android версии 2.2 и выше
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680867   (133812) от 30.11.2023
+
+Chromium 119.0.6045.200 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD8A71F200CF83BCAB397434FF05328654C7332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594462   (133813) от 25.12.2012
+
+Kaspersky CRYSTAL 13.0.2.558 RC [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky CRYSTAL обеспечивает защиту "все-в-одном" для вашего компьютера и важной информации с помощью необходимых компонентов: комплексный антивирус, веб-защита, персональный фаервол, резервное копирование данных и родительский контроль. Дополнительные инструменты безопасности (диск восстановления, безвозвратное удаление данных, удаление следов активности и др.), Безопасная среда "песочница", шифрование данных и менеджер паролей обеспечивают дополнительный уровень защиты компьютера и информации.Название программы: Kaspersky CRYSTALЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680622   (133814) от 30.11.2023
 
 Брайан Трейси | Найди свой путь к богатству (2022) [MP3, Амир Шакиров]
@@ -6,7 +80,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133814.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:C85AA2D22B2A1B4F7D357CDD00796989B34023D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133815.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ Flyingbee PDF to Word for Mac 8.5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133816.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ Paradise Lost - Icon 30 (2023) [MP3|320 Kbps] <Gothic metal, Doom metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133818.jpg" />
 </div>
 
 
@@ -106,7 +180,7 @@ Affinity Publisher 2 v.2.3.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133819.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ Pixea Plus for Mac 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133820.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:4436ABAF7138B4BB52A80F11CABD8F524BF3B0B7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133821.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ magnet:?xt=urn:btih:6D8996603F3140A1713730D24C50CD33157E18AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133822.jpg" />
 </div>
 
 
@@ -204,7 +278,7 @@ Trimma for Mac 1.6.884 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133823.jpg" />
 </div>
 
 
@@ -228,7 +302,7 @@ Mobizen Screen Recorder 3.10.0.31 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133825.jpg" />
 </div>
 
 
@@ -252,7 +326,7 @@ Cobra Spell - 666 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133827.jpg" />
 </div>
 
 
@@ -279,7 +353,7 @@ Adobe Photoshop Express 11.7.176 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133829.jpg" />
 </div>
 
 
@@ -303,7 +377,7 @@ magnet:?xt=urn:btih:A854A1299F9F375153FEEA9EA2A0F6D00B6C766C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133830.jpg" />
 </div>
 
 
@@ -327,7 +401,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133831.jpg" />
 </div>
 
 
@@ -354,7 +428,7 @@ Capture One 23 Enterprise 16.3.2.32 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133833.jpg" />
 </div>
 
 
@@ -379,7 +453,7 @@ Process Lasso Pro 12.4.3.14 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133835.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ magnet:?xt=urn:btih:C56460B2F07A73194F9BA3F6532DB02815FA5CA1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133837.jpg" />
 </div>
 
 
@@ -428,7 +502,7 @@ Disk Space Fan 4.5.4.152 Final [MULTi + Русский]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133838.jpg" />
 </div>
 
 
@@ -454,7 +528,7 @@ Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133839.jpg" />
 </div>
 
 
@@ -481,7 +555,7 @@ magnet:?xt=urn:btih:B2FA51F375D92802EED625A96D517490E56EC425
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133840.jpg" />
 </div>
 
 
@@ -505,7 +579,7 @@ magnet:?xt=urn:btih:4DA5924EB685464F0E7D9493216CB675C2B74E68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133843.jpg" />
 </div>
 
 
@@ -530,7 +604,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133844.jpg" />
 </div>
 
 
@@ -554,7 +628,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133846.jpg" />
 </div>
 
 
@@ -566,81 +640,6 @@ Waves Complete v9r7 (x86/x64) [Английский]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C61083D85929E1BF9DB080D7C94FEE7C2F641C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680830   (133848) от 30.11.2023
-
-Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie, Ambient, Neoclassic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thought (Instrumental) (4:00)
-02. And Let It In (Instrumental) (3:28)
-03. Who Are We (Instrumental) (4:24)
-04. Crystal Light (Instrumental) (4:19)(   Читать дальше...   )Жанр: Alternative, Indie, Ambient, NeoclassicПродолжительность: 2CD, 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE84171B1D6278E6E1E82D55B141E359C253336
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680703   (133850) от 30.11.2023
-
-Журнал | Australian Wood Review №121 (октябрь-декабрь 2023) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Australian Wood Review предназначен для всех любителей и профессионалов в области деревообработки и столярного дела. Предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены понятными схемами (   Читать дальше...   )Жанр: Столярное делоЯзык: АнглийскийИздательство: Yaffa Media Pty LtdФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0661C8F313FF50B738C1ED48CA39DD04904212E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593924   (133851) от 25.12.2012
-
-[Программа] (Android 2.1+) Icon Changer 2.5.3 - Замена иконок приложений
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icon Changer - приложение для замены иконок приложений (в Меню иконки не заменяет) при замене на домашнем экране появляется новая иконка того приложения в котором вы заменили ее. Можно использовать как картинки из галереи, так и уже готовые иконопаки (можно скачать у разработчика).Разработчик: JuyeongЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

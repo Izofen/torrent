@@ -1,3 +1,55 @@
+###  Публикация: 1348567   (143644) от 28.12.2019
+
+Хоккей. НХЛ 2019-2020. Коламбус Блю Джекетс - Вашингтон Кэпиталз (27.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143644.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 декабря 2019 года, суббота 03:00 МСК
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Гислейн Эбер (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1D7EC5B49FD35732AF85ED3ED56B36E3337F1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348563   (143650) от 28.12.2019
+
+Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Нэшвилл Предаторз (27.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143650.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 декабря 2019 года, суббота 04:00 МСК
+Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 849 зрителей (101 % при вместимости 17 722)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB11BCB2C6FF084B821302798571007787F146B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970289   (143656) от 29.12.2015
 
 VA - Magic Trance Yearmix 2015 (Mixed By Beatsole) (2015) [MP3|320 кб/с] <Trance>
@@ -6,7 +58,7 @@ VA - Magic Trance Yearmix 2015 (Mixed By Beatsole) (2015) [MP3|320 кб/с] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143656.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ magnet:?xt=urn:btih:379528C02B7845D9316E5BD41CA06009A84EF2A9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143668.jpg" />
 </div>
 
 
@@ -57,7 +109,7 @@ Steuererklärung 2.10.3 (build 144) [De]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143671.jpg" />
 </div>
 
 
@@ -82,7 +134,7 @@ YouTube Video Downloader PRO 5.9.2 (20171128) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143682.jpg" />
 </div>
 
 
@@ -106,7 +158,7 @@ magnet:?xt=urn:btih:725B054829DE34D05CB9D5A4F84981A1275B9519
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143687.jpg" />
 </div>
 
 
@@ -133,7 +185,7 @@ Movavi Screen Recorder Studio 10.1.0 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143689.jpg" />
 </div>
 
 
@@ -158,7 +210,7 @@ Waterfox Current G6.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143691.jpg" />
 </div>
 
 
@@ -182,7 +234,7 @@ Outline 3.22.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143692.jpg" />
 </div>
 
 
@@ -208,7 +260,7 @@ Mozilla Firefox ESR 52.5.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143693.jpg" />
 </div>
 
 
@@ -232,7 +284,7 @@ magnet:?xt=urn:btih:C7D30C09C5F3DA48F1164F39B483774FE9D99CD8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143704.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ Mozilla Thunderbird 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143709.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ Folder-Factory 5.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143728.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Coolmuster Android Assistant 4.1.24 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143730.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ VA - Infrasonic The Best Of 2015 (Mixed by Ultimate & Moonsouls) (2015) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143738.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ VA - The Best Of Pulsar (2015) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143746.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Wise Disk Cleaner 11.0.6.820 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143757.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ Firefox Browser 120.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143767.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ Allavsoft Video Downloader Converter 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143768.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ magnet:?xt=urn:btih:C34CFCB0438818575572AFD1FC31891AB5911593
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143771.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Red Johnson's Chronicles - One Against All [En] (L/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143789.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ MovieSherlock 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143791.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ VA - Lange Recordings Best Of 2015 (Mixed by Tempo Giusto) (2015) [MP3|320 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143794.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ FonesGo iPhone Unlocker for Mac 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143795.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143802.jpg" />
 </div>
 
 
@@ -599,56 +651,6 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18056754AC72321006D93A6E53541221544E1A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678588   (143819) от 22.11.2023
-
-ProPresenter 7.15 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143819.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
-Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
-Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: ©️ 2023 Renewed Vision, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DE555161213DC1416A06B7E00A7A877A60259C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272290   (143821) от 27.12.2018
-
-Смолфут / Smallfoot (2018) BDRemux [H.264/1080p]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full, SDH), украинские (forced)Продолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC40D5A8CC9AA582EFD8E6F5D80ABBD7B6046DB5
 ```
 
 

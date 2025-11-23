@@ -6,7 +6,7 @@ Luminar Neo 1.20.1.13681 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47182.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:72E7389C7F4702D9E981A5FB1FDBB598A5324485
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47183.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.6 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47184.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47185.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E98AF453F4FA960CDBF9A57EB325A66638DEC115
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47186.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1B98CD97A1654611072C4A316306EEE155A40A65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47187.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47188.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47189.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:38D4D815A6575234FCCAB0B3E16E3A2DC9DC2345
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47190.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0057A3B7A3E68B16B850DCCEF034696023DEC2A8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47191.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B6C667936B7D5B53F74A536EBAEC3786E8DF2357
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47192.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.1 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47193.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:93BA050E23E7C82D2C4AD11BEA6E9F0B20275A19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47194.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0FECA93EE8AA058616694B5047249DAFA79A70AE
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47195.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:14CCC122D461678584BD3DED4B4BECC341A462DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47196.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:0D0A7AC25D70E2DFCB8DD49834F9817FC84D13D7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47197.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0D0A7AC25D70E2DFCB8DD49834F9817FC84D13D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47198.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Smart Tools 2 v1.1.10 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47199.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:1F5DA8DFC89B180423CEFAEDE712056409A5C321
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47200.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:0F7A3CB2E33521E237B950E52993776FC4463D2E
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47201.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ System software for Windows v.3.6.3 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47202.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ MX Player Pro v1.86.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47203.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F54913A80E11BC67677F9C590171B15FCD67FE7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47204.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CFD772AFD634978E9180F1F5D3B73D57EC94260F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47205.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:35AE0A9229AA5FE6ED8D76BDAA4E466A30063835
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47206.jpg" />
 </div>
 
 

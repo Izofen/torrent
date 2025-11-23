@@ -1,3 +1,76 @@
+###  Публикация: 1501615   (137042) от 31.12.2021
+
+Меня выгнали из гильдии героев [ТВ-1] | Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shim [2021, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: Приключения, фэнтези, романтикаРежиссер: Хосино МакотоЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Briff, MyAska, Renie (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA11829A6CD3F74F96CEA67F196851C8F786035A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679307   (137043) от 25.11.2023
+
+OpenVPN 2.6.8 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137043.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenVPN – мощная программа для работы с частными виртуальными сетями. Утилита дает возможность использовать и настраивать виртуальные сети на основе точек подключения Wi-Fi или ADSL-модемов. Программа позволяет создавать зашифрованные каналы для подключения к серверу или от одной точки доступа к другой путем переадресации роутера или модема.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B66496BF51E5FE8860E830E79F13982A77753FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601328   (137044) от 31.12.2022
+
+Ламборгини: Человек-легенда / Lamborghini: The Man Behind the Legend (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137044.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самого дерзкого стартапа в мире суперкаров. Путь страсти, проб и ошибок Ферруччо Ламборгини и его превращения из сына фермера, мастерившего тракторы, в создателя легендарной машины, бросившего вызов самому Энцо Феррари.Производство: Италия, США / Ambi Pictures, Grindstone Entertainment GroupЖанр: Биография, спорт, драмаРежиссер: Бобби МорескоПеревод: Дублированный (Мосфильм-Мастер)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:359F9DC4A18C92A3E6118692C42A12570BDEA650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679379   (137045) от 25.11.2023
 
 Цифровой код (2023) WEBRip [H.264/720p] (сезон 1, серии 1-4 из 4)
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137045.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ magnet:?xt=urn:btih:FE6D9F491347069DCA78EE757BE681166995FFBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137046.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ magnet:?xt=urn:btih:87D105B6C94478680BBC59C1540C37E7C02A2FC3
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137047.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ magnet:?xt=urn:btih:933F7180A3552FF1D4C7B552C92192E74B850E5B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137048.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ magnet:?xt=urn:btih:8068DD585D8BC84767E6473F3CFDEE14ABE41AAE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137049.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ magnet:?xt=urn:btih:5E18AF4BDC9AE102A3AC232578BBC4634A40A316
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137050.jpg" />
 </div>
 
 
@@ -151,7 +224,7 @@ magnet:?xt=urn:btih:F90A75FAA6C43709CE0436AD883A45AAC5BAB664
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137051.jpg" />
 </div>
 
 
@@ -175,7 +248,7 @@ magnet:?xt=urn:btih:2CA5315A1EC46737B0CC2648CD70BCBB9186F6AE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137052.jpg" />
 </div>
 
 
@@ -199,7 +272,7 @@ magnet:?xt=urn:btih:7486C785B256FC12C86E23B4E49C49B261C63D11
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137053.jpg" />
 </div>
 
 
@@ -223,7 +296,7 @@ magnet:?xt=urn:btih:4B89A93CC613F2FC31BE63200848B41BC289DF9C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137054.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:5B575A7276091B52F9739315EF55CB6BECEA8CA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137055.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:0407A5CF2A7478119652799CA4D165CBEE8F08A5
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137056.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:8D5323359FDA5B8CCBC1B8B93EC428E2C343314E
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137057.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [30.12.2019] [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137058.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:74F8EBE4B713F4386FF917A5F76D83B432C6EA73
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137059.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ magnet:?xt=urn:btih:ABC3DD2A1E85933F8EB384979249CE36020F7C74
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137060.jpg" />
 </div>
 
 
@@ -399,7 +472,7 @@ magnet:?xt=urn:btih:9504D686FC0EE4592FAE133E074769419D82882C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137061.jpg" />
 </div>
 
 
@@ -423,7 +496,7 @@ magnet:?xt=urn:btih:319EB83088F66A5D94BBF9F7E754CA7F02C1B576
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137062.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ magnet:?xt=urn:btih:BE031A355BEE7E8FAA16BE1D9A82751AAE4C18D5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137063.jpg" />
 </div>
 
 
@@ -471,7 +544,7 @@ magnet:?xt=urn:btih:DA8B8C2B65612DA930DB5ED9D91BFD65C24DBDCA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137064.jpg" />
 </div>
 
 
@@ -495,7 +568,7 @@ magnet:?xt=urn:btih:C3A2FE83EF735BD4EEA3DE1AFE415BBEBFFECE21
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_137065.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_137065.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137066.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137067.jpg" />
 </div>
 
 
@@ -557,80 +630,6 @@ magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4042554C83CD0E2EC0AE17D4D05E22E6BE5B9BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349188   (137068) от 31.12.2019
-
-Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания, Невафильм, Roth Films, Walt Disney PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Язык озвучки: Русский, Казахский, АнглийскийСубтитры: Русские (Full, SDH), Казахские (Forced), Английские (Full)Продолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC21B0D9A509624CFC0CD084B10097B21891D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436348   (137069) от 31.12.2020
-
-Векторный клипарт - New Year and Christmas illustrations in vector 45 [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-10 AI, EPS + previewФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07360CACD34C20FA13EE82C53AB24DCAB8D8354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520937   (137070) от 31.12.2021
-
-Мажоры на мели / Pourris gates (2021) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер в Монако устал от капризов собственных детей и решает преподать им урок. Он объявляет, что стал банкротом. Теперь избалованным отпрыскам придётся делать то, что они никогда не делали: пойти работать, научиться любить и ценить жизнь.Производство: Франция / Borsalino Productions, TF1 Studio, Apollo FilmsЖанр: КомедияРежиссер: Николя КюшАктеры: Жерар Жюньо, Камиль Лу, Артюс, Лука Мелиава, Франсуа Морель, Том Либ, Элеа Клер, Франк Адриен, Жоффрей Вебрюгген, Фабьен Ара, Колетт Крафф, Жан-Батист Сагори, Эмили Ашкенсау, Виктор Сансано, Эрик Марсель, Виктор СансанПеревод: Дублированный (iTunes)Язык озвучки: Русский, французскийСубтитры: Русские (forced, full), английские, французскиеПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C90CC5D727CA03FBF30B666184EB439B7579ABF
 ```
 
 

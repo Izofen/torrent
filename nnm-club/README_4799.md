@@ -1,3 +1,186 @@
+###  Публикация: 1677843   (148751) от 19.11.2023
+
+Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl You Know It's True [00:03:18]
+02. Baby Don't Forget My Number [00:04:10]
+03. Blame It on the Rain [00:04:08]
+04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087030   (148752) от 26.12.2016
+
+John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rehearsin' For A Nervous Breakdown [02:39]
+ 02.Undecided [02:59]
+ 03.It Feels Good [02:48]
+ 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519471   (148753) от 24.12.2021
+
+Battery Indicator for Mac 2.11.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4115BAD323473865315735B3DE9F9CED51CD18AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271714   (148754) от 24.12.2018
+
+Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Goes My Baby (5:08)
+02. Gypsy Woman (6:12)
+03. Any Day Now (5:18)
+04. Glimmer Twins Medley - Let's Spend The Night Together (4:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB61F2EF8B6FF6163D13FFAC1887FF354B4E2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347560   (148755) от 24.12.2019
+
+VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead-Tones - For The World To Know About (original mix) (7:38)
+02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
+03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
+04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434627   (148757) от 25.12.2020
+
+Татьяна Маричева | Школа Продюсера. Тариф Запуск + дополнительный поток (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сделаете запуск своей онлайн-школы прямо в процессе обучения под руководством опытных наставников-практиков
+За два месяца вы изучите все аспекты онлайн-школ от поиска эксперта до продаж на вебинарах, внедрите это в свою работу
+
+В результате обучения вы станете профессиональным продюсером онлайн-школ, а это на мой взгляд – самая востребованная профессия в 2020 (   Читать дальше...   )Производство: Школа ПродюсераЖанр: Видео-курсЯзык озвучки: РусскийПродолжительность: 32:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088F29A67E1FE4159A2B52A87AE2311FA9D2CD81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589790   (148758) от 15.12.2012
+
+Большие олимпийские гонки. Выпуск №1-13 (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера игры «Большие гонки» состоялась во Франции в 1962 году. Идея веселого состязания между странами принадлежит бывшему Президенту Франции Шарлю де Голлю, он таким образом хотел объединить молодежь Европы и укрепить дружбу между странами. Россия впервые приняла участие в играх в 2005 году. Традиционно соревнования проходили во Франции. Вот уже много лет изюминкой «Больших гонок» являются быки, поэтому в этом сезоне смельчаки отправились на родину корриды в Испанию. Испания – страна страсти, корриды и страна, где проходили ХХV Олимпийские игры. Барселона впервые принимает у себя Большие Олимпийские гонки. Восемь стран-участниц сойдутся в состязании под испанским небом, чтобы определить триумфатора.Жанр: ТВ-ШоуФормат: AVIПродолжительность: 13х~01:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3679DBC689861872A44F42AE0FF313B6B86334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347703   (148759) от 24.12.2019
 
 VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
@@ -6,7 +189,7 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148759.jpg" />
 </div>
 
 
@@ -33,7 +216,7 @@ magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148760.jpg" />
 </div>
 
 
@@ -57,7 +240,7 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148761.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148762.jpg" />
 </div>
 
 
@@ -111,7 +294,7 @@ Clean Space 2015.04 Portable by SoftsPortateis [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148763.jpg" />
 </div>
 
 
@@ -135,7 +318,7 @@ Udemy, Андрей Сумин | Java с нуля до Junior + Подготов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148764.jpg" />
 </div>
 
 
@@ -160,7 +343,7 @@ Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148766.jpg" />
 </div>
 
 
@@ -193,7 +376,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148767.jpg" />
 </div>
 
 
@@ -220,7 +403,7 @@ Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148768.jpg" />
 </div>
 
 
@@ -247,7 +430,7 @@ magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148769.jpg" />
 </div>
 
 
@@ -271,7 +454,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148770.jpg" />
 </div>
 
 
@@ -298,7 +481,7 @@ magnet:?xt=urn:btih:C9598868ABB1E737F73E814B46D9263DE9F4DC4F
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148771.jpg" />
 </div>
 
 
@@ -322,7 +505,7 @@ magnet:?xt=urn:btih:E9E6E6CEB5845A1AACE279150BB066F59E85F439
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148774.jpg" />
 </div>
 
 
@@ -346,7 +529,7 @@ BusyCal 2021.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148775.jpg" />
 </div>
 
 
@@ -371,7 +554,7 @@ magnet:?xt=urn:btih:C9E4D5DAD22C945F48126EEA77AF9EB1329E455B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148776.jpg" />
 </div>
 
 
@@ -398,7 +581,7 @@ magnet:?xt=urn:btih:E19D04D0FF3F2E2377CE08CF07D010AE869A86EB
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148777.jpg" />
 </div>
 
 
@@ -422,7 +605,7 @@ Vivaldi 2.10.1745.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148778.jpg" />
 </div>
 
 
@@ -446,7 +629,7 @@ magnet:?xt=urn:btih:EC1C392B0D067150689BC55EEDCE8816795D5AF3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148780.jpg" />
 </div>
 
 
@@ -470,7 +653,7 @@ magnet:?xt=urn:btih:2DD61AE1C3248A5C0043156302B6A5467407EF5B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148781.jpg" />
 </div>
 
 
@@ -481,183 +664,6 @@ magnet:?xt=urn:btih:2DD61AE1C3248A5C0043156302B6A5467407EF5B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92912408124DD09268E24205F2E650F070BCBF40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969087   (148782) от 26.12.2015
-
-Татьяна Шиканян | Библия ландшафтного дизайна (2015) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знания, которые владельцы загородного коттеджа и дачных участков почерпнут из этой книги, уже сейчас позволят им правильно спроектировать пространство вокруг дома, выбрать растения для сада и строительный материал для дорожек, создать изысканные цветники, постичь тайны «рождения» хорошего газона, выбрать оптимальное место для водоёма и многое другое. Основы ландшафтного (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDB0E6DD66D1A1A39079F568D9D97D977E628C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347759   (148783) от 24.12.2019
-
-Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Бостон Брюинз (23.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148783.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 декабря 2019 года, вторник 03:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (102 % при вместимости 17 565)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0491C67CD2383E5754F6F2298F70DACBE671E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677840   (148784) от 19.11.2023
-
-Владимир Высоцкий - Прерванный полёт ( 1996 ) 2CD [FLAC|Lossless|tracks + .cue] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Троя
-02. Охота на волков
-03. Заповедник
-04. Конченый человек(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9869CF3A2CD2775315A7C326A8D7D66BE288F4CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969300   (148786) от 26.12.2015
-
-Проекты - Проект ProShow Producer - Рисует иней образ твой [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимний проект от нашей одноклубницы Hivatusya. Презентация в романтическом жанре. Проект отредактирован и пересохранён в PSP-6 в связи с переименованием файлов содержащих в названиях рекламу сторонних ресурсов. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена (   Читать дальше...   )Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87847E1919BADC479C5F86A786B8A7A23793D92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434676   (148787) от 25.12.2020
-
-Нетология | Интернет-маркетолог - от новичка до профи (расширенная  версия) (2018) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте digital-профессию, входящую в топ-10 самых востребованных в России (по данным hh.ru)
-
-Чем занимается интернет-маркетолог.
-Составляет маркетинговую стратегию компании, разрабатывает УТП, работает с позиционированием и запуском продукта или услуги на рынок(   Читать дальше...   )Производство: НетологияЖанр: МаркетингПродолжительность: 24:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D05EE1A31099CC0C0C8434349B0FE5F7CADA5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589675   (148788) от 15.12.2012
-
-[Wallpapers] Обои ЦВЕТЫ(часть вторая)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые цветы на рабочий стол отличного качества.Часть вторая.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8B9A8F24745FA1C6ACC167D631DF3AB3195320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969281   (148789) от 26.12.2015
-
-Disk Drill Entreprise 2.4.437 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill - восстановление информации без помощи специалистов
-Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 14 декабря 2015Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1A4C58CC8802B516E4D4075C8CED039A3890B8
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1707192   (113438) от 15.03.2024
+
+Speedtest от Ookla 5.3.3 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.02.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF63AA46F18BF19743850DFD9AAC85342957BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707227   (113439) от 15.03.2024
+
+Телепат / Stir (1980) BDRip [H.265/1080p] [10-Bit] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о восстании заключенных, произошедшем в тюрьме Батерст в 1974 году. Сценарист этого фильма был заключенным в тюрьме Батерста, когда бунтующие заключенные разорили тюрьму и при написании сценария он опирался на свой собственный тюремный опыт и результаты расследований беспорядков в Аттике и Батерсте.Производство: Австралия / New South Wales Film Corp., Smiley ProductionsЖанр: Боевик, триллер, драмаРежиссер: Стивен УоллесАктеры: Брайан Браун, Макс Фиппс, Дэннис Миллер, Гарри Уоддэлл, Фил Мазервелл, Майкл Гоу, Edward Robshaw, Текс Мортон, Рэй Маршалл, Сид ХейленПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF83A5A274B30F5836833D01CDE99E5067DE9068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707228   (113440) от 15.03.2024
+
+PDF Shaper Premium / Ultimate 14.0 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D17BD46C7B84EC7D1C1761404046E934F10985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707197   (113441) от 15.03.2024
 
 Sumatra PDF 3.6.15987 Prerelease + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ Sumatra PDF 3.6.15987 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113441.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:CB01223230B2AE82201B8418EA4DD100F5BD12C3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113442.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:6642486A790FA00AB87CD9FA52BC277496D024C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113443.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ VA - Classical Music Piano Solo (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113444.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:E37EA9F53378DCCBCD14D14A6CCECBE03023FC8C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113445.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:8AE2C5D2235B475EA08C2D441C66592809D3A280
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113446.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113447.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:84791F48CBC0EA5501E53B986CD99CF4B8C80CF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113448.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:583560B21B32C73CC283443A4E1D601181CADA35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113449.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:473FE4CD214D5FBAD6B4022E33442F8943598DA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113451.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ Opera One 108.0.5067.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113452.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113453.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Above & Beyond | OceanLab - OceanLab: The Anthology (2024) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113454.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ magnet:?xt=urn:btih:C9F5D27FBAF73F6A925531299493C766FC331C42
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113455.jpg" />
 </div>
 
 
@@ -382,7 +454,7 @@ TS Calc 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113456.jpg" />
 </div>
 
 
@@ -406,7 +478,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113457.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ Aborted - Vault Of Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113458.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ Shirley Horn & Dizzy Gillespie - Where Are You Going & The Real Thing (1996) Col
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113459.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ Herb Ellis Trio - Sweet And Lovely (1984) Atlas [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113460.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:55FEDEE28BCEE30FE603883A0CE8E0618C4E0710
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113461.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:FC7F71B577C648910C836E9BB9744217E6DCF447
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113462.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ Hans van Lier Band - It Could Have Been Less (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113463.jpg" />
 </div>
 
 
@@ -576,83 +648,6 @@ Hans van Lier Band - It Could Have Been Less (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:706395D5FA9EC91D011ADF84AC0B2E1752832204
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706783   (113464) от 14.03.2024
-
-Кристина Агатова | Джокер в игре (2024) [MP3, Анастасия Аристархова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты гадаешь на Таро, то рано или поздно придется столкнуться с чем-то посерьезнее, чем прогноз на любовь. К Авроре приходит клиентка, у которой пропал муж! Дело слишком серьезное, но не помочь – нельзя. А карты словно сходят с ума и выдают одни неприятности. Хуже всего, что предсказания сбываются почти мгновенно! Но чужие проблемы – половина беды, а вот когда (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 05:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6183910C079C3B241CCA2757B254BE2417DC2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707006   (113465) от 14.03.2024
-
-Николай Гарин-Михайловский | Детство Тёмы (2005) [MP3, Елена Евтушенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская библиотека.
-Николай Георгиевич Гарин-Михайловский (1852–1906) – русский писатель, путешественник и инженер.
-«Детство Тёмы» – повесть автобиографическая. В ней писатель рассказал о собственном детстве, о пережитых им самим и запомнившихся ему на всю жизнь детских своих радостях, проступках, мечтах. Он писал: «В «Детстве Тёмы» вы прочтете много (   Читать дальше...   )Жанр: Русская литература для детей, классика, повестьИздательство: ДеоникаПродолжительность: 06:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1EB6AE642CB42904E71C5D39DBF81AB17CE8AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706894   (113466) от 14.03.2024
-
-Софья Прокофьева | Приключения жёлтого чемоданчика (2010) [MP3, Мавлюда Гулямова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Софья Прокофьева – русская писательница, неповторимая сказочница. Автор замечательных детских повестей и рассказов «Приключение желтого чемоданчика», «Пока бьют часы», «Лоскутик и облако»...
-Эта книга о том, как можно излечить от страха и печали, злости и глупости, лени и вранья с помощью чудесных конфет, которые хранятся в жёлтом чемоданчике доброго доктора.
-
- Софья (   Читать дальше...   )Жанр: Русская литература для детей, приключения, сказочная повестьИздательство: АудиокнигаПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3BDFE687F3B828271D983228C935240B86DE7E
 ```
 
 

@@ -6,7 +6,7 @@ Fast Screen Recorder 2.1.0.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28870.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TweakNow WinSecret Plus! 6.1.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28871.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ WinTools.net 25.2.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28877.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Extreme Picture Finder 3.66.17.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28878.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VueScan Pro 9.8.44 RePack (& Portable) by elchupacabra (DC 01.02.2025) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28882.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OneCommander Pro 3.95.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28883.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 30.01.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28887.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Wondershare PDFelement 11.4.5.3307 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28889.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MassTube Ultra 20.1.0.116 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28890.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Windows Manager 2.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28896.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28896.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.560 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28977.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ TreeSize Professional 9.4.0.2000 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28979.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ HopToDesk 1.42.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28982.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FreeCommander XE 2025 donor v924 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28984.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CoolUtils Total Doc Converter 5.1.0.356 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28990.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AVS4YOU Software AIO Installation Package 6.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28998.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ AVS Media Player 6.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28999.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Mindroid: AVS, Mind machine v7.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29004.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ CoolUtils Total Excel Converter 7.1.0.89 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29006.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gaia GPS (Topo Maps) v2025.1 b9029 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29008.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:54005B2A81EB4E042A849971354D7D226E8FF37A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29012.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ IPTV Pro v9.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29016.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz Video AI Pro 6.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29020.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ OCCT 13.1.14 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29022.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.27 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29023.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ES File Explorer File Manager v4.4.2.19 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29027.jpg" />
 </div>
 
 

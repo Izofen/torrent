@@ -6,7 +6,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99649.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ M.A.S.S. Builder (2019) [Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99931.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Theatre of The Absurd Collector's Editon (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100132.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100559.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Steel Rain (2015) [Multi] (1.9.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100562.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100577.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100615.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100623.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.7.2.14566) Repack Let'sРla
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100730.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100782.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100802.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100803.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100808.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100871.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101361.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101378.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101379.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101392.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101434.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101587.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101610.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101663.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101860.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Toy Soldiers + 2 DLC [En] (RePack) 2012 | Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102114.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102328.jpg" />
 </div>
 
 

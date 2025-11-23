@@ -6,7 +6,7 @@ Russian Village Simulator / Симулятор русской деревни (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51728.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51741.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Diatomic (2024) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51745.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51817.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51880.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51950.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51968.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Rage (2011) [Ru/En] (1.0.35.4669/dlc) Repack dixen18 [Anarchy Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52001.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack seleZen [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52072.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52110.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6931813/dlc) License GOG [Patches
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52136.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52137.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stronghold (2023) [Ru/Multi] (1.34/dlc) Repack Let'sРlay [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52170.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52180.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ REPUNK (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52191.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack FitGir
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52313.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52317.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52325.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52386.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Whispered Secrets 15: Cruise of Misfortune / Нашептанные секрет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52391.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52395.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52396.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52401.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52402.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52407.jpg" />
 </div>
 
 

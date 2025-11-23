@@ -1,3 +1,80 @@
+###  Публикация: 1767478   (101164) от 22.12.2024
+
+Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерация звука плагина Blofeld обеспечивает типичный насыщенный и богатый звуковой характер Waldorf, который так любят многие пользователи Waldorf по всему миру, когда они играют на своих Blofeld, Q, Q+, Microwave, Microwave II/XT или даже на флагмане Wave. Секрет его звука заключается в мощном движке волновой таблицы, который позволяет создавать эти интенсивные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734CC3B77E7C689770637ADF2CD1E5CBBD91C9E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767542   (101165) от 22.12.2024
+
+Сергей Богачук – Ишмаэль Дэвис / Serhii Bohachuk vs. Ishmael Davis (21.12.2024) WEBRip [H.264/720p] [50fps] [En]
+
+>>Спорт и активный отдых
+>>Бокс
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101165.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 декабря 2024 года в Эр-Рияде (Саудовская Аравия) состоялся вечер бокса серии Riyadh Season, в рамках которого претендентский бой по версии WBC в первом среднем весе (до 69,9 кг) провели бывший "временный" чемпион мира организации украинец Сергей Богачук (25-2, 24 КО) и британец Ишмаэль Дэвис (13-2, 6 КО).
+
+Изначально Богачук должен был встретиться с (   Читать дальше...   )Телекомпания: Великобритания, DAZNЖанр: спорт, боксПеревод: ОтсутствуетЯзык озвучки: английскийПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0ADD9DDA7BD622FBCF033B56D183889AF9F1AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767564   (101166) от 22.12.2024
+
+VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scarlett Johansson - Summertime (3:54)
+02.  Donny Hathaway - Misty (3:39)
+03.  Max Mutzke - Season (feat. Max Mutzke) (4:46)
+04.  Leona Berlin - Nothing Compares 2 U (4:12)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFA88B3E6C6057CFA60BDE8A3D3E0C7CF7C5067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767475   (101167) от 22.12.2024
 
 Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Country Rock, Soft Rock>
@@ -6,7 +83,7 @@ Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101167.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101168.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ magnet:?xt=urn:btih:CC664F1F75369BACE425FF76D6CB7BA052284291
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101169.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101170.jpg" />
 </div>
 
 
@@ -114,7 +191,7 @@ magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101171.jpg" />
 </div>
 
 
@@ -140,7 +217,7 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101172.jpg" />
 </div>
 
 
@@ -167,7 +244,7 @@ magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101173.jpg" />
 </div>
 
 
@@ -194,7 +271,7 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101174.jpg" />
 </div>
 
 
@@ -221,7 +298,7 @@ magnet:?xt=urn:btih:C59758F66C28098A87C97D3766A51B007992D0F6
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101175.jpg" />
 </div>
 
 
@@ -245,7 +322,7 @@ magnet:?xt=urn:btih:0D88FF67A1C321C0A5605C6ABEBBAC8AE46089BE
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101176.jpg" />
 </div>
 
 
@@ -269,7 +346,7 @@ magnet:?xt=urn:btih:AA056A8DA29849862D7943AE1FD2B4F812CC1009
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101177.jpg" />
 </div>
 
 
@@ -293,7 +370,7 @@ SZA – Sos Deluxe: Lana (2024) [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101178.jpg" />
 </div>
 
 
@@ -320,7 +397,7 @@ VA - Rock Women & Girls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101179.jpg" />
 </div>
 
 
@@ -347,7 +424,7 @@ Plugin Alliance - Karanyi Sounds Wavesufer 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101180.jpg" />
 </div>
 
 
@@ -371,7 +448,7 @@ magnet:?xt=urn:btih:A03C6223A3D4EFE80FB98E79CE2D5430510DEED8
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101181.jpg" />
 </div>
 
 
@@ -395,7 +472,7 @@ magnet:?xt=urn:btih:5BF7DD6F623A058CF71BAC882574BD3C719B6FF1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101182.jpg" />
 </div>
 
 
@@ -419,7 +496,7 @@ magnet:?xt=urn:btih:BC5CD215EA07158DFD0CC2DB371FF32EE9B06DC4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101183.jpg" />
 </div>
 
 
@@ -443,7 +520,7 @@ magnet:?xt=urn:btih:DBC875D752E199F8381DF8DBA6EE9B797EBEAB8E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101184.jpg" />
 </div>
 
 
@@ -467,7 +544,7 @@ magnet:?xt=urn:btih:0D88664AE9DEABA68949EDEEBC38C94A04E39FB1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101185.jpg" />
 </div>
 
 
@@ -491,7 +568,7 @@ magnet:?xt=urn:btih:78C9C384A6C039307277F05379AE7287AC71D622
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101186.jpg" />
 </div>
 
 
@@ -515,7 +592,7 @@ magnet:?xt=urn:btih:B161AC02E8F58CA43DAE3931151D0AA39416A8AB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101187.jpg" />
 </div>
 
 
@@ -539,7 +616,7 @@ Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101188.jpg" />
 </div>
 
 
@@ -566,7 +643,7 @@ VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101189.jpg" />
 </div>
 
 
@@ -580,85 +657,6 @@ VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FEA85750854D9E0A256CB4073D688096A5E797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767532   (101190) от 22.12.2024
-
-VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Junkie XL - Come Together (3:14)
-02.  Black Stone Cherry - Rolling in the Deep (Live) (3:48)
-03.  Linkin Park - What I’ve Done (3:26)
-04.  Nickelback - How You Remind Me (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C99400F86DE89E72C857FB75DDA6D870809FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767037   (101191) от 21.12.2024
-
-Газета | Невыдуманные истории №49 (453) (декабрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101191.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D24385B6833AD16C381CA67B474D4EDAD4A1ED4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766994   (101192) от 21.12.2024
-
-Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101192.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Odyl (6:46)
-• 02. Reina (5:35)
-• 03. Poseidon (5:02)
-• 04. The Quest (7:30)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
 ```
 
 

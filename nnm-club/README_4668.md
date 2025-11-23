@@ -1,3 +1,157 @@
+###  Публикация: 969884   (144675) от 28.12.2015
+
+New Age Style - Enigmatic Top. Vocal (2015) [MP3|320 кб/с] <New age, Enigmatic, Vocal>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anisina - Loaded Gun (4:55)
+02. Desert Rose - Fire in your Heart (4:05)
+03. Almadrava - If You Could See My Eyes (5:32)
+04. Saint Of Sin feat. Jenieva Jane - Drowned Inside Myself (3:31)(   Читать дальше...   )Жанр: New age, Enigmatic, VocalПродолжительность: 02:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64914FA892286A13DBEAAE90DF5AEFB7459B1B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348223   (144678) от 27.12.2019
+
+E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:02)
+02. The Winner Takes It All (4:43)
+03. Angel Eyes (4:24)
+04. Fernando (4:16)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66743B434DE3DF88829419D34320116F40BBB02B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272388   (144679) от 27.12.2018
+
+The Alchemist - Lunch Meat (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin Steaks feat. Roc Marciano (1:40)
+02. Judas feat. Westside Gunn & Conway (4:47)
+03. The Hopeless Romantic feat. Action Bronson (2:48)
+04. Massacre feat. Styles P & Benny The Butcher (2:45)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEC118DC11AAED6AB19AFE03969C3F0E2B01D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678406   (144680) от 21.11.2023
+
+First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144680.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIRSTDATE: LATE TO DATE — это романтически-комедийная интерактивная кинематографическая игра (FMV), в которой зритель определяет ход фильма с опциями, появляющимися каждую минуту. Добродетель должна убедиться, что Деря простит ее на этом первом свидании, когда она опаздывает, иначе их отношения закончатся до того, как они начнутся. С решениями, которые он примет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Fossil, Eyexapp PlayЖанр: Adventure (Interactive Movie)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348096   (144681) от 27.12.2019
+
+Подозрительная Сова (2019) WEBRip [H.264/720p-LQ] (Сезон 6-7, серии 101-140)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда сова – это не просто сова. Иногда это российский коп, готовый положить голову, клюв и крылья на борьбу за справедливость. Подозрительная Сова и ее команда вынесут преступность, мозг и мусор из вашей кухни. Новое бескомпромиссное шоу. Нездоровый юмор, концентрированная жизненность и полное погружение в мир совьей подозрительности.
+Ещё два ушишкокуренных сезона (   Читать дальше...   )Производство: Россия, Кит фильмЖанр: Комедия, Приключения, Компьютерная анимацияРежиссер: Евгений Кузнецов, Кирилл Данильченко, Анна МалинаСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCD3519293D993A03E85403DE2EAAF0DB776008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969768   (144682) от 28.12.2015
+
+Коммуналка (2015) SATRip [H.264] (1-4 серия из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Анны Сабуровой, сорокалетней привлекательной женщины, со стороны может показаться идеальной: живет в роскошном загородном доме, состоятельный муж-профессор не чает в ней души, любимый сын учится в престижном московском ВУЗе. Всё рушится в один момент, когда муж Анны умирает у неё на глазах...Производство: Россия / АВК продакшнЖанр: мелодрамаРежиссер: Анарио МамедовАктеры: Екатерина Волкова, Дмитрий Миллер, Юлия Сулес, Олег Акулич, Александр Рапопорт, Сесиль Плеже, Юрий Горин, Ирина Чипиженко, Евгения Чиркова, Соня Грачева, Ирина Гришина, Александр Курицын, Никита Манилов, Елена Папанова, Евгения Ахременко и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1623FADED5D051D0FC4B170942FA5F85C57279CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272431   (144684) от 27.12.2018
 
 Евгения Диц | Четыре времени года и другие разсказы (1911) [PDF]
@@ -6,7 +160,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144684.jpg" />
 </div>
 
 
@@ -31,7 +185,7 @@ magnet:?xt=urn:btih:612B1C42C8F2EC021B6611A2237433479D2F7FBA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144685.jpg" />
 </div>
 
 
@@ -55,7 +209,7 @@ magnet:?xt=urn:btih:EF51E48C4F08D9CDF4D7A0FD8EC7663F296D7F89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144686.jpg" />
 </div>
 
 
@@ -79,7 +233,7 @@ magnet:?xt=urn:btih:4FC7ED4D04487C0E0EA34BAAF7E61AB9E222A567
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144687.jpg" />
 </div>
 
 
@@ -103,7 +257,7 @@ JixiPix Romantic Photo 2.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144688.jpg" />
 </div>
 
 
@@ -127,7 +281,7 @@ VA - Summer Ocean: Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144690.jpg" />
 </div>
 
 
@@ -154,7 +308,7 @@ magnet:?xt=urn:btih:4DFB545D745D1AA2978C1EB209A4D3B75BB181BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144692.jpg" />
 </div>
 
 
@@ -179,7 +333,7 @@ VA - Снежный хит-парад. 100 русских хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144693.jpg" />
 </div>
 
 
@@ -206,7 +360,7 @@ Luminant Music Ultimate 2.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144694.jpg" />
 </div>
 
 
@@ -231,7 +385,7 @@ magnet:?xt=urn:btih:7A4D394B126D6939C697512E1BF95FC2040D911D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144695.jpg" />
 </div>
 
 
@@ -256,7 +410,7 @@ PhotoMill X 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144696.jpg" />
 </div>
 
 
@@ -282,7 +436,7 @@ magnet:?xt=urn:btih:ABE2F3CD19C23955FAB30A64AF664CFCC953047A
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144697.jpg" />
 </div>
 
 
@@ -307,7 +461,7 @@ magnet:?xt=urn:btih:30C1449DF7251589A1651A5F4669D43F59A20993
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144699.jpg" />
 </div>
 
 
@@ -331,7 +485,7 @@ The Alchemist - Bread (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144700.jpg" />
 </div>
 
 
@@ -358,7 +512,7 @@ magnet:?xt=urn:btih:811DE748539E48429F6EF42E5B77F25722B8AC8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144701.jpg" />
 </div>
 
 
@@ -382,7 +536,7 @@ magnet:?xt=urn:btih:A4BD965861D9A567CAE8886E78E6BA8C499A6769
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144702.jpg" />
 </div>
 
 
@@ -406,7 +560,7 @@ JixiPix Rainy Daze 1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144704.jpg" />
 </div>
 
 
@@ -430,7 +584,7 @@ magnet:?xt=urn:btih:0423486526CF7BDDF0C46ECEAA23ABD05A70FF4B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144705.jpg" />
 </div>
 
 
@@ -454,7 +608,7 @@ magnet:?xt=urn:btih:C930F8A2C56861F072D6181D03E2F518374B0F15
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144706.jpg" />
 </div>
 
 
@@ -478,7 +632,7 @@ magnet:?xt=urn:btih:D25019F908F2FEBB758D8F94F879C933665AB4D3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144708.jpg" />
 </div>
 
 
@@ -489,162 +643,6 @@ magnet:?xt=urn:btih:D25019F908F2FEBB758D8F94F879C933665AB4D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E649E893671A31F456494CE6249744E3B5E1B216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087600   (144709) от 28.12.2016
-
-Тролль Гнет Ель - Карьялали (2016) [FLAC|lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1. Де-да (05:10)
-02. 2. Карьяллтролль (05:12)
-03. 3. Медведь Йонне (04:30)
-04. 4. Самогонка (03:45)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272305   (144710) от 27.12.2018
-
-VA - Tangled Audio: Best Of 2018 (Mixed by Duncan Newell) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Divisional Phrase - Goner (Ruslan Device & Alex Byrka Radio Edit)
-02.Metta & Glyde - Secret Garden (Radio Edit)
-03.Metta & Glyde - I Wish You Would (Radio Edit)
-04.RYDEX - Fallen Drops (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D493F590F2BACE3AD9D6CEB131060E5B496E25C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435399   (144712) от 28.12.2020
-
-JixiPix Aquarella 1.38 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aquarelle - прекрасный прозрачный и светлый художественный медиа-стиль. Посмотрите, как Aquarella превращает ваше изображение в единое целое с жидкими цветными лужами, плавно смешанными на бумаге, чтобы создать акварель со всеми тонкими деталями, характерными для традиционных акварельных материалов.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: JixiPix SoftwareПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637D8F33CCDF408018297BBE4B8B845D1789F340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272303   (144715) от 27.12.2018
-
-VA - The Best Of Suanda True (Mixed By Tycoos & Elite Electronic) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tycoos - 717 (Extended Mix)
-02. Paul Boyle - Believe (Extended Mix)
-03. Cris Grey - Parallel Dimension (Extended Mix)
-04. Ozo Effy & RYDEX - The Eridium (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA11143627058BFFC0C5F3306C71341D90EB2C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087453   (144716) от 28.12.2016
-
-VA - German Top 50 Official Dance Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Oliver Heldens Ft. Ida Corr - Good Life 3:09
-002.Martin Solveig Ft. Ina Wroldsen - Places 3:23
-003.EDX - High On You 3:00
-004.Robin Schulz & David Guetta Ft. Cheat Codes - Shed A Light 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386632   (144717) от 21.11.2023
-
-Стефан Цвейг | Амок (2009) [MP3, Михаил Гульдан]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новелла «Амок» впервые вышедшая в 1922 году, была первым крупным прозаическим произведением австрийского писателя Стефана Цвейга. Главный герой – врач, живущий в отдаленной тропической деревушке. Внезапно он открывает в себе безудержную страсть к строгой, холодной женщине. В состоянии одержимости, которую герой постоянно сравнивает с распространенным в тех местах (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: Терра-Книжный клубПродолжительность: 02:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E333DDFFB56D8C4648FF23CB82BED1CB5D3CCE8
 ```
 
 

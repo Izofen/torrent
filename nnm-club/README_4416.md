@@ -1,3 +1,75 @@
+###  Публикация: 1436077   (136675) от 31.12.2020
+
+Николай Васильевич Гоголь | Сочинения (2002) [PDF, DJVU]
+
+>>Художественная литература
+>>Классическая поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Васильевич Гоголь (1809†1852) — одинокий гений, таинственная звезда на небосклоне русской словесности — доныне изумляет читателя (и зрителя) поистине магической силой изобразительности. Давно уже возник комический и трагический эпос вокруг имени великого писателя, не замирает озорная карнавальная игра его колдовского, часто скорбного «смеха сквозь слёзы». (   Читать дальше...   )Жанр: Русская классическая проза. Мировая классикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7726905AA5F78C05DDA65EAE4846E42B3C44DECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436450   (136676) от 31.12.2020
+
+Растровый клипарт - Wedding, bride and groom stock photos [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадьба, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4500x3000-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC51D8807E9CB4898460EAAE2CC5B0D52D723C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436435   (136677) от 31.12.2020
+
+Александр Тамоников | СМЕРШ - спецназ Сталина (Книга 13). Один против Абвера (2019) [MP3, Сергей Дадыко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Окруженная под Смоленском немецкая группировка неожиданно прорвала кольцо и вышла из-под удара. Советское командование уверено: немцам кто-то помог, указав слабое место в нашей обороне. На поиски вражеского агента прибыла группа армейского отдела контрразведки СМЕРШ под командованием капитана Алексея Саблина. Оперативники выясняют, что во время оккупации (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBCFA3F7C235D67AD57E9991EED1204471837BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436427   (136678) от 31.12.2020
 
 Растровый клипарт - Girl with dark curly hair stock photo [JPG]
@@ -6,7 +78,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136678.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:4AB7292F6681DE4665A9DB2904D63A2CD9F284CF
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136679.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:EDE421137A35A1183180CA27561B1EE97036C2F2
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136680.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:6F051014C59613C9C20B7B7D3D3C4E3A70973A72
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136681.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:681105E2C802809042F3B5102C1BC5091E15EE31
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136682.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:3E773F3FD5EC9CFF34D438BEDAC85B51E79C861C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136683.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Skype 8.67.0.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136684.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:7DAF13F14E9B4459DF3C16D13F6D1FEDE57C0200
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136685.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136685.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:7DAF13F14E9B4459DF3C16D13F6D1FEDE57C0200
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136686.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:CFA47B5398348271BDA161E92A2C7C9928C8E161
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136687.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:27159CD48FFAA84E46BF667078761207510198DA
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136688.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:2729FCB4B4E5E013BDA9EEA504D0DC1B8DD65377
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136689.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ CoolUtils PDF Combine 8.1.0.65 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136690.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:F93D97635FF730AF050B23C4CCE05DAE9048D545
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136691.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ Auslogics Duplicate File Finder 11.1.1.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136692.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ Reg Organizer 9.88 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136693.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Auslogics File Recovery 12.1.1.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136694.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:5088AEBB4089A9A7AD8BAEF9E98934F35F722BD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136695.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136696.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136697.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:FE8AFCA683AAFA0B56FEA2869B8ED4902A1BBA26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136698.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:208BBB3EB6A20A89F806C837A2EA29DF541BBEF7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136699.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136699.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:208BBB3EB6A20A89F806C837A2EA29DF541BBEF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136700.jpg" />
 </div>
 
 
@@ -555,84 +627,6 @@ magnet:?xt=urn:btih:208BBB3EB6A20A89F806C837A2EA29DF541BBEF7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D299149B19ABB3F89973F2651AA8B525591BF038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347266   (136701) от 16.10.2025
-
-Мужчина в поисках эротики / The Erotic Man (2010) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друг и верный соратник Ларса фон Триера Йорген Лет отправился в путешествие по самым экзотическим странам мира (Гаити, Сенегал, Филиппины, Бразилия, Аргентина и многие другие) в поисках природы эротики. О чем думает женщина, когда смотрит на мужчину? Что она чувствует, когда мужчина смотрит на ее обнаженное тело? Есть ли у обнаженного женского тела свой особый язык? (   Читать дальше...   )Производство: Дания / Nordisk Film, Zentropa ProductionsЖанр: ДрамаРежиссер: Йорген ЛетАктеры: Йорген Лет, Энджел Баяни, Марисса Сью Прадо, Мари Марта Дороти Лагуэрре, Джованна Биотто, Сара Гоглер, Часийен Анн да Силва Оливьера, Ана Флавия Кавальканти Рибейро, Хелена Серелло, Паула Юбе...Перевод: Многоголосый, закадровыйСубтитры: НетПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E430CEB2A5C48A87FD4DBE62DE27E39846D644D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825261   (136702) от 16.10.2025
-
-Kaash Paige - 2 Late To Be Toxic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, R&B, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GOD SAVE ME [00:02:49]
-02. What happened 2 us [00:02:31]
-03. Sexy Freestyle [00:01:46]
-04. High [00:03:21](   Читать дальше...   )Жанр: Alternative, R&B, SoulПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D65AB6E4E8B1E5E65EC18D195F4F7C5CE01E57FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825253   (136703) от 16.10.2025
-
-Patti Smith - Horses (1975) 50th Anniversary, 2025, Arista Records LLC [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume 1
-01. Gloria: In Excelsis Deo [00:05:55]
-02. Redondo Beach [00:03:25]
-03. Birdland [00:09:13](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie RockПродолжительность: 01:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C666046CF83AC2A067B28A68F5F94D33669E4F4E
 ```
 
 

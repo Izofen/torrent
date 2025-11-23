@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118658.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118992.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119073.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119097.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B1F90C5427020CC902B70DC08CECA83868BC50B9
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119110.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119120.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119147.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kim Wilde - Love Moves (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119149.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <R
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119152.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119162.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 100 Hits Number 1s (2018) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119373.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DJ SMASH - MIU MЯU (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119499.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119811.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:454483BB9BA337BF4BC97B1D4D2C0912FC760604
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119943.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:9C3EED0DE8FC151011F6620F2B9BDE1DDBB3D6FE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120082.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:9BF91F793757273866E54F2CD8AC8F1BCA556363
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120129.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:1ECEDBFFF338E42681434B3669885CA4D0A2F2BB
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120138.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120290.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120484.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Weeknd - Double Fantasy (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synth-P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120492.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Dance Power 2 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120532.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Bravo Hits 30 (2000) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120653.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120795.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - 100 Hits Supersonic 70's (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Lati
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120835.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - 100 Hits Ultimate Number 1s (2016) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121002.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121137.jpg" />
 </div>
 
 

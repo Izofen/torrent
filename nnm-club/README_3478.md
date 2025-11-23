@@ -1,3 +1,81 @@
+###  Публикация: 1721220   (110110) от 06.05.2024
+
+Братство Бобра - Братство бобра (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Пролог [00:00:55]
+02 - Король бобров [00:03:46]
+03 - Термиты vs. муравьи [00:03:39]
+04 - Енот некромант [00:06:10](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFC986381B39770DB3BE4029C2D0DFF93610C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721320   (110111) от 06.05.2024
+
+Джек Финней | Интересные соседи (2022) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110111.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Тэд и Энн — новые соседи в доме напротив, и они немного со странностями. Энн, похоже, не умеет пользоваться дверью и у нее есть какая-то необычная салфетка, которую если встряхнуть, она тут же очищается от грязи. А Тэд не умеет пользоваться газонокосилкой, но при этом говорит, что зарабатывает создавая разные несложные изобретения. Но люди они хорошие, общительные (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F68C6154F72DFA631C4FF64510860C5009C5023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721118   (110112) от 06.05.2024
+
+Дмитрий Силлов | Снайпер S.T.A.L.K.E.R. (Книга 25) Закон охотника (2018) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её еще можно спасти, нужно выполнить одно условие – Охотник должен убить Снайпера!
+Его зовут Андрей Краев. Он – офицер спецназа с характерным позывным Охотник и предназначением зачищать этот мир от всякой нечисти.
+И вот однажды судьба забрасывает Краева в чернобыльскую Зону.
+Туда, где скрываются враги, похитившие его девушку…Жанр: Боевая фантастикаИздательство: АудиокнигаПродолжительность: 07:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8749EB6EA6EC07B40F20C7462AFED872B2540BC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720859   (110113) от 06.05.2024
 
 VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +84,7 @@ VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110113.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Marvel83' - 5th Element (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110114.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110115.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ The Head Hunters Blues Band - Back from the Delta (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110116.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110117.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chill
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110118.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Dug Masters - Digital Variety (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110119.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Judith Hill - Letters from a Black Widow (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110120.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ Warhorse - The Recordings: 1970-1972 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110121.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ VA - Eighties Extreme 3 (The Best Disco Pop Mixes) (2022) [FLAC|Lossless|WEB-DL|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110122.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ magnet:?xt=urn:btih:6CD57A3FB90BDDE563E2DA9206CE800D22BC51D5
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110123.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ magnet:?xt=urn:btih:8254BB56001584E77B144FE220ABFA8EC3A8666D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110124.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ magnet:?xt=urn:btih:C6CB8EF83C758A9265E116D882850BDE42B520CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110125.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ magnet:?xt=urn:btih:C6CB8EF83C758A9265E116D882850BDE42B520CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110126.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110127.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ magnet:?xt=urn:btih:26679E4E0159A2B019E040B2A5FC15E46BC38BDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110128.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ Rotting Christ - Pro Xristou (2024) Limited Edition [MP3|320 Kbps] <Melodic Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110129.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ RegCool 2.005 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110130.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ magnet:?xt=urn:btih:0C4C5239E9BDDDECE375C2113B441BB862E2A718
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110131.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ magnet:?xt=urn:btih:3D417E87B29B8A2DFB3A0F8EFF8CAE47AB97FD37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110132.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta. | Каким-то 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110133.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110134.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110135.jpg" />
 </div>
 
 
@@ -581,82 +659,6 @@ Zoner Photo Studio - приложение, созданное для качес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D55102ED0B32803770C2D45CBC071A5E1043312
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721232   (110136) от 06.05.2024
-
-Илья Рэд | Мастер Лжи (Книга 1) (2024) [MP3, Александр Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делёжка магических ресурсов. Гонка за влияние. Бесконечные интриги аристократов и борьба за жизнь всего человечества – я попал в знакомую среду. Это мир, где без богов людям не выжить, но они уже неплохо устроились, раз нашли время на грызню между собой. Самое место для Мастера Лжи. У меня есть боевой опыт, знания и желание создать собственный клан.Осталось только (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC794E324B80D0DE22C5CF0B3818AB7C0F2E2F9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720783   (110137) от 05.05.2024
-
-Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Cry [00:05:25]
-02. Resurgence [00:03:15]
-03. Fear of Death [00:02:38]
-04. Unerring Order [00:03:09](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11117B5AA07E0E5BFC945B2E4B2D9B730CE905EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720909   (110138) от 05.05.2024
-
-Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Black Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Et in Arcadia Ego [00:27:38]
-02. 10 Hygiea [00:02:53]Жанр: Psychedelic Black Doom MetalПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F46113A7825E28C41994AACC346A0D3F6890A6
 ```
 
 

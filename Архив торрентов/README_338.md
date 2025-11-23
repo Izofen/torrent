@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82851.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CF0A7EC99261CE6A295B3A1B31096FAF583907EF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82853.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:974CA0C44E7CC0E8B280A7C81C3EE2DACA37972D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82855.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Xilisoft Video Converter Ultimate 7.1.0 build 20120222 RePack by CTYDEHT [ENG/RU
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82863.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Xilisoft Video Converter Ultimate - это простая, удобная и б�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82864.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:4DCB70B99AF9DF97716ADB875915AFA9B388528D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82879.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:A757C51D013903AA40E22BB7F76F18188C60559F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82880.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:DA22E3C8A56F5350669A7125E8CEB707724035F7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82891.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VideoCharge Studio 2.12.2.684 [английский, русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82900.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VideoCharge Studio - функциональная программа, с пом�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82912.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:3212BCEB541B1B2A4766A4E5CC2F72CE69220A9C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82914.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 17.03.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82928.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82930.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82934.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:45D8A72E61B4362851DFC295955248C5D8BCA26E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82936.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82938.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82940.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82942.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82945.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82947.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82949.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82969.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83001.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:ED1A48FC8EA4E987A9F4D1C1A46D887EC06EBCD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83002.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Google Chrome 18.0.1025.109 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83004.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Chrome спроектирован сотрудниками Google с нуля, �
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83008.jpg" />
 </div>
 
 

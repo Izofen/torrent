@@ -6,7 +6,7 @@ Python. Самое полное руководство по разработке
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC84E72DE4EB969FFFCF12A571C9E58AACA632CF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115145.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115255.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115285.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115408.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:43122161B789A3C366D3C8F9D651049C32013DAA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115418.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BC56C0D144C0E88D65F5C7E08BF6C7C70CAA11EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116581.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:43A058361161701824460EB45C20A3C1C5FEC46E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116611.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E5DE344E26E43E13160FEB5D656215254476A76E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116755.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:CD9E4F17612EA27F470A79238E9AC8DBDC16A54B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116777.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:CE6161928BF428E8C298243B8C95604C62124F80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117297.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:62B796840DFE18CCE88C605022089FB9E6CAC8D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117327.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7AA3AE8E9AF4D60237A0503ED2229F06FEC4070D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117350.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Michael W. Lucas | Absolute FreeBSD, 3rd Edition: The Complete Guide to FreeBSD 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117423.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118057.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118216.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Nanik Tolaram | Software Development with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118331.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ August Lilleaas | Pro Kotlin Web Apps from Scratch (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118349.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:6579BD7AE089F0B1B72FF28B27C1D6CA645E5468
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118390.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Kneusel, Ronald T. | How AI Works: From Sorcery to Science (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118626.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Qian Han, Nick Aleks,Ben McCarty, Daniel Graham etc. | Some cybersecurity books 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118970.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B40B37204A1728CBD101E3E73B31F8CCFC3870C8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119045.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1BF366739D829498789F367486F94F84F2E97296
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120213.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9942C3F74791FE204E500A5F42B8CF7D371174E9
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120367.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B1CB37F25ED534A66B0A517E7F995C128BAA9C85
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120396.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121364.jpg" />
 </div>
 
 

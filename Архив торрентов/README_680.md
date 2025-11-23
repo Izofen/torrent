@@ -1,3 +1,51 @@
+###  Публикация: 970110   (143448) от 29.12.2015
+
+Comedy Woman  (2015.12.18) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуПродолжительность: ~ 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28C921BA46F20B3A6CB04CA24B3EDD1CD6922D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590393   (143450) от 17.12.2012
+
+Sexy Girls Wallpapers (16.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E4229A75B2BFE01F0A41AB232398D6671E5BBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590392   (143453) от 17.12.2012
 
 Sexy Girls Pack Wallpapers (16.12.12) [Wallpapers 16+]
@@ -6,7 +54,7 @@ Sexy Girls Pack Wallpapers (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143453.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Tipard Blu-ray Converter 9.2.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143460.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:073F771F6BDDBC1473234F11F5AE4D767F140370
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143468.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ DxO PhotoLab Elite 6.11.0 build 302 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143476.jpg" />
 </div>
 
 
@@ -104,7 +152,7 @@ Sexy Girls Pack Wallpapers (17.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143489.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ Kendrick Lamar - DAMN (2017) Collector's Edition [FLAC|Lossless|tracks + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143490.jpg" />
 </div>
 
 
@@ -155,7 +203,7 @@ Floorp Browser 11.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143496.jpg" />
 </div>
 
 
@@ -179,7 +227,7 @@ Gilrs Wallpaper Collection (16.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143497.jpg" />
 </div>
 
 
@@ -203,7 +251,7 @@ FanControl V174 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143503.jpg" />
 </div>
 
 
@@ -227,7 +275,7 @@ Warhammer 40,000: Dakka Squadron v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143504.jpg" />
 </div>
 
 
@@ -251,7 +299,7 @@ magnet:?xt=urn:btih:C27337554813900EE786377956C4F00120CA297E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143506.jpg" />
 </div>
 
 
@@ -282,7 +330,7 @@ DxO ViewPoint 3.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143508.jpg" />
 </div>
 
 
@@ -307,7 +355,7 @@ magnet:?xt=urn:btih:A3C199CBED3EEE2A74CAB889634DD6A481FD66B1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143522.jpg" />
 </div>
 
 
@@ -331,7 +379,7 @@ Viber 21.4.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143526.jpg" />
 </div>
 
 
@@ -356,7 +404,7 @@ MediaHuman YouTube Downloader 3.9.9.51 (1412) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143530.jpg" />
 </div>
 
 
@@ -380,7 +428,7 @@ magnet:?xt=urn:btih:74B74F95D85601D77B101A792E1283C6B43283AC
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143537.jpg" />
 </div>
 
 
@@ -404,7 +452,7 @@ AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143547.jpg" />
 </div>
 
 
@@ -428,7 +476,7 @@ LibreWolf 120.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143551.jpg" />
 </div>
 
 
@@ -454,7 +502,7 @@ Mozilla Firefox 44.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143565.jpg" />
 </div>
 
 
@@ -478,7 +526,7 @@ Allavsoft Video Downloader Converter 3.22.0.7300 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143567.jpg" />
 </div>
 
 
@@ -502,7 +550,7 @@ RadioBOSS Advanced 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143573.jpg" />
 </div>
 
 
@@ -526,7 +574,7 @@ magnet:?xt=urn:btih:8FC4AEAB9DC404CEBB2805071E198ECD7394C395
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143593.jpg" />
 </div>
 
 
@@ -551,7 +599,7 @@ System Ninja 3.2  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143617.jpg" />
 </div>
 
 
@@ -575,7 +623,7 @@ Movavi Video Editor Business 15.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143630.jpg" />
 </div>
 
 
@@ -586,58 +634,6 @@ Movavi Video Editor Business 15.1.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:666B4B366CBB5700FB383FD7CF97358133216349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348567   (143644) от 28.12.2019
-
-Хоккей. НХЛ 2019-2020. Коламбус Блю Джекетс - Вашингтон Кэпиталз (27.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143644.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2019 года, суббота 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Гислейн Эбер (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1D7EC5B49FD35732AF85ED3ED56B36E3337F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348563   (143650) от 28.12.2019
-
-Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Нэшвилл Предаторз (27.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143650.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 декабря 2019 года, суббота 04:00 МСК
-Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 849 зрителей (101 % при вместимости 17 722)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB11BCB2C6FF084B821302798571007787F146B
 ```
 
 

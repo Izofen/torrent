@@ -1,3 +1,78 @@
+###  Публикация: 465276   (80952) от 09.03.2012
+
+Пьер Ланфранши, Кристина Айзенберг и др. | FIFA 100 лет. Век футбола [2005] [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня ФИФА - могучая сила, управляющая мировым футболом. Ее вековая история - это история самого прошедшего столетия. Еще немного — и ФИФА будет, по словам Жюля Римэ, «империей, над которой вечно сияет солнце». Мы ставили перед собой цель описать рождение Федерации, ее деятельность и развитие. Но, безусловно, не могли обойти вниманием и историю футбола как такового.
+Исполком ФИФА уже пытался издать так называемую «Золотую книгу» к 50-летию своей организации. Дело оказалось весьма непростым. Двадцать шесть футбольных ассоциаций, входивших в ФИФА, не прислали обзоры своей истории, а еще тринадцать даже не ответили на разосланный им вопросник. Статистические данные оказались неполными, несколько заявленных статей отсутствовали, а те, что все-таки были присланы, требовали доработки. Возникшие препятствия не позволили издать сборник в 1954 году.
+В этот раз ФИФА подошла к делу куда более профессионально. Ей удалось привлечь к работе над книгой небольшую группу ученых-историков, известных своими публикациями по экономической, (   Читать дальше...   )2005Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D506C71B47E2E5312707DBED7FC0742957E858D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465162   (80953) от 09.03.2012
+
+[Картинки] Фото знаменитости/Кристина Скаббиа
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристина Адриана Кьяра Скаббиа (итал. Cristina Adriana Chiara Scabbia; род. 6 июня 1972 года в Милане, Италия) — вокалистка итальянской готик-метал-группы Lacuna Coil. Вместе с бывшим участником группы Pantera Винни Полом пишет статьи в популярном журнале о рок-музыке Revolver. Скаббиа участвовала в записи композиций Megadeth «À Tout le Monde (Set Me Free)», Apocalyptica «S.O.S. (Anything But Love)» и Alter Bridge «Watch Over You». Хотя она приковывает к себе внимание благодаря своей внешности, Кристина считает лучшим для себя комплиментом от поклонников — положительные отзывы о её голосе.
+В прошлом Кристина имела отношения с партнером по группе Lacuna Coil, басистом Марко Коти Дзелати. Сейчас она встречается с Джеймсом «Джимом» Рутом, гитаристом групп Slipknot и Stone Sour.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ED1512F7748586367CF902B79F8CC4C5848331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464809   (80955) от 09.03.2012
+
+Пеликан / Nicostratos le pélican (2011) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80955.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти жены мужчина отказывается выходить на улицу и не хочет общаться с единственным сыном. Жизнь теряет смысл, перестает для него существовать. Однажды мальчик находит птенца пеликана, которого решает оставить у себя. Он выкармливает птицу, и между ними завязываются теплые дружеские отношения. Пеликан помогает мальчику вновь обрести своего отца и возродить его к жизни.Жанр: Драма, Комедия, СемейныйРежиссер: Оливье ОрлеАктеры: Эмир Кустурица, Тибо Ле Геллек, Джейд-Роуз Паркер, Франсуа-Ксавье Демезон, Геннадиос Пацис, Валериан де Вилленьюв, Ивис Нэдот, Нтинос Понтикопоулос, Димитрис Сарикизоуглоу, Сократис ПацикасПеревод: ДублированныйЯзык субтитров: Русский, УкраинскийПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465260   (80960) от 09.03.2012
 
 Ужин / La Cena (1998) VHSRip
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80960.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80961.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80963.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ magnet:?xt=urn:btih:F1004A833522C80760FFFE8F50B46C1AA8D2411F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80965.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:F1004A833522C80760FFFE8F50B46C1AA8D2411F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80966.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:3F26A9AE2AD093923FFC2CCC95F84243F92FFA7E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80968.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80970.jpg" />
 </div>
 
 
@@ -192,7 +267,7 @@ magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80971.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ magnet:?xt=urn:btih:2E89F1C1E41CB73DD8361F80F6889063665306F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80974.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ Whitney Houston - The Ballads Collection (2009) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80975.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80977.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80980.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:BC33053F836F39B4773AFB688509ADC49CC2CE2D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80981.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:6519B71D1C3D9167E02E5276ED35FA8A7A451764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80983.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ magnet:?xt=urn:btih:6519B71D1C3D9167E02E5276ED35FA8A7A451764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80984.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ I Was an Atomic Mutant! / I was an Atomic Mutant: Убойные будни [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80985.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:8451DD7C9488F4CDF8B551A17C3E42F5716C4F65
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80986.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Madness - Total Madness (2009) [FLAC|Lossless]<new wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80987.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:2B7A32A6E2816738375362FA7AAC2F15F006CD27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80988.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ magnet:?xt=urn:btih:F59402CE8381E70C283C2BCA3671D51A3D779117
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80990.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80991.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ magnet:?xt=urn:btih:AB977958BE5E5027CD8D50EC6BCBFDF7B49BC947
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80993.jpg" />
 </div>
 
 
@@ -588,7 +663,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80994.jpg" />
 </div>
 
 
@@ -599,98 +674,6 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464963   (80997) от 09.03.2012
-
-Savage - Gold (1994) [MP3|320 кб/с]<Pop, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Tonight (3:50)
-02. Only You (3:36)
-03. Radio (4:38)
-04. A Love Again (5:24)
-05. Fugitive (6:42)
-06. Time (4:38)
-07. Computerized Love (3:35)
-08. Celebrate (3:02)
-09. Love Is Death (3:41)
-10. I'm Losing You (3:22)(   Читать дальше...   )1994Жанр: Pop, Italo DiscoПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6758B2183FC7D6693259B1DA8565EBF10ED10032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463815   (80998) от 09.03.2012
-
-VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc one:
-Продолжительность: 01:15:07
-
-01. Rocky & Nok - Green Sector (Neelix Remix) (2:27)
-02. Zyce - Basic (3:18)
-03. Liquid Soul - Adrenaline (3:14)
-04. Earsugar - Beat It) (1:51)
-05. DJ Danila - Let The Music (Belocca Remix) (3:35)
-06. Ivan Nikusev & Wav-E - Aurora (Airwave Breaks Remix) (4:10)
-07. The Doppler Effect - Beauty Hides In The Deep (Ronski Speed Remix) (5:47)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465013   (81000) от 09.03.2012
-
-Человек тьмы / Darkman (1990) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Пэйтон Уэстлэйк находится на пороге грандиозного открытия: он заканчивает эксперименты по созданию искусственной человеческой кожи. Но банда уголовников во главе с извращенным садистом Робертом Дюраном вторгается в лабораторию Пэйтона и взрывает ее вместе с несчастным доктором.
-
-Чудом оставшийся в живых и обезображенный до неузнаваемости Пэйтон, решает отомстить подонкам. Но теперь он предстанет перед ними не как доктор Уэстлэйк, а как грозный и жуткий Человек Тьмы.Жанр: фантастика, боевик, триллер, криминалРежиссер: Сэм Рэйми / Sam RaimiАктеры: Лиам Нисон, Фрэнсис МакДорманд, Колин Фрилз, Ларри Дрэйк, Джесси Лоуренс Фергюсон, Рафаэль Х. Робледо, Дэн Хикс, Тед Рейми, Дэн БеллПеревод: Многоголосный закадровый, R5 Лизард / Авторский закадровый, ГавриловПродолжительность: 01:35:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1314672   (125554) от 27.12.2023
+
+X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение высоко оцененной стратегии X²: The Threat включает в себя новый 3D-движок, новый сюжет, корабли и элементы геймплея, с которыми вселенная Х станет еще разнообразнее. Экономика в «X³: Воссоединение» стала еще более комплексной, чем в предыдущих частях серии. Неигровые персонажи самостоятельно торгуют и строят фабрики, войны влияют на положение (   Читать дальше...   )Тип издания: LicenseРазработчик: EgosoftЖанр: Симулятор, Экшны, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687810   (125555) от 27.12.2023
+
+Стенографист / Walden (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолден Дин, скромный стенографист суда в маленьком южном городке, когда он обнаруживает, что умирает, он решает отомстить преступникам, избежавшим судебного преследования.Производство: США / Benacus Productions, RNF ProductionsЖанр: триллерРежиссер: Майкл ДэвисАктеры: Эмиль Хирш, Шейн Уэст, Келли Гарнер, Таня Рэймонд, Дэвид Кит, Стив Култер, Сет Майклс, Санни Мабри, Luke Davis, Сара СометтиПеревод: Многоголосый профессиональный (NewStudio | 18+)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABD99173B3DB3E19CB23CFB0D6764CF40F9012D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687047   (125556) от 27.12.2023
+
+Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь обычного профессора Пола Мэтьюса внезапно переворачивается с ног на голову, когда он начинает появляться во снах других людей. В одночасье он становится самым узнаваемым человеком не только у себя в городе, но и во всем мире. Его приглашают на телевизионные шоу, о нем пишут газеты, а толпы папарацци и поклонников жаждут его внимания. Но эйфория от всеобщей (   Читать дальше...   )Производство: США / A24, Square Peg, Wildling PicturesЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайлПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: русский , английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0463E4D36126F3498ABC2EC4E2E485892A5956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687906   (125557) от 27.12.2023
 
 Солтберн / Saltburn (2023) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125557.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125558.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125559.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Albert King - 42 Albums (1962 - 2017) 59 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125560.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125561.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:5D71010A025DE3F9035DF233F528F3FB65D26706
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125562.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:007DE646F1833170C58ECA7B2C2667A486B93773
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125563.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:71B92EC21101FDE281D3EEC455E71D8733BCC734
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125564.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ magnet:?xt=urn:btih:19E782B09E5C9CFAE6E5DE74163D2126AD80B9AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125565.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ Thread - Thread (1995) 2xCD, Reissue, Remastered, 2023, Escape Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125566.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125567.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125568.jpg" />
 </div>
 
 
@@ -306,7 +378,7 @@ magnet:?xt=urn:btih:7A867034163B173C94A52A19E67F7DADD8BB0D02
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125569.jpg" />
 </div>
 
 
@@ -330,7 +402,7 @@ magnet:?xt=urn:btih:1FCDFB43D02F04322FBFE809A2490EDF174E7071
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125570.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ magnet:?xt=urn:btih:7CAF4D0279B94070E3B7AD778A306F4F6F2F73C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125571.jpg" />
 </div>
 
 
@@ -381,7 +453,7 @@ magnet:?xt=urn:btih:6A36D678417CCB6053DD660718A440C45A1E9533
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125572.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ Dan Ogus - Scattering The Christmas Roots 20-12-23 (2023) [AAC|192 Kbps] <Blues,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125573.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ magnet:?xt=urn:btih:7684DE5A11B3AC6268629CA689B68A95F64A0D26
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125574.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125575.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125576.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ magnet:?xt=urn:btih:448BE64B4781B9EC65EE200DF84C2940FFE3C77F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125577.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Agnetha Faltskog - A+ (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125578.jpg" />
 </div>
 
 
@@ -561,7 +633,7 @@ magnet:?xt=urn:btih:A78E863A1BF402B7504A0B4ECEAEE35B94061DD1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125579.jpg" />
 </div>
 
 
@@ -572,81 +644,6 @@ magnet:?xt=urn:btih:A78E863A1BF402B7504A0B4ECEAEE35B94061DD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE118B73176F6E564A1715E4E97DAE51ECF41331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687425   (125580) от 26.12.2023
-
-Ваша знакомая (1927) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Годы нэпа, Москва. Журналистка Хохлова влюбляется в ответственного работника промышленного комбината Петровского. Это увлечение отрицательно сказывается на ее работе, девушку увольняют. Тем временем возвращается жена Петровского. Создавшаяся ситуация обнажает истинный характер возлюбленного, эгоиста и пошляка. Девушка близка к самоубийству. Трагическую развязку предотвращает (   Читать дальше...   )Производство: СССР, Совкино (Москва)Жанр: драма, немое киноРежиссер: Лев КулешовАктеры: Александра Хохлова, Петр Галаджев, Юрий Васильчиков, Борис Фердинандов, Анна Чекулаева, Александр Громов, Вера МариничСубтитры: русские (интертитры)Продолжительность: 00:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938915A2FABD4A05FB249C9B297600BC92715AF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687108   (125581) от 26.12.2023
-
-Капитан Лис - Родной Притон (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водка с Пивом [00:02:12]
-02. Дева [00:02:06]
-03. Родной Притон [00:03:15]
-04. Ты Нравишься Мне [00:03:04](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00514DA336F22910601AB496F0109D4CCF427430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687391   (125582) от 26.12.2023
-
-Виктория Вита | Каждый день как пятница 13-е (2022) [MP3, Ксения Бегеза]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125582.jpg" />
-</div>
-
-
-###  Подробнее
-
-В элитном пригороде Петербурга, где царит покой и умиротворение, в бане одного из коттеджей находят тело молодого мужчины. Неизвестно, кто он и как попал туда, но именно с этого момента начинается цепь таинственных и порой ужасающих преступлений. Когда же возникает ощущение, что все разрешилось, зло наказано и синяя птица удачи в руках героев, это оказывается миражом, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 11:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D13AAF592E00FFA1321244E552C138E4FA2E1A0
 ```
 
 

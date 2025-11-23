@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9260.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:17CEA6E923DA971B255729D773BA5661DA3F3937
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9261.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0026144F917790E9C8DC82CD03332E79343642D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9262.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4A51AADEFBE34671D62A74B155CCA4AD92894B46
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9263.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Proton VPN 5.12.48.0 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9264.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9265.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9266.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ James Gang - 12 альбомов (1969 - 2000) 19 CD [FLAC|Lossless|tracks/image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9267.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Echo Paradox (2025) [En] (19081580) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9268.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9269.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9270.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AnyDesk 9.5.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9271.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:42487E9C096DF50DCD58622E8725B0BA38BFB18C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9272.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9273.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9274.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9275.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9276.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ R-Studio Network / Technician 9.5 Build 191580 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9277.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9278.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CABD6325C6BF282285AB7EA0F0F2B10C4017FAFE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9279.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:868351D587DC518F01EF9A69FBAEC3E5AFAE2C0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9280.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2AF45BDF077A5F9003DA5056B94A84827DD3A204
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9281.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (05.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9282.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:6F627A375B2AD24D30FBA46DC501E616B7B8362F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9283.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4048C7F10579508CB957D8E61377FC5D1E34906B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9284.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PEAK (2025) [Ru/Multi] (1.11.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9285.jpg" />
 </div>
 
 

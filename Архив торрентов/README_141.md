@@ -6,7 +6,7 @@ ExtraDisks 24.12.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35123.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KStars 3.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35130.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:31694FCA00566B3E61314D23C335C3E9469EC83E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35143.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Notepad++ 8.7.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35147.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ mp3DirectCut 2.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35148.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Multi Commander Full Edition 14.4 Build 3047 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35151.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paint.NET 5.1.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35154.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ KiCad 8.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35156.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Topaz Gigapixel AI 8.0.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35171.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Karing 1.0.36.475 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35175.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Draw.io 25.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35217.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D5D9938B4C33A6227F65E62EC20139B05FB9CBAC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35222.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ocean Match / Рыбки: Три в ряд v2.9.8 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35223.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ocenaudio 3.14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35229.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Vivaldi 7.0.3495.23 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35236.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ O&O Defrag Professional 29.1 Build 11203 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35238.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Aiarty Image Enhancer 2.6 RePack (& Portable) by elchupacabra (DC 23.10.2024) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35240.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Free Hex Editor Neo 7.50.03.8800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35241.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Telegram Desktop 5.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35242.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ RustDesk 1.3.4 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35247.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Display Driver Uninstaller 18.0.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35250.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Jigsawscapes® - Пазлы v3.6.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35255.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ AnyDesk 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35258.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ JetBrains CLion 2024.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35259.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Topaz Video AI 6.0.0.0 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35266.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35273.jpg" />
 </div>
 
 

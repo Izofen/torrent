@@ -6,7 +6,7 @@ MobaXterm 24.0 build 5204 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63446.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ADC26D0C8F6028228993C0F4825DE017D3463D72
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63457.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CyberLink PowerDVD Ultra 23.0.1406.62 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63466.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63469.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FileMenu Tools 8.4.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63476.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FileMenu Tools 8.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63478.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Textra SMS v4.71 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63488.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ TuneIn Radio 33.6 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63497.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ FinePrint 11.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63498.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Reface v4.6.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63500.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Duplicate File Finder Pro 2401 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63515.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CCleaner Pro: ПО для очистки 24.04.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63535.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ GParted LiveCD 1.6.0-1 [i686, i686-pae, amd64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63584.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Native Instruments - Kontakt 7.8.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63585.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ macOS 14 Sonoma 14.4 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63589.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CyberLink PowerDirector 2024 Ultimate 22.2.2705.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63601.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ DefenderKiller 11.3 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63633.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinRAR 7.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63653.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Process Lasso Pro 14.0.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63688.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Pepakura Designer 5.0.19 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63689.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ GIMP 2.10.36-1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63691.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PotPlayer 240307 (1.7.22125) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63695.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ SweetScape 010 Editor 14.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63696.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VueScan Pro 9.8.29 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63698.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Supermium 122.0.6261.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63713.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PotPlayer 240307 (1.7.22125) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63716.jpg" />
 </div>
 
 

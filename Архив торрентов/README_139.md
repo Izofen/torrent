@@ -6,7 +6,7 @@ Blender 4.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Revo Uninstaller Free 2.5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34647.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PotPlayer 241209 (1.7.22387) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34652.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Movavi Video Editor 25.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34664.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Internet Download Manager 6.42 Build 26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34667.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.50.7200 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34672.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34699.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34700.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Wise Disk Cleaner 11.1.8.834 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34713.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ HDCleaner 2.084 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34714.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Revo Uninstaller Free 2.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34716.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Tablacus Explorer 24.12.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34718.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Movavi Video Editor 25.1.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34723.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:578F5C7ADC30D6C4C504DE842832215CF87B6178
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34728.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Disk Drill 5.7.915 Enterprise (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34734.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AnyDesk 9.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34743.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Magic Eraser / Магический ластик v2.15.1 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34784.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ XYplorer 26.70.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34791.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Pro Pool 2025 v1.59 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34807.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Beyond Compare Pro 5.0.4.30422 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34808.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Imagine 1.7.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34816.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F281C19482ECF015B84D600FEFCAC8AED2253D98
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34820.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MobaXterm 24.4 build 5258 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34829.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FileMenu Tools 8.4.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34832.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Any Video Downloader Pro 9.1.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34835.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Wise Care 365 Pro 7.0.9.691 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34841.jpg" />
 </div>
 
 

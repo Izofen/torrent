@@ -6,7 +6,7 @@ Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97727.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ When Nothing Remains - As All Torn Asunder (2012) [FLAC|Lossless]<Doom / Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97738.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97789.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ AOR - The Colors Of L.A. (2012) [FLAC|Lossless]<Melodic Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97811.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97811.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97877.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97893.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97911.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97911.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Tracedawn - Lizard Dusk (2012) [FLAC|Lossless]<Melodic Death Metal/Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97930.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97963.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97963.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98151.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98175.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98175.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98222.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98243.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98243.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98288.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gorod - A Perfect Absolution (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98331.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98331.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98382.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98466.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98482.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dylath-Leen - Cabale (2011) [FLAC|Lossless]<Death Metal/Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98541.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98541.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98563.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98584.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98596.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Down Below - Zeichen (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98598.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98600.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98700.jpg" />
 </div>
 
 
@@ -802,7 +802,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98771.jpg" />
 </div>
 
 

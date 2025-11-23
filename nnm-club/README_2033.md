@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53223.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3B9A5AA7FCA8C2D9DFA3DF3DC22FEB4302076031
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53224.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains CLion 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53225.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B9288F76C9C06AD11964035605C6CB3C5B75A48D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53226.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0E453E0525D947BECDBD00BFEC27EC6E17F80EDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53227.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:0E453E0525D947BECDBD00BFEC27EC6E17F80EDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53228.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0E453E0525D947BECDBD00BFEC27EC6E17F80EDB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53229.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Excite Audio - Bloom Bundle 1.1.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53230.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53231.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53232.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E6F2930EE258EA73B7951592C81D3A6AD63A5D6E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53233.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:699C3EF9CE8293D70D273C8853C150B4FF266669
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53234.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:5781F9E7180E088B6648AE64E9567BBE1D8AF7F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53235.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53237.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8C41ED426060ED4756F7637052D4A85F54BB9D17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53238.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B395ED148F7BBFE4CBA747686F196582BB089E23
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53239.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C5845577AA5A2F2637041F4281A97FC8DCB8EE0B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53240.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53241.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:37BA6AF2800065E2707A034DB50D5504BA03A3E9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53242.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ NirLauncher Package 1.30.12 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53243.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:108D132AFC2D4EFF24D7637D0128B3E77C644425
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53244.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E10A5530EB1269EA5ACE9B5EC89A3B49E03CC9F6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53245.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:28A8F831C7DFD0AA552FC63AD672844411DBD674
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53246.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9D498C414AE59F662079ED1A99BCB167DA51F0DD
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53247.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:134F0302AD1835FA3F27C30C04890671ED22C945
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53248.jpg" />
 </div>
 
 

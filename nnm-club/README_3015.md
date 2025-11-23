@@ -1,3 +1,76 @@
+###  Публикация: 1821828   (91247) от 04.10.2025
+
+Шрифты - FontStruct - Evgeny Koroletov - FCZL Font [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт FCZL - это модульный геометрический шрифт, вдохновленный эстетикой культуры футбольных болельщиков и граффити. Это ремейк шрифта FCZL, который был создан в 2012 году.
+От автора: Это был мой самый первый шрифт, и я посвятил его футбольному клубу "Заря" (Украина), а точнее, сообществу болельщиков луганской "Зари". Я был активным участником (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821829   (91248) от 04.10.2025
+
+Код 3 / Code 3 (2025) WEBRip [H.264] [Локализованная версия]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэнди, фельдшер скорой помощи из Лос-Анджелеса, устал от своей работы и хочет немедленно уволиться, но его начальница уговаривает мужчину отработать ещё один день. Последнюю смену Рэнди и его напарник Майк должны провести с проходящей обучение Джессикой, которую им предстоит подготовить к работе вместо Рэнди.Производство: США / Circle of Confusion, Realdream, Concourse MediaЖанр: боевик, комедияРежиссер: Кристофер ЛеонеАктеры: Рэйн Уилсон, Лил Рел Ховери, Эйми Карреро, Роб Риггл, Иветт Николь Браун, Пейдж Кеннеди, Шоло Маридуэнья, Тереза Линн О’Тул, Тереза МакЛафлин, Айеша ХаррисПеревод: Дублированный (CPI Films)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB6AA1DA02EC0D6EBA649A1B5752EA6C9606384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821816   (91249) от 04.10.2025
+
+География Уральских Пельменей - Мадагаскар (2025.10.03) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть сегодня ещё сентябрь, но мы-то мыслями уже в октябре, потому что в первую же пятницу октября нас снова ждёт премьера!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9B2C62ACF078D92A4130C715F6DD5BE73E1512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821753   (91250) от 04.10.2025
 
 Код 3 / Code 3 (2025) WEBRip [H.264/1080p] [Локализованная версия]
@@ -6,7 +79,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91250.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:6B0327B86839D68611E2BF5646B20B7D386A4488
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91251.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:25345135D49537901CFCCC9E0FCB6C194A2D0AD0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91252.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Advanced Renamer 4.17 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91253.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91254.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ VA - The Sound of Trance, Pt. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91255.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:C8499C11BA3711051EBF9814F0C2F4F913C6846D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91256.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ VA - Ablazing Autumn Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91257.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ magnet:?xt=urn:btih:89D93630E8EA062B490B43049A8CCB8E44F013DB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91258.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ magnet:?xt=urn:btih:9A28BA2561651470A9290D5DBF93979DEA993453
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91259.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ magnet:?xt=urn:btih:6A5783CE36368BC419385A163BCD95172BB1864C
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91260.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ magnet:?xt=urn:btih:59ADA4C3EDB9AFABE998CC00F924DCD71F5BE70F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91261.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ magnet:?xt=urn:btih:CD1DEA5C5FA2A5CD920115B5081A9BABC3298AD1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91262.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ magnet:?xt=urn:btih:D87D78C91718F97866E08844AB18BA85866467DB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91263.jpg" />
 </div>
 
 
@@ -352,7 +425,7 @@ Soft Organizer Pro 10.31 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91264.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ magnet:?xt=urn:btih:C2E73784ECA06CF14BE888A2DA1BB81B4B8CE7A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91265.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ magnet:?xt=urn:btih:BB23B09C2910516142720CAB400CE2472B176323
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91266.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ magnet:?xt=urn:btih:A35502D836350E4B83983B91FD3A1E2E804F8106
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91267.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:5C6FC59A7619BB6E891A592C1BBCC4D1CF0241E3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91268.jpg" />
 </div>
 
 
@@ -472,7 +545,7 @@ magnet:?xt=urn:btih:D5484F20C801D7358EB9C870453A19F38C0A3E65
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91269.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ magnet:?xt=urn:btih:4C841D5FD5246EB252F35C9AABFACD549BF2B030
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91270.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ magnet:?xt=urn:btih:A69C5490B1933DB646BA954AD649ACC85ACEDF2B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91271.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ magnet:?xt=urn:btih:3B0701B0783199BA4AEACFE33244F19DFFAD2378
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91272.jpg" />
 </div>
 
 
@@ -556,80 +629,6 @@ magnet:?xt=urn:btih:3B0701B0783199BA4AEACFE33244F19DFFAD2378
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490EA1D97578CB902426AFE323CA4A1366607710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821801   (91273) от 03.10.2025
-
-Максим Дынин | Карт-Хадашт не должен быть разрушен! (2025) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91273.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Карфаген должен быть разрушен!» Эти слова римского сенатора Катона-старшего известны всем. Но мало кто задумывался, что же произошло на самом деле. Почему слова озлобленного римлянина привели к уничтожению величайшего торгового города-государства Средиземноморья, не представлявшего угрозы для Рима и даже связанного с ним кабальным договором?
-…После подрыва на мине (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцыИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2DA4D83DC961AFECF24A8A7198E30425870FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821799   (91274) от 03.10.2025
-
-Школьный автобус / The Lost Bus (2025) WEB-DLRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм показывает события время пожара в Кэмп-Файре в Калифорнии, самого смертоносного лесного пожара в стране за столетие, и как предотвратить подобные трагедии в будущем, а также рассказывает истории водителя автобуса и школьной учительницы, которые помогали тушить лесной пожар.Производство: США | Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью Макконахи, Америка Феррера, Юл Васкес, Эшли Аткинсон, Кимберли Леви МакКонахи, Леви МакКонахи, Джон Мессина, БойскаутыПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914251D9C0454893AC92D8076E87BEB2BEB8EE21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821795   (91275) от 03.10.2025
-
-Алим Тыналин | Нэпман [9 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1928 год, разгар НЭПа. Успешный промышленник Леонид Краснов неожиданно оказывается в центре опасной игры. В его теле – сознание человека из 2024 года, за его технологиями охотятся конкуренты, а на кону – судьба советской индустриализации.
-Используя опыт корпоративных войн будущего и помощь преданной команды, он пытается построить новую модель промышленного (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374C3E86F73EADF9C2999D9B3C0284241117DAC3
 ```
 
 

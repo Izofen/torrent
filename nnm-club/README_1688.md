@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44244.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A25074706D915E039D512640F5A68CBE60C77CF8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44245.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Volgarr the Viking I + II (2) (2013, 2024) [Multi] (1.36c/1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44246.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DiskGenius Pro 5.6.1.1580 (x64) Portable by Жека [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44247.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:808DA2575DBA01C7F92F176982BAE02BB6AF4501
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44248.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AC9641C5876C9896998D009D605631DB267D38A7
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44249.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44250.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0609) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44251.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wipe Pro 2408 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44252.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44253.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44254.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:AB6A9CA776A822BF9401CC2266461D23DE4C34A7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44255.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44256.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1EB930DBD136328FC9547366128B59774152994D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44257.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:4A49AC36EC8DCB603CE278305864B0DB6A237011
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44258.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E1BD984307AB049F88F20C063577F55629A4E8EE
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44259.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:027C865B982D635E04D26CD626D90020E1DE9A0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44260.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44261.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ CorelDRAW Graphics Suite 2024 25.2.0.301 (x64) Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44262.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Fallout: London (2024) [En] (2.31r2) Repack/Mod FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44263.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44264.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:2F15724DD929B1D028B45DF425D1EF0677FB339A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44265.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:8BD4401F3B74D8689A5C80ED93DA6D606653AE1B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44266.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Remix NNM 9 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44267.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F90058E9F149F4F89599E4AF78997B79273BBF4C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44268.jpg" />
 </div>
 
 

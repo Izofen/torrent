@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58319.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB59D799F3A81893B68F2D8FD68B27880B0AB138
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58320.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B223C5B8A994E3D6CD177C4E351E0B4562E742F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58321.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C71517778E86AB8D9D373F810635A01C0583872
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58322.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7F42A2B10B19EAB3F69C71FA7F1E3F2B14D7BC96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58323.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E36E74103FA8060854F01ECAA9B37365329939B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58324.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:434512A3D90DF420349AE9AB8809F2A1AD9DA7B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58325.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1D7236F7770932CFDB527CBE944B6F459E9C8B53
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58326.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:485B4A14E12F74EFE5319288FE94E0EE11C3CA28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58327.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ F-Secure VPN 19.4 (online installation) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58328.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Luminar Neo 1.19.0.13323 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58329.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F53745AAF217475F1D9BD8BE5ACD0DBC9B50A149
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58330.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0F82968B0C654EE2C229A30B5DB54C54592B775A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58331.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F4D8C503E2FA16B51F03067A6B7BEBC48F87411B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58332.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F4D8C503E2FA16B51F03067A6B7BEBC48F87411B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58333.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ASUS GPU Tweak III 1.7.7.0 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58334.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:EC69270650F8D032904F14847BCE3531EA73094F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58335.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6E051768DAA4157D5911297974C752D26661F87F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58336.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Pet Shop Boys - Nonetheless (2024) 2CD Special Edition [FLAC|Lossless|image + .c
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58337.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ FBReader Premium v3.6.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58338.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E0167622F99E122C9B98EC904B5D3B58DBDC99E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58339.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E0167622F99E122C9B98EC904B5D3B58DBDC99E4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58340.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:B7CCD142A3E897D38911BDD5A258AD12BD292627
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58341.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Top 50 Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58342.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - Electronic compilation part 73 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58343.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:D9E303C8515DF9A9D495859EA9BF17A999E3B853
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58344.jpg" />
 </div>
 
 

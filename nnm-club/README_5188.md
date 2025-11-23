@@ -1,3 +1,184 @@
+###  Публикация: 1675445   (160312) от 09.11.2023
+
+Alex Lopez - Looking for a change (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train (4:16)
+02. Whiskey Covered Woman (3:52)
+03. Blues They Rock (4:24)
+04. Looking for a Change (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1209053037D3FB88B2C466DF8E393DA0806F543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675450   (160313) от 09.11.2023
+
+Kobra and The Lotus - Evolution (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evodem
+02. Evolution
+03. Burn!
+04. We Come Undone(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092FB64E4FECC0CB7272E2304BAB18D41460E0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675457   (160314) от 09.11.2023
+
+Platina - Про тебе... (2010) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Все, що треба
+02. Про тебе...
+03. Не правда
+04. Літак(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C77E8C4CA5EBC4C078FADDF111B058E51475E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675384   (160315) от 09.11.2023
+
+Xliff Editor 2.9.14 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
+Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C639AFED3F2153E4D2528F0772ADC13F42C44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675552   (160316) от 09.11.2023
+
+Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue: Under The Pyramids (0:51)
+02. Egyptron (5:00)
+03. Living Dead In Beverly Hills (2:19)
+04. Rusted Gold (3:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD6B4F5E46DDAE03C095BCC627C6355877745FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675382   (160317) от 09.11.2023
+
+NetShred X 5.8.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160317.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetShred X - утилита не просто для удаления кэша веб-браузера, cookie, истории посещения страниц и др., а уничтожения всех Интернет следов без возможности их восстановления. NetShred X удаляет временные файлы, оставленные браузером или почтовым клиентом, обеспечивая тем самым приватность пользователя. Программа поддерживает все популярные браузеры и почтовые клиенты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 Mireth TechnologyПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D0D5A02C7FF6893551F963B140D5DB24F76107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675406   (160318) от 09.11.2023
+
+PowerPhotos 2.5.3 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160318.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEA04011DC2CCA9205B6027027401E99C297F9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675401   (160319) от 09.11.2023
 
 Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -6,7 +187,7 @@ Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160319.jpg" />
 </div>
 
 
@@ -33,7 +214,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160320.jpg" />
 </div>
 
 
@@ -57,7 +238,7 @@ Gama Bomb - BATS (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160321.jpg" />
 </div>
 
 
@@ -84,7 +265,7 @@ Vellum 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160322.jpg" />
 </div>
 
 
@@ -109,7 +290,7 @@ Wolfgang Amadeus Mozart - Complete Works (Brilliant Classics) (2005) 170CD Box [
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160323.jpg" />
 </div>
 
 
@@ -136,7 +317,7 @@ magnet:?xt=urn:btih:98E23D8DEEA06FE0A60AF77D0D745600E387C525
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160324.jpg" />
 </div>
 
 
@@ -160,7 +341,7 @@ magnet:?xt=urn:btih:3D6013B9B70B74B072292D7BF469305C813EF4CC
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160325.jpg" />
 </div>
 
 
@@ -184,7 +365,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 06.11.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160326.jpg" />
 </div>
 
 
@@ -208,7 +389,7 @@ magnet:?xt=urn:btih:D67B75E260E68A8333D97DB513136FE17201AEA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160327.jpg" />
 </div>
 
 
@@ -232,7 +413,7 @@ magnet:?xt=urn:btih:C2B2F9553A9A75E65DAA3202EBD4216BB623ACF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160328.jpg" />
 </div>
 
 
@@ -256,7 +437,7 @@ magnet:?xt=urn:btih:8C2E6EBCEB203AB95E595C8E1063D1B06A1A2CED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160329.jpg" />
 </div>
 
 
@@ -280,7 +461,7 @@ magnet:?xt=urn:btih:EA4AF008AC8E73034CF996381AD14466323D4E0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160330.jpg" />
 </div>
 
 
@@ -304,7 +485,7 @@ magnet:?xt=urn:btih:2D4F6F062C6FAFB7C98F781351799EBBD026E3BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160331.jpg" />
 </div>
 
 
@@ -328,7 +509,7 @@ magnet:?xt=urn:btih:8133FF8F1E21A2BADBD755ED68992FF3688836B7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160332.jpg" />
 </div>
 
 
@@ -352,7 +533,7 @@ magnet:?xt=urn:btih:430D5504DAB65129A35E46E3EFBF5F67ECA425E6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160333.jpg" />
 </div>
 
 
@@ -376,7 +557,7 @@ magnet:?xt=urn:btih:75E1225B04391A02F2955DC9FD88E2BD02B1B2A7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_160334.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_160334.jpg" />
 </div>
 
 
@@ -400,7 +581,7 @@ magnet:?xt=urn:btih:75E1225B04391A02F2955DC9FD88E2BD02B1B2A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160335.jpg" />
 </div>
 
 
@@ -424,7 +605,7 @@ magnet:?xt=urn:btih:059FF3906924DDEF438725FD3389A7FC4FFB129C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160336.jpg" />
 </div>
 
 
@@ -448,7 +629,7 @@ magnet:?xt=urn:btih:B87FE76F35CB0C18236229BCE1734FDF572A981E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160337.jpg" />
 </div>
 
 
@@ -459,176 +640,6 @@ magnet:?xt=urn:btih:B87FE76F35CB0C18236229BCE1734FDF572A981E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C4887272326CFDF405557C21F09AA7618BDF3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675174   (160338) от 08.11.2023
-
-DAZ Studio Pro Edition 4.22.0.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и бесплатный инструмент моделирования, который не только прост в использовании, но и обладает богатым функционалом. Являетесь ли вы новичком или профессиональным 3D-художником или 3D-аниматором – Daz Studio позволяет создавать удивительные 3D-искусства. Это достигается за счет упрощения требований опыта пользователей, при добавлении функций и инструментов (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C116B3408FC6D957F38D09CFD2F219A1E1D39F0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675244   (160339) от 08.11.2023
-
-AweCleaner Professional for Mac 5.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160339.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 MagoshareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811113BE5EFEA5A0A988860829637C56BD48D7C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374392   (160340) от 08.11.2023
-
-Шарль Бодлер, Поль Верлен, Артюр Рембо и др. | Французская лирика XIX-XX веков. Часть 1 (2009) [MP3, Михаил Яснов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотой век французской поэзии.
-Французская лирика, ставшая культурным достоянием всей Европы, всегда пользовалась любовью и вниманием русского читателя и слушателя. Отечественная школа художественного перевода подарила нам высокие образцы поэтического творчества, вошедшие в историю русской поэзии. Однако у каждого поколения существуют свои предпочтения и (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Вира-МПродолжительность: 02:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCB7EDB3B2E5E82CBCA322ED8476BB7FF1EF452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517898   (160341) от 08.11.2023
-
-Растровый клипарт - Рождественский клипарт для Вашего творчества от Koaress [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160341.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Рождественский клипарт для Вашего творчества от Koaress» - Большой пакет отрисованных рождественских элементов для вашего творчества на прозрачном фоне.
-Многие оценят по достоинству.Формат: PNGРазрешение файлов: 559x803-5417x5669 / 300 dpi / 72 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872BA6A67F7C34DF0DB71982C603D0C7431F65F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675094   (160342) от 08.11.2023
-
-Скорая помощь (2023) WEBRip [H.264] (сезон 6, серии 1-24 из 24)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовных приключений на подстанции хватает, да и профессиональные не отстают. Жизнь подкидывает врачам и фельдшерам все новые и новые ситуации для спасения жизни и сохранения здоровья людям. В новом сезоне главные герои спасут парня от кровной мести, сами оказавшись из-за этого под обстрелом, столкнутся с редкой формой кори у ребенка и мамой-антипрививочницей, окажут (   Читать дальше...   )Производство: Россия | «Рим Продакшн»Жанр: Мелодрама, медицинаРежиссер: Богдан ДробязкоАктеры: Гоша Куценко, Екатерина Волкова, Марина Доможирова, Александр Тютин, Степан Куликов, Алексей Лонгин, Светлана Брюханова, Екатерина Федулова, Пётр Баранчеев, Алексей СоколковПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22847771788AD4F36D02EEBEFD1ED303DAED7FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675083   (160344) от 08.11.2023
-
-Кокаин / Blow (2001) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Джанг, обыкновенный парень из пригорода, решил осуществить американскую мечту своим способом — стать первым американцем, импортирующим кокаин в больших объемах. Он создал себе рынок сбыта, подсадив на кокаин самых знаменитых людей Америки. Вскоре он уже купался в деньгах и роскоши, о которых многие только мечтают. Ему удавалось обводить вокруг пальца не только (   Читать дальше...   )Производство: США / Apostle, Avery Pix, New Line CinemaЖанр: драма, криминал, биографияРежиссер: Тед ДеммеАктеры: Джонни Депп, Пенелопа Крус, Франка Потенте, Рэйчел Гриффитс, Пол Рубенс, Хорди Молья, Клифф Кёртис, Мигель Сандовал, Итан Сапли, Рэй ЛиоттаПеревод: Дублированный (Мосфильм)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F999D05CE8B26D57419120C14F6901C1655D94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675058   (160345) от 08.11.2023
-
-Начался суд Epic Games против Google — он имеет судьбоносное значение для Android и Play Маркет
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_160345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началось второе за последние два месяца антимонопольное судебное разбирательство для компании Google. На этот раз защита понадобилась магазину приложений Google Play. Судебный процесс по иску Epic Games связан с тем, что Google запрещает оплачивать покупки в приложениях в обход её платёжной системы, а эта система забирает комиссию в 15 или 30 %. За процессом будет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

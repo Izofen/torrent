@@ -6,7 +6,7 @@ RPN Calculator 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130368.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Audiority - Deleight 1.3.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130377.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Audiority - Echoes T7E MkII 2.1.4 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130379.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Ro
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130380.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ ON1 Effects 2022.1 v16.1.0.11675 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130382.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ ON1 NoNoise AI 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130384.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ ON1 Resize 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130386.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ ON1 HDR 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130388.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Focusplan Pro - Mind Map 1.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130390.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про v2.8.1 [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130406.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ RainViewer: Метеорадары, ДМРЛ v2.13.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130408.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:771627084FFD43E3503947098D56000AAB8F7FFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130413.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Internet Download Manager 6.11 Build 7 Final RePack by KpoJIuK [русский, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130426.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ON1 Portrait AI 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130428.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sanctum {1.4.13334 + 9DLC} [Multi12\+] 2011 | UltraISO [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130445.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Music Folder Player v2.6.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130459.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Speedtest от Ookla 4.6.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130462.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:CF33C269129BF29148C0CBBB64D5EDF2740D1524
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130471.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Balabolka 2.15.0.810 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130473.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:39FDA920900384A72077106C2BC0609BC32AF4DC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130475.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130479.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Free Opener v2.0.1.0 Portable by Baltagy x32/x64 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130481.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Free Opener – программа, которая умеет открывать
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130485.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ X-Mouse Button Control 2.19.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130503.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:204EEDE3F60801B2B3F6D03777078ACF693AD425
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130509.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Multi Commander Full Edition 11.6 Build  2844 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130513.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1824296   (128940) от 14.10.2025
+
+VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evan Cortez - A Night in Rome (04:18)
+ 02 - Lofi Village - Another Love (03:20)
+ 03 - Ingo Herrmann - Nature View (02:41)
+ 04 - Twen T4 - Dana's Hill (04:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488670   (128941) от 26.04.2012
+
+Звезды YouTube / Зірки YouTube. Выпуск №2 (2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824253   (128942) от 14.10.2025
+
+График смен v8.5.4 Mod by AlexStrannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128942.jpg" />
+</div>
+
+
+###  Подробнее
+
+График смен - удобный и простой календарь, позволяющий рассчитывать и просматривать рабочие смены.Тип издания: PremiumРелиз состоялся: 14.10.2025Разработчик: Lili PetrikПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486373   (128943) от 26.04.2012
 
 Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
@@ -6,7 +81,7 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128943.jpg" />
 </div>
 
 
@@ -39,7 +114,7 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128947.jpg" />
 </div>
 
 
@@ -63,7 +138,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128949.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128951.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128953.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128954.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ FastStone Capture 11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128956.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128958.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128959.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:6939AD6FF443C97B88904F8DEE6382CD68594391
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128961.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ magnet:?xt=urn:btih:F294A3EFD8272BFC813FC91D4A5814587FC7CBE6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128964.jpg" />
 </div>
 
 
@@ -280,7 +355,7 @@ magnet:?xt=urn:btih:3AE379630365A2AE70617D3373AA162DDDC32CE3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128967.jpg" />
 </div>
 
 
@@ -304,7 +379,7 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128968.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128969.jpg" />
 </div>
 
 
@@ -358,7 +433,7 @@ magnet:?xt=urn:btih:8368E75B6AB3F19983E8C1A129F75142418323BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128970.jpg" />
 </div>
 
 
@@ -382,7 +457,7 @@ magnet:?xt=urn:btih:D8355A24202CFEA69970268DF18D0B528F398F7D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128971.jpg" />
 </div>
 
 
@@ -406,7 +481,7 @@ magnet:?xt=urn:btih:BF288F5DE3A5C0E4759B5028056B771DF14DF1AA
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128972.jpg" />
 </div>
 
 
@@ -430,7 +505,7 @@ magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128973.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128974.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ magnet:?xt=urn:btih:E72C212152F63BA105643CB5CE657D601756FA61
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128975.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128976.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128977.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:4BDF17C86851FDAD58BA6001EEA5B986318B22C7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128978.jpg" />
 </div>
 
 
@@ -566,83 +641,6 @@ magnet:?xt=urn:btih:4BDF17C86851FDAD58BA6001EEA5B986318B22C7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A281B95AB089591F1FF01A543308526B3AFB014F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294354   (128979) от 22.01.2022
-
-Николь Ленар-Виру | Умная сказка. Гадкий утенок (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развиваем мышление, память и наблюдательность! Задания на развитие логики для детей 3-5 лет. Эта сказка содержит игровые задания, которые помогут развить наблюдательность ребенка, его умение запоминать, мыслить и анализировать. Задания расположены внизу каждой страницы, отдельно от текста сказки, поэтому они не будут мешать читать и перечитывать сказку. Ребенок воспримет (   Читать дальше...   )Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ED9CD7B46BBB31DBE345A5780C70F33CF2F4BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525814   (128980) от 22.01.2022
-
-Александра Кибзий | Пилатес на каждый день (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никаких сложностей и огромного числа тренировок. Регулярные занятия, которые помогут вам понять свое тело, получать результаты и гарантировать себе активную и энергичную жизнь.
-Пилатес на каждый день подойдет для всех: новичков и профи любого возраста. И это реально выдох для многих, я уверена
-
-Что вас ждет:(   Читать дальше...   )Жанр: ВидеокурсПродолжительность: 21:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98C3DC70D98CF64CFD67B2232F5E57387997F20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525855   (128981) от 22.01.2022
-
-Дмитрий Шумаков | Технология монтажа водяного теплого пола (2015) WEB-DL [Пакет VIP]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертое издание единственного в рунете наглядного и практического видеокурса по монтажу систем водяного теплого пола.
-Отснятый полностью с нуля видеокурс шаг за шагом расскажет Вам, как своими руками смонтировать и запустить одну из самых экономичных и самую комфортную систему отопления.
-Когда Вы всерьез начнете применять информацию из курса «Технология монтажа (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 13:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666801024AF154D91290AF1F8879D96B3D6CC3F7
 ```
 
 

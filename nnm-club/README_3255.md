@@ -1,3 +1,76 @@
+###  Публикация: 1749655   (104311) от 15.09.2024
+
+PilotEdit Lite & Pro 19.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04941EF776CB1DCD026A4C1434F2DF4039E7A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749717   (104312) от 15.09.2024
+
+Следствие вели... (15.09.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104312.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Коса на камень». 1990 год, Гвардейск. Убит взрослый сын, тяжело ранена его мать и жена. А вскоре нападают на другую семью. Какую роль в этом деле сыграла хитрость? И куда привела сыщиков бочка с квасом?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C70B31B2219EACAA28C12C475A59171E72B6B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749590   (104313) от 15.09.2024
+
+Три лодки судьбы (2024) WEBRip [H.264/720p] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три одноклассницы – Катерина, Света и Даша – впервые после нескольких лет ссоры сталкиваются на встрече выпускников. Робкая Катерина, отказавшаяся от карьеры юриста ради семьи, никак не может уговорить своего мужа, тренера Кирилла, завести детей. Бывшая массажистка Света замужем за миллионером Баскаковым, к браку относится как к выгодной сделке, но все равно чувствует, (   Читать дальше...   )Производство: Россия | «Студия А10»Жанр: МелодрамаРежиссер: Роман ПросвирнинАктеры: Светлана Смирнова-Марцинкевич, Елена Дудина, Дарья Калмыкова, Алексей Матошин, Руслан Ягудин, Валерий Панков, Андрей Бутин, Антон Денисенко, Роман Ленков, Аня МарееваПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EE530F37A40BB5F5053FA548D86061ABE40D79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749759   (104314) от 15.09.2024
 
 GeoGebra 6.0.857.0 Classic + Portable [Multi/Ru]
@@ -6,7 +79,7 @@ GeoGebra 6.0.857.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104314.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:FFF70997EA06E08C7136AD71003A59590F874F53
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104315.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:39EE856CF3FB99EC5D7ADCB0BA937D7C1143DED5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104316.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Motorpsycho - Neigh!! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104317.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:3CDB4DED3B4FB31346A7CA1CE4D61F1E293C0CD5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104318.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:A3591136FDE574C4AFDDC41C2AE3955C47F21DEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104319.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:DE2AB1778B56043B1D14FCF2C5C9625D3CB3C8DF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104320.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ Rogga Johansson - Otherworld (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104321.jpg" />
 </div>
 
 
@@ -208,7 +281,7 @@ Horcas - El Diablo (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104322.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ Deceased - Children of the Morgue (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104323.jpg" />
 </div>
 
 
@@ -262,7 +335,7 @@ Oceano - Living Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104324.jpg" />
 </div>
 
 
@@ -289,7 +362,7 @@ Agrypnie - Erg (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104325.jpg" />
 </div>
 
 
@@ -316,7 +389,7 @@ A Killer's Confession - Victim 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104326.jpg" />
 </div>
 
 
@@ -343,7 +416,7 @@ Snow Patrol - The Forest Is The Path (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104327.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ Victory - Circle of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104328.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ magnet:?xt=urn:btih:32949240780BD1665426EC3546823C84AE8C2F1E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104329.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ magnet:?xt=urn:btih:B5AC9CDF7EC6750BF7BE8AEB49D72B6C8DA2514B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104330.jpg" />
 </div>
 
 
@@ -450,7 +523,7 @@ VA - DJ Hits Vol. 1000 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104331.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ Sam Smith - Gloria (2023) (Special Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104332.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ magnet:?xt=urn:btih:1D499D5BED89D8E8CA2DC5FA72DDF05F6F4CA580
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104333.jpg" />
 </div>
 
 
@@ -528,7 +601,7 @@ In Extremo - Wolkenschieber (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104334.jpg" />
 </div>
 
 
@@ -555,7 +628,7 @@ Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104335.jpg" />
 </div>
 
 
@@ -582,7 +655,7 @@ Neil Young - Global Citizen Festival (2012) Live, 2024, Unicorn [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104336.jpg" />
 </div>
 
 
@@ -596,81 +669,6 @@ Neil Young - Global Citizen Festival (2012) Live, 2024, Unicorn [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E48B9E74830677762AC9636B375E43616F7D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749205   (104337) от 14.09.2024
-
-Судный День - Чёрное пророчество (2008) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Адские врата (Пролог) (1:11)
-02. Ария демонов (3:38)
-03. Один из нас (4:24)
-04. Предсмертная исповедь (6:38)(   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AB3CBD7EB5F7F3376E4070CC28FF59411F6FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749513   (104338) от 14.09.2024
-
-Эрхард Дитль | Огрики и жабечательный Новый год (2022) [MP3, Оксана Архиреева и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все в Грязьбурге готовятся к празднованию Нового года. Все, кроме огриков, потому что они раньше и не слышали о таком празднике! Но как только огрики узнают, что Новый год — это ярмарки, поделки и веселье, они уже не могут остаться в стороне — ведь всё это так по-огриковски! И хотя по вине горожан зелёная семейка чуть не оказывается за решёткой в новогоднюю ночь, (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Мария ШалуноваИздательство: Альпина ДиджиталПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBAB69DB58C436E7A52AB63C4C3B945309D9013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749452   (104339) от 14.09.2024
-
-Живая еда с Сергеем Малозёмовым (14.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Копченая и вяленая рыба — в ней только вред или есть еще и польза, какая лучше — домашняя или магазинная, как размягчить пересохшую воблу и чем — лимонным соком, зубной пастой или пивом — лучше отмывать руки после рыбной трапезы? Команда программы в новом выпуске «Живой еды» и провела экспертизу улова из самых опасных водоемов России и проверила его на паразитов. (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3533D50DAF59486D8A625836648D3B76989E7CB0
 ```
 
 

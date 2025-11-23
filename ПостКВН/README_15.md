@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181238.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD92F9A21688C26E8E5965362CBF05EE26204DFB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181556.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:192812284409E4301D70A074044E9F2C01CCBE05
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181944.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181944.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:177900CCBDB9D14A45DF4864A6E052669299454C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182001.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182001.jpg" />
 </div>
 
 
@@ -95,6 +95,30 @@ magnet:?xt=urn:btih:800475EC6156F74E43ED50EE624B51B4CC3C324E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427656   (182042) от 29.11.2020
+
+Женский Stand Up (28.11.2020) WEB-DL [H.264/1080p-LQ] (сезон 2, выпуск 10)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_182042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85216EA70CD067321E2C5F78B5867E527948989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665385   (182059) от 30.09.2023
 
 Stand Up (2023.09.29) SATRip (сезон 11, выпуск 2)
@@ -103,7 +127,7 @@ Stand Up (2023.09.29) SATRip (сезон 11, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182059.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182059.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:100556C78A8C5BB7F4EE3B79D2325041A8365C21
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182068.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182068.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ magnet:?xt=urn:btih:2715CEDE5550D32767D41B42C470092735A0056A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_182567.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:AD2B4DFE7072D720FFDCD922B74C2505A2D2BB78
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182772.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182772.jpg" />
 </div>
 
 
@@ -199,7 +223,7 @@ magnet:?xt=urn:btih:5C660F86B7D2C9A797F71D69088BED082E40C950
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182947.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182947.jpg" />
 </div>
 
 
@@ -223,7 +247,7 @@ magnet:?xt=urn:btih:BCD350DACCCD15B9EA716D6F2AE11D34B89BEE9D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183036.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183036.jpg" />
 </div>
 
 
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:0BFD14B43CE80C724F5A98A8DA7DB6B4821C8811
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183783.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183783.jpg" />
 </div>
 
 
@@ -271,7 +295,7 @@ magnet:?xt=urn:btih:81873A48FCBB378F93E10A744C1FAFDD9E16216C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184507.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184507.jpg" />
 </div>
 
 
@@ -295,7 +319,7 @@ magnet:?xt=urn:btih:90849F666A2F5A0C495D4A4B048A91A7535E2C41
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186145.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186145.jpg" />
 </div>
 
 
@@ -319,7 +343,7 @@ magnet:?xt=urn:btih:EA8B3733ACFF17139ADC9856DE37A1A03B5F0146
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186330.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186330.jpg" />
 </div>
 
 
@@ -343,7 +367,7 @@ magnet:?xt=urn:btih:6490051AD09A371F12A24AE1DAB6EC75A0AA5B89
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186364.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186364.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:FF6EC233E272E5C4729C8FB01B42FDBB081CA72F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186368.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186368.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:C098B0FD6AFFF2863107AF0A5F1C69502ECF40EC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186632.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186632.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ magnet:?xt=urn:btih:C773F5781C07AA1AB82CACE83E37B199FE3BD32C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186780.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186780.jpg" />
 </div>
 
 
@@ -440,7 +464,7 @@ magnet:?xt=urn:btih:EF601383558FEAD58BCE74065988D174E5611A26
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187052.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187052.jpg" />
 </div>
 
 
@@ -464,7 +488,7 @@ magnet:?xt=urn:btih:D6ECE06649EF47321F28911E484CA338876CB6E6
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188157.jpg" />
 </div>
 
 
@@ -488,7 +512,7 @@ magnet:?xt=urn:btih:D97D09A3736DD024BED95808B634C869D5BEEEB5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188162.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188162.jpg" />
 </div>
 
 
@@ -512,7 +536,7 @@ magnet:?xt=urn:btih:C1952D131BB38CFCF344C95BEC76BAD31CFF1120
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188182.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188182.jpg" />
 </div>
 
 
@@ -536,7 +560,7 @@ magnet:?xt=urn:btih:D7A05B625FBFC13E1808C4F23807F329FF0FFA5A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188183.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188183.jpg" />
 </div>
 
 
@@ -560,7 +584,7 @@ magnet:?xt=urn:btih:3341CDE118A08D8FFB2980884F1C48C1E246BD0F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188188.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188188.jpg" />
 </div>
 
 
@@ -585,7 +609,7 @@ magnet:?xt=urn:btih:F38456635AEC989B9FC56B81E82D3BFF15E9DF9B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188191.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188191.jpg" />
 </div>
 
 
@@ -596,30 +620,6 @@ magnet:?xt=urn:btih:F38456635AEC989B9FC56B81E82D3BFF15E9DF9B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E91267D79B9C6067B0F847C7EEEAF7120CF67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661600   (188339) от 15.09.2023
-
-Уральские пельмени. Истина в кине (2023.09.15) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Верещагин ушел с баркаса. Когда Москва поверила слезам. И когда заливная рыба стала радостью. Можно начинать смотреть новую программу «Истина в кине» от Шоу «Уральские Пельмени»!Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3030226F53EF896221280D027184A4625E25DEEE
 ```
 
 

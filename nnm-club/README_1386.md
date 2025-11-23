@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:567AB537B2020596E15A3738C4C0196CF7D44484
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36390.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:567AB537B2020596E15A3738C4C0196CF7D44484
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36391.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C3BA8AEC627CBBDD6163B7E9A289D0DE9CF9CE7C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36392.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C3BA8AEC627CBBDD6163B7E9A289D0DE9CF9CE7C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36393.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:28C353CC1F187EF8C3EB2AE79D37F33BA18958C4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36394.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1FE96CBAA6EB005AAE759F878E752A1F4D530C07
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36395.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C3C5E78E26CE554DC491128248B9418CC6E0419B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36396.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:7D07FC2157774097DC2AC5FC349FBE56B34ECA93
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36397.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3ED989D307DCEF4CD8EDB209E6BD1B45F26A952A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36398.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rainbow - De Luxe Collection (2002) Compilation, Unofficial Release [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36399.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EACD6549177BCB2ADA0D32CBDF36A5173CF47EA5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36400.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:06BE53356CE6B5C14A5200D3C5D02ECB2590F12B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36401.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:610735CF235DD14E66399DF0FC345F8F8BC3DD6F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36402.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7582DF8EF04FD2324C544805C2B88311CA7D4216
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36403.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2330C92D34D394652F5560FF3688ED72D16E76FF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36404.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E2E7A36AF85D811845936E9C32909A365BE0AFA6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36405.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:9A5D799F1379CE5C111684474967DD04BE08BE5E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36406.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0C67934AB61B12FDF877549CFF969E47EC83A76F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36407.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36408.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Adobe InDesign 2025 20.0.1.32 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36409.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:EBD94B12DE46812E0E51959967EBD7271BA0EC7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36410.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:F58303CFC045EEC17552F7C289552A5F7594CD8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36411.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36412.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9151B949051B2C0ABC4189C0D181148140155F9D
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36413.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3A756DA9616782FE2E59872CBDA8C78BE72908F0
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36414.jpg" />
 </div>
 
 

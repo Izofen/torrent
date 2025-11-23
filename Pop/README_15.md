@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43358.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43540.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43557.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43561.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43563.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43566.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43643.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Bravo Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43654.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Various Artists - 80s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43675.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Da
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43678.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Hits of the 90s, 00s, 10s (2024) [MP3|320 Kbps] <Pop, Dance, Rock, RnB, Hip
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43694.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - DJ Hits Vol. 985 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43773.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - DJ Hits Vol. 999 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43774.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43863.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - DJ Hits Vol. 888 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43876.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Nancy Sinatra - Nancy In London (1995) Definitive Reissue, 2024, Boots Enterpris
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43986.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - DJ Hits Vol. 750 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43989.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dr. Alban - 2 EP (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Reggae, Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44151.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Anna Ermakova - Behind Blue Eyes (2024) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44713.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Imagine Dragons - Loom (2024) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44728.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Rice & Beans Orchestra - Cross Over (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45038.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ V.A. - Hits from the 70s (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45054.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MIA BOYKA - НАРОДНЫЙ АЛЬБОМ (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45123.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ EMIN - Столько лет спустя (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45138.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:734D9F070B4D613687FC4143F8EF2E4AAB7A3BEF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45150.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ magnet:?xt=urn:btih:4BE9965C71CB120FBA261E2054E69ADE5905B150
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45158.jpg" />
 </div>
 
 

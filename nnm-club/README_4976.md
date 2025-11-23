@@ -1,3 +1,173 @@
+###  Публикация: 1347194   (154160) от 22.12.2019
+
+Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Ванкувер Кэнакс (21.12.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154160.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 декабря 2019 года, воскресенье 06:00 МСК
+Стадион: Роджерс-Арена (Ванкувер, Канада), 18 285 зрителей (97 % при вместимости 18 910)
+Главный судья: Том Хмелевски (Канада); Главный судья: Стив Козари (Пентиктон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EB17BC42F007DCCF2447C9206D07C767852EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676051   (154161) от 15.11.2023
+
+Названы топ-5 эмодзи используемых в почтовых рассылках
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сервис почтовых рассылок проанализировал использование эмодзи в электронных письмах российских компаний.Эмодзи со значком огня — самые распространённые в электронных письмах российских компаний, по результатам анализа сервиса Unisender, который изучил более 3 миллиардов сообщений. Примерно 10,2% электронных писем содержат этот символ. Второе место занимает молния (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270892   (154162) от 21.12.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (201) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C02BE280D8C920CB8DC28325747F9F2A4F58D68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194869   (154163) от 26.12.2017
+
+Яндекс.Браузер 17.11.0.2191 Final DC 20.12.17 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4C3FCC83BC0C7DAE3461A6150BC9D91BCFDF40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086110   (154164) от 23.12.2016
+
+Сергей Шумилов | Нунчаку (1991) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нунчаку - это, наверное, самое популярное оружие востока. Широкую известность получили благодаря фильмам с участием Брюса Ли. Небольшая брошюра расскажет об основных приёмах с нунчаками.Жанр: Физкультура, СпортФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94D337188E2D0D4F38BE967055F9BFC3D3A6220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433852   (154165) от 22.12.2020
+
+Егор Андросов | Криптотрейдинг от практика (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криптотрейдинг: Торги на криптобирже Bittrex – целый комплекс операций c учениками.Жанр: КриптовалютыПродолжительность: 26:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086183   (154166) от 23.12.2016
+
+Пресс-конференция Президента России В. В. Путина (2016.12.23) WEB-DL [H.264/720p-LQ]
+
+>>След.
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодная большая пресс-конференция Президента РФ Владимира Путина, в ходе которой он отвечает на вопросы представителей СМИ мирового сообщества...Телекомпания: RTЖанр: Пресс-конференцияСубтитры: ОтсутствуютПродолжительность: ~ 03:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE67BC4B20E9C2F7E3FDB4252663EB4BF8ED5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433760   (154167) от 22.12.2020
 
 Осторожно, Кенгуру! / The Kangaroo Chronicles / Die Känguru-Chroniken (2020) HDRip [UKR]
@@ -6,7 +176,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154167.jpg" />
 </div>
 
 
@@ -30,7 +200,7 @@ Oscar Peterson - Piano Moods: The Very Best Of Oscar Peterson (1998) 2CD [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154168.jpg" />
 </div>
 
 
@@ -57,7 +227,7 @@ magnet:?xt=urn:btih:B5A4092F2CE5B4B16B423B5FC1FB4181469DA8D8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154169.jpg" />
 </div>
 
 
@@ -81,7 +251,7 @@ magnet:?xt=urn:btih:37F01F7BD9AD4A4F4B42C343B7554A8549B57035
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154170.jpg" />
 </div>
 
 
@@ -107,7 +277,7 @@ ONLYOFFICE 7.5.1.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154171.jpg" />
 </div>
 
 
@@ -132,7 +302,7 @@ magnet:?xt=urn:btih:BAD96E33D88268BC861C800703AC72E232859611
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154172.jpg" />
 </div>
 
 
@@ -156,7 +326,7 @@ magnet:?xt=urn:btih:5565C5E3AEEA3335AB5A876FF3B2E935BE2750FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154173.jpg" />
 </div>
 
 
@@ -180,7 +350,7 @@ magnet:?xt=urn:btih:93AD092ADA67372784C0604FDE99E535ED0E6093
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154174.jpg" />
 </div>
 
 
@@ -204,7 +374,7 @@ Vinegar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154175.jpg" />
 </div>
 
 
@@ -229,7 +399,7 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154176.jpg" />
 </div>
 
 
@@ -256,7 +426,7 @@ magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154177.jpg" />
 </div>
 
 
@@ -280,7 +450,7 @@ magnet:?xt=urn:btih:CBF586D32C3A2FAB532F78B0625EC65625E44340
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154178.jpg" />
 </div>
 
 
@@ -304,7 +474,7 @@ AltTab 6.51.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154179.jpg" />
 </div>
 
 
@@ -328,7 +498,7 @@ magnet:?xt=urn:btih:17F270FCF4D5CC678233A78D96E0367FADBC5805
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154180.jpg" />
 </div>
 
 
@@ -352,7 +522,7 @@ magnet:?xt=urn:btih:1CC0DE9665B62707049C8C2F06DBE0303D039B8A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154181.jpg" />
 </div>
 
 
@@ -376,7 +546,7 @@ magnet:?xt=urn:btih:9A9E8BF2192305EFA34902DD0AA4FA5029178388
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154182.jpg" />
 </div>
 
 
@@ -400,7 +570,7 @@ Wondershare Recoverit Video Repair 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154183.jpg" />
 </div>
 
 
@@ -424,7 +594,7 @@ VA - 25 Years Bonzai Classics (Remixed) (2017) [MP3|320 Kbps] <Trance, Hard tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154184.jpg" />
 </div>
 
 
@@ -451,7 +621,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154185.jpg" />
 </div>
 
 
@@ -465,186 +635,6 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21B767FF91245CA195BC4E165B6A239EEB6018FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433924   (154186) от 22.12.2020
-
-Звезды и солдаты / Красное и белое/ Csillagosok, katonak / The Red and the White (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об участии венгерских красногвардейцев в гражданской войне в России. Разбит один из венгерских отрядов. Молодому бойцу Ласло удается бежать в монастырь, где расположились венгры. Но врывается отряд белых и расстреливает борцов за революцию. Однако татарину Чингизу, венграм Ласло и Андрашу, а также русскому матросу удается вырваться за пределы города…Производство: Венгрия, СССР / MANDA, МосфильмЖанр: Драма, ВоенныйРежиссер: Миклош ЯнчоАктеры: Татьяна Конюхова, Кристина Миколаевска, Тибор Мольнар, Йожеф Мадараш, Андраш Козак, Сергей Никоненко, Глеб Стриженов, Никита Михалков, Михаил Козаков, Вера Алентова, Савелий КрамаровЯзык озвучки: Русский, ВенгерскийСубтитры: Русские (на венгерскую речь)Продолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAD2A44094C0A257D7F8FE86476F25026F8DD62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086146   (154187) от 23.12.2016
-
-AIMP 4.12 Build 1877 Final RePack (& Portable) by D!akov (with DFX Audio Enhancer)  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154187.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147EB9B23ED3380E80001D7837EAF018CBAB9849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433478   (154188) от 22.12.2020
-
-VA - 80s Disco Forever (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Flames Of Love (Extended Version) (5:20)
-02. Grant Miller - Colder Than Ice (Tess Remix) (6:49)
-03. The Hurricanes - Only One Night (12'' Version) (5:52)
-04. Psychic Interface - Dancin' In The Night (12'' Version) (5:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1F667AAF20F4328E48A2C2A0B95FF49D3859E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086145   (154189) от 23.12.2016
-
-VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Alter Bridge - Blackbird [07:58]
-02.	Black Light Burns - Lie [04:19]
-03.	Blindside - Swallow [02:25]
-04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194789   (154190) от 26.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Георг Отс  -  Мы с тобой не дружили  2:50
-02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
-03.  Олег Даль  -  И солнце всходило  3:20
-04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518530   (154191) от 20.12.2021
-
-SolarFlow - Infinity (2020) [AAC|~320 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinity (Original Mix) (5:32)
-02. Apollo 13 (Original Mix) (6:25)
-03. Elements (Original Mix) (5:21)
-04. Dolphins (Original Mix) (4:55)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D622F21959A02FC21B10DE5DCEDB01926645F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270957   (154192) от 21.12.2018
-
-Султан и святой / The Sultan and the Saint (2016) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два человека судьбы, один - путешествующий скромный христианский проповедник, другой - великий властитель мусульманской империи, встретились в эпицентре кровавой войны. После долгих бесед они поняли, что у них больше общего, чем различий... и эта встреча стала судьбоносной для истории человечества, так как привела к перемирию на целых восемь лет.Производство: США, Unity Productions Foundation, Studio UnknownЖанр: Документально-постановочный, историческийРежиссер: Александр КронемерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88E0FB24CFCF37AC5C28BE63EF322008CF6D5BF
 ```
 
 

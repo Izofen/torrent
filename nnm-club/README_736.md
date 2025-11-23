@@ -6,7 +6,7 @@ Iron Maiden - The First Ten Years I (1990) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19460.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19461.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C9353F3FB3159C3340D4474E04C84520BF97EF88
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19462.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:55479CE2EACE4F19BA0EAE74FDEE44AC285AAE1A
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19463.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:29167A4F3A4EB79E4D973E61AEC7C2927991F417
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19464.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B3F27A3098394F0728AE4A76809CC51C812A1C4C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19465.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Super Raft Boat Together (2023) [Ru/Multi] (1.4.1s1) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19466.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19467.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0C8160A7B77D9E44B2290E26DE507BBF9050104F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19468.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19469.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.0_d7a95f1a/dlc) Repack FitGirl [Completely 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19470.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9D70D9210BA22944363429DD03A0B8B747249C6C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19471.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7BE32340A5B89E222D53FF59D9967BC229AFDF18
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19472.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9AB888D39E97B540EDA927F91C711FDE34CDD89D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19473.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:59C83B8CFD076726F3EF07ABD786915F42ECF6CD
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19474.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:6EFA078F5EA882686F66651EFB6C6B1FE607F7BE
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19475.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19476.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Astral Ascent (2023) [Ru/Multi] (1.10.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19477.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:E91999182001431ACBEE0D5DE3E1884833F888D2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19478.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Pocket and Zooom (2025) [Multi] (1.0.1.1841) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19479.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:DAB5045DC33F71E5684B2616DAB1627C68E80CB9
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19480.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E74BA14769DB885726AB32AEA0CAF9EB70692F0B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19481.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19482.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4B5F9AC4EF36EC90F29DAD63FD5FCB4A7D88ADA2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19483.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Dolls Nest (2025) [Multi] (1.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19484.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19485.jpg" />
 </div>
 
 

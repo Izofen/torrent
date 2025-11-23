@@ -1,3 +1,178 @@
+###  Публикация: 1516879   (164583) от 13.12.2021
+
+Benko Dixieland Band - A Jazz Szuletesetol Napjainkig (2002) Bencolor [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Carey [1:59]
+02. Joshua Fit The Battle Of Jericho [1:51]
+03. Entertainer [3:20]
+04. Long Journey Home [2:13](   Читать дальше...   )Жанр: DixielandПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A023AD6106028C06C3441CFCC6E19037CA5F42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597843   (164584) от 16.12.2022
+
+Бандит / Bandit (2022) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харизматичный преступник Гилберт Галван-младший бежит из мичиганской тюрьмы и укрывается в Канаде. Там он покупает себе новую личность, но вновь берется за старое. Он грабит рекордные 59 банков и ювелирных магазинов, ловко обходя все усилия со стороны полиции и шаг за шагом становясь легендарной фигурой криминального мира.Производство: Канада, Yale Productions, BondIt Media Capital, Buffalo 8 ProductionsЖанр: триллер, драма, криминалРежиссер: Аллан АнгарАктеры: Джош Дюамель, Элиша Катберт, Мэл Гибсон, Нестор Карбонелл, Свен Теммел, Кит А. Болден, Дилан Флэшнер, Оливия д’Або, Майкл Х. Коул, Клер БронсонПеревод: Дублированный (Akimbo production)Язык озвучки: русскийСубтитры: Русские (forced) отдельноПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D24141E526629969DD7A1E397D45A9FC92DAE8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431764   (164585) от 16.12.2020
+
+Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164585.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517086   (164586) от 13.12.2021
+
+FastScripts 3.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164586.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
+Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1278CAF884E3A2E1CDFA055D291111B4825C15E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673648   (164587) от 02.11.2023
+
+Марина Серова | Частный детектив Татьяна Иванова. Пока сияют звезды (2023) [MP3, Таша Ким]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частного детектива Татьяну Иванову нанял бизнесмен Сарычев, чтобы она разобралась, кто покушается на жизнь его единственного сына Сергея. Случилось уже три покушения: два взрыва и погоня на ночном шоссе. Юноша красив и обаятелен, баловень судьбы и любимец женщин. Неужели это и стало причиной чьей-то ненависти? Да тут еще погибает при взрыве машины близкий друг Сергея. (   Читать дальше...   )Жанр: Современные детективыИздательство: ЛитРесПродолжительность: 06:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E94A580F6C1A5472F7909D8EFB2F3DDEC8D265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346222   (164588) от 18.12.2019
+
+Yojo - Yojo (2013) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Psychedelic Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundiver (5:56)
+02. VHS (6:26)
+03. Pterodactyl (5:29)
+04. Captain Kirk Had A Bad Day (4:20)(   Читать дальше...   )Жанр: Dark Jazz, Post Rock, Psychedelic Rock, InstrumentalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2702A1D1F9517965EB6A801B661D04D0253392D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432108   (164589) от 16.12.2020
+
+Довод / Tenet (2020) BDRip [H.264/1080p-LQ] [IMAX Edition]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — секретный агент, который проходит жестокий тест на надежность и присоединяется к невероятной миссии. От ее выполнения зависит судьба мира, а для успеха необходимо отбросить все прежние представления о пространстве и времени.Производство: Великобритания, США / Warner Bros., SyncopyЖанр: фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D2A68B8B91967AF562C0015F09BBA664A12853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597723   (164590) от 16.12.2022
 
 The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and PS (2015) PCRec [EN, RU]
@@ -6,7 +181,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164590.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ Klokki 1.1.2 (build 28) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164591.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ Edenbridge - MyEarthDream (2008) [FLAC|Lossless|image + .cue] <Symphonic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164592.jpg" />
 </div>
 
 
@@ -81,7 +256,7 @@ magnet:?xt=urn:btih:3268C05062D3269815C19898B2CB409B9628FBE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164593.jpg" />
 </div>
 
 
@@ -105,7 +280,7 @@ Cocktail Big Sur Edition 14.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164594.jpg" />
 </div>
 
 
@@ -129,7 +304,7 @@ Microsoft Office Standard 2019 for Mac v16.44 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164595.jpg" />
 </div>
 
 
@@ -155,7 +330,7 @@ Netra - Ingrats (2017) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164597.jpg" />
 </div>
 
 
@@ -182,7 +357,7 @@ AIDA64 Extreme | Engineer | Business 6.85.6300 RePack (&Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164598.jpg" />
 </div>
 
 
@@ -206,7 +381,7 @@ Aiseesoft Mac Blu-ray Player 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164599.jpg" />
 </div>
 
 
@@ -230,7 +405,7 @@ Toshiyuki Miyama & The New Herd - Tsuchi No Ne (1973) 2012, Nippon Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164600.jpg" />
 </div>
 
 
@@ -257,7 +432,7 @@ Netra - Mélancolie Urbaine (2010) [FLAC|Lossless|tracks + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164601.jpg" />
 </div>
 
 
@@ -284,7 +459,7 @@ Edenbridge - Shine (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164602.jpg" />
 </div>
 
 
@@ -311,7 +486,7 @@ ColorWell 7.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164603.jpg" />
 </div>
 
 
@@ -335,7 +510,7 @@ magnet:?xt=urn:btih:FA654CB8B94BC99DC36AB9E414AD3C38DBDF5186
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164604.jpg" />
 </div>
 
 
@@ -361,7 +536,7 @@ magnet:?xt=urn:btih:407C2BE1A4A2CE4506AFDCBAD04171CD74CE4852
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164605.jpg" />
 </div>
 
 
@@ -385,7 +560,7 @@ Netra - Sørbyen (2011) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164606.jpg" />
 </div>
 
 
@@ -412,7 +587,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164607.jpg" />
 </div>
 
 
@@ -437,7 +612,7 @@ magnet:?xt=urn:btih:62682BF1BF5CD1ABC2E7EEEFAD4F28C2AC61BA8F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164608.jpg" />
 </div>
 
 
@@ -461,7 +636,7 @@ OmniReader Pro for Mac 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164609.jpg" />
 </div>
 
 
@@ -472,178 +647,6 @@ OmniReader - полифункциональное приложение для ч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFD1750DC2CE7E75F5FC5BB9327B334924BAD183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429997   (164610) от 16.12.2020
-
-Довод / Tenet (2020) UHD BDRip [H.265/2160p] [SDR, 10-bit] [IMAX Edition]
-
->>След.
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164610.jpg" />
-</div>
-
-
-###  Подробнее
-
-После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США, Syncopy, Warner Bros.Жанр: Фантастика, БоевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Клеманс Поэзи, Фиона Дуриф, Майкл Кейн, Химеш Патель, Эндрю ХовардПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, full), украинские (Forced), английскиеПродолжительность: 02:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D9D085EDDE50E09CBB1F81FBC7F9C9916C04B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516966   (164611) от 13.12.2021
-
-Network Kit 9.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164611.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данного приложения вы можете быстро найти всю информацию о своей сети. Информация, такая как внутренний и внешний IP, имя ISP, сетевое имя, MAC-адрес, адрес шлюза, маска подсети и адреса DNS. Кроме того, одним щелчком Вы можете проверить PING домен, запросить сервер или использовать службу NSLookup/Dig. Вы можете скопировать любую информацию о сети с которой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: © 2021 Fausto RistagnoПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE5B64326E4705690E0A0B77EEC5C5194AA2A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597760   (164612) от 16.12.2022
-
-Один путь / One Way (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкий мошенник Фредди крадет сумку с деньгами и наркотиками у Вик, влиятельной и очень опасной женщины-мафиози из Лос-Анджелеса. Раненный в живот Фредди садится в первый попавшийся автобус, который едет в калифорнийскую пустыню. У него есть 2 часа, чтобы успеть получить медицинскую помощь прежде, чем он умрет или возмездие Вик настигнет его. Это время Фредди использует, (   Читать дальше...   )Производство: США / 23ten, Baird Films, Bay Point MediaЖанр: боевик, триллер, криминалРежиссер: Эндрю БейрдАктеры: Кевин Бейкон, Трэвис Фиммел, Машин Ган Келли, Дреа де Маттео, Сторм Рейд, Риз Койро, Мэган Холдер, Луис Да Силва мл., К.Д. О’Хэйр, Томас МерфиПеревод: Дублированный (Zone Vision Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B0AB4DF321032B1B8BEABDFA901F9F0AD89B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346106   (164613) от 18.12.2019
-
-M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Periphery (05:44)
- 02. Triennale (07:54)
- 03. Enterprise (04:59)
- 04. Careful, Thinking Could Become A Habit (05:06)Жанр: ElectroПродолжительность: 01:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8B08BF70E2414622617A8943E3CDBF81AA9F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353610   (164614) от 16.12.2020
-
-Подшивка журналов | Наука и жизнь (2020) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164614.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Основные рубрики: наука, техника, медицина, история, дела домашние, сад, огород, (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F117A03270232C03A8A5641C522B7D60B1264F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673617   (164615) от 02.11.2023
-
-Codepoint for Mac 1.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
-Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2022–2023 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC0B7A0B0B02E85CA7292807F1DECDF8810F21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432210   (164616) от 16.12.2020
-
-Доставить к Рождеству / Deliver by Christmas (2020) WEBRip [H.264/1080p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164616.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ёлочном базаре Молли случайно сталкивается с незнакомцем по имени Джош, отцом-одиночкой, который после смерти жены переехал с сыном в небольшой городок, где живут его мама и брат. А спустя пару дней в пекарне Молли раздаётся звонок, и между ней и таинственным собеседником возникает симпатия.Производство: США / Hallmark Movies & Mysteries, Muse Entertainment Enterprises, Build-a-Bear Workshop EntertainmentЖанр: Комедия, мелодрамаРежиссер: Терри ИнгрэмАктеры: Эйон Бэйли, Альвина Аугуст, Джим Торберн, Надин Лайтбади, Далиас Блейк, Ambika Vas, Kesler Talbot, Эрин МаршаллПеревод: Многоголосый профессиональный (IVI)Субтитры: ОтсутствуютПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F74903ED66D37101A3BE886B3905B5C8F5FCE0
 ```
 
 

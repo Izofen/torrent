@@ -1,3 +1,176 @@
+###  Публикация: 1600270   (158890) от 26.12.2022
+
+Эрнест Асланян | Я всё про вас знаю. Как видеть людей насквозь и выходить из сложных ситуаций (2022) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый модельер становится жертвой мошенников. Музыкальный продюсер делит с супругой квартиру в Москве. Дочь кинозвезды Советской эпохи теряет наследство… Это не анонсы телепрограммы «Скандалы, интриги, расследования», а реальные дела сыщика Эрнеста Асланяна. За 13 лет частной практики он раскрыл более 1,5 тысяч преступлений с участием как популярных политиков, (   Читать дальше...   )Жанр: Психология общения. Социальные навыкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7248E0B284B61890E540F63BD2F5D08479162DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676221   (158891) от 12.11.2023
+
+The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Remixed & Expanded [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158891.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Love Me Do (2023 Mix)
+02. Please Please Me (2023 Mix)
+03. I Saw Her Standing There (2023 Mix)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C53BFCF877CFD940933B3B85B0080661292D04D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600179   (158892) от 26.12.2022
+
+Суперсерия 72 (2022) WEB-DL [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суперсерия-1972 - одно из величайших событий в истории хоккея. Первая встреча канадских профессионалов и советских любителей стала гораздо большим, чем просто серия статусных международных матчей. Это была ледовая битва двух могущественных сверхдержав, ярчайшее противостояние характеров, менталитетов и стереотипов, соперничество капитализма и коммунизма, перенесённое (   Читать дальше...   )Производство: Россия, Джангл ФилмзЖанр: документальный, история, спортРежиссер: Сергей ГоловецкийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84171F9B204A9AA294CDAFACE9FEDA401DAD36C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676173   (158893) от 12.11.2023
+
+Кэмерон Диас, Сандра Барк | Книга о теле (2021) [MP3, Мария Цветкова]
+
+>>Обучающие аудиоматериалы
+>>Медитации (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158893.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении всей карьеры Кэмерон Диас служила примером для подражания для миллионов женщин. Однако она не всегда задумывалась о своем здоровье. Осознание неразрывной связи питания и здоровья стало одним из тех жизненных уроков, которые заставили Кэмерон всерьез заинтересоваться и понять, как следует заботиться о собственном теле. В «Книге о теле» она делится знаниями, (   Читать дальше...   )Жанр: Здоровье, СаморазвитиеИздательство: СиндбадПродолжительность: 09:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B071B2427842C3FBD27C8DFDA8AC9D8BB5D43C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676212   (158894) от 12.11.2023
+
+Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитесь у эксперта по композитингу.
+Как старший композитор, в настоящее время работающий в индустрии визуальных эффектов, я имею более четырнадцати лет опыта работы с программным обеспечением для композитинга на основе узлов, таким как Nuke. Мои прошлые проекты включают такие популярные телесериалы, как «Сотня», «Волшебники», «Бойтесь ходячих мертвецов» и «Проект (   Читать дальше...   )Производство: UdemyЖанр: КомпозитингЯзык озвучки: АнглийскийПродолжительность: 02:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F5667BA4B1DE0A0E0FA10222989F1CA5F7B09A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600095   (158895) от 26.12.2022
+
+Орландо / Orlando (1992) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158895.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVII век, Лондон. Орландо — юноша-аристократ, гермафродитный по моде того времени и серьезно настроенный превратить жизнь, о которой он знает так мало, в искусство, о котором он знает еще меньше. Орландо привлекает внимание стареющей королевы Елизаветы I, и ее величество приказывает ему не взрослеть и не стареть. Орландо подчиняется, необъяснимым образом оставаясь (   Читать дальше...   )Производство: Великобритания, Россия, Италия, Франция, Нидерланды / Adventure Pictures, Lenfilm Studio, Mikado FilmЖанр: фэнтези, драма, мелодрама, биографияРежиссер: Салли ПоттерАктеры: Тильда Суинтон, Билли Зейн, Лотер Блюто, Джон Вуд, Шарлотт Валандре, Хиткоут Уильямс, Квентин Крисп, Джимми Соммервиль, Джон Ботт, Элейн БенэмПеревод: Двуголосый профессиональный (Ленфильм), Авторский (А. Алексеев)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FBDF74EADB026FADAFEFE09A5031142A81F7BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600117   (158896) от 26.12.2022
+
+Майкл Шелленбергер | Конца света не будет. Почему экологический алармизм причиняет нам вред (2022) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Климат и правда меняется, но это не конец света. И даже не самая серьезная экологическая проблема. Часто люди, громче всех паникующие по поводу экологических проблем, также склонны выступать против их очевидных решений. Так что же на самом деле стоит за ростом апокалиптического экологического мышления?
+Хотя внимание СМИ уже несколько десятилетий подряд приковано (   Читать дальше...   )Жанр: Естественные наукиПеревод: Юлия КапустюкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D758638F624F953B654973863580C193D7EE9309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676319   (158897) от 12.11.2023
 
 Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +179,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158897.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:09FEDD922029E1B2F6ECC8E456D5EBE2169E618B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158898.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ magnet:?xt=urn:btih:97748CB2C2CCE4B15907916FE4B1D169A4639B69
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158899.jpg" />
 </div>
 
 
@@ -81,7 +254,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158900.jpg" />
 </div>
 
 
@@ -105,7 +278,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158901.jpg" />
 </div>
 
 
@@ -129,7 +302,7 @@ magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158902.jpg" />
 </div>
 
 
@@ -155,7 +328,7 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158903.jpg" />
 </div>
 
 
@@ -179,7 +352,7 @@ magnet:?xt=urn:btih:A83D67E32BCF0AFC8A13B081E9E4BBDE3D448C2F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158904.jpg" />
 </div>
 
 
@@ -205,7 +378,7 @@ magnet:?xt=urn:btih:04580D8DB06534908DCA3978396A1103B0B5F6CA
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158905.jpg" />
 </div>
 
 
@@ -229,7 +402,7 @@ magnet:?xt=urn:btih:F30F544C07DB1C5E99541A9133C68BF61D27105C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158906.jpg" />
 </div>
 
 
@@ -253,7 +426,7 @@ Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158907.jpg" />
 </div>
 
 
@@ -277,7 +450,7 @@ magnet:?xt=urn:btih:55A39ABFE565F76C2599B2553FC212F9BFF4DBE5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158908.jpg" />
 </div>
 
 
@@ -301,7 +474,7 @@ VA - Big Room Dance 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158909.jpg" />
 </div>
 
 
@@ -328,7 +501,7 @@ magnet:?xt=urn:btih:A25AB32405CAF379006DE1281037DDF5C24848CC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158910.jpg" />
 </div>
 
 
@@ -352,7 +525,7 @@ magnet:?xt=urn:btih:0BF7D4D0702F2C052BFCD2C6337966DD066ECE06
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158911.jpg" />
 </div>
 
 
@@ -376,7 +549,7 @@ magnet:?xt=urn:btih:F2BB6D954B39989BE6334D6C1E065A00F3D357B0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158912.jpg" />
 </div>
 
 
@@ -400,7 +573,7 @@ magnet:?xt=urn:btih:0CBC862484F5700D90B8B553007A40F91B3668CD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158913.jpg" />
 </div>
 
 
@@ -424,7 +597,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158914.jpg" />
 </div>
 
 
@@ -451,7 +624,7 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158915.jpg" />
 </div>
 
 
@@ -465,178 +638,6 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CC58E86A251BC8826288F48F2E58824AADB57F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676065   (158916) от 12.11.2023
-
-VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers - Mr. Brightside (3:44)
-02. Bon Jovi - Livin' On A Prayer (4:11)
-03. Kiss - I Was Made For Lovin' You (4:28)
-04. The Rolling Stones - Paint It, Black (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600264   (158917) от 26.12.2022
-
-Девушка в ящике / Girl in the Box (2016) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158917.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 мая 1977 года 20-летняя Колин Стен пыталась автостопом добраться на день рождения друга. Последующие 7 лет она провела в плену. Девушку похитили супруги — чета Хукер, Камерон и Джанис. Коллин стала сексуальной рабыней Камерона, но этого, видимо, было недостаточно, поэтому он регулярно подвергал ее издевательствам: избивал и заставлял спать в деревянном ящике, (   Читать дальше...   )Производство: Канада / GIAB Productions, Randy Murray ProductionsЖанр: драма, криминалРежиссер: Стивен КемпАктеры: Зельда Уильямс, Билл Лэйк, Эддисон Тимлин, Адриан Гриффин, Зейн Холц, Matt Cooke, Shawn Wright, Бриттани Аллен, Vivian Wright, Шилин ПатонПеревод: Одноголосый любительскиий (datynet)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE754E1E51A07D4B15750B764791CF31E10DC93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593136   (158918) от 26.12.2022
-
-Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158918.jpg" />
-</div>
-
-
-###  Подробнее
-
-GX-80 - это не просто еще одна эмуляция CS-80. GX-80 умело интегрирует набор отличительных функций GX-1 в архитектуру CS-80; что наиболее важно, массивная двухслойная архитектура, которая фактически сделала GX-1 эквивалентом двух CS-80, а затем и некоторых других. В GX-1 встроены уникальные высокочастотные резонансные импульсы и полосовые пилообразные волны, треугольные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2240C471E6F586EF3C04D772C7DBDF40A8D7E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676235   (158919) от 12.11.2023
-
-На глубине страха / Deep Fear (2022) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное путешествие под парусом в Карибском море обернулось для прекрасной опытной яхтсменки Наоми самым опасным приключением в жизни. Отклонившись от маршрута из-за внезапного шторма, она решает помочь группе выживших в кораблекрушении. Спасенные люди оказываются наркоторговцами и берут Наоми в плен. Теперь под угрозой смерти ей необходимо достать с утонувшего судна (   Читать дальше...   )Производство: Великобритания, Ashland Hill Media Finance, Brilliant Pictures, Fred FilmsЖанр: боевик, триллерРежиссер: Маркус АдамсАктеры: Эд Вествик, Мадалина Генея, Макарена Гомес, Шэйн Роу, Ибрахима Гуйе, Майк Пэриш, Стани Коппет, Роберт Капелли мл., Марко Санадеа, Джон-Пол ПакеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E3B696A171D7AE4C826845D511779AA237980A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600268   (158920) от 26.12.2022
-
-LEGO Скуби-Ду!: Призрачный Голливуд / Lego Scooby-Doo!: Haunted Hollywood (2016) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158920.jpg" />
-</div>
-
-
-###  Подробнее
-
-О, Голливуд! Блеск, гламур... И Всадник без головы? Отправляйтесь вместе с любимцем зрителей Скуби-Ду и другими членами корпорации «Тайна» - в святая святых киносъемки - в легендарные голливудские студии. То, что начнется как обычная экскурсия станет настоящим детективным расследованием наших друзей! Город наполнен призраками и монстрами из знаменитых кинолент, и (   Читать дальше...   )Производство: США / Warner Bros. Animation, The LEGO Group, Hanna-Barbera ProductionsЖанр: мультфильм, ужасы, фэнтези, комедия, детектив, семейныйРежиссер: Рик МоралесПеревод: многоголосый любительский (Колобок)Субтитры: отсутствуютПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5B0B26A5AACC098393F4882B0E15A482C5CCC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676321   (158921) от 12.11.2023
-
-Technimatic - For All Of Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8501D19DD419C24083FB68376498EB1D1A82FC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600183   (158922) от 26.12.2022
-
-Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F602AE55E55601873BF27A3621C26F3D9FEE4D
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1649920   (194976) от 29.07.2023
+
+Бас Мейер, Рене Мозер, Лорин Хоштейн | Запускаем Ansible. Третье изд. (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ автоматизации управления конфигурациями и развертыванием приложений
+
+Среди множества имеющихся инструментов управления конфигурациями Ansible выделяется своими преимуществами, такими как небольшой объем, отсутствие необходимости устанавливать что-либо на управляемые хосты и простота в изучении и освоении.
+В этом обновленном третьем издании вы узнаете, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. КиселевИздательство: ДМК Пресс, O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CAE99E7DC41011321B3C11328EAF6834D0D014B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649923   (194982) от 29.07.2023
+
+Макгрегор Дункан, Прайс Нэт | От Java к Kotlin (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга описывает практические приемы рефакторинга и переноса кода написанных на Java мобильных приложений для Android  на язык Kotlin с сохранением совместимости. Приведено подробное сравнение этих двух языков, даны примеры перевода проектов с Java на Kotlin, добавления поддержки Kotlin в сборку Java. Показан переход от классов Java к классам Kotlin, от коллекций Java (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B487053A6BEB616659B48288BBDF0FF117EA3347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648765   (195123) от 26.07.2023
+
+Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Java обычно решают сложные задачи разработки программного обеспечения с помощью объектно-ориентированного программирования (ООП). Однако не все проблемы подходят для ООП. Парадигма функционального программирования (ФП) предлагает другой подход к решению проблем, а Java предоставляет такие простые в освоении инструменты ФП, как лямбды и потоки. Если вы (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649098   (195125) от 26.07.2023
 
 Эндрю Парк | Python за 7 дней. Краткий курс для начинающих (2023) [PDF]
@@ -6,7 +81,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195125.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195125.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Daniel Sipos | Drupal 10 Module Development (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195152.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195152.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:A6A35FF19051C30F37FAE6EAC93467169734925C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195359.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195359.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:CB4C9EBF05032936006D753483E265056A1D2932
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195605.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:A2AAF9C8910AF7C8EE6EBFEBFAD57DB10CF0BAB0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195705.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195705.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Ben Shaw, Saurabh Badhwar, Chris Guest и др. | Web Development with Django (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195832.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195832.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:172F7EADD5E429F4446EEB4547BDC8AF1C391C8F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196002.jpg" />
 </div>
 
 
@@ -176,7 +251,7 @@ magnet:?xt=urn:btih:21E1199C8CF232E1ECC7E43DC7CDECADFD7D2673
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196159.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196159.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ magnet:?xt=urn:btih:420DE8A37323A96DF7F64CBB122679C3039A8C4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196322.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196322.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:892F1F6CD3D6C5A295D3D7AE2436FA9BEA42A09B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196801.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196801.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:C6FBBB405C74F713D52B6353DD1F733F15B4036A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197277.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197277.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ Solomon Eseme | Architecting Vue.js 3 Enterprise-Ready Web Applications (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197315.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ magnet:?xt=urn:btih:D03D36DE6C986CD60D8797A011ED1A02F74A1588
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197320.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197320.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:0D209554F28E389C30994AE69FF75194C24B75B6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197468.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197468.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ magnet:?xt=urn:btih:19D23F7DEC97E40D6DFAAC817808632D42CAB8BB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197469.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197469.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ magnet:?xt=urn:btih:E0CFECDB09DE943DD93C700B9AF08AA98F124860
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197528.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ Alexander Benedikt Kuttig | Professional React Native (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197731.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197731.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ Daniel Afonso | State Management with React Query (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197739.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197739.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Chris Minnick | JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197742.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197742.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ magnet:?xt=urn:btih:BA4416B159ADB1C73567470FD6A7E72A7195E472
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197754.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197754.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ magnet:?xt=urn:btih:36B700ADED24EA1EFAE8DC3EE4D9554A7DB53212
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197759.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:77CD123DB91CE020898D2F1388E5EE43D83A2E99
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197816.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197816.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197961.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197961.jpg" />
 </div>
 
 
@@ -558,80 +633,6 @@ magnet:?xt=urn:btih:8D987C281556C8EF25ABE15C3A13022167156C0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC6F0ECC05C49AEEDBEEA45EB141204224E3B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635548   (197983) от 26.05.2023
-
-Илья Григорьев | AnyLogic за три дня. Практическое пособие по имитационному моделированию (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первое практическое пособие по программе AnyLogic от ее разработчиков. AnyLogic является уникальным программным продуктом, поддерживающим все три методологии имитационного моделирования: системную динамику, дискретно-событийное и агентное моделирование, а также позволяющим создавать многоподходные модели.
-Книга содержит подробные пошаговые инструкции по построению (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C9703D604A802EA9608FF1C881297A3ADFFDC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634611   (198113) от 21.05.2023
-
-Брюс Тейт | Семь языков за семь недель. Практическое руководство по изучению языков программирования (2014) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с семью языками программирования вы исследуете наиболее важные из современных моделей программирования.
-Вы познакомитесь с динамической типизацией, которая делает языки Ruby, Python и Perl такими гибкими. Постигнете систему прототипов, лежащую в основе языка javascript. Увидите, как сопоставление с образцом в языке Prolog сказалось на формировании языков Scala (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Н. КиселевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52232B4D3FA04921A22C08FD420A0B8444C237E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634395   (198156) от 20.05.2023
-
-П.В. Евдокимов, Е.В. Дубовик | Справочник C#. Кратко, быстро, под рукой (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный справочник содержит ключевую информацию о С# в удобной и наглядной форме. Структура справочника позволяет быстро и легко находить нужную информацию, получать примеры использования тех или иных элементов и конструкций С#. Рассмотрены основы синтаксиса С# и первые программы на С#. Отдельное внимание уделено внимание таким темам, как: интерфейсы, структуры и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC00D40D57FA4CACCD3B75BC33F7830A43B4314
 ```
 
 

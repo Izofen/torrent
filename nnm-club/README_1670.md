@@ -6,7 +6,7 @@ Stryper - When We Were Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43775.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Clint Morgan - Codger (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43776.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oceans Of Slumber - Where Gods Fear To Speak (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43777.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43778.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ C-Lekktor - 2.0 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, Hars
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43779.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:C08D0B82D0CB52F173A5FAC7FCCC47AC7C9A9E5C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43780.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:F65612227C792C22ACBD494B114D3BA3AF730772
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43781.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:0A701131D9BDC52358919A09A395600EBA128CF0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43782.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:03CA12CF7C4A5FA72CF83BBFDF962C43379DD1AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43783.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D3424CB50979A4288DC473AC14998236C38EFCE6
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43784.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:97968DD46B9BAEBB722B4BE7805A2692C09F49A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43785.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C77D7D5A7C723F3090EDE20D330F3A9F675486CA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43786.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:4DE6E97FB0EF0E0AAF3626AD51A471FA87F83D1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43787.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43788.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - E-Dance Weekend Party (2024) [MP3|320 Kbps] <Dance, Club, House, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43789.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - The Jazz Tour (2024) [MP3|320 Kbps] <Jazz, Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43790.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A62D361B4303A9B40EF5574E676437E1F8A79CA4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43791.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:9E5A293E6C0530A53F6CE1EEA0539FA626CE25FA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43792.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Greatest Violin Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43793.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - TOP Non-Stop 2020+. Deep & Organic House (2024) [MP3|192-320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43794.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Classical Music with Violin and Piano (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43795.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:723F24F1F55A7BB196B0E67A83AE6007E6F8C471
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43796.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43797.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Ashbury Heights - Ghost House Sessions, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43798.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:B3046BC60CDCB53FFA622C43FD5E02942A5377AE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43799.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:5D8875EBA62B3327C8BC1030730D216DAEC813E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43800.jpg" />
 </div>
 
 

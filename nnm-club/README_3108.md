@@ -1,3 +1,88 @@
+###  Публикация: 480367   (99083) от 09.04.2012
+
+VA - В Машину! Клубный (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe Carolina - Blackout (8barz Radio Edit)
+02. In-Tens - Smile (Radio Edit)
+03. Funkwhite - Plug Play (Radio Edit)
+04. Syntheticsax - Time (Radio Edit)
+05. Aksioma Project - Love Confession (Radio Edit)
+06. Lady Gaga - Electric Chapel (N-Vision Radio Edit)
+07. Socra - Danca
+08. Alesha Dixon - Do It Our Way (Play)
+09. David Deejay Feat. Ami - Magnetic (Radio Edit)
+10. Jade Mckenzie - One More (Can't Get Enough)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928FC58CC6928138AEC686B0D19DB0660E993296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480563   (99085) от 09.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 43
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99085.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 43 
+Название:  Desktop Wallpapers Pack 43 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 5000х2812
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480298   (99088) от 09.04.2012
+
+Хороший парень / The Good Guy (2009) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_99088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда во всём успешную Бет интуиция никогда не подводила — потому у неё есть верные подруги и хорошая работа в Нью-Йорке. Но в личной жизни сделать правильный выбор ей будет совсем непросто, ведь на горизонте у Бет сразу два хороших парня: Томми — успешный маклер с Уолл Стрит и симпатичный коллега Даниэль.Жанр: Комедия, мелодрамаРежиссер: Хулио ДеПьетроАктеры: Алексис Бледел, Эндрю МакКарти, Скотт Портер, Анна Кламски, Брайан Гринберг, Аарон Йу, Кейт Наута, Эрик Тал, Трини Альварадо, Колин ЭглсфилдПеревод: Многоголосый закадровыйПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479256   (99089) от 09.04.2012
 
 VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
@@ -6,7 +91,7 @@ VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99089.jpg" />
 </div>
 
 
@@ -39,7 +124,7 @@ magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99091.jpg" />
 </div>
 
 
@@ -67,7 +152,7 @@ VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99092.jpg" />
 </div>
 
 
@@ -99,7 +184,7 @@ VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99094.jpg" />
 </div>
 
 
@@ -132,7 +217,7 @@ magnet:?xt=urn:btih:7D907500C819E091EC8AFE9F1692CDB235976262
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99096.jpg" />
 </div>
 
 
@@ -156,7 +241,7 @@ VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99100.jpg" />
 </div>
 
 
@@ -189,7 +274,7 @@ magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99101.jpg" />
 </div>
 
 
@@ -213,7 +298,7 @@ magnet:?xt=urn:btih:F5DF020804F52A1227FFD5046154614FD738F5E0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99102.jpg" />
 </div>
 
 
@@ -238,7 +323,7 @@ magnet:?xt=urn:btih:6C53D5325033816BA8EAC77BD680351BCF9F156F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99104.jpg" />
 </div>
 
 
@@ -262,7 +347,7 @@ magnet:?xt=urn:btih:DDB182F3F3C4573A9DF10DCE75B17CBE848059DE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99106.jpg" />
 </div>
 
 
@@ -290,7 +375,7 @@ magnet:?xt=urn:btih:B37331C2BC9F5376A7CEBABAB241B3ED4D5480D7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99107.jpg" />
 </div>
 
 
@@ -323,7 +408,7 @@ magnet:?xt=urn:btih:B37331C2BC9F5376A7CEBABAB241B3ED4D5480D7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99110.jpg" />
 </div>
 
 
@@ -347,7 +432,7 @@ magnet:?xt=urn:btih:1DF2FE89FC21BC1B1D053E910C78B3BB77A2CC94
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99112.jpg" />
 </div>
 
 
@@ -375,7 +460,7 @@ VA - Музыкальные хиты (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99113.jpg" />
 </div>
 
 
@@ -408,7 +493,7 @@ magnet:?xt=urn:btih:056E7A434DA7507B41941BE74A16F0C86F011B97
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99114.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ VA - Только Хиты Хит FM 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99117.jpg" />
 </div>
 
 
@@ -469,7 +554,7 @@ Sumatra PDF 2.0.1 Final + Portable [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99123.jpg" />
 </div>
 
 
@@ -493,7 +578,7 @@ Datsik - Vitamin D (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99125.jpg" />
 </div>
 
 
@@ -526,7 +611,7 @@ magnet:?xt=urn:btih:CBB9D563825163EFD7280ECDF5D994F8285AA5CF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99128.jpg" />
 </div>
 
 
@@ -552,7 +637,7 @@ VA - Авто Дискотека DFM (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99132.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ VA - В Машину! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99133.jpg" />
 </div>
 
 
@@ -618,7 +703,7 @@ magnet:?xt=urn:btih:7C90744FE29443684335751E21FBA2A4A4DE5116
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99134.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99134.jpg" />
 </div>
 
 
@@ -642,7 +727,7 @@ Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99135.jpg" />
 </div>
 
 
@@ -662,89 +747,6 @@ Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:080D266FB4A9BEB6D2547C71F00A4C10D75785A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479114   (99136) от 09.04.2012
-
-VA - Бездна Party 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Sarvi - Amore (Chuckie radio edit)
-002 5sta Family - Вместе Мы
-003 Aura Dione - Geronimo
-004 Светлана Разина - Радио НАХ
-005 Nicola Roberts - Memory of you
-006 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-007 Javi Reina & Alex Guerrero feat. Syntheticsax - Oig
-008 ВИА Гра - Диско
-009 Christopher S feat. Max Urban - Star (Mike Candys remix)
-010 Яжевика - Город Тает(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822186   (99137) от 05.10.2025
-
-1С Учебный центр №1, Никита Симоненко | Управление закупками в программе "1С:Управление холдингом 8" (2025) WEBRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цели курса: изучение возможностей программного продукта «1С:Управление холдингом» в части бизнес-процессов управления закупками, формирование практических навыков самостоятельной настройки и управления процессами в прикладном решении.
-
-В рамках обучающего курса на данных практического примера продемонстрирована реализация в «1С:Управление холдингом» следующих бизнес-процессов: (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 09:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822198   (99138) от 05.10.2025
-
-Шрифты - MyFonts - Humant [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Humant — геометрический шрифт, вдохновлённый культовым дизайнерским направлением Баухаус. Он отличается чистыми, минималистичными линиями и округлыми формами, подчёркивающими баланс и симметрию. Благодаря модульной структуре Humant воплощает современную, но неподвластную времени эстетику, что делает его идеальным для брендинга, плакатов и редакционного дизайна. Этот (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
 ```
 
 

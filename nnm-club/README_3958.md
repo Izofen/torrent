@@ -1,3 +1,77 @@
+###  Публикация: 1692353   (122590) от 16.01.2024
+
+S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сталкер подозревает своего коллегу в воровстве. Наказанием должна стать смерть. Доказательства нечестности напарника у сталкера есть, но внутренний голос говорит ему, что все не так просто. Фильм снят по мотивам произведений, вошедших в книгу-сборник Александра Вороненко "S.T.A.L.K.E.R.: ОХОТНИКИ ЗА СЧАСТЬЕМ"Производство: РоссияЖанр: короткометражный, драма, фантастикаРежиссер: Александр ВороненкоАктеры: Дмитрий Подадаев, Семён Шемес, Александр Загрудный, Алексей СидоровСубтитры: отсутствуютПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DF2FA800F8D7EAD68D01B39D5E37F5C485B0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692350   (122591) от 16.01.2024
+
+S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/1080p] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сталкер подозревает своего коллегу в воровстве. Наказанием должна стать смерть. Доказательства нечестности напарника у сталкера есть, но внутренний голос говорит ему, что все не так просто. Фильм снят по мотивам произведений, вошедших в книгу-сборник Александра Вороненко "S.T.A.L.K.E.R.: ОХОТНИКИ ЗА СЧАСТЬЕМ"Производство: РоссияЖанр: короткометражный, драма, фантастикаРежиссер: Александр ВороненкоАктеры: Дмитрий Подадаев, Семён Шемес, Александр Загрудный, Алексей СидоровСубтитры: отсутствуютПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9573757CB502EAD2F1BFFFC7C918EFD129B4F256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692060   (122592) от 16.01.2024
+
+Людмила Мартова | Стереть из памяти (2023) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лике Ковалевой, главной героине нового романа Людмилы Мартовой «Стереть из памяти», спокойно не живется. Тайны прошлого уже двадцать лет не дают ей спать по ночам, подкидывая воспоминания в страшных кошмарах. Ни врачи, ни помощь близких людей не помогают. Ей ничего не остается, как вернуться в город, где проходило ее детство, чтобы самой во всем разобраться…
+
+Возрастное (   Читать дальше...   )Жанр: Современные детективыИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B11C5C1DD40AF4FB447BA2FE8C4FAB4920E246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692381   (122593) от 16.01.2024
 
 Фонд «Математические этюды» (Математический институт им. В. А. Стеклова РАН) | Вестник Опытной Физики и Элементарной Математики (2018) [ISO]
@@ -6,7 +80,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122593.jpg" />
 </div>
 
 
@@ -31,7 +105,7 @@ magnet:?xt=urn:btih:FA3AD7A1EB02F666CD70291AF9D6B3986AE144BF
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122594.jpg" />
 </div>
 
 
@@ -55,7 +129,7 @@ magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122595.jpg" />
 </div>
 
 
@@ -79,7 +153,7 @@ FabFilter - Total Bundle 2023.12.20 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122596.jpg" />
 </div>
 
 
@@ -103,7 +177,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122597.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122598.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122599.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122600.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122601.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122602.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ magnet:?xt=urn:btih:74562B3F4AC0434CB9366893B2EF55827EFAC61B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122603.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122604.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ IconTo Pro 7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122605.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ magnet:?xt=urn:btih:6749B6063659752548E86B572301A71F45D8EACB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122606.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ magnet:?xt=urn:btih:C1557E25092145E7C95BE8316FE69A3CEBC79844
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122607.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_122607.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ Process Lasso Pro 12.4.7.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122608.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ magnet:?xt=urn:btih:A55DFF98F88415E4C1060F4944AB5319DE5E1589
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122609.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ VPstudio V12.01 C9 x64 SP2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122610.jpg" />
 </div>
 
 
@@ -442,7 +516,7 @@ magnet:?xt=urn:btih:49BD6EDA0E2D02F22A86F628AFFBFE1B5F0E992B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122611.jpg" />
 </div>
 
 
@@ -466,7 +540,7 @@ magnet:?xt=urn:btih:2684C3DF18BD70A603C7687A3B610CE3AB8EDC34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122612.jpg" />
 </div>
 
 
@@ -490,7 +564,7 @@ magnet:?xt=urn:btih:A9B015554F4376500E457B730AB80EC5A843D11D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122613.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Waves Ultimate 2024.01.10 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122614.jpg" />
 </div>
 
 
@@ -540,7 +614,7 @@ magnet:?xt=urn:btih:00D660C801FD04067A01D958B82F71BF9377039A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122615.jpg" />
 </div>
 
 
@@ -551,78 +625,6 @@ magnet:?xt=urn:btih:00D660C801FD04067A01D958B82F71BF9377039A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:028D49681F0B52DA62339EFCB2E05F09C7580899
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690821   (122616) от 16.01.2024
-
-Шоколад / Chocolat (2000) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе английской писательницы Джоан Харрис (1999)... Как-то зимним днём в тихом французском городке появляется молодая женщина с девочкой. А чуть позже она открывает необычный шоколадный магазин, предлагая посетителям испытать новое удовольствие. И действительно, побывав у неё однажды, люди вновь и вновь поддаются сладкому очарованию. (   Читать дальше...   )Производство: США, Великобритания / David Brown Productions, Fat Free Limited, Miramax FilmsЖанр: драма, мелодрама, комедияРежиссер: Лассе ХалльстрёмАктеры: Жюльетт Бинош, Альфред Молина, Кэрри-Энн Мосс, Джуди Денч, Антонио Гил-Мартинес, Элен Кардона, Джонни Депп, Хью О`Конор, Харрисон Прэтт, Гэлан Коннелл, Лена Олин, Элизабет Коммелен, Петер Стормаре, Рон Кук, Орелин Парент КенигПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6BC9690D56C4867952DF3E36D91C3F3E11284E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692495   (122617) от 16.01.2024
-
-4K Video Downloader+ 1.4.0.0055 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122617.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7CE3A9EBCFE9474A228E485A6EE407E10A7A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692506   (122618) от 16.01.2024
-
-Aiseesoft Video Converter Ultimate 10.8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D98148BDC7A458AA4C137B194E9500FB5B262B
 ```
 
 

@@ -6,7 +6,7 @@ RapidRAW 1.4.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FireAlpaca 2.13.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_285.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ reaConverter Pro 8.0.138 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_304.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Topaz Gigapixel 1.0.2 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_357.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Photo 1.0.1 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_650.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Krita 5.2.13 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1038.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Adobe Photoshop 2025 26.11.0.18 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1043.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Serif Affinity Publisher 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1151.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Serif Affinity Designer 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1177.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Serif Affinity Photo 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1179.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Topaz Photo 1.0.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1205.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Photoshop 2025 26.11.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1234.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Abelssoft HappyCard 4.05 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1324.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Topaz Gigapixel AI Pro 8.4.4 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1333.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Topaz Gigapixel 1.0.1 + models Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1363.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Serif Affinity Publisher 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1438.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Serif Affinity Photo 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1456.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Serif Affinity Designer 2.6.3.3322 Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1468.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ reaConverter Pro 7.853 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1629.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Topaz Gigapixel AI Pro 8.4.4 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1890.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ DxO PhotoLab 9.0.2 build 68 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2217.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2219.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite RePack by KpoJIuK [Ru/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2229.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Perfectly Clear WorkBench 4.8.0.2852 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2377.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ashampoo Photo Optimizer 11.0.0.10 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2380.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Luminar Neo 1.24.7.15515 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2831.jpg" />
 </div>
 
 

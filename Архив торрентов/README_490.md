@@ -6,7 +6,7 @@ Soul Browser 1.4.19 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109514.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PotPlayer 240514 (1.7.22230) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser 126.0 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser ESR 115.11.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109521.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vivaldi 6.7.3329.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109529.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ HWiNFO 8.03 Build 5445 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109530.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Opera GX 109.0.5097.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109531.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Soul Browser 1.4.19 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109534.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109539.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109540.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ RSS Guard 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109541.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Opera One 110.0.5130.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109542.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109543.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FanControl V190 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109544.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft .NET 8.0.5 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109546.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109547.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Microsoft .NET 6.0.30 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109548.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109550.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109552.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Icecream Screen Recorder Pro 7.41 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109579.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Google Chrome 124.0.6367.208 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109584.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Firefox Browser 126.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109591.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kings of Leon - Can We Please Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109592.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ GeoGebra 6.0.841.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109594.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.3 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109595.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Google Chrome 124.0.6367.208 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109599.jpg" />
 </div>
 
 

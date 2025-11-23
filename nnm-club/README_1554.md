@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40758.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:81109F60EA05332E68FB9FA5D26ED89987AA6C29
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40759.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4FC419AA13E16D6A3759FB04914E2094188A0504
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40760.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:865054538278963FEA46CC84B16AE34E633184C2
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40761.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4DF462EC914542370285FA520917D5987691C66B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40762.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:4DF462EC914542370285FA520917D5987691C66B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40763.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:86D17A393BF0675E35BED1E1802E70EF0E85AA2A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40764.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:CE8CA408FAF66FE7D2ED75693ABE574904E8E64D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40765.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40766.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40767.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40768.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40769.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:4314AA984C6C3089BA0D113DF5AE79D3AE504D42
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40770.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40771.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40772.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Firefox Browser ESR 128.3.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40773.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:0B1BC944B40621A35A6703B82529D705C8C08092
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40774.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40775.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40776.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Sensual Vibes (100 Ttracks, Long Playing Edition) (2017) [MP3|320 Kbps] <Ea
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40777.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Dream Theater - Night Terror (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40778.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CEB59927E9DBCFC4DEA0C6279D31339F829F6199
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40779.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40780.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Sum
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40781.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:82DE584B196F1585E3BB63216AFBA7CFD70D43BB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40782.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40783.jpg" />
 </div>
 
 

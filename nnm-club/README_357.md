@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9425.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:625B6C08959BE44034C6BCAC030D1549CA6F1AAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9426.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ CudaText 1.226.0.0 Portable + addons [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9427.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:63E27D3791937C6C51FBAD99A1189FDCBC0C5602
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9428.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7BB6E16B1AC70B481F4504632CB1F2B3574CF7C2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9429.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:5E5683CF1085C1B1EFE50D35541599BB85970B9B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9430.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6CC02D2CA3292766775D16FCC802157E555FF209
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9431.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0789AFA2F1B8E3A5746D0981E5BFFE7C6EC36F30
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9432.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9433.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9434.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9435.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9436.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9437.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9438.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9439.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:4BF3289A97C6C35820D71C48C3CD16E01EB2AF2A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9440.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:654D2271AA9F062DD24357FE4C40685F9EDBAB0F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9441.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:AD2AF7521857CB22B7CD487822301F83EEC582FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9442.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8A51D2396100DCD468D48142F94DE0DF57A8EE59
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9443.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9444.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D12C3B2284D7954ABC7E16240E924C59C30BC3FB
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9445.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:086E0C6F2E5F1D524AC026C2F99D24FEB106C447
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9446.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:4E32BC0015A4469C1E2714ED435BA50C1D019B32
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9447.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9448.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9449.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Display Driver Uninstaller 18.1.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9450.jpg" />
 </div>
 
 

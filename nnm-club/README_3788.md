@@ -1,3 +1,75 @@
+###  Публикация: 1698891   (118170) от 11.02.2024
+
+Всем ветрам назло (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алисе Лапиковой семнадцать лет. У нее вполне обеспеченная жизнь: богатый отец, хороший дом, куча денег на карманные расходы. На этом все хорошее в жизни Алисы и заканчивается. У нее отвратительные отношения с мачехой Еленой и ее дочерью от первого брака Лидой. И все винят в этом Алису. Даже родной отец. Елена сначала обвиняет Алису в воровстве — якобы та украла дорогое (   Читать дальше...   )Производство: Россия / ВГТРК, С.Д.Л.Жанр: мелодрамаРежиссер: Евгений БарановАктеры: Настасья Самбурская, Алена Долголенко, Владислав Резник, Алла Юганова, Маруся Фурина, Данила Дедовец, Роман Семейко, Леонид Громов, Софья Ковалева, Дарья БелоусоваСубтитры: РусскиеПродолжительность: 02:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAB38F5531500F264088AC7E9092143A81A3384
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694969   (118171) от 11.02.2024
+
+Председатель (1964) DVDRip [H.264/1080p] (серии 1-2 из 2) [50fps] [Колоризованная версия] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжелый послевоенный 1947 год. Фронтовик Егор Трубников возвращается в родную деревню восстанавливать разоренное хозяйство. Ему приходится нелегко. Став председателем, он берет на себя ответственность не только за колхозные дела, но и за судьбы людей...Производство: СССР / «Мосфильм»Жанр: драмаРежиссер: Алексей СалтыковАктеры: Михаил Ульянов, Иван Лапиков, Нонна Мордюкова, Вячеслав Невинный, Валентина Владимирова, Николай Парфенов, Кира Головко, Антонина Богданова, Владимир Этуш, Сергей КуриловЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F0FE7E404435A00784E68C257109629D5DDF22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698950   (118172) от 11.02.2024
+
+Менеджер Паролей SafeInCloud 2 v24.3.5 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 06.02.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72EAEC6493880E21A89915EA5B6A79DBACF09A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690246   (118173) от 11.02.2024
 
 Бриллиантовая рука (1968) BDRip
@@ -6,7 +78,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118173.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Kodi 20.4 (Nexus) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118174.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:9164956C438F9B995C65692931E0E39301D743F2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118175.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:56E69D3B6EDFA02F4B92B60B848D72A4A27C7DE8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118176.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:6FA7BB32C479F383616F68338472D996450155A2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118177.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118178.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:840DDC6E9BEAE79AF2BB9C292711E8CED29F1627
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118179.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:A355148DB1B5EE5209B632B9B2E1BA89B54C9DB2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118180.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ magnet:?xt=urn:btih:1627BB99DE8E087946D6DDA261F09D0B599D1421
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118181.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:C648FE92BDFDC9AEEC905983CB2714A75264A723
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118182.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:87320A1E7B56496A61EB88B73F2AE904AEF8D451
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118183.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Al Di Meola - Flesh on Flesh (2002) [DSD 2.0, DST 5.1 1bit/2822,4kHz |SACD-R] <J
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118184.jpg" />
 </div>
 
 
@@ -299,7 +371,7 @@ magnet:?xt=urn:btih:1D9C2B395DC04D68BABB27BEECFD41848222C71A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118185.jpg" />
 </div>
 
 
@@ -323,7 +395,7 @@ magnet:?xt=urn:btih:1D9C2B395DC04D68BABB27BEECFD41848222C71A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118186.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:76B0156A4D1862443305FC6CCED733A51612259F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118187.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ MX Player Pro v1.78.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118188.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:C64B0B478C795D2F6F7948233398A7D029A0FE05
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118189.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:FB168F16B890F590EDE62FEB7E3D62F23F15C397
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118190.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118191.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ magnet:?xt=urn:btih:D372014089E40ECA6EC66EC3AF79E4F39E6E6386
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118192.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118193.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:BE116EE5F2AF3DF06D87A0AE3AEBE06D7DE42593
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118194.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118195.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ Realms of Arkania: Blade of Destiny представляет собой реме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D772D773F98CE5C06428D7751F7310A7E17F1332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699062   (118196) от 11.02.2024
-
-Лига городов (2024.02.11) SATRip (сезон 2, выпуск 1)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118196.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CD3914D5826BFEF0092483B4686AFA012FDBA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699043   (118197) от 11.02.2024
-
-Из глубины / No Way Up (2024) WEBRip [H.264] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет терпит крушение в Тихом океане. Затонувший авиалайнер висит на краю пропасти, а выжившие оказываются в западне воздушного кармана. Запас воздуха постепенно заканчивается, и между пассажирами начинается борьба за выживание.Производство: США / Altitude Film Entertainment, Hyprr Films, Ingenious Media, Sarma FilmsЖанр: боевик, триллер, драма, приключенияРежиссер: Клаудио ФахАктеры: Софи Макинтош, Филлис Логан, Колм Мини, Уильям Аттенборо, Джеймс Кэрролл Джордан, Грэйс Неттл, Джеремия Амур, Мануэль Пасифик, Дэвид Самартин, Скотт КокерПеревод: Дублированный (Vox Records звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:30:04Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698834   (118198) от 11.02.2024
-
-Убить Билла 2 / Kill Bill: Vol. 2 (2004) BDRip [H.265/2160p] [4K, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убив двух человек из банды, Невеста лишь наполовину приблизилась к цели. Теперь на очереди Бад и Элли Драйвер. Еще два опасных шага перед последней схваткой, в которой она должна убить Билла.Производство: США, Miramax FilmsЖанр: Квентин ТарантиноРежиссер: Квентин ТарантиноАктеры: Ума Турман, Дэвид Кэрредин, Люси Лью, Вивика А. Фокс, Гордон Лиу, Майкл Мэдсен, Дэрил Ханна, Майкл Паркс, Бо Свенсон, Дженни ЭпперПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA0B55F919B9A0BE464BDD5FA393F40EDAFBF66
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96020.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96023.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:662939B079F888BCD9B7FF496181616B7E3409B0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96025.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96026.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96027.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96032.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96033.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96034.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96036.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96038.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96041.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96044.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:E113F25DD4570A754CD604F6638FAAC3BBB149E5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96050.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:33794C303E6732672581C8DACA7327FA34EF9BC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96052.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Cosmos Just Now Beat (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96055.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:02E4DAE89B790D594E3400631F5716CAE9AB7EE7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96059.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:EB140A0B72D8769EBC2D0935A1D3F0D4543E5A06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96061.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - The Sweetest Taboo Vol.1 (2009) [FLAC|Lossless]<Lounge / Chillout / Downtem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96062.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - The Sweetest Taboo Vol.1 (2009)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96063.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:05566D884C6B48E70A6F683E00C27B25619D9C6D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96065.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96068.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96069.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full O
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96072.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96073.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:82D5B950EE24236FBDD7ABC41C8BFE69ACAE017A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96083.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Amaranthe - Amaranthine (2011) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96089.jpg" />
 </div>
 
 

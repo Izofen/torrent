@@ -1,3 +1,84 @@
+###  Публикация: 474729   (84888) от 28.03.2012
+
+Hamburg-audio - NUKLEAR 1.1.3 [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hamburg-Audio Nuklear - синтезатор, первый виртуальный инструмент, основанный на усовершенствованном гранулярном пульсарном синтезе! У, так называемого, пульсарного синтеза есть некоторые особенности, благодаря которым можно получить интересные, довольно необычные звуки. Вместо цикличного использования стандартных форм волн (синусоида, пилообразная, прямоугольная и т.д.), пульсарные осцилляторы используют отдельные импульсы различных форм, повторяя их в медленном или быстром темпе. Этот метод даёт некоторые новые функции, например: поочередное панорамирование импульсов (для создания супер широкого звука), исключение определенных импульсов (подъём субгармоник) и др. В распоряжении четыре осциллятора, у каждого из которых есть параметр Pulsar. Установка этого параметра на нулевое значение вызовет растягивание импульов, т.е. на выходе получается результат, как и при использовании обычных осцилляторов. Соответственно, максимальная величина параметра даёт нам "чистый" пульсарный синтез. Так же имеются параметры (   Читать дальше...   )Разработчик: Hamburg-audioЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474812   (84890) от 28.03.2012
+
+Юрий Демидов | На рыбалке с комфортом [2011] [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга советов для любителей рыбной ловли. Как на рыбалке устроиться с комфортом. Столкнувшись несколько раз с трудностями при попытке закрепить два и более удилищ на мостках для ловли рыбы, решил изготовить некое приспособление, позволяющее избежать данных трудностей, оперативно развернуть снасти и приступить непосредственно к тому, ради чего вообще приехали на водоем - рыбалке.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608D77DF5E5806B1C969469A51C232533637AADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474385   (84892) от 28.03.2012
+
+VA - Trance In Motion vol.111 (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - When The Sun (Original Mix)
+02.Mia Dahli - Need You Now (Kenneth Thomas Remix)
+03.Cerf, Mitiska & Jaren with Rank 1 - Witness (Original Club Mix)
+04.Omnia feat. Melissa Loretta - Halo (Original Mix)
+05.Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
+06.Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix)
+07.David Forbes & Alan Nimmo - Century (Original Mix)
+08.Sean Tyas & Horny Sanchez - Redbox (Original Mix)
+09.Rafael Frost - Channel 4 (Original Mix)
+10.Rave Channel - Illusion (Original Mix)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56C21CECC5C0031F63433C8A75BB6454A0F0251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474479   (84894) от 28.03.2012
 
 Места в партере / Fauteuils d'orchestre (2006) [H.264] DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84894.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:8717805A2CBB5CDEAED89FC275FC888D0472E90A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84895.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:617C7F97AD4EAC76228B3669354DDB3B1249B14D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84896.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ magnet:?xt=urn:btih:424A54CC58D8EC6C3EC883A1F85756E8C526BB3F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84898.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ magnet:?xt=urn:btih:790DE8481B5CBA216E6FA830201ECFD806AF373C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84902.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84905.jpg" />
 </div>
 
 
@@ -153,7 +234,7 @@ magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84906.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ magnet:?xt=urn:btih:21CC6CC2442559A197290C0AA3EE51293EAEE134
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84907.jpg" />
 </div>
 
 
@@ -203,7 +284,7 @@ magnet:?xt=urn:btih:3DABD4ECD16F3E0ACCC46D391B912781A7CC257D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84908.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ magnet:?xt=urn:btih:993185F3C0838746FFA836BA9BD77C56C0BC1565
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84909.jpg" />
 </div>
 
 
@@ -252,7 +333,7 @@ magnet:?xt=urn:btih:E5ED0870340A0442FC67B9FBA1090B47CA010729
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84915.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ RU-Center выплатит 239 млн за захват интернет-име�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84916.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84919.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ magnet:?xt=urn:btih:4209C991F8BFF39FEF910936A7B4482D1367B08B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84920.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84921.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:E14A701E96B50F435CED8CDFF134222102DF2E89
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84923.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ magnet:?xt=urn:btih:7B7169E2F6086BF150E83988D82AF3959651EA2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84924.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ magnet:?xt=urn:btih:7B7169E2F6086BF150E83988D82AF3959651EA2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84925.jpg" />
 </div>
 
 
@@ -467,7 +548,7 @@ magnet:?xt=urn:btih:60D67E749A6CE82F58D2DC8063FB66B4189C63BA
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84927.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ magnet:?xt=urn:btih:60D67E749A6CE82F58D2DC8063FB66B4189C63BA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84930.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ magnet:?xt=urn:btih:82028D39E094B3578E7899F2B5A6013FE95D6232
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ magnet:?xt=urn:btih:57057310BCBB9DE89FDB31A5C1DFA1A4284DA983
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84932.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ Burn Zombie Burn! (P) [Ru/En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84933.jpg" />
 </div>
 
 
@@ -576,80 +657,6 @@ Burn Zombie Burn! (P) [Ru/En] 2010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88635FF5BE97B187615B00AD443474A2C9F0426A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474092   (84939) от 28.03.2012
-
-Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474789   (84940) от 28.03.2012
-
-Школа (69 серий из 69) (2010) [H.264] DVDRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84940.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Школа" - это многосерийный авторский проект Валерии Гай Германики, радикальный сериал про подростков.
-Проект вполне может стать культовым - так жизнь школы еще никто не показывал, и такой предельной документальности на нашем телевидении раньше не было.Жанр: драмаРежиссер: Валерия-Гай Германика, Руслан Маликов, Наталья МещаниноваАктеры: Елена Папанова, Александра Ребенок, Валентина Лукащук, Наталья Терешкова, Алексей Литвиненко, Анна Шепелева, Игорь Огурцов, Константин Пояркин, Валентин Самохин, Андрей АндреевПеревод: оригинальныйПродолжительность: ~30 минут серия
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474346   (84941) от 28.03.2012
-
-Книжная серия | "Опрокинутый мир" [2001-2002] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84941.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Опрокинутый мир" - интересная серия, как по наполнению, так и по оформлению.
- В серии издавались в основном циклы произведений как отечественных, так и зарубежных авторов.2001-2002Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644223CA29F6C91B08C3B3BC8C952ABF170C2A0B
 ```
 
 

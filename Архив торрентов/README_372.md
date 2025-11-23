@@ -6,7 +6,7 @@ Adobe Reader X 10.1.3 Final Portable by punsh [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Reader — программа, предназначенная для пр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87620.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Reader — программа, предназначенная для пр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87623.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B9DD459C6BB3B593EC567BAD01D33948A50937C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87626.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B9DD459C6BB3B593EC567BAD01D33948A50937C7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87629.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B9DD459C6BB3B593EC567BAD01D33948A50937C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87632.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:B9DD459C6BB3B593EC567BAD01D33948A50937C7
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87635.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Autodesk Inventor Professional 2013 (x86, x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87638.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Inventor помогает:
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87639.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D93AC53881795A9CA98FD30ED1291F5EB6D52E4A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87643.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Windows 7 Ultimate AUZsoft Metallic x64 v.12.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87653.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Acrobat X Professional 10.1.3 Final [Мульти, есть русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87655.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Adobe Acrobat X Professional - создание профессиональных
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87661.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Adobe Acrobat X Professional - создание профессиональных
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87662.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87663.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87666.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87669.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Age of Empires Online (L) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87676.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Age of Empires Online (L) [En] 2011
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87681.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Age of Empires Online (L) [En] 2011
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87686.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:5C68F073DCF2FB92DD311B10CE79C2A7052D7695
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87730.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:11C2FBB9CB3BBDA3794E647324F4D3B92B9AF003
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87743.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:11C2FBB9CB3BBDA3794E647324F4D3B92B9AF003
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87744.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:11C2FBB9CB3BBDA3794E647324F4D3B92B9AF003
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87748.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ STDU Viewer & Portable 1.6.131 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87752.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ STDU Viewer – новая русскоязычная версия беспла�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87756.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fractals of Destiny (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59879.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FEDC028858C60A4D85F6C71C7ABC0B6FFE819A10
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59880.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ OpenVPN 2.6.10 (13.04.2024) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59881.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59882.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5F3CA02C6264A17B1EE0E0D477AF261515D25033
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59883.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C71A174EA1705FD42EB83ECB376FA3CA08F612DC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59884.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:51364001895BCEF0F5160497784875F3EE120E13
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59885.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59886.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:FBDA364E21D8A98B22D30BB2B7517CB116F9B3BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59887.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B21E05C5C7C420EABAF8050A7CEB20032A57DEDF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59888.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9593379747DABDF215F65BB1BF7D6E87612B2169
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59889.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C2FDA86292F471D356E234530609DA1D630502A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59890.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Avast Premium Security 24.3.6108 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59891.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:112CA90EDE224EF8C84AF4A0CD161C1C5FCBCE95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59892.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:69E43CED029386B3F76ECDA80171EE08BA831A0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59893.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:6DA72068883CF6D574A7A643898436FF678EC099
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59894.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:28E4C2D39D3ECF9516F0FC39174C0895D35FCD14
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59895.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:0F8D5E92B43003011A4CDB242A201B0952334AFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59896.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Windows 10 PRO AIO 20H1 - 22H2 1904X.4291 Update 16 by Ghost Spectre x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59897.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ WinRAR 7.00 RePack (& Portable) (09.04.2024) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59898.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:147C02A7B9EA8DDA4C63060774966A30978C68A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59899.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E449CDA75CBF6DCB7A04199CF2512EFE1FD3FECC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59900.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E449CDA75CBF6DCB7A04199CF2512EFE1FD3FECC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59901.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:FF500B59DCFDE613AC80A37B3BC82C6B327CBB77
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59902.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:15B94E4DEFC66EDB033C37D8EDC51FFAB45EBFD1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59903.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Topaz Gigapixel AI 7.1.2 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59904.jpg" />
 </div>
 
 

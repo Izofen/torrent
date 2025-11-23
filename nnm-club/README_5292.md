@@ -1,3 +1,180 @@
+###  Публикация: 1432767   (163048) от 18.12.2020
+
+Microsoft Edge 87.0.664.66 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737554FC03767383240847CE5DF597FF12BE02A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517469   (163049) от 15.12.2021
+
+VA - The Seeds of Lounge, Vol. 4 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eriq Johnson, Samiran Saharia - Nelumbo (5:43)
+02. Lazy Hammock - Trees (5:16)
+03. 351 Lake Shore Drive, Genius Jane - Fuji-san (4:54)
+04. Aiemo, Sandra Hakky - Dreaming Eyes (Vocal Mix) (3:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779932802EABC3D7E46774C41ECB2DF49B64CA3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598320   (163050) от 18.12.2022
+
+Сергей Мусаниф | Цивилизация страуса (2022) [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига о приключениях нашего современника, Антона Гусева, в недалеком будущем… через 40 лет. Началось все с досадной мелочи, которая в любом другом случае не стоила бы упоминания, но Гусев расстроился. Он слишком хорошо знал, что обычно с таких вот мелочей все и начинается, а потом идет по нарастающей, и чем дальше, тем хуже. Может быть, у других людей все (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 09:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B040CD88108CFA8CFED72148FA43109E46C30365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432618   (163051) от 18.12.2020
+
+Ольга Арефьева - Как я стал клоуном (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163051.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Как я стал клоуном
+2. Цирковое представленье
+3. Цирк-цирк
+4. Фант-Азия(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975FCCF7FDB158AA77A83DDC037A1A14A9564FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517471   (163052) от 15.12.2021
+
+VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yantra Mantra - Dada Mantra (5:10)
+02. Smooth Deluxe, Nizam Kharda - Duktus (3:55)
+03. Aimée Sol - Can't Get Enough (6:30)
+04. Lazy Hammock - Why Aren't You Listening (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4158C416E987931B12F0A2839D432090752BDDC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598330   (163053) от 18.12.2022
+
+LibreCAD 2.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163053.jpg" />
+</div>
+
+
+###  Подробнее
+
+LibreCAD - одно из лучших бесплатных кросс-платформенных приложений для автоматизированного проектирования (CAD) в двухмерной графике. Эта платформа разрабатывалась как бесплатная альтернатива более раскрученного, но платного инструмента AutoCAD, поэтому поддерживает практически все его основные функции и возможности, позволяя решать задачи двухмерного проектирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38598A144AE7C1539D616D497380F56542FC2AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432817   (163054) от 18.12.2020
+
+Иван Охлобыстин | Песни созвездия Гончих Псов [сборник] (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатирическая проза Ивана Охлобыстина повествует о трагикомических приключениях, казалось бы, обычных героев в простых провинциальных городках. Но проницательный писатель знает: в жизни вообще нет ничего обычного! Смех и слезы, настоящие человеческие драмы и абсурдистские повороты судеб удерживают наше внимание от первой до последней строки этой фантасмагорической (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB60970EB71061B6B2679FD3E787BBE346A2047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517467   (163055) от 15.12.2021
 
 Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
@@ -6,7 +183,7 @@ Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163055.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:13969461DBB667656723D25034DA19E03A30A747
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163056.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ Count Basie - In A Mellotone (1959) 2011, Candid [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163057.jpg" />
 </div>
 
 
@@ -84,7 +261,7 @@ magnet:?xt=urn:btih:8A0F8CD89FF9F3055C688C1DCB945205FAD50477
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163058.jpg" />
 </div>
 
 
@@ -108,7 +285,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163059.jpg" />
 </div>
 
 
@@ -135,7 +312,7 @@ magnet:?xt=urn:btih:0B4BB1A41C4A246DA3F0E5B17AB433AD9899C5F7
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163060.jpg" />
 </div>
 
 
@@ -159,7 +336,7 @@ Omni Recover 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163061.jpg" />
 </div>
 
 
@@ -184,7 +361,7 @@ magnet:?xt=urn:btih:9DF4069B4C153ABF01450E3DD35AA4F745B7ADDA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163062.jpg" />
 </div>
 
 
@@ -208,7 +385,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -232,7 +409,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, n
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163064.jpg" />
 </div>
 
 
@@ -259,7 +436,7 @@ Hex Editor Neo Ultimate 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163065.jpg" />
 </div>
 
 
@@ -284,7 +461,7 @@ magnet:?xt=urn:btih:CDBC1BEEBCD4681C87E7C94CC129DD50650AABF9
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163066.jpg" />
 </div>
 
 
@@ -308,7 +485,7 @@ Erroll Garner - 1947-1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163067.jpg" />
 </div>
 
 
@@ -335,7 +512,7 @@ Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163068.jpg" />
 </div>
 
 
@@ -359,7 +536,7 @@ Adobe Animate 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163069.jpg" />
 </div>
 
 
@@ -383,7 +560,7 @@ Artstudio Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163070.jpg" />
 </div>
 
 
@@ -407,7 +584,7 @@ VA - В машине с музыкой Vol.323 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163071.jpg" />
 </div>
 
 
@@ -434,7 +611,7 @@ magnet:?xt=urn:btih:14D45C04693F9B2E733500496516920AC354CA3D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163072.jpg" />
 </div>
 
 
@@ -458,7 +635,7 @@ magnet:?xt=urn:btih:59F61AC2B155DF4B8CF213CA0F4CDBDD1635FC09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163073.jpg" />
 </div>
 
 
@@ -469,178 +646,6 @@ magnet:?xt=urn:btih:59F61AC2B155DF4B8CF213CA0F4CDBDD1635FC09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E51C9E098928ADA2B02E811F37941D4FA9CAFFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432664   (163074) от 18.12.2020
-
-Cisdem PDF Password Remover 4 v4.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDF Password Remover - позволяет удалить пароль из PDF-документа и получить доступ к наиболее важным данным.
-Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет запрет на печать, копирование и редактирование. Тем не менее, это не будет проблемой, если у вас есть Cisdem PDF Password (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C40D3DB2ECDBD6DD873BAB266E1C87E32A31EC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432816   (163075) от 18.12.2020
-
-Adobe XD 35.2.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3897988A40349AAC08A9541318DF6389AA8980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598357   (163076) от 18.12.2022
-
-Королева-воин / Женщина-король / The Woman King (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство Дагомея, 1823 год. Элитный женский отряд королевской стражи агоджи во главе с генералом Наниской возвращает женщин, похищенных рабовладельцами из империи Ойо, что грозит спровоцировать войну. А в это время 19-летнюю девушку Нави, которая не хочет мириться с жестоким потенциальным мужем, отец сдает во дворец в качестве подарка королю. Так Нави оказывается (   Читать дальше...   )Производство: США / TriStar Pictures, Eone Entertainment, TSG EntertainmentЖанр: драма, история, боевикРежиссер: Джина Принс-БайтвудАктеры: Виола Дэвис, Тусо Мбеду, Лашана Линч, Шила Атим, Джон Бойега, Джордан Болджер, Хиро Файнс Тиффин, Джимми Одукоя, Масали Бадуза, Джейми ЛоусонПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, Английские (Forced, Full, SDH)Продолжительность: 02:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1192DFD5E59BE70024DE7A14F871C98525D7E6FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673965   (163077) от 03.11.2023
-
-Руслан Мельников | Бронепоезд (Книга 1). Огненный рейд (2023) [MP3, Александр Егоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неудачный эксперимент привел к жутким последствиям. Страна превратилась в сплошную аномальную зону. Кровожадные твари-интродукты из других измерений захватывают новые ареалы обитания. Люди гибнут, бегут и как могут приспосабливаются к изменившимся условиям. Расширяющиеся пространственные аномалии прервали сообщения между городами. Единственный путь, по которому, (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛитРес: чтецПродолжительность: 11:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9B07C7219A5A373A404A30644E66A04305CD5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673861   (163078) от 03.11.2023
-
-Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase 13 поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2022 Steinberg Media Technologies GmbH.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EA9CD3C8C59AF2F79D2CEA2ECA42D54A1F8612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598318   (163079) от 18.12.2022
-
-Алексей Лавров | Тень души (Книга 2) (2022) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артём застрял в игре и уже смирился с тем, что это навсегда. Но, благодаря стечению обстоятельств и содействию другого персонажа, его выбрасывает в свою реальность. Артём снова очнулся в реанимации. И он делает всё, чтобы вернуться в игру и отблагодарить того другого персонажа…Жанр: Боевое фэнтези, Попаданцы, РеалРПГПродолжительность: 12:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350F7EE5DB2F3B5FFA3AD825D9E16B9E089E520D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432684   (163080) от 18.12.2020
-
-VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Night for Dreaming (04:32)
-02. Michael Е - After the Storm (05:57)
-03. La Estación Del Mar - A Sax in the City (03:28)
-04. Peter Pearson - Apres Sun (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374637F3C78C0FB918759682C6129E56DFADBCEF
 ```
 
 

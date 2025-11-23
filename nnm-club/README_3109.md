@@ -1,3 +1,86 @@
+###  Публикация: 479114   (99136) от 09.04.2012
+
+VA - Бездна Party 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Sarvi - Amore (Chuckie radio edit)
+002 5sta Family - Вместе Мы
+003 Aura Dione - Geronimo
+004 Светлана Разина - Радио НАХ
+005 Nicola Roberts - Memory of you
+006 Каникулы В Мексике - Мексикана-Мама (Radio Version)
+007 Javi Reina & Alex Guerrero feat. Syntheticsax - Oig
+008 ВИА Гра - Диско
+009 Christopher S feat. Max Urban - Star (Mike Candys remix)
+010 Яжевика - Город Тает(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822186   (99137) от 05.10.2025
+
+1С Учебный центр №1, Никита Симоненко | Управление закупками в программе "1С:Управление холдингом 8" (2025) WEBRip [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цели курса: изучение возможностей программного продукта «1С:Управление холдингом» в части бизнес-процессов управления закупками, формирование практических навыков самостоятельной настройки и управления процессами в прикладном решении.
+
+В рамках обучающего курса на данных практического примера продемонстрирована реализация в «1С:Управление холдингом» следующих бизнес-процессов: (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 09:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0871FE9052B6B6B7804CA75C466FA2B37979E01A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822198   (99138) от 05.10.2025
+
+Шрифты - MyFonts - Humant [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Humant — геометрический шрифт, вдохновлённый культовым дизайнерским направлением Баухаус. Он отличается чистыми, минималистичными линиями и округлыми формами, подчёркивающими баланс и симметрию. Благодаря модульной структуре Humant воплощает современную, но неподвластную времени эстетику, что делает его идеальным для брендинга, плакатов и редакционного дизайна. Этот (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822197   (99139) от 05.10.2025
 
 Никто 2 / Nobody 2 (2025) BDRip [H.264/1080p]
@@ -6,7 +89,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99139.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@ magnet:?xt=urn:btih:7B7E643B337D16A030DB5F6F39BB16785BCFE7B0
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99140.jpg" />
 </div>
 
 
@@ -54,7 +137,7 @@ magnet:?xt=urn:btih:D15E5C1DAB184EED6172882C123E91D20380B315
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99141.jpg" />
 </div>
 
 
@@ -78,7 +161,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Гонка (05.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99142.jpg" />
 </div>
 
 
@@ -102,7 +185,7 @@ magnet:?xt=urn:btih:2EC71E8A84EC7E2A24CD1F6B6508239007286F91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99143.jpg" />
 </div>
 
 
@@ -126,7 +209,7 @@ Smart Tools 2 v1.2.1 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99144.jpg" />
 </div>
 
 
@@ -150,7 +233,7 @@ magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -174,7 +257,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -198,7 +281,7 @@ magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99149.jpg" />
 </div>
 
 
@@ -222,7 +305,7 @@ Bentley всегда привлекали внимание - они всегда
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99150.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99153.jpg" />
 </div>
 
 
@@ -279,7 +362,7 @@ magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99154.jpg" />
 </div>
 
 
@@ -303,7 +386,7 @@ magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99156.jpg" />
 </div>
 
 
@@ -336,7 +419,7 @@ magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99161.jpg" />
 </div>
 
 
@@ -360,7 +443,7 @@ VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99166.jpg" />
 </div>
 
 
@@ -393,7 +476,7 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99168.jpg" />
 </div>
 
 
@@ -426,7 +509,7 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99170.jpg" />
 </div>
 
 
@@ -450,7 +533,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99173.jpg" />
 </div>
 
 
@@ -475,7 +558,7 @@ magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99174.jpg" />
 </div>
 
 
@@ -503,7 +586,7 @@ Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99176.jpg" />
 </div>
 
 
@@ -536,7 +619,7 @@ magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99177.jpg" />
 </div>
 
 
@@ -560,7 +643,7 @@ magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99179.jpg" />
 </div>
 
 
@@ -584,7 +667,7 @@ magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99181.jpg" />
 </div>
 
 
@@ -595,82 +678,6 @@ magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480847   (99182) от 10.04.2012
-
-Эпицентр / Epicenter (2000) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
-
-Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
-
-Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480856   (99184) от 10.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480863   (99185) от 10.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 ```
 
 

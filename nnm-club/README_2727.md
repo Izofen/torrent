@@ -6,7 +6,7 @@ Advanced Renamer 4.08 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71650.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Photo Lab PRO v3.13.45 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71651.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D9358BF1743E46317BD77093B8A417F3FEAFE7EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71652.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6F189C9F49FDDB521E6808F8C5E2D00AB09A25D2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71653.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:083BDDEA7A9EB1CB07DFD8F7EDBB10F1BC6D1717
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71654.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Overkill - Hello From Colombia 2023 (2024) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71655.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71656.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71657.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:D866418BE53A02625FF4D64D205EC4DAC12FBA4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71658.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:210109CE96A7E054EAC3F47152B3D8F73AC68B34
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71659.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - By the Fireplace: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71660.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Armin van Buuren - A State Of Trance 1208 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71661.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:EC39B4A7DF7B0A96D5B8E065D2F63CBB5D505175
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71662.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Black Hole House Music 01-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71663.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Grave Digger - Bone Collector (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71664.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Opeth - The Last Will And Testament (2024) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71665.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Trance Party 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71666.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71667.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ The Twangtown Paramours - The Wind Will Change Again (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71668.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71669.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71670.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Lethal X - 90 Tons Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71671.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Dragonknight - Legions (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71672.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Tokyo Blade - Time Is The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71673.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:E7986B0BE32DFD75CFD06CF348F9996A8A3FC3AF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71674.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71675.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2FE9DD34DF7FFE345C851104820A456124567FFF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2FE9DD34DF7FFE345C851104820A456124567FFF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8656.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01D526DB93C9DC038F56A1EADD1860DFAF36BD32
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8657.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B2B7252A9D1B2F13638E35379186CE89E6DDAF6F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8658.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mel Torme - My Kind Of Music (1961) 2000, Verve Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8659.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:34D3CDC6BC03E6E3E33B24122FF9D07BCA4E20D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8660.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D58AA6F2AA41351E1C45E440A66DBE5939C33BD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8661.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D8D284F3FAF5492871A52369BEED4853A403E793
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8662.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D72A1C2A966B78DCEB8FA297D3689F4EA07601B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8663.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Milt Jackson - In A New Setting (1964) 1999, Verve Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8664.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9F4C5B4C5DDD30070D8CDEC0A5B7E45D9030471C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8665.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dieth - To Hell And Back (2023) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8666.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F602CBAF3E91D63EC4BDE5E9E5B95DA9ABA2F9D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8667.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:DAE9E76BC5B102A924B39A4A21A0A67220AE6DD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8668.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:74EA44E26D15AAABF0E899EAB2F7F4A8B353922C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8669.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:48B5BB818C6BC2F93E5CC34DDFCA51AED9DAEE33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8670.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:5E1FE739E191BEED071DCB195B4E3C9BC9139035
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8671.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:9AE73789D5BF8A79AFA1C5376A1A826189436FD5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8672.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:538031ABBE2606E6B91B351CF492682122B2023B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8673.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ozi Explorer for Android OS v1.38m [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8674.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1B8D65CB573BD44953B9B56A62B7D21E0EFD508B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8675.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:651590AC7ACFE13CA85F8D0460B49BFB60487576
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8676.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:B6A3F900C602CAF8D7016FC59B5F623C1E103A78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8677.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:75CC46A4B37AFAEFC4C10B7519ED09F87029F02D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8678.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:614FBCA72096D7EF7DF6403C961951FD40E1DAB8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8679.jpg" />
 </div>
 
 

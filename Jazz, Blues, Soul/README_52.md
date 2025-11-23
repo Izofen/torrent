@@ -6,7 +6,7 @@
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98284.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98284.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98430.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98430.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98436.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mike Reinhardt Trio - Road Song (2012) [MP3|320 кб/с]<Jazz, Fusion>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98442.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98445.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98445.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98447.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98447.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98460.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98472.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98524.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98524.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98648.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98648.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98731.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Jeff Kashiwa - Back In The Day (2009) [FLAC|Lossless]<Smooth Jazz, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98918.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98918.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Jazz In Britain 1919-1950 (2005)(4CD) [MP3|192 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99080.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99135.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Alix Combelle - The Swinging Mister Alix (2000) [MP3|320 кб/с]<Saxophone Jazz
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99204.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Marica Hiraga with Manhattan Jazz Quintet - Close to Bacharach (2008) [MP3|320 �
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99242.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99624.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99769.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99769.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99799.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99799.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99801.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100036.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100036.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100206.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100206.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Nelson Rangell - Look Again (2003) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100317.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100317.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Bob Berg - 4 альбома (1990-2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100337.jpg" />
 </div>
 
 
@@ -770,7 +770,7 @@ Johnny Hodges аnd His Orchestra - Hodge Podge[FLAC|Lossless]<Swing, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100436.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100436.jpg" />
 </div>
 
 
@@ -803,7 +803,7 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100474.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Auslogics Video Grabber 1.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ System Ninja 4.0.1 + Plugins [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Glary Utilities Pro 5.212.0.241 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172797.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ashampoo Snap Business 10.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172962.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Edge 118.0.2088.46 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173138.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Double Commander 1.1.29 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173392.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Slimjet 48.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173441.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MAX Desktop 25.13.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173445.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ PDF-XChange PRO 10.7.3.401 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173481.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MyLanViewer 6.6.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173492.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Core Temp 1.19.5 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173576.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinTools.net Premium 25.11.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173593.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DVDFab Video Downloader 2.0.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173723.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173723.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BleachBit 5.0.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173768.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WinSnap 6.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174586.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinSnap 6.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174672.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ WinSnap 6.1.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174717.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ValiDrive 1.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174980.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Viber 21.1.0.11 (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175115.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Twinkle Tray 1.16.0 BETA4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175154.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ RarmaRadio Pro 2.75.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175174.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175197.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Auslogics Registry Cleaner Pro 10.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175257.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ MyPhoneExplorer 2.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175663.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Crosti 1.14.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175691.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175691.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Monitorian 4.5.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175703.jpg" />
 </div>
 
 

@@ -1,3 +1,105 @@
+###  Публикация: 1668303   (174475) от 11.10.2023
+
+Auslogics Windows Slimmer 4.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.
+Windows Slimmer поможет вам в удалении ненужных компонентов Windows, деинсталляции приложений и оптимальной настройки параметров, чтобы снизить размер операционной системы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FEC098CD8F26B01F7B62EE29E5D67CF442112E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595809   (174477) от 07.12.2022
+
+Telegram Desktop 4.4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE143DC183CAD8CC03C3839708F9358672EBA3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430346   (174480) от 09.12.2020
+
+MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_174480.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0B7BB411B3B1B7A4A1A75636EC590BD7C10CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595843   (174486) от 07.12.2022
+
+Softany WinCHM Pro 5.499 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174486.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCHM - небольшая утилита для создания файлов помощи, книг или журналов в формате HTML, CHM, Web help, PDF и Word файлов. Для работы в программе не обязательно обладать знаниями HTML, можно писать и редактировать текст так же как вы делаете это в Word, редактируя уже готовые документы CHM или создавая свои. Имеется визуальный дизайнер CHM и возможность редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310CFEE167F0A8F136B2605807A1A544E68EA668
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668227   (174487) от 11.10.2023
 
 HWiNFO 7.64 Build 5240 + Portable [Multi/Ru]
@@ -6,7 +108,7 @@ HWiNFO 7.64 Build 5240 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174487.jpg" />
 </div>
 
 
@@ -30,7 +132,7 @@ XYplorer 23.80.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174491.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174491.jpg" />
 </div>
 
 
@@ -54,7 +156,7 @@ LibreOffice 7.6.2.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174499.jpg" />
 </div>
 
 
@@ -78,7 +180,7 @@ GeoGebra 6.0.619.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174500.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174500.jpg" />
 </div>
 
 
@@ -102,7 +204,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174503.jpg" />
 </div>
 
 
@@ -126,7 +228,7 @@ Master PDF Editor 5.9.70 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174506.jpg" />
 </div>
 
 
@@ -150,7 +252,7 @@ R-Studio Network 9.3 Build 191248 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174509.jpg" />
 </div>
 
 
@@ -174,7 +276,7 @@ Glary Disk Cleaner 5.0.1.226 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174510.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174510.jpg" />
 </div>
 
 
@@ -198,7 +300,7 @@ Auslogics Registry Cleaner Pro 10.0.0.4 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174515.jpg" />
 </div>
 
 
@@ -222,7 +324,7 @@ Downie 4 v4.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174518.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174518.jpg" />
 </div>
 
 
@@ -248,7 +350,7 @@ Google Chrome 118.0.5993.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174521.jpg" />
 </div>
 
 
@@ -272,7 +374,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174523.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174523.jpg" />
 </div>
 
 
@@ -298,7 +400,7 @@ Telegram for Android 9.2.0 (2956) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174529.jpg" />
 </div>
 
 
@@ -322,7 +424,7 @@ Topaz Photo AI 2.0.5 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174530.jpg" />
 </div>
 
 
@@ -346,7 +448,7 @@ Google Chrome 118.0.5993.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174533.jpg" />
 </div>
 
 
@@ -370,7 +472,7 @@ R-Studio Network  9.3 Build 191248 (x64) RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174536.jpg" />
 </div>
 
 
@@ -394,7 +496,7 @@ Opera GX 93.0.4585.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174540.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_174540.jpg" />
 </div>
 
 
@@ -420,7 +522,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1893 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174550.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174550.jpg" />
 </div>
 
 
@@ -446,7 +548,7 @@ Linguist 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174552.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174552.jpg" />
 </div>
 
 
@@ -470,7 +572,7 @@ Microsoft .NET 8.0.0 RC2 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174555.jpg" />
 </div>
 
 
@@ -495,7 +597,7 @@ EverWeb (Standalone) 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174556.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174556.jpg" />
 </div>
 
 
@@ -521,7 +623,7 @@ AYVY 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174564.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174564.jpg" />
 </div>
 
 
@@ -532,106 +634,6 @@ AYVY 1.8.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D3FD25AED9C05D19BA612BC653F7445F3479C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668210   (174566) от 11.10.2023
-
-Microsoft .NET 7.0.12 Runtime [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580951C34273CE8ADBBFFD487B6518E413270E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430215   (174568) от 09.12.2020
-
-PDF Squeezer 4 v4.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174568.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
-Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D8B279FB21C8396E8F544D92D721B852265278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430343   (174573) от 09.12.2020
-
-Alfred 4 Powerpack 4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7280109141C5E414702AAAE76581646EFEFCB275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430218   (174577) от 09.12.2020
-
-Texpad 1.8.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Texpad это редактор LaTeX предназначен для простой навигации проектов любого размера. Когда Texpad открывает документ, сканирует через него, ища латексные команды структуры и любые включенные файлы, тогда он дарит Вам представление схемы, с которым Вы можете быстро переместиться по всему проекту.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Jawad A DeoПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A41086FFDF252927894112D6958682F0D1DE011
 ```
 
 

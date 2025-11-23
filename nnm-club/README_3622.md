@@ -1,3 +1,82 @@
+###  Публикация: 1705319   (113854) от 08.03.2024
+
+EagleFiler 1.9.13 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113854.jpg" />
+</div>
+
+
+###  Подробнее
+
+EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
+EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2002–2022 C-Command Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02C94C02A594FCAEFF5805AD8EA3AD7A459A798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705387   (113855) от 08.03.2024
+
+Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Земле) (1985) 1987 [FLAC 24/192|Lossless|tracks] <Jazz, Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Звуки над водой. Sound Over All Waters.
+02 - Колыбельная матушки Китихи маленьким тюленям. Lullaby From The Great Mother Whale For The Baby Seal Pups.
+03 - Песня Земле. Song For The Earth. (Джим Скотт, вокал)(   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705293   (113856) от 08.03.2024
+
+Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake It (3:13)
+02. Breakdown (3:11)
+03. Nothing Could Come Between Us (3:35)
+04. Leader of Men (3:36)(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E45570109618A907C283EFDDB3527A2BB3E4FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705289   (113857) от 08.03.2024
 
 Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +85,7 @@ Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113857.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113858.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113859.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113860.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113861.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113862.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ QOwnNotes 24.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113863.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Dion - Girl Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Sin
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113864.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113865.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113866.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ magnet:?xt=urn:btih:FD120BDB03BC5AD228C9B56A6C4C1FE757FAF401
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113867.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113868.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ PowerDirector – Video Editor v13.3.0 b1227071 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113869.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113870.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ magnet:?xt=urn:btih:037CD06CAB8D2E91C1D4FFEA0FBEC4F3F79CDFFF
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113871.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ magnet:?xt=urn:btih:846FAB92C98AA8C5931597454FE28FE0C4050A58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113872.jpg" />
 </div>
 
 
@@ -421,7 +500,7 @@ Mike Della Bella Project - The Man With The Red Shoes (2024) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113873.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Feeder 4 v.4.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113874.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113875.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ magnet:?xt=urn:btih:818913F9BEF39B25346C102BA73D3B6ECA1BE660
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113876.jpg" />
 </div>
 
 
@@ -524,7 +603,7 @@ Dion - Girl Friends (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113877.jpg" />
 </div>
 
 
@@ -551,7 +630,7 @@ Debit & Credit Premium 6.3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113878.jpg" />
 </div>
 
 
@@ -576,7 +655,7 @@ SideNotes 1.4.14 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113879.jpg" />
 </div>
 
 
@@ -587,78 +666,6 @@ SideNotes - это боковая панель, которая заполнит 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6AD9C53D542ABD03CC2BBCAFFF0C73F6459A4C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705500   (113880) от 08.03.2024
-
-Священномученик Василий Кинешемский | Беседы на Евангелие от Марка (2010) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как трудно подчас нам оценить всю глубину Слова Божия без мудрого пастыря и наставника. Одним из таких мудрых наставников является священномученик-исповедник, истинный подвижник, епископ Василий Кинешемский (в миру Вениамин Сергеевич Преображенский). Главной своей архипастырской задачей он ставил православное просвещение. Всесторонне и глубоко исследовав Священное (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A134623092E973B3527B6CC8CABA5ED6B8669C3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705371   (113881) от 08.03.2024
-
-Icecream Slideshow Maker PRO 5.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Slideshow Maker - это приложение для создания видео слайдшоу на основе ваших любимых фотографий. Оживите свои фото с помощью большого количества эффектов и наложения музыки. Программа не требует специальных навыков и позволяет создать слайдшоу всего за несколько минут: добавьте фото, выставите нужные настройки для каждого кадра, проверьте с помощью предпросмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADD0CF9BCC19AE8C62F26B488825F2B0158C9F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705280   (113882) от 08.03.2024
-
-Красный как кровь / Blood Red (1989) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьян — глава клана Колоджеро с 1890 года — сицилиец, эмигрировавший в Северную Калифорнию. В этом клане каждый уважающий себя мужчина непременно вносит свой вклад в развитие семейного дела — огромного виноградника. Местная шишка, владелец железной дороги Уильям Берриган, требует от Себастьяна сокращения территории фермы для проведения новых транспортных путей. (   Читать дальше...   )Производство: Великобритания, США / Hemdale, Kettledrum FilmsЖанр: вестерн, криминалРежиссер: Питер МастерсонАктеры: Эрик Робертс, Джанкарло Джаннини, Деннис Хоппер, Берт Янг, Карлин Глинн, Лара Харрис, Джозеф Раннингфокс, Аль Руссо, Майкл Мэдсен, Элиас КотеасПеревод: Авторский (Алексей Михалёв)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB3BF312FF5FABA2F00A09D2CDFA3F49158083A
 ```
 
 

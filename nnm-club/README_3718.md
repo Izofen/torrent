@@ -1,3 +1,81 @@
+###  Публикация: 1701421   (116350) от 21.02.2024
+
+Благовест | Святитель Николай Чудотворец (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Святитель Николай Чудотворец» повествует о личности и чудесах великого угодника Божия, святителя Николая Чудотворца, и его почитании в России. Она рассчитана на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31E9E17F6F5AA75072E7F33690171F47EA2E609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701458   (116351) от 21.02.2024
+
+VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter 47 - Eternity (Original Mix) [6:12]
+02. ELSI-X - Dream (Original Mix) [4:38]
+03. Pietro Palascino - Law Of Attraction (Original Mix) [5:42]
+04. Last Child Left - The Mirror (Original Mix) [7:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C52B77B0923F9BAF520DD09F62EF12A6580E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701628   (116352) от 21.02.2024
+
+Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progressive Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Stood Troy (06:34)
+02. No Picasso (05:05)
+03. Tell Diane (04:45)
+04. Chopin's Heart (04:52)(   Читать дальше...   )Жанр: New Wave, Progressive PopПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BF3EF5A7FF82015C2CFE1DC73323AC2F61F081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701569   (116353) от 21.02.2024
 
 PhotoSweeper X 4.8.5 [En]
@@ -6,7 +84,7 @@ PhotoSweeper X 4.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116353.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ doPDF 11.9.440 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116354.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:9A9A81CA1D826F40B41E6133395456AFC6BE0CD9
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116355.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ Lucky Patcher 11.2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116356.jpg" />
 </div>
 
 
@@ -104,7 +182,7 @@ YT Downloader 9.6.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116357.jpg" />
 </div>
 
 
@@ -128,7 +206,7 @@ Remote Desktop Manager Enterprise Edition 2023.3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116358.jpg" />
 </div>
 
 
@@ -152,7 +230,7 @@ magnet:?xt=urn:btih:AD467290D6EFA8673FED2A5081BDF37303468D96
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116359.jpg" />
 </div>
 
 
@@ -176,7 +254,7 @@ Firefox Browser ESR 115.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116360.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ magnet:?xt=urn:btih:15B6B1070C1D0DA5E2DD3CE9C76684EA3DAFEBE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116361.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ magnet:?xt=urn:btih:679F31F6F9007A9190E0097A4F45E627EC81D2C8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116362.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ magnet:?xt=urn:btih:10D59312B4483A5CA19CBCD467399B396C02B9E2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116363.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Murdock - X-Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116364.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ magnet:?xt=urn:btih:04E2E2E4108BFADC5D7BDE559AE3D83161C34544
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116365.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ magnet:?xt=urn:btih:1DE7C19DD226390F4AD704E3E6DF9D58CEA750C7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116366.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ magnet:?xt=urn:btih:0C45FC0078F1ACA339BDE8BEAF969760EBA3258B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116367.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Google Chrome 122.0.6261.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116368.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Ungoogled Chromium 121.0.6167.184-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116369.jpg" />
 </div>
 
 
@@ -420,7 +498,7 @@ VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116370.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:F46AA0F065D94C360DEC5942E970A7BA3853F6EA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116371.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ magnet:?xt=urn:btih:C7F86E1BE8E87EA1509251591A01921109C646C0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116372.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ Firefox Browser 123.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116373.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ HWiNFO 7.73 Build 5365 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116374.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ magnet:?xt=urn:btih:C8C2AA1B5AAB0C243F270A4544468FBB4D32134C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116375.jpg" />
 </div>
 
 
@@ -554,80 +632,6 @@ magnet:?xt=urn:btih:C8C2AA1B5AAB0C243F270A4544468FBB4D32134C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC115347B468EC11EC9919E5E21BD758C68967A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701567   (116376) от 21.02.2024
-
-Path Finder 2168 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036E8DA706A4D8CA246BB46BEC47C6B5DD2ED534
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701541   (116377) от 21.02.2024
-
-Blender 3.6.9 LTS + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C4498E5ADD0A7E4F1E92667F35FD4C036D4347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701576   (116378) от 21.02.2024
-
-Чарли Пуля / Fast Charlie (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Свифт по прозвищу Пуля — хладнокровный киллер и мастер по решению сложных проблем. Много лет он верой и правдой служит своему боссу, мафиози Стэну, пока от того не решает избавиться конкурент. Избежавший расправы герой встает на путь мести, заручившись неожиданной поддержкой Марси — бывшей жены бандита, некогда погибшего от рук Чарли.Производство: США / Ashland Hill Media Finance, BCD TravelЖанр: боевик, триллер, драма, криминал, детективРежиссер: Филлип НойсАктеры: Пирс Броснан, Морена Баккарин, Джеймс Каан, Гбенга Акиннагбе, Мэтт Кук, Девид Чаттем, Тоби Хасс, Фредрик Лене, Шэрон Глесс, Бреннан Кил КукПеревод: Любительский многоголосый (укр. В одне рило)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7154B8F26FF00923D531517C42E27E0B34B7611F
 ```
 
 

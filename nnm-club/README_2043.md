@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:11DF7F71D6FA999C5641CA634FA99D32B09A2230
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53484.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BBB27595B1E9B4B159E8CF1D959FFAE55E9C3060
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53485.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:84DB3BA0E100806B07D4AFAC5A19720B676C9CF5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53486.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Mozilla скрыла для российских пользователей ст
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53487.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ House Flipper (2018) [Ru/Multi] (1.24157/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53488.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Microsoft остановила развёртывание катастрофич
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53489.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Microsoft заморозила развёртывание Windows 11 24H2 на �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53490.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:90B4B6B5BFC5E2C92F53D386A41D4A20AE2B46D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53491.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 7 SP1 x64 (3in1) Activated by Updated Edition (12.06.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53492.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6C15BAE1F4D400ECDEA4DA9D36DA68625273DDCA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53493.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3D3F53D2C4AA2361E3A809FAB082D0BF3FC777C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53494.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:34303EFF739A0E08F53627ED1280597EDF3ECF17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53495.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3DCEC50302C61F91C833393D3EFE9CE0325469BC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53496.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FF20C5559FE6F177127E431B84FCECBB3F417CF2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53497.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53498.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:21DC1E2E83545F8FB414CFA70D362CE5BBF03E7D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53499.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53500.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3AA3FCFB14F89433123A73B1A68ABDAEAF777EFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53501.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ V.A. - ZYX Italo Disco Spacesynth Collection 10 (2024) [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53502.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EBA54CFC5FCB486F188FDFEE72E68815AF567059
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53503.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Fast Video Cutter Joiner 4.9.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53504.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1860B1F49625EB8593E9AC486703C1DF3371A076
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53505.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mullvad Browser 13.0.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53506.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:400641C753DC7720B1ECF1A855033B72AD204B35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53507.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6DBD4AA7D255E8F0FDE2068F8BB37BF70413A2C2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53508.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Spiritual Deception - Semitae Mentis (2024) [FLAC|Lossless|image + .cue] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71511.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soreption - Jord (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71512.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Demented Heart - Frantic Epidemic (2023) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71513.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stephen Kellogg and the Sixers - Bulletproof Heart (2004) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71533.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pete Yorn - Day I Forgot (2003) CD, Album, Club Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71534.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71538.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Daath - The Deceivers (2024) [FLAC|Lossless|image + .cue] <Industrial, Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71543.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ihsahn - Ihsahn (2024) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71549.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pallbearer - Mind Burns Alive (2024) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71550.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71559.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Actionfredag - Lys Fremtid I Mø​rke (2024) [FLAC|Lossless|tracks + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71564.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Solaris - Martian Chronicles III (I Or A.I.) (2024) 2 x CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71569.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ One Day Remains - Amongst Beasts & Animals (2025) [FLAC|Lossless|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71578.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Pain - Dancing With The Dead (2004) Remastered, 2025, Nuclear Blast [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71581.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Pain - Nothing Remains The Same (2002) Remastered, 2025, Nuclear Blast [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71582.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Steve Booker - Dreamworld (серия "Другие восьмидесятые")
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71583.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Mythguard - Mythguard (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71585.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Master Sword - Toying With Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71588.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71597.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Watcher - Out of the Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71598.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Accept - All Areas - Worldwide (1997) Remaster, Live, 2025, Silver Lining Music 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71604.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Accept - Death Row (1994) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71612.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Landfall - Wide Open Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71617.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Accept - Objection Overruled (1993) Remaster, 2025, Silver Lining Music [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71619.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Borstal Boys - Time Bomb (2025) [MP3|320 Kbps] <Classic Rock, Rock'n'Roll, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71635.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Accept - Predator (1996) Remaster, 2025, Silver Lining Music [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71638.jpg" />
 </div>
 
 

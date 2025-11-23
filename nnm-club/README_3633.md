@@ -1,3 +1,75 @@
+###  Публикация: 1704707   (114140) от 05.03.2024
+
+iA Writer 7.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2010–2024 Information Architects GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0991E4F0FB7FFD3CE12235BAEE25A120FCF90CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704679   (114141) от 05.03.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. Темные делишки (2022) [MP3, Святой]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кои-то веки выбралась частный детектив Татьяна Иванова в театр не по делу, а на премьеру, которой открывался сезон. Одну из главных ролей должна играть ее старая знакомая Аня Зорина. И надо же – замена. Молодая талантливая актриса так и не появилась насцене. В ночь перед премьерой она заснула… и не проснулась. Передозировка снотворного. Татьяна Иванова ни минуты (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F82F71700DA351C72FD0C722BB31510AD26291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704651   (114142) от 05.03.2024
+
+Дом, который кричит / La residencia (1969) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на рассказе Хуана Тебара... Мадам Фурно управляет школой для девушек во Франции. В школе царит строгая дисциплина, порядок - суровые наказания, издевательства и пытки учениц... У мадам Фурно есть юный сын Луис, которого она старается держать подальше от девушек... В школе начинают происходить странные исчезновения учениц...Производство: Испания / Anabel Films S.A.Жанр: ужасы, детектив, триллерРежиссер: Нарсисо Ибаньес СеррадорАктеры: Лилли Палмер, Кристина Гальбо, Джон Маулдер-Браун, Марибель Мартин, Мэри Мод, Кандида Лосада, Полин Чэллонер, Томас Бланко, Виктор Исраэль, Тереса УртадоПеревод: авторскийЯзык озвучки: русский, испанскийСубтитры: русские, английскиеПродолжительность: 01:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7DF8320207AFC41D832EBC65E47CB23863503B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704543   (114143) от 05.03.2024
 
 Image Uploader 1.4.0 Build 5135 Nightly + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ Image Uploader 1.4.0 Build 5135 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114143.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Nadir - Standing at the Cosmic Horizon (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114144.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114145.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114146.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ magnet:?xt=urn:btih:7AD917A3786631425BD004A63038BA804DAE1FE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114147.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ Vargas Blues Band - Best of my Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114148.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114149.jpg" />
 </div>
 
 
@@ -188,7 +260,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -212,7 +284,7 @@ magnet:?xt=urn:btih:D3A2700D498AF1E94B4B8510A23133C98E7BB598
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114151.jpg" />
 </div>
 
 
@@ -236,7 +308,7 @@ Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114152.jpg" />
 </div>
 
 
@@ -263,7 +335,7 @@ magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114153.jpg" />
 </div>
 
 
@@ -290,7 +362,7 @@ VA - Emotive Echoes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114154.jpg" />
 </div>
 
 
@@ -317,7 +389,7 @@ VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114155.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114156.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ iReal Pro 2024.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114157.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114158.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114159.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:C20AFDEFD2E535366CAD27AD618B5548265A273A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114160.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114161.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ SRWare Iron 120.0.6200.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114162.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ magnet:?xt=urn:btih:E9722845F4FE6C01D1DF0AEB9B5D260FCC5D186D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114163.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ CPU Temp 1.6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114164.jpg" />
 </div>
 
 
@@ -565,7 +637,7 @@ magnet:?xt=urn:btih:7FE1959A568F17A9D815B32F941CEDFA63E82D5D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114165.jpg" />
 </div>
 
 
@@ -576,79 +648,6 @@ magnet:?xt=urn:btih:7FE1959A568F17A9D815B32F941CEDFA63E82D5D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04110EA1DCE59AE2B497BD1E09944353D825681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704660   (114166) от 05.03.2024
-
-ExamDiff Pro Master Edition 14.0.1.25 + Portable [En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114166.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED56A211A378ED65CA0C77B128441E78B0D33AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704734   (114167) от 05.03.2024
-
-MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114167.jpg" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46BE824CFC6E61281F6CC223AA6C9E0F82C490
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704744   (114168) от 05.03.2024
-
-Бэмби / Бемби / Bambi (1942) BDRip [H.264/1080p] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды утром на маленькой освещенной весенним солнцем лесной полянке родился оленёнок. Посмотреть на нового лесного принца сбежались и слетелись все звери и птицы. Оленёнка назвали Бемби.
-Когда Бемби научился ходить и разговаривать он обзавелся друзьями — зайчонком Топотуном и скунсом Цветочком. А однажды на лугу, куда привела его мама, Бемби познакомился с маленькой (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, детский, приключения, драма, семейныйРежиссер: Джеймс Элгар, Сэмюэл Армстронг, Дэвид ХэндАктеры: Харди Олбрайт, Стэн Александр, Бобетт Одри, Питер Бен, Тельма Бордман, Джанет Чэпман, Джинн Кристи, Долин Брэмстон, Кук Мэрион, Дарлингтон, Тим Дэвис и др.Перевод: Дублированный, многоголосый, авторскийСубтитры: русские,английскиеПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5E44DCAF7B6EB9B2EFD6DB09DFA39B420E3451
 ```
 
 

@@ -6,7 +6,7 @@ Ghostbusters: The Video Game (2009) [PS3] [USA] 2.60 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Qalculate! 5.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26453.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PotPlayer 250224 (1.7.22480) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26454.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:341678A08299FD41BFAA621086C45D6C5D2BCEB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26455.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ FocusWriter 1.8.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26456.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TikTok 38.8.3 Mod by Dmitry Nechiporenko + Plugin 1.71 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26457.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26458.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:70C71C4F0130A1C8093C04A9E2F90BC376D9D91F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26459.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:647157B616D8E49F34F9934983F95F1BE3C424A8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26460.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D95F789449BF0B9615C04E1156AA5DB0AE94B5A9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26461.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B3404D03C41E9E90D31B8E2E0BA6B4EEA25C2762
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26462.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26463.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:CDAE034F86CCBC995ED9EE497D95C30EBF4D78B6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26464.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CudaText 1.221.5.2 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26465.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AVS Image Converter 7.0.2.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26466.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:710904B089A128AED24CF325117BFE30E4E1E218
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26467.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E60DA9E70A594E4E11AC1E34AEB5FDBFC2B739DE
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26468.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26468.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1001EBFD0A1F70BC88D4444D8995E651CDF46FF2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26469.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26469.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6CB02CC4324952D06B534C4FDCA52E484798C0D9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26470.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26470.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - The Best of 2024 from High Emotions Group Music (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26471.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26471.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D31431FBC662BCA9E0D936C39534F520AE548E7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26472.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ HashTools 4.8.2 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26473.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26473.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:1EE2F606641D85112194C963A6A7B44EEB3EB006
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26474.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:5201962E26B50910B4EC987FAEA334DBDCFAF62B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26475.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:63933EED753C1C6535497C168B40DF35F54EF23C
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26476.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:83CD8AA51A567B7D880A57F42245F92846496C75
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26477.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 472699   (97556) от 24.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (25.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F977AE8EED488A0F3F8C9EBB0214B7068725668D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472866   (97557) от 24.03.2012
+
+[Wallpapers] Nature Pictures №35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97557.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №35
+Название: Nature Pictures №35
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680x1050
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5111B8C985527751B59087A29C08158B2125873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472402   (97559) от 24.03.2012
+
+[Wallpapers] HD Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97559.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 14
+Название: HD Wallpapers Pack 14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B54EDCDC24B32DB65039FEFEE0A19ECD7737728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472839   (97560) от 24.03.2012
 
 [Wallpapers] HD Pictures №12
@@ -6,7 +86,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97560.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ magnet:?xt=urn:btih:EA628654FF4D25F717522F90B63E311A31B229BA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97562.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ Mozilla Thunderbird 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97563.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97563.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97564.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ VA - House Vip (13.03.12) [MP3|320 кб/с]<Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97566.jpg" />
 </div>
 
 
@@ -147,7 +227,7 @@ magnet:?xt=urn:btih:228C956A58DC6D71D109DAC7FE0E58EF52750B7F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97567.jpg" />
 </div>
 
 
@@ -179,7 +259,7 @@ magnet:?xt=urn:btih:6486DDF572E5AD1E209991AF0187EC94ABFBD780
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97569.jpg" />
 </div>
 
 
@@ -203,7 +283,7 @@ VA - HouseVip  (16.03.2012) [MP3|320 кб/с]<Electro house>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97570.jpg" />
 </div>
 
 
@@ -236,7 +316,7 @@ Nikolay Kempinskiy - Terminal of Trance 047 (18.03.2012) [MP3|320 кб/с]<Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97571.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ VA - HouseVip (15.03.2012) [MP3|320 кб/с]<Electro house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97573.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ VA - Clubничка DFM 50x50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97575.jpg" />
 </div>
 
 
@@ -335,7 +415,7 @@ magnet:?xt=urn:btih:B5E5AF7E60E1B517969210229BA5948F52CF95CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97577.jpg" />
 </div>
 
 
@@ -363,7 +443,7 @@ VA - 15 Top Trance Hits 03 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97578.jpg" />
 </div>
 
 
@@ -394,7 +474,7 @@ Astronaut Ape - The Mirror (2012) [MP3|320 кб/с]<Ambient, Downtempo, PsyChill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97580.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ magnet:?xt=urn:btih:F522685858D38F78BF5DD375E397FB58DE80FA97
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97581.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ magnet:?xt=urn:btih:3E3C698DF1855FF6A487C318E5493FD4A4430302
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97582.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ magnet:?xt=urn:btih:E0AA15800720AFC5A731569CF00F3FE2ED99D4FD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97583.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ magnet:?xt=urn:btih:B75E855EF6A44E4CE14B033BA80F20BB83E3C10B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97584.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ VA - Trance Symphony Volume 8 (23.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97586.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ magnet:?xt=urn:btih:4C89B4AE54254CF37C6FA44106BBE70B037F2E13
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97591.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97594.jpg" />
 </div>
 
 
@@ -625,7 +705,7 @@ VA - Весенний музыкальный бум 50/50 (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97595.jpg" />
 </div>
 
 
@@ -658,7 +738,7 @@ magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97598.jpg" />
 </div>
 
 
@@ -669,78 +749,6 @@ magnet:?xt=urn:btih:B80B9414FC94009F019523E9042E02418F9DF75E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A904B7C5DCA3BD8363D4630E17E9E4437882B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472068   (97600) от 24.03.2012
-
-В контексте. Скандал в храме (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый главный вопрос, который волнует сейчас подавляющее большинство россиян, - какой будет страна после выборов и всех площадных бурь. Несмотря на разницу позиций, всем очевидно, что мы будем жить в другой стране. Какой же она будет, пытаются разобраться в студии программы "В контексте".Жанр: Документальный, ТелепередачаПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A492DD088E8DC54D05E7A624CB0EA08563E817AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472800   (97604) от 24.03.2012
-
-Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня игры - молодая девушка по имени Мина Локхарт. Ее постоянно преследует один и тот же ночной кошмар. Она напугана яростным пламенем: их старый дом охвачен пожаром и в конце сна сгорает дотла. Мина принимает решение отправиться в это место, где она провела все детство, чтобы раз и навсегда покончить со своими страшными видениями. Но ее ожидает нечто большее, чем путешествие в прошлое...(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA0DD79EC93C849608DE8E5620F9B681F7F97BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472704   (97605) от 24.03.2012
-
-[Wallpapers] Sexy Girls Pack (25.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FC7615434DFCCA674295402A6A3718FB8BAA4E
 ```
 
 

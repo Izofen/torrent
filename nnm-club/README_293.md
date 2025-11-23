@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7704.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E4DAD7855AB9BA1701AF338F7F2A89C8F1E54667
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7705.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Hammer King - Make Metal Royal Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7706.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Editio
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7707.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:69FCC87B0AEBACE35BF28976D83D31AFAC083554
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7708.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5E68F05EEC2601DF4BC41BA8B63E8F3B500DCBAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7709.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Whitesnake - Compilation (1978-2019) [MP3|320 Kbps] <Hard rock, Blues rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7710.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Queen - B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Gl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7711.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Music News For Forum vol.126 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7712.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Mp3tag 3.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7713.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:DA680211DD560B9E497D4DBC3375F4E4BE0A2DFD
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7714.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Saragossa Band - Original Hits & Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7715.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:43A03DE2644758FBF9E8AB765B200C5BCC3AAFBC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7716.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Autumn Instrumental (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7717.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EECECABCEABAB3AB8E2AEC5258A8EE51E9522849
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7718.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D0B32C320790B00A987870999771ADEF03B851E2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7719.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:32C94C26EBE5A2BFD04CE476108A4556F0EB4DB3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7720.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:C0A9D9657606715CEEE9FB678423D8FBFB38CE7A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7721.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B6EF52C08FF7B5C7C4EFE674937489157CB7942D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7722.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:A0C0E5224DFFA9438A3AF875911A0596074561FA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7723.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:BB2FFC11C0740EA20D67FF6BF64D1932C08E5CB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7724.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9087AB200487C33F6DB209DD1E6F397A1C3B4302
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7725.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:B984370B7984BA29B7959B355A557CFA5D0EDDFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7726.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:AFBC2D9DE8DCE1803D9544FE8762784B929E483E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7727.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:386284DFC9B9788CE649B6A56C3840A2AE04E0C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7728.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:855AF435805133A78D3A6E98BBC70E44775B4B23
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7729.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116855.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Breakin' News: 10 Years of Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116864.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116871.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Blind Raccoon & Nola Blue Collection, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116872.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116884.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Song Keepers: A Music Maker Foundation Anthology (2024) 4CD [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116898.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116994.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117004.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117007.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:987CD0C8C6D2073A9E5BBFF7116E117AB10ACE7C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117010.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andrew Hill Trio - Invitation (1974) 1992, SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117015.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Oscar Dennard - The Legendary Oscar Dennard (1958) 1989, Somethin' Else [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117016.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117035.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Barry Harris Sextet - Bull's Eye! (1968) 2002, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117045.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117054.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Svend Asmussen - Spotlight (1991) Sonet [FLAC|Lossless|tracks + .cue] <Swing, Vi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117141.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Donald Byrd & Kenny Burrell - All Night Long (1956) 2003, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117145.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ray Drummond - Excursion (1993) Arabesque Jazz [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117146.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Barry Harris Sextet - Luminescence! (1967) 1997, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117150.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Christine Ebersole - Strings Attached (2013) Motema [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117353.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rod Tate - Smooth and Peaceful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117354.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117361.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Zataban - Naturally Seasoned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117366.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117369.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Smack Dabs - The Smack Dabs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117375.jpg" />
 </div>
 
 

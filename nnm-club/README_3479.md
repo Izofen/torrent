@@ -1,3 +1,79 @@
+###  Публикация: 1721232   (110136) от 06.05.2024
+
+Илья Рэд | Мастер Лжи (Книга 1) (2024) [MP3, Александр Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делёжка магических ресурсов. Гонка за влияние. Бесконечные интриги аристократов и борьба за жизнь всего человечества – я попал в знакомую среду. Это мир, где без богов людям не выжить, но они уже неплохо устроились, раз нашли время на грызню между собой. Самое место для Мастера Лжи. У меня есть боевой опыт, знания и желание создать собственный клан.Осталось только (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC794E324B80D0DE22C5CF0B3818AB7C0F2E2F9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720783   (110137) от 05.05.2024
+
+Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Cry [00:05:25]
+02. Resurgence [00:03:15]
+03. Fear of Death [00:02:38]
+04. Unerring Order [00:03:09](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11117B5AA07E0E5BFC945B2E4B2D9B730CE905EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720909   (110138) от 05.05.2024
+
+Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Black Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Et in Arcadia Ego [00:27:38]
+02. 10 Hygiea [00:02:53]Жанр: Psychedelic Black Doom MetalПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F46113A7825E28C41994AACC346A0D3F6890A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720803   (110139) от 05.05.2024
 
 n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
@@ -6,7 +82,7 @@ n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110139.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110140.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:AD3046F73AAF3FA5A74ECE2BA680A0B58787288C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110141.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110142.jpg" />
 </div>
 
 
@@ -109,7 +185,7 @@ The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110143.jpg" />
 </div>
 
 
@@ -136,7 +212,7 @@ Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110144.jpg" />
 </div>
 
 
@@ -163,7 +239,7 @@ Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, p
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110145.jpg" />
 </div>
 
 
@@ -190,7 +266,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110146.jpg" />
 </div>
 
 
@@ -214,7 +290,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110147.jpg" />
 </div>
 
 
@@ -240,7 +316,7 @@ n-Track Studio Suite 10.1.0.8659 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110148.jpg" />
 </div>
 
 
@@ -264,7 +340,7 @@ magnet:?xt=urn:btih:5270E6E731E434CC2E3C931FEAB9D8EA741B31CA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110149.jpg" />
 </div>
 
 
@@ -291,7 +367,7 @@ magnet:?xt=urn:btih:2E3D67F22FC6620A35387D4B56BBC95E7FA54137
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110150.jpg" />
 </div>
 
 
@@ -315,7 +391,7 @@ VA - Lounge Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, J
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110151.jpg" />
 </div>
 
 
@@ -342,7 +418,7 @@ magnet:?xt=urn:btih:4261CE0EAA4E5696303AB4ADA6FE10FF1359FD76
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110152.jpg" />
 </div>
 
 
@@ -367,7 +443,7 @@ Death On The Balcony - Forever For Me EP (2024) [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110153.jpg" />
 </div>
 
 
@@ -394,7 +470,7 @@ VA - Calming Moments, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110154.jpg" />
 </div>
 
 
@@ -421,7 +497,7 @@ magnet:?xt=urn:btih:29597487C97FC46A022D21B2FA040D72F7552141
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110155.jpg" />
 </div>
 
 
@@ -445,7 +521,7 @@ QOwnNotes 24.4.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110156.jpg" />
 </div>
 
 
@@ -469,7 +545,7 @@ magnet:?xt=urn:btih:B230E397D853D1BA523782A2B12265CFB2FEE1D3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110157.jpg" />
 </div>
 
 
@@ -496,7 +572,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 02 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110158.jpg" />
 </div>
 
 
@@ -523,7 +599,7 @@ Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalli
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110159.jpg" />
 </div>
 
 
@@ -550,7 +626,7 @@ magnet:?xt=urn:btih:FFA1884BFF4BB8A09160279EACA8B22B50BE0DCA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110160.jpg" />
 </div>
 
 
@@ -576,7 +652,7 @@ magnet:?xt=urn:btih:5E9CB024F288D7C838FF2ED2F6E33B8E363CC7E0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110161.jpg" />
 </div>
 
 
@@ -587,87 +663,6 @@ magnet:?xt=urn:btih:5E9CB024F288D7C838FF2ED2F6E33B8E363CC7E0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE8A508B782914ABA0C6DD9B6F046CF460BD4AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720927   (110162) от 05.05.2024
-
-Alestorm - Voyage Of The Dead Marauder (2024) EP [FLAC|Lossless|image + .cue] <Power Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Voyage Of The Dead Marauder (Feat. Patty Gurdy) 04:28
-2. Uzbekistan 03:40
-3. The Last Saskatchewan Pirate 04:08
-4. Sea Shanty 2 02:01(   Читать дальше...   )Жанр: Power Metal, FolkПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F586F7BF50AB16C2A24CF3DEAB6CF59BF32D3D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720730   (110163) от 05.05.2024
-
-Депрессивный Психоз - Карма носит ирокез (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Reggae, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карма носит ирокез [00:05:31]
-02. Ядрёный октябрёнок [00:03:05]
-03. С финансами не чётко [00:03:19]
-04. КГБ [00:03:10](   Читать дальше...   )Жанр: Indie Rock, Reggae, SkaПродолжительность: 00:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA5FB6AB48A2E55B1105609D8C88B1059BF8E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721079   (110164) от 05.05.2024
-
-Ibibio Sound Machine - Pull the Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Afro-Pop, World, Disco, Highlife, Nigerian Psychedelic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110164.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pull the Rope (3:29)
-2. Got to Be Who U Are (3:39)
-3. Fire (4:30)
-4. Them Say (4:10)(   Читать дальше...   )Жанр: Afro-Pop, World, Disco, Highlife, Nigerian PsychedelicПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4684B20BE249EE40164BEAE2D1A584EA352E8265
 ```
 
 

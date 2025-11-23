@@ -1,3 +1,78 @@
+###  Публикация: 1348896   (137906) от 31.12.2019
+
+Битва экстрасенсов (2019.12.28) WEBRip [H.264/720p-LQ] (сезон 20, выпуск 14)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паранормальное шоу канала ТНТ об экстрасенсах, магах, ясновидящих, гадалках и колдунах. «Битва экстрасенсов 20 сезон» – продолжение рейтингового российского шоу «Битва экстрасенсов», которое выходит с 2007 года на канале ТНТ. Создатели проекта в 20-м сезоне вновь подготовили для телезрителей встречи с удивительными людьми, обладающими уникальными способностями.Телекомпания: ТНТЖанр: ТВ-шоуРежиссер: Олег ЧаурсСубтитры: отсутствуютПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EB81FCEEEEC4DE777D67475925C7A33D9C2797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854997   (137907) от 31.12.2014
+
+Пингвины из Мадагаскара в рождественских приключениях / The Madagascar Penguins in a Christmas Caper (2005) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Год приходит в город, и все обитетели Центрального Зоопарка готовятся к его встрече. Пингвины украсили свою пещеру и мечтают о черно-белом празднике, когда юный Рядовой замечает, что Белый Медведь грустит в полном одиночестве. Окруженный своими товарищами, Рядовой решает, что никто не заслуживает таких каникул, и вырабатывает свой собственный план помощи собрату. (   Читать дальше...   )Производство: США |  DreamWorks AnimationЖанр: компьютерная анимация, короткометражка, комедия, семейныйРежиссер: Гари ТруздейлПеревод: Дублированный, многоголосый закадровый, одноголосый закадровый (П. Гланц), одноголосый закадровый (Е. Гранкин)Язык субтитров: Русский (форсированные, полные)Продолжительность: 00:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133104DED9EF141CBE40E9BA8F380E25B079DC63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273243   (137908) от 31.12.2018
+
+Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Home for Christmas [4:10]
+02. Happy Holiday [4:52]
+03. The Holly and the Ivy [3:01]
+04. Up on the Housetop [2:36](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970612   (137909) от 31.12.2015
 
 КВН-2015. Высшая лига. Финал  (2015.12.30) HDTV  [H.264/1080i]
@@ -6,7 +81,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137909.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:D0E36E745DC7F099584A482EFAC3E591EC2335B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137910.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Wondershare Repairit 5.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137911.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Waltr 2 v2.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137912.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137914.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:7D291E0404D371CB3BE8F69AF78E425FF5A9C38F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137915.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:88BCAB1C1DA901A78EF89DD986A5D77BBE5A0850
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137916.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137917.jpg" />
 </div>
 
 
@@ -206,7 +281,7 @@ magnet:?xt=urn:btih:75E0BB2D64DD2F0E53073F97E8C75F7817159162
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137918.jpg" />
 </div>
 
 
@@ -230,7 +305,7 @@ magnet:?xt=urn:btih:601CBC01D2C2B360F065915016E6A592793F18E8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137919.jpg" />
 </div>
 
 
@@ -254,7 +329,7 @@ magnet:?xt=urn:btih:767661E106E04B86104CF8A921720CD97B6C4F32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137921.jpg" />
 </div>
 
 
@@ -279,7 +354,7 @@ Sandboxie plus 1.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137922.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137923.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137924.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ magnet:?xt=urn:btih:3798AF354D56AA7617DFCD68432B2AC66DBA5370
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137925.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ magnet:?xt=urn:btih:B450A58BB145AC7D9032CE67546BA78976D88808
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137926.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137928.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137929.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ VA - The Ultimate Led Zeppelin Tribute - 2CD (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137931.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:C54B2EA7458A729B5B83C5BD8EFB81E2FF307BD6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137932.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ magnet:?xt=urn:btih:76833745003B73C5CD538A8B93982AD31CD982A8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137934.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ DxO FilmPack 5 Elite 5.5.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137935.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137936.jpg" />
 </div>
 
 
@@ -569,80 +644,6 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196021   (137937) от 31.12.2017
-
-Комбат Найтов | Над Канадой небо синее... (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Оружейник».
-
-Герои «Оружейника» – Святослав и Татьяна – ворвались в неспешный и мрачный мир позднего Средневековья со знаниями и умениями конца XX – начала XXI веков. Привыкшие жить в совсем другом ритме, они отчаянно нуждались в последователях, так как невозможно построить новую империю вдвоем. Жизнь человеческая хрупка, как прутик, но если из (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8513F4DE7771F036A5247B060E8C40FA3DA20C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740068   (137938) от 31.12.2013
-
-Ведьмы из Сугаррамурди / Las brujas de Zugarramurdi (2013) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое незадачливых воришек попадают в заколдованный город, где на протяжении веков правят бал коварные ведьмы. Задача героев проста - унести ноги из страшного места. Для этого надо постараться не влюбиться в обитательниц этого гиблого места… Сюжет основан на подлинной истории, которая случилась здесь в начале XVII века, когда одна из жительниц деревни заявила, что (   Читать дальше...   )Производство: Испания, Франция, Enrique Cerezo Producciones Cinematográficas S.A., La Ferme! ProductionsЖанр: комедия, приключения, фэнтезиРежиссер: Алекс де ла ИглесиаАктеры: Марио Касас, Уго Силва, Хавьер Ботет, Сантьяго Сегура, Каролина Банг, Кармен Маура, Карлос Аресес, Секун де ла Роса, Макарена Гомес, Пепон НиэтоПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A47581CA7E16FDB0B628CF75B6665835EDAB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349215   (137939) от 31.12.2019
-
-ABViewer Enterprise 14.1.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137939.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABViewer 14 - программный продукт для просмотра графических файлов с функционалом профессионального векторного редактора. Поддерживает более 50-ти растровых и векторных форматов файлов и форматов 3D изображений. Позволяет выполнять создание и редактирование чертежей с дальнейшим их сохранением в формат AutoCAD DXF и ряд других векторных и растровых форматов. Обладает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41FE0CD25786582CD8E7968A89CF0FCE2C8732E
 ```
 
 

@@ -6,7 +6,7 @@ Tajiq - Аль монах (2023) [MP3|320 Kbps] <Alternative, Art Rock, Experime
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172997.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ringo Starr - Rewind Forward (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173004.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gory Blister - Reborn From Hatred (2023) [FLAC|Lossless|WEB-DL|tracks] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173007.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:FA84E605F5385DF47C345825FE30E97BD30BE4EC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173008.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:1972E135250D76378D34B154F1F3247A5606C81F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173015.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Megadeth - Unplugged In Boston (2006) (Reissued-2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173016.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mitchell's Kiss Of The Gypsy - Unfinished Business (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173017.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rian - Wings (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173018.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Oni - The Silver Line (2023) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173019.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Lion's Daughter - Bath House (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173021.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F8A0EC3C888BD8E70D1616C4D70FE595D8058D07
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173028.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kent Hilli - Nothing Left To Lose (2023) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173029.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ SПRUТ - Падая в небо (2023) [MP3|320 Kbps] <Nu Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173030.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nitroverts - Endogenous (2023) 2CD, Deluxe Edition, FIXT [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173032.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Arc Angel - Arc Angel (1983) Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173033.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nailwound - An Ode to Misery (2023) [MP3|320 Kbps] <Metalcore, Hardcore, Downtem
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173034.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173036.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Balga - ...By The Sea (2023) [FLAC|Lossless|image + .cue] <Symphonic Epic Black 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173038.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jackson Rose - Things Have Gotten Worse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173039.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Answer Lies in the Black Void - Thou Shalt (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173041.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Catafalque - Dybbuk (2023) [FLAC|Lossless|WEB-DL|tracks] <drone doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173043.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Graveyard of Souls - Infinity Equal Zero (2021) [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173044.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:54C38F76C95EB8955D6EB81BD5EB46616F354B9B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173046.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A0A54A3FB42FA71FC4A34F5D7D8C149F133C3C31
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173047.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:57CDD2C3DFB5830A2CB3D6DA0E528BE1356AA62C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173048.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VCTMS - Vol. V The Hurt Collection (2023) [MP3|320 Kbps] <Metalcore / Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173050.jpg" />
 </div>
 
 

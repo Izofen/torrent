@@ -6,7 +6,7 @@ TuneIn Radio Pro v37.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68832.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StaxRip 2.46 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68941.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Calibre 8.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68970.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TuneIn Radio Pro v37.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69035.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Lighting calculations / Расчеты освещения v6.1.1 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69036.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Xreveal 2.7.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69037.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A778ED011CA300194C151A6F69A5D40B08B9798A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69039.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ reaConverter Pro 7.848 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69046.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Ocean Match / Рыбки: Три в ряд v3.1.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69057.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Google Chrome 134.0.6998.118 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69060.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TapScanner v3.0.60 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69061.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Photo Supreme 2025.1.0.7494 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69062.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ PictureThis - Plant Identification v5.1.6 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69072.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:E84A057C2A81427701A69EA12741B4838F4925A7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69076.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Duplicate File Detective 7.3.68.0 (x64) Professional / Enterprise / Site Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69077.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Google Chrome 134.0.6998.118 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69080.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Opera One 117.0.5408.142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69084.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Genius Art: Image AI Generator v1.2.6 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69085.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Photo Lab PRO v3.13.51 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69095.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Vivaldi 7.2.3621.63 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69133.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69134.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ GeoGebra 6.0.878 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69178.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ XYplorer 27.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69184.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ PhotoDirector v19.12.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69190.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Jigsawscapes® - Пазлы v3.8.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69195.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Draw.io 26.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69198.jpg" />
 </div>
 
 

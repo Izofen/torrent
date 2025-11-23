@@ -1,3 +1,52 @@
+###  Публикация: 1587349   (192890) от 30.10.2022
+
+Светлана Леймах | Магия жизни. Всё к лучшему или к деньгам! (2022) [MP3, Андрей Финагин]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_192890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где искать помощь и утешение, чтобы пережить тяжелые моменты? Как принять и полюбить себя? Чем исцелять себя от моральных и физических болезней? На эти экзистенциальные вопросы отвечает автор книги «Магия жизни», проводник и парапсихолог Светлана Леймах.
+Через внешнее и внутреннее, очевидное и тайное Светлана открывает читателю универсальные правила жизни, главные (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростПродолжительность: 06:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1215E583949438D49E5662B257188B132298594A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657084   (192958) от 02.09.2023
+
+Джарон Ланье | 10 аргументов удалить все свои аккаунты в социальных сетях (2019) [MP3, Вадим Пугачев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как часто у вас возникает желание удалить аккаунты в социальных сетях? У Джарона Ланье, программиста, футуролога и революционера IT-индустрии, найдется целых 10 убедительных причин в пользу вашей правоты. Вы думаете, что создаете уникальный цифровой образ себя, подпитывая его лайками и социальным одобрением. На деле вы оказываетесь обезличенной жертвой бездушных (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 04:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5844EE5101EDF68F7009703F582D1062879682F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657056   (193039) от 02.09.2023
 
 Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
@@ -6,7 +55,7 @@ Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193039.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193039.jpg" />
 </div>
 
 
@@ -33,7 +82,7 @@ magnet:?xt=urn:btih:992647E725EEC1B8BC14A6B0C80CC61BB30EF964
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193270.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193270.jpg" />
 </div>
 
 
@@ -59,7 +108,7 @@ magnet:?xt=urn:btih:3730D52EBFE78FDEB05468943D12292F814D2EAB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193271.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193271.jpg" />
 </div>
 
 
@@ -83,7 +132,7 @@ magnet:?xt=urn:btih:B003F8D037C73D1EADA2785A945D00F0EF0F1DAE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193279.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193279.jpg" />
 </div>
 
 
@@ -108,7 +157,7 @@ magnet:?xt=urn:btih:F06ACAA57C87AB95CA2267BBF7AAC255B527463B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193280.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193280.jpg" />
 </div>
 
 
@@ -132,7 +181,7 @@ magnet:?xt=urn:btih:953908576EE98355324231727960C3E55E37CED0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193281.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193281.jpg" />
 </div>
 
 
@@ -158,7 +207,7 @@ magnet:?xt=urn:btih:EC4AC1E1E0F4B15A5BF4414C9FA6D09FED14D1AC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193407.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193407.jpg" />
 </div>
 
 
@@ -185,7 +234,7 @@ magnet:?xt=urn:btih:06F6C87168DAA53ABFD6FC4C9C8AFECBDE4C2037
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193500.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193500.jpg" />
 </div>
 
 
@@ -210,7 +259,7 @@ magnet:?xt=urn:btih:7E16EBEFA5EB050FE83DCADB6F8CF9CE13F22550
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193903.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193903.jpg" />
 </div>
 
 
@@ -234,7 +283,7 @@ magnet:?xt=urn:btih:408947B426CF44ABBF472CA9D0422E40C7B72665
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193935.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193935.jpg" />
 </div>
 
 
@@ -258,7 +307,7 @@ magnet:?xt=urn:btih:542DB8CF57B9A290A2D31CEC1B552FCB9028F113
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193964.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193964.jpg" />
 </div>
 
 
@@ -285,7 +334,7 @@ magnet:?xt=urn:btih:66125E4893E75382918A3F5B8EA03B70C1D14B52
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193972.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193972.jpg" />
 </div>
 
 
@@ -310,7 +359,7 @@ magnet:?xt=urn:btih:FF8247F3543047A13CB8480F90E36873829AA4DB
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195908.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195908.jpg" />
 </div>
 
 
@@ -336,7 +385,7 @@ magnet:?xt=urn:btih:FE0CD96E4EF7CEEB296305AF0F178F76EDC88A51
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195960.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195960.jpg" />
 </div>
 
 
@@ -361,7 +410,7 @@ magnet:?xt=urn:btih:9F777BB989A568F99BB967A938643106156D7CB4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196228.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196228.jpg" />
 </div>
 
 
@@ -385,7 +434,7 @@ magnet:?xt=urn:btih:76D4155E158E010E91F2EA2CF6D8AB63920E00FB
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196316.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196316.jpg" />
 </div>
 
 
@@ -409,7 +458,7 @@ magnet:?xt=urn:btih:A385006E6106FF981A35299F0F766EADC321D2C5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196539.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196539.jpg" />
 </div>
 
 
@@ -435,7 +484,7 @@ magnet:?xt=urn:btih:CCDD31CF0B48215A661E6E7BDE2FBC491A9FD87C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197239.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197239.jpg" />
 </div>
 
 
@@ -459,7 +508,7 @@ magnet:?xt=urn:btih:66797739450585C2664E09E62A86A1D14B8B3812
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198293.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198293.jpg" />
 </div>
 
 
@@ -483,7 +532,7 @@ magnet:?xt=urn:btih:CC855C444920BA6773414640C6A4E12B429BA0E3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_198448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_198448.jpg" />
 </div>
 
 
@@ -508,7 +557,7 @@ magnet:?xt=urn:btih:8FADF0223ABEB602C22ECC6D0DF08ED9F40FBD4B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198779.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198779.jpg" />
 </div>
 
 
@@ -532,7 +581,7 @@ magnet:?xt=urn:btih:A6DF2A66CA78518358260F3433076B3CCEA0694B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199050.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199050.jpg" />
 </div>
 
 
@@ -558,7 +607,7 @@ magnet:?xt=urn:btih:3168CE0EF138D20B46FAA2DF170A6BA2DD6EFFD3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199153.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199153.jpg" />
 </div>
 
 
@@ -582,7 +631,7 @@ magnet:?xt=urn:btih:311A510F76AC600C5A8B9C59E1FC9B32063AC7F3
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199454.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199454.jpg" />
 </div>
 
 
@@ -593,54 +642,6 @@ magnet:?xt=urn:btih:311A510F76AC600C5A8B9C59E1FC9B32063AC7F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8CB4BBEC64D4E54C0D04728FFC019B543548AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628599   (199458) от 23.04.2023
-
-Роман Борсук | Обретение силы. Метод Сильвы для мужчин (2008) [MP3, Роман Борсук, Галина Борсук]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - путеводитель по жизни для настоящего мужчины. Прочитав ее и выполнив упражнения, приведенные на прилагаемом компакт-диске, вы освоите основы тантрического секса и сможете застраховаться от любовных неудач, узнаете шесть основных правил общения с женщиной и научитесь понимать "женский язык". А многочисленной армии желающих бросить курить поможет (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ADB632B0B39B89B85E60A2EEC90057F9E65ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626099   (199994) от 13.04.2023
-
-Никита Самохин | Латынь по-пацански (2020) [MP3, Павел Курилин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осторожно: после прослушивания могут возникнуть побочные эффекты в виде разжигания интереса к Древнему Риму и латинскому языку! Что вспоминается в первую очередь, когда вы слышите про Древний Рим? Рем, Ромул и волчица? Цезарь и галлы? Нерон, сжигающий Рим? Гладиаторы в Колизее? Что из этого было раньше, а что позже? И как все было на самом деле? На все эти вопросы (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 04:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ABDE338AC7B06B7A50410B7F5A369B25ED2468
 ```
 
 

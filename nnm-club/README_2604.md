@@ -6,7 +6,7 @@ Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68452.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68453.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68454.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The John Ford Blues Society - Rollin' On (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68455.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mike Eric Blues Band - Cupcakes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68456.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Mitch Ryder - With Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68457.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Willie Clayton - Double Play Soul & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68458.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:B45A582B81D44E82AC696200ED0CB4428B4DB7DA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68459.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ms. Jody - Cougar on the Prowl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68460.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mojo Diggers - The First on the Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68461.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Patriot - Untuk Indonesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68462.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Robi Zonca - TO FILL MY SOUL (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68463.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Warbringer - Woe To The Vanquished (2017) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68464.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0D8D5C96CA5F9B714752379ACF0DB0AF0B6FF95B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68465.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Einherjer - Dragons of the North XX (1996) Released, 2016, Circle Of The 111 Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68466.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68467.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C5146F09E380BA7E8E9D48897416326D0FF9D7C2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68468.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68469.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E5D62BBC21F8779906E8073D69F5F59529969650
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68470.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:5961C411A6F9547E83F50637AD4D781288E580E4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68471.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:F971C059E0A599AF7F4D72BF14619450E9226111
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68472.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:02690BE9473CC5D572C08D1964590E9DF4AA4097
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68473.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Nightstalker - Return From The Point of No Return (2025) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68474.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:0280F5C621E5F74BF19D44EFA67F7E2DD7DD64E5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68475.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C0B2C6112CFBB8198AAF59B671ED66C4BA8DB3A4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68476.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:34EFD2BAFC08E3C4764AB7CF773F2EB2203716D0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68477.jpg" />
 </div>
 
 

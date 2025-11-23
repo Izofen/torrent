@@ -6,7 +6,7 @@ VA - Future Sound of Egypt - Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141380.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141445.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - FSOE Fables: Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141456.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141503.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sparks - Past Tense: The Best Of (2019) 3CD [FLAC|Lossless|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141511.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - FSOE UV - Best of (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141534.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Infected Mushroom - Part of the Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Psy-
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141621.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Cafe Del Mar Ibiza (2010) 8 CD [FLAC|Lossless|tracks + .cue]<Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141626.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141674.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DJ Aligator Project - Greatest Hits & Remixes (2003) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141723.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stas Isometrica - Moving To Light (2012) [MP3|320 Kbps] <Trance, Tech House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141843.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Oliver Koletzki - Fire In The Jungle (2019) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141926.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pauline Anna Strom - Echoes, Spaces, Lines (2023) 4 x CD, Compilation [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141928.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Schneeweiss 11 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141957.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141999.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142023.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142025.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142040.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142041.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142061.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142070.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142352.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142498.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142558.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Hard Trance 2019: Top 40 Hits Electronic Hard Psy Goa Techno House EDM Danc
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142568.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142781.jpg" />
 </div>
 
 

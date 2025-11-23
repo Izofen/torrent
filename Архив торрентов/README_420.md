@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97290.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97290.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97291.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97292.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97299.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97302.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97303.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97305.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97306.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97307.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:FDD69F0F64B9CB9949D6D5B8029C9D81B2FF2CD4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97309.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:0512AD7B2B1BE6D0B5FC62F85431B421A459DEE2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97310.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Meshuggah - Koloss (2012) [MP3|~245 кб/с (V0)]<Progressive Post-Thrash / Math
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97313.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1F9581A028D278682979458DA39FBA7D4828ED72
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97314.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - TMP: Clear Sky 065 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97315.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9C6A93A85520676A86003FAB7F8B2F54F9827768
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97317.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A53599AED5C626CFB43FA9A7A6CC963252ED2272
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97321.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:0E0B10B9A953FCB0FD7CC5B1939751C7356C27CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97323.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Super Dance (2012) [MP3|320 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97324.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A665F992560BA6D0CBDAA872EECCA0605B7C28D1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97326.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - To The Point (Remixed) (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97327.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Ahora 012 (2012) [MP3|231-279 kbps]<House | Dance | Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97330.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4D6C306528629F065997639C6650766FCDA73FCD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97332.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:BE8864F57D854F996A82CB7386186A73E13F8B92
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97334.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2C81D20F455EB34AB49D9248C3BE541AC44E2931
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97335.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:F9411A9005F35A965D7A50909EDA397C8C48C4D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97336.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:EDA7EF50829523D7497521A181821578F2A9F8F2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97339.jpg" />
 </div>
 
 

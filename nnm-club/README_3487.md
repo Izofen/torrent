@@ -1,3 +1,75 @@
+###  Публикация: 1720382   (110344) от 03.05.2024
+
+Журнал | Знание-сила №5 (1163) (май 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA56B7651D64DA3B43F7D46657973A11D2E636C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720470   (110345) от 03.05.2024
+
+Chromium 124.0.6367.119 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23CBC8DD4764781D591F31C024E3C5F7822932C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720323   (110346) от 03.05.2024
+
+Serif Affinity Publisher 2.4.2.2371 (x64) Portable by 7997 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Publisher - программное обеспечение нового поколения для профессиональных редакционно-издательских работ. Это невероятно плавное, интуитивно понятное приложение позволяет комбинировать изображения, графику и текст для создания прекрасных, готовых к публикации макетов для журналов, книг, брошюр, плакатов, отчетов, бланков и других документов.Язык интерфейса: Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D9B2830541F6657647CA5D0C92943ABC1F4833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720465   (110347) от 03.05.2024
 
 Calibre 7.10.0 + Portable [Multi/Ru]
@@ -6,7 +78,7 @@ Calibre 7.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110347.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110348.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ MAGIX Samplitude Pro X8 Suite 19.1.3.23431 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110349.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Icecream Photo Editor Pro 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110350.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:AF36058CEA2F28BD72E41868ECBDC4DA550C1181
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110351.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Bathym - Into Darkness (1990) Demo, Reissue, 2023, Doomed to Obscurity Records [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110352.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ Rudi Tuesday Band - Before The Petrichor (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110353.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ Privacy Eraser Free 6.6.3 Build 4909 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110354.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:FCA29BD60D01DC15235DFB3281A67FAB43032F64
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110355.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ Most Relaxing Music Academy, Jazz Lounge Zone - Jazz Affinity: Connecting Throug
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110356.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110357.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ Jazz Chillout - Jazz in Eden (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110358.jpg" />
 </div>
 
 
@@ -315,7 +387,7 @@ Opera Trance featuring Emma Shapplin - Spente Le Steele (Part 2 - The Remixes) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110359.jpg" />
 </div>
 
 
@@ -340,7 +412,7 @@ Written on Water - Like dewdrops, like diamonds (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110360.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:36044414FA11D076C61F4FB1BD946A356E6B7307
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110361.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110362.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ Sergio (Sérgio) Pereira - Bossa+ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110363.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110364.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ Mob Rules - Celebration Day - 30 Years Of Mob Rules (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110365.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:7B6B6D7616788F573EEDF172C51B81C49C07B17B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110366.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ Jola Recchioni - Wrongtime (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110367.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ Jeff Pitchell - Brown Eyed Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110368.jpg" />
 </div>
 
 
@@ -578,7 +650,7 @@ Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110369.jpg" />
 </div>
 
 
@@ -592,87 +664,6 @@ Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C83C24BE6B52E837783BE2BAC0AD48C0ACFE631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720140   (110370) от 02.05.2024
-
-Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down South Blues (4:45)
-02. Lonesome, On´ry and Mean (4:09)
-03. Walking The Streets Of Love Alone (3:02)
-04. Sugarfoot Rag (2:48)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5FAB164AFA4A2AE1584551702B273BC51EB4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720104   (110371) от 02.05.2024
-
-Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day Of the Eagle (3:58)
-02. If You Love Me Like You Say (3:02)
-03. I Can't Quit You Baby (6:37)
-04. Empty Arms (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5ABBFFDEA437CCDEDCFFF0631DE5DC09D725B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720134   (110372) от 02.05.2024
-
-Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tension (4:06)
-02. Communication (3:21)
-03. All I Want (3:18)
-04. One Monkey (5:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB476A41874BF9D9CD8BDBA10DC84AD8BD549FE
 ```
 
 

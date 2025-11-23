@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21178.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21178.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Bridge 2025 15.0.4.534 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21179.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21179.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9B99FC2B63E8DAF0B5BC9CC3DD604A74DA7150A7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21180.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0334F5DC936A252FB5159A0F36380658084FAABD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21181.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21181.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CFAD8F82A0D7590E629F6D9DE6E8199F2F4CF5D7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21182.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21182.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:59991B734EFDBFA6C37F809315237B0F18595BCE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21183.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21183.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.1.10411.746/dlc) Repack dixen18 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21184.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21184.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B9C01E1EDD9054ED2144DE07C041057C242C5B47
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21185.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21185.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21186.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Windows 11 [10.0.26100.3775], Version 24H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21187.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21187.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7619A163D9107186BF3F18A3EC4EEF70283E9A81
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21188.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21188.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:91B5F11B5E0B32AEFF0FD1AC5DC6F77E368562B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21189.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:55637953FCF1B99E2B06AECDB1A2230E279FB3A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21190.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21190.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:CC43B4AB413346B9B078409C6900561ACECA6E1A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21191.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21191.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:BC132AAC55E28171B7F35F75C8A23850A8665E04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21192.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Darkness - 11 Albums (2003 - 2025) [FLAC|Lossless|tracks + .cue, image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21193.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Adobe After Effects 2025 25.2.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21194.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:4E4E093AD1C6316D13651ED8251D69AB486E7186
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21195.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ CCleaner 6.35.11488 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21196.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Windows 11 PRO 23H2 22631.5189 Update 18 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21197.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21197.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7D2A18227189744193663AF3413D8EA10F3163F6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21198.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:680C694DBEEC210A28C08D21851FCA0336513ED8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21199.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:337478D9753BAEAC1568DCC4959DB461D3D524FB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21200.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:9D3C878962CD2C3A8DA61B948A3144D99CFBAB30
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21201.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Enticer - Second Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21202.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21202.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21203.jpg" />
 </div>
 
 

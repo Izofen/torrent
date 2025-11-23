@@ -6,7 +6,7 @@ Eli Paperboy Reed - Hits And Misses (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128543.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128550.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128554.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128558.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gwyn Ashton - Grease Bucket (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128604.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Earth - The Legendary Lost Tapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128605.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CHristina Crofts - Croftstown Unboogie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128606.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Catfish John Tisdell - Win or Lose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128663.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Black Barrel & The Bad Men - Bad Men, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128665.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bidu Sous - On the Blues Road (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128666.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ben Hemming - The Meaning Of All Things (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128667.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BB & the Bullets - High Tide (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128668.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128678.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128681.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128688.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128689.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jeff McMillan - I Wish You Would (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128691.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5757BCF73729BF2F1A08E4F15EE1C72BCE9F8DCB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128692.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128694.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128703.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bernie Marsden - Working Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128710.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128714.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jackie Venson - Ghost in the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128733.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kinland Station - LoFi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128818.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jon Hines - Memphis Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128820.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128856.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112607.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ CherryTree 1.1.1.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112608.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ XnView MP 1.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112610.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ HDCleaner 2.067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112613.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Macrorit Data Wiper 7.0.2 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112614.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ BurnAware Professional 17.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112615.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Brave Browser 1.64.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112621.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Music Collection 3.6.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112624.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Vivaldi 6.6.3271.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112626.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Skype 8.115.0.217 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112627.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cookie 7.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112641.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Monkey's Audio 10.60 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112654.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ HWiNFO 8.00 Build 5400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112669.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Google Chrome 123.0.6312.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112671.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Chasys Draw IES 5.30.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112676.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ PortableApps.com Platform 29.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112681.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ HDCleaner 2.066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112683.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ TechSmith Camtasia 2023 Studio 2023.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112684.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Imagine 1.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112691.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Mullvad Browser 13.0.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112697.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Downie 4 v.4.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112702.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112706.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MediaMate for Mac 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112709.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mp3tag 1.8.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112714.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PopClip 2024.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112715.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sandboxie 5.68.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112725.jpg" />
 </div>
 
 

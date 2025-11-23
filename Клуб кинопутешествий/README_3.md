@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:804CEE85F089FAEA737F4153F7B964A7DCD8EC9C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7D027243BBD1419125927C5682B62EBA688526C1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126914.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:54DDC509CB10D7E87E18EA502A46F5F0BF669EF0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127003.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RTG. Животный мир Командорского архипелага (20
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127065.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:87E26752D547AE19EC8B338C5ADC42977719FA72
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127588.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1B92A59618FAB07E0D5981B2D6DD9136F8438CD2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129813.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D41878961745142B1C4AB9134365D10F829CDE0D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129884.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D3A062BDC9375A68242B41CCC51D5F6D44A316AD
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131000.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:551424876B66419C463BC9EDBE3F2EEEF2C5BCCA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131012.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ RTG. Взгляд с высоты. Природа горного Алтая (202
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132662.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9BA56D292E9C54E203FB75113999D191A2145FEF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132677.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132698.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D34DA8A711BE15B6DC37961E7F5CF4D759E1AB58
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133042.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1D27508B5C0585C3F7EA99828F87B827EB6E3508
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133129.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:2F67436D466ABEE7E504BF97CFDDF334642CC651
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135254.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:954CEACBCB80B6FE9DF8366F71A3614471A3248C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138158.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:C9C95133365058E50CA55C2B4309D3E00D8F4DBE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138246.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3C18A83AFF92205E2F8334A717CC83A2B1B06146
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138293.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:8A87B1D6A72A8EDFCAE7813944B22E30BDD1BEAB
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138407.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:65686B2E953540D69B2D286F982E9224E456343B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138842.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:41E0789EF19F7E2F0BFA7D96DEBEA5B9E73B0F83
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140443.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:5F603F067DE00C34F5BE0E96FA79BFCD8A67BA3A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141618.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:6C11A8DB01DB7D5537820FFE04A420C9DAF17173
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142964.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0C52D0CFE3478334A99D27B25ECE8597E664927D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143411.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:A9FCB54CD73AD251ED15944011190BEEA06B9522
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144796.jpg" />
 </div>
 
 

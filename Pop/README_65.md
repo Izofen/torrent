@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155398.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Песня года 1995. Финал (часть 3) (1995) [FLAC|Lossless|i
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155401.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Cou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155453.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155476.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - 50 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155575.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:AD5F0274DFE2A177D9198CC5190B5D9160883D9F
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155593.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hot Pepper - Spanglish Movement (1978) LP [MP3|320 Kbps] <Latin, Funk, Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155709.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Italo Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155733.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Titiyo - Titiyo (1990) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155742.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA – Best Of Christmas (2017) [MP3|320 Kbps] <Pop, Christmas>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155766.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Titiyo - Come Along (2001) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155805.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Club MTV - Dance Anthems (2018) [MP3|320 Kbps] <Pop, Experimental, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155806.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Titiyo - This Is... (1993) [MP3|256 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155904.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155913.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155946.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Titiyo - Extended (1997) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155980.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Boney M. - Hit Collection (1996) 3CD Box, Compilation [FLAC|Lossless|tracks + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156034.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dschinghis Khan - Greatest Hits (2012) Compilation, 2CD [FLAC|Lossless|image + .
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156058.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FC5C402D5F11487CFE62C7B8D7C774A5C4C365B7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156282.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - ZYX Italo Disco New Generation Bootmix 1-4 (2013-2016) [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156334.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156742.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chans
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156757.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156965.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157071.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157130.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157136.jpg" />
 </div>
 
 

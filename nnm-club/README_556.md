@@ -6,7 +6,7 @@ Firefox Browser 139.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C8AA1F19493174A1577BFC683F69B5D7D918172B
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14766.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6E11B5A20AEB0B5897E55470CA13C75B93A0104A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14767.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Потанцуй со мной (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14768.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1332CF7616CBFD8D066413076AD38A06B617ACAC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14769.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ MobiPDF: Редактор и сканер PDF  v11.6.267114 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14770.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14771.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:63D431E1C79ADFCFB011ACC302899096D7BDE71F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14772.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:41C3AD04FA8A50C7B083A2D90DC912FFAB3E2FEA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14773.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:41C3AD04FA8A50C7B083A2D90DC912FFAB3E2FEA
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14774.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:487C376BF603AFE0C4003AD788CE60C4C1A4DA83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14775.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C3AD211387268CE8B521C6C7EF97DB8559BD3031
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14776.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ SeaOrama: World of Shipping (2023) [Multi] (2.2.4.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14777.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F5D6F40D021A5F12B9EBB5817670A4F023991069
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14778.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C24D0C373BB5D7364213AF00623B656139A2167D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14779.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A3CE2A5BE9E14817748229DE993A30DDB8723FA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14780.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:DAF06564100532652FD2287E76682DBD6FEE2B9E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14781.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6FBC7E7409375554947B378768E83C3671D91B6A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14782.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14783.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14784.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:20CBA1BA77669A632346D01DB5BBC0910EBC9131
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14785.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:75E0519B70A57B3E12EB1C69BF07A2C426D648E1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14786.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FabFilter - Total Bundle 2025.05.21 VST, VST 3, AAX (x64) RePack by Team V.R. [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14787.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7FF66A6E7D794046B939A45D2FEB9E0AB051B39A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14788.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:14F60F9BD24D24FAD89D79A2A3E0076548593E17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14789.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:5BC9EF359E0953F0D8ED176ED2AF6E62457DC48C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14790.jpg" />
 </div>
 
 

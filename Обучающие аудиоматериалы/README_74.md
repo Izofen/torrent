@@ -1,3 +1,52 @@
+###  Публикация: 1623038   (243399) от 31.03.2023
+
+Александр Данилин | Таблетка от смерти (2010) [MP3, Александр Данилин]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой первое в нашей стране практическое руководство по работе с целенаправленным воображением при серьезных соматических заболеваниях. В ней описаны приемы концентрации внимания, работы с «фантомным телом» и управления собственными мечтами, предназначенные для того, чтобы назначенное врачами лечение стало действительно эффективным. Но главное: (   Читать дальше...   )Жанр: Здоровье, медицинаПродолжительность: 08:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2460521C4E03A4583B83C67BAE9190027DB0054
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626321   (243598) от 15.04.2023
+
+Ог Мандино | Величайший торговец в мире (Книга 2)  (2010) [MP3, Владимир Скромуль]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_243598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько миллионов читателей ожидали узнать продолжение истории «Величайшего торговца в мире», и вот наконец оно перед вами.
+Трогательная повесть о маленьком погонщике верблюдов Хафиде, ставшем величайшим торговцем благодаря исполнению заповедей, записанных в десяти свитках успеха, получила завершение. Одинокий торговец, считавший себя вправе отдохнуть от суеты (   Читать дальше...   )Жанр: Бизнес, личностный ростПродолжительность: 03:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A7A2D78281E5E44911B8FDB74E80A936EF1A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626569   (243611) от 15.04.2023
 
 Альфред Адлер | Наука жить (2023) [MP3, Игорь Ломакин]
@@ -6,7 +55,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243611.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243611.jpg" />
 </div>
 
 
@@ -31,7 +80,7 @@ magnet:?xt=urn:btih:23304A4523468364AA75BF8C518933DC8F5B679A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243643.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243643.jpg" />
 </div>
 
 
@@ -55,7 +104,7 @@ magnet:?xt=urn:btih:3811DD45E232AB99DDFA906BBEC043DC36BDE9C6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243883.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243883.jpg" />
 </div>
 
 
@@ -79,7 +128,7 @@ magnet:?xt=urn:btih:EB4C43A087A1A0C5C4D2E04ADEDE0E543EF2F8EE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243902.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243902.jpg" />
 </div>
 
 
@@ -103,7 +152,7 @@ magnet:?xt=urn:btih:647E6DAD001F9EB49D115D162D83BA453FFB6C3B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243924.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243924.jpg" />
 </div>
 
 
@@ -127,7 +176,7 @@ magnet:?xt=urn:btih:8612812FDDE43E06801D51A9B5B734FA3E7E2F28
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244164.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244164.jpg" />
 </div>
 
 
@@ -153,7 +202,7 @@ magnet:?xt=urn:btih:6312361736143A957A28E8CED25EAD932579635F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244200.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244200.jpg" />
 </div>
 
 
@@ -178,7 +227,7 @@ magnet:?xt=urn:btih:1E5DC22ECFE98D987E64B3EA06FEA980D75092B6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244389.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244389.jpg" />
 </div>
 
 
@@ -203,7 +252,7 @@ magnet:?xt=urn:btih:044FDA3EFD49CE76931AA59589F238348CD44B13
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244407.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244407.jpg" />
 </div>
 
 
@@ -229,7 +278,7 @@ magnet:?xt=urn:btih:CB44B17F5F699E07D1996A675AB1A833ED8AD4D0
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244448.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244448.jpg" />
 </div>
 
 
@@ -255,7 +304,7 @@ magnet:?xt=urn:btih:AE2B03B1FEA2E2AA2CD21BBA26EEA2CDBB13BC56
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244461.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244461.jpg" />
 </div>
 
 
@@ -279,7 +328,7 @@ magnet:?xt=urn:btih:719F39134B5005C2BA0B0D8796EF821B7AE0C3EC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244564.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244564.jpg" />
 </div>
 
 
@@ -304,7 +353,7 @@ magnet:?xt=urn:btih:902F09CCDEAFBA15921EBCB913BAC7CEA5D0ED4A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244640.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244640.jpg" />
 </div>
 
 
@@ -329,7 +378,7 @@ magnet:?xt=urn:btih:0A0D0581A99E460505B583C570AD85D4DB9929DD
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244762.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244762.jpg" />
 </div>
 
 
@@ -353,7 +402,7 @@ magnet:?xt=urn:btih:74F87820D81D4BA22158980CBF48AC79A844DDE7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244777.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244777.jpg" />
 </div>
 
 
@@ -377,7 +426,7 @@ magnet:?xt=urn:btih:10810584E742AC05B2FA4F5F99FAE587591CC67A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244986.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244986.jpg" />
 </div>
 
 
@@ -402,7 +451,7 @@ magnet:?xt=urn:btih:D53E83D2A72F1B3D575E94E8B4402AF3D12F929A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244996.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244996.jpg" />
 </div>
 
 
@@ -426,7 +475,7 @@ magnet:?xt=urn:btih:22E3910B31ADBB9F8373D5B236D1875BB8DA1387
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245035.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245035.jpg" />
 </div>
 
 
@@ -450,7 +499,7 @@ magnet:?xt=urn:btih:36D064795D67FE5A82DE095444988237840DF9BC
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245134.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245134.jpg" />
 </div>
 
 
@@ -474,7 +523,7 @@ magnet:?xt=urn:btih:7EB6863565C62FDCEDA6EF7E52A2494A0E875229
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245309.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245309.jpg" />
 </div>
 
 
@@ -498,7 +547,7 @@ magnet:?xt=urn:btih:BB74D3F7CA2599F245804CD9600E43E3BB8A8021
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245318.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245318.jpg" />
 </div>
 
 
@@ -522,7 +571,7 @@ magnet:?xt=urn:btih:E328CB1733D3B2BA3ABE36F0303295E892D27800
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245387.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245387.jpg" />
 </div>
 
 
@@ -546,7 +595,7 @@ magnet:?xt=urn:btih:0DD706D3793E38F6F857A622051F4CE552AD60CE
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245440.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245440.jpg" />
 </div>
 
 
@@ -570,7 +619,7 @@ magnet:?xt=urn:btih:A7FC44C58898946F8D69FBAF9B031AA594F38A98
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245514.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245514.jpg" />
 </div>
 
 
@@ -582,54 +631,6 @@ magnet:?xt=urn:btih:A7FC44C58898946F8D69FBAF9B031AA594F38A98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CEA59B2EE96DF3CE2F3E560DE3479A31F1DD89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620413   (245609) от 20.03.2023
-
-Кай-фу Ли, Чэнь Цюфань | ИИ-2041. Десять образов нашего будущего (2022) [MP3, Игорь Сергеев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект станет определяющим событием XXI века. В течение двух десятилетий все аспекты повседневной жизни станут неузнаваемыми. ИИ приведет к беспрецедентному богатству, симбиоз человека и машины приведет к революции в медицине и образовании и создаст совершенно новые формы общения и развлечений. Однако, освобождая нас от рутинной работы, ИИ также (   Читать дальше...   )Жанр: Управление бизнесомПродолжительность: 17:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F294C85B40A0EBEC2B7BB38CA78BAB4D48D488B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630149   (245663) от 30.04.2023
-
-Кристофер Кенворти | Как снимают блокбастеры Тарантино (2021) [MP3, Юрий Белик]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто книга, это профессиональный курс по режиссуре, после которого вы сможете самостоятельно снять свой фильм! Визионеры, первооткрыватели и величайшие режиссеры в истории откроют вам свои секреты мастерства и детально разберут с вами некоторые свои кадры и сюжетные повороты. Автору удалось собрать в одной книге анализ приемов и техник режиссеров на основе (   Читать дальше...   )Жанр: Кинематограф / театрПродолжительность: 04:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76442B81FE70F1D27B0F6330999112D1350EC126
 ```
 
 

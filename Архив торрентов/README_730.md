@@ -1,3 +1,75 @@
+###  Публикация: 1601074   (152676) от 30.12.2022
+
+NetWorker Pro 8.5.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152676.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E08F5CB3AE9AB7C4A7DBE722F1C77B52A9C33A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588817   (152677) от 14.12.2012
+
+Winter Wallpapers (13.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A73F91E16065FBB4E91CE23280DE40682A01D6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518698   (152680) от 21.12.2021
+
+CoolUtils Total Audio Converter 6.1.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двухпанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB87915BE8CBAF2F0CA301C07B4D84F695D1293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677133   (152685) от 16.11.2023
 
 Windows Firewall Control 6.9.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +78,7 @@ Windows Firewall Control 6.9.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152685.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ System Toolkit 5.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152703.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:80592CEDA10FAE567C2A5DF1C7ED92E70D09B2FC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152704.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Wireshark 4.2.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152717.jpg" />
 </div>
 
 
@@ -112,7 +184,7 @@ magnet:?xt=urn:btih:00188D6C530D9749BC9CBE44EDAE641F159A1646
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152719.jpg" />
 </div>
 
 
@@ -136,7 +208,7 @@ KMPlayer 4.2.3.6 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152720.jpg" />
 </div>
 
 
@@ -160,7 +232,7 @@ FoneDog Toolkit for Android 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152724.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ Chain Timer 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152734.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ Task Manager DeLuxe 4.0.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152736.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ PC Cleaner Pro 9.5.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152741.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Quick PDF Scanner + OCR Pro v7.6.1243 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152742.jpg" />
 </div>
 
 
@@ -283,7 +355,7 @@ Duolingo Plus: изучение иностранных языков 5.38.2 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152747.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ VMware Workstation 14 Pro 14.1.0 Build 7370693 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152750.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ Invisor - Media File Inspector 3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152753.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ Balabolka 2.15.0.857 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152754.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ magnet:?xt=urn:btih:4D8669E607798CC2DC0944BFDD657B8FAE129AF5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152759.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ VueScan Pro 9.7.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152762.jpg" />
 </div>
 
 
@@ -431,7 +503,7 @@ Find Any File (FAF) 2.4b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152764.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ magnet:?xt=urn:btih:84160A7D9F9B5365F0D6F8EB9B5A41328A415136
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152767.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ AIMP 5.01 Build 2355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152774.jpg" />
 </div>
 
 
@@ -505,7 +577,7 @@ magnet:?xt=urn:btih:9C829312E04CB1F37FA261DF40D97F6F0DDB347B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152782.jpg" />
 </div>
 
 
@@ -529,7 +601,7 @@ IrfanView 4.54 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152785.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Geekbench 5 v5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152788.jpg" />
 </div>
 
 
@@ -566,82 +638,6 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9DA7454A7462D1D661E933EEAFE6DDAC743DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518840   (152802) от 21.12.2021
-
-4K Video Downloader 4.19.1.4680 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152802.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
-Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E89AF111CA5CD7670961BF955D1FA1F48C9DBAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086550   (152817) от 24.12.2016
-
-Eschaton - Universe 3 (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kensho (AP Organism New Gates of Change Remix) (08:59)
- 02. Gnosis (Flow Steremov Remix) (06:48)
- 03. Doors of Perception (Original Mix) (05:32)
- 04. Oaxaca (The Drumkilla Remix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87916D30EAFBB4D455BF930AF5E6105F02BF5DDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518817   (152825) от 21.12.2021
-
-Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152825.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8460C78C3EE459CA83CAB61B7B7068DD3B01316E
 ```
 
 

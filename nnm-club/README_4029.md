@@ -1,3 +1,78 @@
+###  Публикация: 1823362   (124436) от 11.10.2025
+
+Главная дорога (11.10.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная разметка: просыпаются и водители, и местные жители.
+ Связь барахлит, геолокация глючит, а ехать надо: как добраться до нужной точки, когда навигатор показывает, что вы в аэропорту? Андрей Федорцов и Денис Юченков показали правила ориентирования в каменных джунглях.
+ Пикапы со скрипом: Mitsubishi L200 vs Toyota Hilux.
+ Дорожные ловушки: нелогичная парковка (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18ACBD690F7BD43BF8237D284E7B3250BDE5726C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982381   (124437) от 11.10.2025
+
+Serious Sam 3: BFE / Крутой Сэм 3: BFE (2011) [Ru/En] (3.0.3.0.249955/dlc) Repack xatab
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam 3: BFE — это великолепное возвращение в золотой век шутеров с видом от первого лица, когда мужчины были мужчинами, укрытия были для трусов, а нажатие на курок сопровождалось огромными взрывами. В качестве приквела оригинальной инди-сенсации Serious Sam: The First Encounter, события в Serious Sam 3 происходят во время последней битвы за Землю против легионов (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E58F47E6A9BDF68ABD732920DCB97A86CB9F7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823359   (124438) от 11.10.2025
+
+VueScan Pro 9.8.48.03 RePack (& Portable) by elchupacabra (DC 07.10.2025) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124438.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CD096B71B7DFDE827AE6EB5C2ED6E71337EAC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823332   (124439) от 11.10.2025
 
 Миссия невыполнима: Финальная расплата / Mission: Impossible - The Final Reckoning (2025) BDRip [H.264/1080p] [IMAX]
@@ -6,7 +81,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124439.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:0F455F4FF5A5B7310DCC3CFBA3B6E3A585D2904F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124440.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:6D620898B723135B081C05FA271E3CC811D940E6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124441.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124442.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124443.jpg" />
 </div>
 
 
@@ -128,7 +203,7 @@ magnet:?xt=urn:btih:9845A0104D9D9E0CEC9049330202829125927180
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v14 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124445.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:8D75C840B6E0DFE7B1F1EEE8F23976B98C150E3F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124446.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:8B5CAB2DECA75ECBDDE8826D84302D81C410A027
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124447.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:8D85EA85D1ECE4A733D80C22358FE36147277D91
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124448.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:E4F12E9F767150836D6FEFEADD7837FD752E7399
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124449.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:FF00F6A21B42BE1F5D8F888185FC9BB60EA6DE21
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124450.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ magnet:?xt=urn:btih:1DD98C4C3A0042883424BC627CD8FEE4D632362A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124451.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:3AC73892E7D7105445F3D12AA8A02EE39F32B722
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124452.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:FD5D8E0AC02580A7236A196799743FDA3E16C9D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124453.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:0E834893D3A5296A9E8E3F2E7A3176BF1EB6A6A5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124454.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ Windows 11 Manager 1.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124455.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ WARNO (2024) [Ru/Multi] (169014/dlc) Repack Other s [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124456.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ magnet:?xt=urn:btih:3A4ABEC777A1395030D0188FE995E8E9C7A76AE0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124457.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ Fort Firewall 3.19.9 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124458.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124459.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124460.jpg" />
 </div>
 
 
@@ -542,7 +617,7 @@ magnet:?xt=urn:btih:A6AF59B2079CD8A54038205BF2933F28EED74427
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124461.jpg" />
 </div>
 
 
@@ -554,81 +629,6 @@ magnet:?xt=urn:btih:A6AF59B2079CD8A54038205BF2933F28EED74427
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B072652CFF119C7247BDDB7B7E5E9BC500A09B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823349   (124462) от 11.10.2025
-
-Девушка из каюты №10 / The Woman in Cabin 10 (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешная журналистка Лора Блэклок для работы над новой статьёй отправляется в плавание на роскошной яхте вместе с группой влиятельных людей. Однажды ночью она слышит шум и крики, которые раздаются из соседней каюты. Лора выглядывает наружу и успевает увидеть, как за борт выбрасывают тело. Журналистка сообщает о произошедшем, но команда и другие пассажиры не верят (   Читать дальше...   )Производство: США, Великобритания | CBS Films, Gotham Group, The, Sister PicturesЖанр: триллер, драма, детективРежиссер: Саймон СтоунАктеры: Кира Найтли, Ханна Уэддингхэм, Гай Пирс, Кая Скоделарио, Гугу Мбата-Роу, Дэвид Моррисси, Пол Кэй, Дэниэл Ингс, Арт МаликПеревод: Многоголосый (заКАДРЫ, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C4C3ABB10EE3880B16125AEFB9C36B234A7C34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689856   (124463) от 04.01.2024
-
-Windows 11 (v23h2) x64 PRO by KulHunter v2 (esd) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: en-us_windows_11_consumer_editions_version_23h2_updated_dec_2023_x64_dvd_7cd2c9a8.iso.
-Использован установщик от Windows 10 23h2 (SecureBoot и TPM 2.0 не требуется).
-Отключено несколько компонентов, задействован протокол SMB.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335FDAC0277E6270FFE02C708A1EAA5F88C7E2AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823348   (124464) от 11.10.2025
-
-Это море переполнится / Tasacak Bu Deniz (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
-
->>Зарубежные сериалы
->>Турецкие сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124464.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Это море переполнится» – это бесконечная борьба двух враждующих семей на фоне бурных вод Чёрного моря. В фильме показана давняя вражда между Адилем и Эсме, межсемейные конфликты и напряжение, которое обостряется неожиданными событиями. В фильме показаны эмоциональные дилеммы, с которыми сталкиваются герои, оказавшиеся в эпицентре этих конфликтов и вражды, а также (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драмаРежиссер: Чагры БайракАктеры: Улаш Туна Астепе, Серкан Тынмаз, Серен Шириндже, Гёзде Седа Алтунер, Эслем Акар, Онур Бююктопчу, Бурч Кюмбетлиоглу, Ризакан Дурмуш, Гёзде Тюркер и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164EF48CE341B82A81B2F8C67B9C513D01A999B2
 ```
 
 

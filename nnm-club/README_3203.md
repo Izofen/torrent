@@ -1,3 +1,79 @@
+###  Публикация: 1762214   (102959) от 24.11.2024
+
+Газета | Невыдуманные истории №44 (448) (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102959.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B1E6D922B21F891760212FDC117F7C47194E18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762124   (102960) от 24.11.2024
+
+Своя игра (январь-февраль 2024) WEBRip [H.264/1080p] (игры 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102960.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Первый турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 12 выпусков по ~00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1619B9F2C5D1FEFE3416C00B5450902827B5AEDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762339   (102961) от 24.11.2024
+
+Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep [00:02:53]
+02. Body Bag [00:03:22]
+03. All Night [00:03:45]
+04. Deadly Remedy [00:03:19](   Читать дальше...   )Жанр: Alt MetalПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4696B1299538FF3B65C223A27B6790BE8637F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762205   (102962) от 24.11.2024
 
 Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +82,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102962.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102963.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102964.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:416AFA2BB0A1DFCE5E117A411D5EB742252AA73C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102965.jpg" />
 </div>
 
 
@@ -110,7 +186,7 @@ PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102966.jpg" />
 </div>
 
 
@@ -137,7 +213,7 @@ magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102967.jpg" />
 </div>
 
 
@@ -164,7 +240,7 @@ Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102968.jpg" />
 </div>
 
 
@@ -191,7 +267,7 @@ Father John Misty - Mahashmashana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102969.jpg" />
 </div>
 
 
@@ -218,7 +294,7 @@ magnet:?xt=urn:btih:4CC8E638EC98BD2C4129E036746B28564EEF7087
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102970.jpg" />
 </div>
 
 
@@ -245,7 +321,7 @@ magnet:?xt=urn:btih:DC8FB2C61FB099D43AB6D7C6AD81235EEE399462
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102971.jpg" />
 </div>
 
 
@@ -272,7 +348,7 @@ magnet:?xt=urn:btih:CD9486ED0CC60F63586175DA4BC712EA5DAD2A52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102972.jpg" />
 </div>
 
 
@@ -299,7 +375,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 936249809
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102973.jpg" />
 </div>
 
 
@@ -326,7 +402,7 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102974.jpg" />
 </div>
 
 
@@ -353,7 +429,7 @@ magnet:?xt=urn:btih:C6A90F68AB75F63976AAF28AC152BD6D712310A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102975.jpg" />
 </div>
 
 
@@ -380,7 +456,7 @@ magnet:?xt=urn:btih:612C0F16460A89D79FF1CE3A444340A7AEFBEF2C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102976.jpg" />
 </div>
 
 
@@ -407,7 +483,7 @@ magnet:?xt=urn:btih:9D4A162DDEBD18B3791F5BC14EC9CA44DDF247C2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102977.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ Asgaard - When The Twilight Set In Again (1998) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102978.jpg" />
 </div>
 
 
@@ -459,7 +535,7 @@ magnet:?xt=urn:btih:B549AC29CEB6992C46FE214A9FE19B7D28A321AD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102979.jpg" />
 </div>
 
 
@@ -483,7 +559,7 @@ magnet:?xt=urn:btih:479202758782BB534B710E58A32AFC304E6AB2D2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102980.jpg" />
 </div>
 
 
@@ -507,7 +583,7 @@ magnet:?xt=urn:btih:607C920AB27874818C6A399F686D95E65CA76018
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102981.jpg" />
 </div>
 
 
@@ -531,7 +607,7 @@ magnet:?xt=urn:btih:0FC7BBA531E4A4AD31FFBDFD7966CEFE38D83480
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102982.jpg" />
 </div>
 
 
@@ -555,7 +631,7 @@ magnet:?xt=urn:btih:49C8C88C8471D877C0BC2631CE8E7C813205AF16
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102983.jpg" />
 </div>
 
 
@@ -580,7 +656,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102984.jpg" />
 </div>
 
 
@@ -594,81 +670,6 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A6B7AF6CC2A0CFB08FE6727DA207B1735F885A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762068   (102985) от 24.11.2024
-
-VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Diandra Faye - In Our Memories (ThoBa Extended Remix) [4:39]
-02. TISKANTA - Without You (Extended Mix) [5:59]
-03. Adip Kiyoi - The Future Of A.I (Extended Mix) [7:14]
-04. SMR LVE - Destinations (Extended Mix) [4:52](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8F0FB46BA10ADAC3D69B7FA21E38368753924F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762003   (102986) от 23.11.2024
-
-Пятеро на одного (23.11.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B407A7F78F3D04DC8BF8A387E25D03E93950C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761872   (102987) от 23.11.2024
-
-Карточный след / The Trail of Cards (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простенькая история в жанре вестерн. За благосклонность красотки (я так полагаю, что в прериях такой дифицит слабого пола, что любая автоматически становится красоткой) борются двое - благородный ковбой и подлый негодяй мексиканец (конечно же мексиканец!) Девушка отдает предпочтение ковбою, но коварный латинос не сдается...Производство: США / American Film Manufacturing CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Гилберт П. ХэмилтонАктеры: Эдвард Коксен, Лиллиэн Кристи, J. Walter Kerrigan, Луиз ЛестерПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60899ABEE1A0F0E482B1521489B7A8794CA3B000
 ```
 
 

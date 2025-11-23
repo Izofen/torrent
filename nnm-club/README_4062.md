@@ -1,3 +1,84 @@
+###  Публикация: 1688154   (125294) от 28.12.2023
+
+Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigh Ride
+02. Skating
+03. This Christmas
+04. Santa Baby(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B486C787130A3F61D7B8A73E3036CC69362BA417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688122   (125295) от 28.12.2023
+
+Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vague [6:19]
+02. Back on the Beat [5:11]
+03. Life Is a Movie [6:03]
+04. Les paradis perdus [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC35047B627C293E75005FE027205A42875C9220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688176   (125296) от 28.12.2023
+
+The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Knows You When You're Down and Out (feat. Sandi King) (2:34)
+02. One Scotch, One Bourbon, One Beer (feat. Stacy Antonel) (3:39)
+03. Parchman Farm Blues (feat. Steve Gouveia) (2:06)
+04. Quarter To Three (feat. Shelle Blue) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688215   (125297) от 28.12.2023
 
 Анна Гарф | Вот какие наши руки (1961) [PDF]
@@ -6,7 +87,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125297.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125298.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125299.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125300.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125301.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125302.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125303.jpg" />
 </div>
 
 
@@ -185,7 +266,7 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125304.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125305.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125306.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125307.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125308.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ EarthView 7.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125309.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125310.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ HWiNFO 7.69 Build 5305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125311.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125312.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ magnet:?xt=urn:btih:BF30F9E3D7AA656B452BC529E7EA572543EABCEF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125313.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ magnet:?xt=urn:btih:045DA1EEFFFF9534A8B9582828DDFED3C05A7F7E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125314.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ magnet:?xt=urn:btih:AFE34D8391CB4CE6D1B777047BB4B706C2E29769
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125315.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ magnet:?xt=urn:btih:E86C6CFC1D10AEDF03CCBFDB0F3246B60590AB97
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125316.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ magnet:?xt=urn:btih:5539F6C7A7140125C41C60560D3A5BC737F25F2A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125317.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ magnet:?xt=urn:btih:9C885E31C595E8E66D383C92264274BA993D3C49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125318.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ magnet:?xt=urn:btih:CBF762828EF60A9C987272B57F9BCFEC5288692B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125319.jpg" />
 </div>
 
 
@@ -574,81 +655,6 @@ magnet:?xt=urn:btih:CBF762828EF60A9C987272B57F9BCFEC5288692B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:235B1DE855965308DD6E2812FD4EE4142C2A856F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688139   (125320) от 28.12.2023
-
-Хильда / Hilda (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) BTI Studios
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители планеты даже не догадываются, кто живет рядом с ними. Любознательная девочка Хильда умеет находить себе приключения. Каждый день для нее наполнен интересными и загадочными событиями. Её можно назвать смелой, ведь Хильда не боится встретиться со странными созданиями - такими как тролли, древесные люди и великаны.Производство: Великобритания, Канада, США / Mercury Filmworks, Silvergate MediaЖанр: рисованная анимация, приключения, комедия, фэнтезиРежиссер: Энди КойлАктеры: Белла Рэмзи, Амира Фалзон-Оджо, Оливер Нельсон, Дэйзи Хаггард, Расмус Хардайкер, Нина Сосанья, Клер Скиннер, Дэвид Менкин, Каиса Хаммарлунд, Саймон ГриноллПеревод: Дублированный (BTI Studios)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), Английские, Голандские, etc.Продолжительность: серии по ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C04CC1CE0B1ACF5A6573E4533CE96C2C6089AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688162   (125321) от 28.12.2023
-
-Юлия Яковлева | Вдруг охотник выбегает (2023) [MP3, Кирилл Радциг]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленинград, 1930 год. Следствие ведет Василий Зайцев. Сотрудник ЛенУгРо Василий Зайцев молод, хорош собой и имеет самое пролетарское происхождение. Бывший беспризорник, воспитанный в детском доме, он считает, что всем в своей жизни обязан советской власти. А между тем в городе вовсю раскручивается маховик террора — уже строится новый штаб для ОГПУ-НКВД, повсюду идут (   Читать дальше...   )Жанр: детектив, триллерИздательство: ВИМБОПродолжительность: 09:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812F17A0A24BDDA608FA35265A5380764D6E17F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687950   (125322) от 28.12.2023
-
-Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless Light
-02. Sunlight Rain River
-03. Circle Within
-04. The Dance of Rain Declares the Sun(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88278A7544925CC7D710C16A620C3B515F89748B
 ```
 
 

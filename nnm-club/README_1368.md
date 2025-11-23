@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ QOwnNotes 24.11.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35922.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2D9F8403A18516B432FC4EC2D92FE941450CA179
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35923.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jungle Jim Smith - This Is Ghost Country (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35924.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:10E3300DB64C61A334A4E25D5EE747522C5FCC1E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35925.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6DC6BD9872046F6E5623AF2C743CC30B1C2441AB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35926.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Paris - Hungry 4 Action (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Black Whiskey - Last Temptation (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35928.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Black Shaman - Evocation: Experimental (2023) [FLAC|Lossless|Web-DL|tracks] <Dar
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35929.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Fellowship - The Skies Above Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35930.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ AJ Plug - Underneath Your Skin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35931.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C0DE7190C23DCDFD590FFF4161AB7B7AC45BA75A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35932.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Vanessa Collier - Do It My Own Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35933.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Black Shaman - Is This Real? (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35934.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Black Shaman - Old City (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35935.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Steve Hill - Hanging On A String (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35936.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Larry Dupio - Hawaii, My Island Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35937.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ CHELLE! and Friends - Daughters of the Delta (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35938.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Jimmy Cornett & The Deadmen - One of a Kind (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35939.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Deedra Patrick - Gold Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35940.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jed Thomas Band - Emerald Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35941.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ollee Owens - Nowhere To Hide (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35942.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sickler Brothers - We Got Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35943.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Dick Earl's Electric Witness - Get Up Off The Ground (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35944.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Baxter Robertson - Patchwork Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35945.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Drew Neirin - A Star Shaped Pegs Experience (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35946.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1684836   (127535) от 17.12.2023
+
+LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127535.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEGO 2K Drive предлагает получить уникальный опыт вождения в мире LEGO, позволяя геймерам гонять где угодно, с кем угодно и строить автомобили своей мечты. Однако на пути к победе не обойтись без препятствий, ведь множество эксцентричных соперников по гонкам с нетерпением ждут, чтобы бросить вызов игрокам в борьбе за желанный трофей Sky Trophy.Тип издания: RepackРазработчик: Visual Concepts EntertainmentЖанр: Racing, ArcadeЯзык озвучки: Английский, Испанский, Итальянский, Корейский и другиеЯзык субтитров: Английский, Испанский, Итальянский, Корейский и другиеЯзык интерфейса: Английский, Испанский, Итальянский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAC80DC91E2950458B4D679807CB5B195544D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684311   (127536) от 17.12.2023
+
+Последнее дело Мистера Монка / Mr. Monk's Last Case: A Monk Movie (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Эдриан Монк, страдающий обсессивно-компульсивным расстройством и широким спектром фобий, возвращается, чтобы раскрыть свое последние дело, связанное с его падчерицей Молли. Последнее дело Мистера Монка – полнометражное продолжение детективного сериала «Детектив Монк» с Тони Шэлубом в роли очаровательного полицейского, который был вынужден оставить работу (   Читать дальше...   )Производство: США / Universal Content Productions (UCP), PeacockЖанр: комедия, криминалРежиссер: Рэндолл ЗискАктеры: Тони Шэлуб, Трейлор Ховард, Джейсон Грей-Стенфорд, Гектор Элизондо, Тед Левайн, Джеймс Пьюрфой, Кэйтлин МакГи, Остин Скотт, Эмма Ишта, Паулину НунешПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3B4AF62B1963998661456B564E01B882FB2B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684840   (127537) от 17.12.2023
+
+Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630615   (127538) от 17.12.2023
 
 WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
@@ -6,7 +78,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127538.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ The Raven Age - Conspiracy (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127539.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ The Raven Age - The Raven Age (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127540.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Thragedium - Lisboa Depois de Morta (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127541.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Troll - Trolldom (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127542.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ Howard Alden Trio - Snowy Morning Blues (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127543.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ Olshanoe - What a Great and Sad World It Is (2023) [FLAC|Lossless|image + .cue] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127544.jpg" />
 </div>
 
 
@@ -192,7 +264,7 @@ Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127545.jpg" />
 </div>
 
 
@@ -219,7 +291,7 @@ Nawabs Of Destruction - Rising Vengeance (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127546.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:ABA5322BCAB16031CF87FD695C59C24EA6EBC672
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127547.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:B0119D0B8D26523AE93B269859C12CB4271E0B15
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127548.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:FF1782AABB2F6671A48AAEB4AD75270BB2D68954
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127549.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Sigyn - Dehumanized (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127550.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Wake Arkane - Awakenings (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127551.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Steel Rhino - In Rhino We Trust (2023) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127552.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:DA486956C5864BE09F2D6CC9B26AE45BD0DA4A78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127553.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Solitary Sabred - Temple of the Serpent (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127554.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ Colliding Worlds - Colliding Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127555.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127556.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ The Raven Age - Darkness Will Rise (2017) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127557.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ The Raven Age - Exile (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127558.jpg" />
 </div>
 
 
@@ -558,7 +630,7 @@ Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127559.jpg" />
 </div>
 
 
@@ -585,7 +657,7 @@ Swarm Chain - Looming Darkness (2022) [FLAC|Lossless|image + .cue] <Epic Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127560.jpg" />
 </div>
 
 
@@ -599,84 +671,6 @@ Swarm Chain - Looming Darkness (2022) [FLAC|Lossless|image + .cue] <Epic Doom Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38796F5F88ACACF3AA40A6AF1995B620EC72B242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684685   (127561) от 16.12.2023
-
-Журнал | ТН звёзды №50 (Декабрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127561.jpg" />
-</div>
-
-
-###  Подробнее
-
-ТН — журнал о знаменитостях с телепрограммой. Каждую среду выходит свежий номер с откровенными интервью ваших любимых звезд. Кумиры доверяют нам, а мы делимся с вами интересными подробностями из их жизни. Звезды приглашают наших журналистов к себе домой — согласитесь, всегда интересно посмотреть, как живут знаменитости.Жанр: ДосугИздательство: ООО «Медиа ресурс»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1B0E22B72FCB6794821988885123E2DD5137B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684650   (127562) от 16.12.2023
-
-Смерш - ... (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Гражданская	04:13
-02.	День победы	03:31
-03.	Два народа	04:21
-04.	Примирение	04:50(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2139E226B67A1529D1A1F15DFBD1D7B601F3419C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684651   (127563) от 16.12.2023
-
-Минтранс (16.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127563.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Экспертиза машины при постановке на учет. Как она проходит? Есть ли установленные сроки для процедуры?
-🔸 Тест-драйв Сузуки Витара - 2023. Насколько надежен японский гибрид?
-🔸 Сроки ремонта. Что делать, если страховщик и сервис долго согласовывают объем работ и стоимость?
-🔸 Греть или не греть? Что будет, если не прогревать автомобиль?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD9D63A63B7D314EEFDB2FEE5B3D9B50017D943
 ```
 
 

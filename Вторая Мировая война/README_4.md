@@ -1,3 +1,27 @@
+###  Публикация: 1265751   (222654) от 13.12.2018
+
+Вторая мировая: Ад под водой (Подводный ад) / WW2: Hell under the Sea (2018) HDTV [H.264/1080p-LQ] (2 сезон, 1-6 серия из 6)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_222654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вторая мировая. Ад под водой» - это сериал, на основе реальных событий, картографически точно воспроизводящий разные эпизоды невидимой подводной войны, сопровождаемые драматичными рассказами о рейдах подводных патрулей во время Второй мировой войны. Экспертный анализ событий тех дней и видеоматериалы переплетаются с реконструкциями на основе воспоминаний участников (   Читать дальше...   )Производство: Канада, National GeographicЖанр: Документальный, флот, война, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 6 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56785F76BCCA278967A4690F16EF8B71EB6D6798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650753   (224679) от 03.08.2023
 
 Забытый полководец. Теодор-Вернер Андреевич Свиклин (2019) WEB-DLRip [H.264]
@@ -6,7 +30,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224679.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_224679.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:814BC51A5BF8560BDD9BF15DDA1FEB25A3436173
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225389.jpg" />
 </div>
 
 
@@ -55,7 +79,7 @@ magnet:?xt=urn:btih:E78E51F6FF949EE8BDAFFD66EE5E973D1854F6F8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225514.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_225514.jpg" />
 </div>
 
 
@@ -79,7 +103,7 @@ magnet:?xt=urn:btih:8A0339AB0F3DB3E2BE5C138FE48D7B84084AFAD0
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225837.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225837.jpg" />
 </div>
 
 
@@ -103,7 +127,7 @@ magnet:?xt=urn:btih:1B8AEBC59D393EB3A546EBBAA27C8C292811A0F3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227561.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_227561.jpg" />
 </div>
 
 
@@ -127,7 +151,7 @@ magnet:?xt=urn:btih:F7CEB7C3EFC1BDA76CF33B6863BEEBE26B60415D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230631.jpg" />
 </div>
 
 
@@ -151,7 +175,7 @@ magnet:?xt=urn:btih:FF89249A68B34E57161427BAEBC229C24AB3952D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231714.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_231714.jpg" />
 </div>
 
 
@@ -175,7 +199,7 @@ magnet:?xt=urn:btih:07968F31CDB7041D454116A5B35CF328827AD4DA
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_232401.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_232401.jpg" />
 </div>
 
 
@@ -199,7 +223,7 @@ magnet:?xt=urn:btih:BE80B4C00335CB8DA725589B03E04CD7B803B36D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235537.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_235537.jpg" />
 </div>
 
 
@@ -223,7 +247,7 @@ magnet:?xt=urn:btih:CC99C5ECC6DB32E6F705E948FB7DE79827BCB887
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_239179.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_239179.jpg" />
 </div>
 
 
@@ -247,7 +271,7 @@ magnet:?xt=urn:btih:2C6527394E3BF86B5E69E22CB019B03AAE0C6C86
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245235.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245235.jpg" />
 </div>
 
 
@@ -273,7 +297,7 @@ magnet:?xt=urn:btih:D5511FD960AF3FCCCE3715A25094EA373F21EC72
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246597.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246597.jpg" />
 </div>
 
 
@@ -297,7 +321,7 @@ magnet:?xt=urn:btih:1FC4F3DE74C05A958614B7729D5B24DF0248F8F2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246621.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246621.jpg" />
 </div>
 
 
@@ -321,7 +345,7 @@ magnet:?xt=urn:btih:4865AA2E862D5193FAECE6391189229D3FBAF7F2
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247665.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247665.jpg" />
 </div>
 
 
@@ -345,7 +369,7 @@ magnet:?xt=urn:btih:CF8227D79799452698EE38D4B3B525B235F566B8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247738.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247738.jpg" />
 </div>
 
 
@@ -369,7 +393,7 @@ magnet:?xt=urn:btih:0BF2BAB599B24EE2A6A90436D069168313A9A72D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249252.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249252.jpg" />
 </div>
 
 
@@ -393,7 +417,7 @@ magnet:?xt=urn:btih:30D90E49322E738AA6CA87DC3DBCB52AEF9C4CB5
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251275.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_251275.jpg" />
 </div>
 
 
@@ -418,7 +442,7 @@ magnet:?xt=urn:btih:203A8BDE3965F689A77BBA0E8B8D4EF1DF9069C0
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252892.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252892.jpg" />
 </div>
 
 
@@ -442,7 +466,7 @@ magnet:?xt=urn:btih:5ABBEE0A5CA9EFEEE4E676B396137530653D8D6B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252922.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252922.jpg" />
 </div>
 
 
@@ -469,7 +493,7 @@ magnet:?xt=urn:btih:46B911B7A323FC750D9D10E7DBEA2A2598E2D486
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252923.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252923.jpg" />
 </div>
 
 
@@ -480,6 +504,30 @@ magnet:?xt=urn:btih:46B911B7A323FC750D9D10E7DBEA2A2598E2D486
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:894F515DBC91133B11D16F9ACDAE6D5C2D7C9CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500929   (258102) от 24.05.2012
+
+Прохоровка. Укрощение тигра (2003) TVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258102.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 июля 1943 года на Курской дуге в районе станции Прохоровка в одном бою сошлось невиданное доселе количество танков. Здесь была впервые использована новейшая бронетанковая техника – "Тигры", "Пантеры" и "Фердинанды".Жанр: ДокументальныйРежиссер: И. МазепаПродолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23603F7302B8A19FE68095FAE04FE069A17EC006
 ```
 
 

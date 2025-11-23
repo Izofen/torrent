@@ -6,7 +6,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51741.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51950.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ REPUNK (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52191.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52317.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52325.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52401.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52412.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52496.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52555.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52589.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52597.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52608.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52765.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52819.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52870.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52925.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52959.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53080.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53371.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53467.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53469.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53477.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53479.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53534.jpg" />
 </div>
 
 

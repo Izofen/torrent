@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97754.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97755.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97756.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:D7782CFCE5AD05B625AA37ED5887481300DFED48
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97760.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97762.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97763.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:03B6CB9521D4288E709FA4840D103150C23693FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97766.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97768.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97770.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mozilla SeaMonkey 2.9 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97771.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97771.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Go
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97772.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97774.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97778.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97778.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97782.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97790.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97793.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:1074D286D698870FCEE1EC009E22DF84280BBE81
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97797.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F3DC2137E95D56F84E84C134D91EF3315B7A90C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97799.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97799.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ BurnAware Pro 4.7 [Rus/Eng] Repack elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97800.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97800.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ladylike Lily - Get Your Soul Washed (2012) [MP3|~245 кб/с (V0)]<Folk, Indie,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97808.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:A9A13C5C0F74DE6A5B2C56BDBDD3196280E04450
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97810.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:66A09D6E3B9938FB080CE9A8DDF8B0C62DA42AF2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97813.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97815.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97817.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Vienna Boys Choir - Christmas With The Vienna Boys Choir (1993) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97821.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:CD3F12F9339F26EA6C24447D1EEA08C9ADD0B1CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97829.jpg" />
 </div>
 
 

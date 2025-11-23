@@ -1,3 +1,81 @@
+###  Публикация: 1694389   (120952) от 25.01.2024
+
+Emerald Table - Book of illusion's fragments (2023) [MP3|320 Kbps] <Gothic, Doom, Alternative Metal, Male-Female-Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The table [00:02:07]
+02 - Elements [00:02:20]
+03 - Blackwood [00:04:18]
+04 - Lost memories of life [00:04:52](   Читать дальше...   )Жанр: Gothic, Doom, Alternative-Metal, Male-Female-VocalsПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F786161870055791715BF86C43D8D01035A00C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694573   (120953) от 25.01.2024
+
+Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть, или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EFA33BED2BC2A2CBE1DE783E9FD51B253F9423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694446   (120954) от 25.01.2024
+
+Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamashtu
+02. Abandoned to Conflagration
+03. A Prayer of Scourges
+04. Ilu Pagru(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5665259F57559BBC196A6E1219349214442B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694561   (120955) от 25.01.2024
 
 AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
@@ -6,7 +84,7 @@ AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120955.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120956.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Final Draft 13 v.13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120957.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120958.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120959.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Mastercastle - The Phoenix (2009) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120960.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Lifespan 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120961.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120962.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120963.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ magnet:?xt=urn:btih:46DC9AA73E56FD75FEC76C9D7091868CF65FA58A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120964.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ magnet:?xt=urn:btih:D977FE7F0CDD4C2A36C490ADF5553FD8757B2D0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120965.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Easy Data Transform for Mac 1.46.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120966.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120967.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ magnet:?xt=urn:btih:932D6B03823E443D92F008D8D3ACF00984CA2623
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120968.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ NonVisual Desktop Access (NVDA) 2023.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120969.jpg" />
 </div>
 
 
@@ -388,7 +466,7 @@ VA - Deep Blue Sea, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120970.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ Duplicate Manager Pro 1.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120971.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ ApolloOne - Photo Video Viewer Pro 3.3.8 (patch only) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120972.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ TechTool Pro 18 v.18.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120973.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ Omega - Az Omega koncertek legnagyobb sikerei eredeti felvételeken (1994) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120974.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ Steinberg WaveLab Pro for Mac12.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120975.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ magnet:?xt=urn:btih:13F40A1F9FC1D0B4273D601CD92FF33171964077
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120976.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120977.jpg" />
 </div>
 
 
@@ -579,85 +657,6 @@ Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694429   (120978) от 25.01.2024
-
-Сьюзан Кейн | Переживание чувств (2023) [MP3, Людмила Благушко]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас ценить каждое из своих переживаний и находить в них ресурс, чтобы тоньше и пронзительнее ощущать всю многогранность и красоту этого мира.
-Как часто вам доводилось слышать: «Не грусти, не расстраивайся, не стоит плакать»? Печаль, грусть, острое переживание происходящего, по сути, относятся к тому спектру человеческих эмоций, которого мы всячески (   Читать дальше...   )Жанр: ПсихологияИздательство: МИФПродолжительность: 08:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7466EF255BF3439CDB62E551C5D56E1F5B67674E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693863   (120979) от 25.01.2024
-
-Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Supervixen
-02.  Queer
-03.  Ony Happy When It Rains
-04.  As Heaven Is Wide(   Читать дальше...   )Жанр: Rock, Pop, Alternative Rock, Pop RockПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93347E0E592EDFF58F88658737E54ED2BE27AAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694512   (120980) от 25.01.2024
-
-Lucifer - Lucifer V (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Heavy Rock, Occult Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen Angel (3:09)
-02. At The Mortuary (6:08)
-03. Riding Reaper (4:11)
-04. Slow Dance In A Crypt (4:28)(   Читать дальше...   )Жанр: Psychedelic, Heavy Rock, Occult RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6F7CD69A3E1424EBEAE64B29C87FEB72281774
 ```
 
 

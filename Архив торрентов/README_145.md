@@ -6,7 +6,7 @@ Notepad++ 8.7.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iZotope - Tonal Balance Control 2 2.9.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35980.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ K-Lite Codec Pack 18.7.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35995.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Opera One 115.0.5322.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36004.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VueScan Pro 9.8.40 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36005.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Light Image Resizer 7.1.2.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36028.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Firefox Browser ESR 115.18.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36030.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ RegCool 2.017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36034.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ XYplorer 26.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36035.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Firefox Browser ESR 128.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36043.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Multi Commander Full Edition 14.3 Build 3042 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36054.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ TechSmith Camtasia 24.1.3 Build 5321 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36055.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Plus Messenger (Telegram+) v11.4.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36063.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36065.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Vov Sticky Notes 9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36066.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser 133.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36071.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Diamond Cut Forensics Audio Laboratory 11.04 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36077.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ RustDesk 1.3.3 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36083.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:238DC5AE849BB077875C948A3A37C0C5F59CC108
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36085.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.8.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36088.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ YT Downloader 9.11.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36089.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Office Installer & Office Installer+ 1.20 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36100.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ PotPlayer 241120 (1.7.22370) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36110.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Qalculate! 5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36162.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Process Lasso Pro 15.0.3.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36167.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ FanControl V209 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36168.jpg" />
 </div>
 
 

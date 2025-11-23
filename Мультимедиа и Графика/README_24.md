@@ -6,7 +6,7 @@ Arturia FX Collection 5 5.0.0 VST, VST 3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53446.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VLC Media Player 3.0.21 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53903.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Plugin Alliance - MEGA Bundle Effects 2024 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53954.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ CyberLink PowerDirector 2024 Ultimate 22.5.3003.0 RePack (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53987.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Boris FX Silhouette 2024.0.0 Build 254 (x64) RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54233.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Aberrant DSP - Lair 1.0.0 VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54665.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Steinberg Nuendo 13.0.40.251 (x64) Portable by 7997 [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55026.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:80E8175634545A7D15842AC3081A7592DF3A42D3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55141.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D7FF439A1C42CC999105086D69D35E6B08E33E33
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55156.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MAGIX Movie Studio 2025 24.0.1.199 Suite (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55262.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ HitFilm Pro 11.0.8319.47197 (x64) RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55551.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe DNG Converter 16.3.0.1866 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55712.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Spotify Web-Portable by DVLZ 2.3 [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55763.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Machete 5.1 Build 44 Repack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55942.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ MediaHuman Video Converter 2.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55950.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Zoner Photo Studio X 19.2403.2.542 RePack by KpoJIuK [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56336.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ SMPlayer 24.5.0 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56608.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56688.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56719.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ iZotope RX 11 Audio Editor Advanced 11.0.0.3858 (x64) Portable by 7997 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56727.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FastStone MaxView 3.4 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57352.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MAGIX Video Pro X16 22.0.1.216 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57361.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Topaz Mask AI 1.3.9 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57443.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Forester v1.5.5 For Cinema 4D R18-2024 Win 1.5.5 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57447.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:FD9ADDEBD5B829D9B3D70B54AB059B115C6E4927
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57515.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ CLO Standalone 7.3.240.46861 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57544.jpg" />
 </div>
 
 

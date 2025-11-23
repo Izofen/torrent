@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70155.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70711.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:AAD9650A74CC284586AAC63589FD06BEF730746B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70742.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:79C264BF7560BBA85F866ECAF4636557CCB79285
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70866.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:B39F152F7DC8141499AF3BC6C0B7CC99DB7E60DD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71205.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:3BE3014A85C17EB6D50D2D4BACD360A415AEEE51
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71227.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:BCB5E1FF653BB8BB659F1F2D8C050B903C178841
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71230.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:4A9BE940D4F2EDF035A44E4176C6251A6F208DA8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71251.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71255.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:F889BCAD45E603DBBF5040F59B30B540AAD0B12B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71260.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:10EEFA320D051A71CC8BF38CA9C3CA212DD4B9B1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71368.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72242.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Melanie C - Live Hits (Live) (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72364.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Melanie C - Live Hits (Live) (2006) DVDRip
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72869.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73607.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74337.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74518.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74540.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Van Canto - Live at Wacken (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74637.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74681.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75046.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:1B63FD3514C34FBF8F06B1367738AE366B518E3B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75086.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75328.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75469.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75661.jpg" />
 </div>
 
 

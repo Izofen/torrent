@@ -1,3 +1,76 @@
+###  Публикация: 1675006   (160616) от 07.11.2023
+
+dict.cc+ Wörterbuch 12.0.4 [Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь для 51 языковой пары, пригодный для использования с подключением к Интернету или без него (автономный словарь). Словарь можно бесплатно скачать и обновить в приложении.Тип издания: Plus (Paid)Релиз состоялся: 07.10.2023Разработчик: Paul HemetsbergerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BEB24D2D716D386F596A8AA58A44E0F33F3359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674988   (160618) от 07.11.2023
+
+NetLimiter 5.3.5.0 (x64) RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160618.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E4B82082D61604CA894EC86948D9DA6AABAC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675023   (160620) от 07.11.2023
+
+doPDF 11.9.434 Free [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160620.jpg" />
+</div>
+
+
+###  Подробнее
+
+doPDF — программа для преобразования документов в формат PDF. Поддерживается работа со многими форматами файлов, включая Microsoft Excel, документы Word или PowerPoint, сообщения почты и веб-страницы.
+После установки doPDF в папке "Принтеры" появится новый виртуальный принтер, через который и будет происходить процесс преобразования. Таким образом, для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC37EEF87C7052D83319E430E5A87C64EECC3064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674974   (160621) от 07.11.2023
 
 IObit Smart Defrag Pro 9.2.0.323 Portable by 7997 [Multi/Ru]
@@ -6,7 +79,7 @@ IObit Smart Defrag Pro 9.2.0.323 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160621.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ K-Lite Codec Pack Update 17.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160624.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Alt SwitchER 21.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160630.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160633.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Barcode 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160651.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Be Focused Pro - Focus Timer 2.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160657.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ FonePaw iOS Transfer for Mac 5.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160659.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ Privatus 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160670.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Slidepad 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160680.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160681.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Boxy SVG 4.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160686.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Cookie 7.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160695.jpg" />
 </div>
 
 
@@ -301,7 +374,7 @@ FSNotes 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160696.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160698.jpg" />
 </div>
 
 
@@ -350,7 +423,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160713.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160741.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ Format Factory 5.16.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160757.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160761.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160768.jpg" />
 </div>
 
 
@@ -476,7 +549,7 @@ Planet VPN 2.1.26.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160773.jpg" />
 </div>
 
 
@@ -500,7 +573,7 @@ PotPlayer 231102 (1.7.22032) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160787.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ StartAllBack 3.6.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160792.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ nthLink 6.2.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160793.jpg" />
 </div>
 
 
@@ -559,78 +632,6 @@ nthLink — мощный и бесплатный VPN способный обхо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6D6FCC098EA773318F4E1E808614795A6999D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674768   (160796) от 06.11.2023
-
-AOMEI Partition Assistant Standard Edition 10.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160796.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Partition Assistant Standard Edition бесплатный многофункциональный продукт, предназначенный для администрирования разделов жестких дисков. Несмотря на свою простоту, программа позволяет производить все основные необходимые операции, такие как, изменение раздела, перемещение, увеличение, уменьшение, соединение нескольких разделов, а также удаление, создание, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A656D15231745AD240689186B91E1C4B36580A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674762   (160805) от 06.11.2023
-
-ColorControl 9.7.0.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160805.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorControl - небольшая программа которая после запуска предлагает новые функции и возможности для пользователей, имеющих видеокарты от компании NVIDIA или АМД. С помощью нее можно изменить не только основные параметры дисплея, но и некоторые скрытые значения, которые обычно недоступны через стандартную панель управления, что значительно расширяет возможности наши (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF7B0C0E0B69EEE2097ABABDCBF7188C776B368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674656   (160809) от 06.11.2023
-
-NetLimiter 5.3.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160809.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
 ```
 
 

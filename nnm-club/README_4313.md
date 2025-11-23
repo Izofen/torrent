@@ -1,3 +1,81 @@
+###  Публикация: 595306   (132752) от 28.12.2012
+
+Журнал | Тайны и загадки №1 [2013] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны и загадки - исторические сенсации, скандальные расследования, загадочные артефакты, а также сверхъестественное, мистическое, непознанное для тех, кто привык быть в курсе самой интересной информации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F123BD78F0DEC54980AC86447669AFF8089AF330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681268   (132753) от 03.12.2023
+
+Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы [00:03:05]
+02. Тонуть [00:02:37]
+03. Я так страдал (нет) [00:02:27]
+04. Герой [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681280   (132755) от 03.12.2023
+
+Аллюзион - Роза Ветров (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последний рассвет [00:04:00]
+02. Секс рефлекс [00:03:23]
+03. Voyager-1 [00:03:46]
+04. Путь важнее цели [00:03:57](   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAB0EA667931EFD63C90351748A709474B31BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595435   (132756) от 28.12.2012
 
 Николай Прокудин | Остров Амазонок [2006] [RTF, FB2]
@@ -6,7 +84,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132756.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ Vitalines - Wheels Within Wheels (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132757.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ Ewiniar - Another World (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132759.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ New year wallpapers 2013 (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132760.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Femal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132761.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132762.jpg" />
 </div>
 
 
@@ -172,7 +250,7 @@ PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132763.jpg" />
 </div>
 
 
@@ -199,7 +277,7 @@ Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132765.jpg" />
 </div>
 
 
@@ -226,7 +304,7 @@ Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132767.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132769.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ magnet:?xt=urn:btih:C2AA561E24E9E05A1FD4785DE7EDEAAFD77CBAD3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132770.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132771.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132772.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:3432E3AA200C2C28D6316E75D02B191C025093FF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132773.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ magnet:?xt=urn:btih:C873B6B512A7A11268C5C175B3717D5DED3ECF5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132775.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ Winter Wallpapers (26.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132776.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132777.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ F1 Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132778.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'R
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132779.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132780.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ Daimos - A World Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132781.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ magnet:?xt=urn:btih:D74E957A168F40DAF840EA9E36F9B2A7C0F2E778
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132782.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.4.0.0/00.014.037/dlc) Repack Other s [A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132783.jpg" />
 </div>
 
 
@@ -605,81 +683,6 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.4.0.0/00.014.037/dlc) Repack Other s [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD229EFB0307934A4AB1DCB4D083E726ACA7D340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675656   (132785) от 02.12.2023
-
-Убить Риту (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрупкая с виду учительница химии Рита остается без работы за связи с учеником. Но благодаря своим навыкам ей удается заработать лёгкие деньги уборкой коттеджа. Правда этот коттедж оказывается местом преступления, а сама Рита оказывается в эпицентре криминальных разборок местных бандитов. Однако Рита не так проста — все это время она жила под прикрытием по чужому (   Читать дальше...   )Производство: Россия / 1-2-3 ProductionЖанр: криминал, драма, комедияРежиссер: Мария АграновичАктеры: Евгения Борзых, Артём Быстров, Анна Слю, Алексей Агранович, Артём Ткаченко, Александр Мизёв, Алексей Филимонов, Олег Гаас, Игорь Грабузов, Артур Бесчастный, Эрик ЯраловПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40DEAB932266887C7E7E644FB23CA76D83C0619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681182   (132787) от 02.12.2023
-
-KMS Tools Portable by Ratiborus 01.12.2023 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132787.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D737F02FA0990166F9C59F3FB78F6E7264AFD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680545   (132790) от 02.12.2023
-
-VMware vSphere ESXi 8.0U2 [amd64] 1xDVD
-
->>След.
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия гипервизора VMware vSphere ESXi для сервера.
-
-Новый апплаенс - vCenter Server Appliance Migration tool.
-Новый API (REST-based APIs for VM Management) для упрощения автоматизации и управления инфраструктурой.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028DAB0D08A1F4E0EC9C6FAF84E6B63FE4744E66
 ```
 
 

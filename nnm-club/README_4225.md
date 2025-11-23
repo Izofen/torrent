@@ -1,3 +1,87 @@
+###  Публикация: 1524835   (129760) от 20.01.2022
+
+Вечные / Eternals  (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [IMAX] [UKR, ENG / UKR, EN Sub] [MVO]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: Многоголосый профессиональныйЯзык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full, SDH)Продолжительность: 02:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FD609BD1FF69FD5D253CF38D0B1D0066406A0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683054   (129761) от 09.12.2023
+
+Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip Away [00:03:27]
+02. This Life [00:02:21]
+03. Spend My Days [00:03:31]
+04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC96DA18C94372EFEF0F11E889675AC41F3FC83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489945   (129762) от 01.05.2012
+
+James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In my dreams
+02. 6 weeks
+03. I won't let you go
+04. James Morrison, Jessie J/Up
+05. Slave to the music
+06. Person I should have been
+07. Say something now
+08. Beautiful Life
+09. Forever
+10. The Awakening(   Читать дальше...   )2011Жанр: Soul, Adult Contemporary, Pop, FolkПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525480   (129763) от 20.01.2022
 
 Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
@@ -6,7 +90,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129763.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ magnet:?xt=urn:btih:F2CD56DF6025FCD64012EAA26FD73479F21F2F60
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129764.jpg" />
 </div>
 
 
@@ -57,7 +141,7 @@ Red Eye Temple - Vortex (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129766.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ Skype 8.80.0.143 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129767.jpg" />
 </div>
 
 
@@ -108,7 +192,7 @@ magnet:?xt=urn:btih:706F16EC2809184073B08AC2E08B4DB62703520D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129768.jpg" />
 </div>
 
 
@@ -132,7 +216,7 @@ magnet:?xt=urn:btih:E07D8EF9072871F42620024243F567F7947A7F92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129769.jpg" />
 </div>
 
 
@@ -156,7 +240,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129770.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ magnet:?xt=urn:btih:1E63CFA05D14AE1DD9CF7709B385C0836CD76821
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129771.jpg" />
 </div>
 
 
@@ -204,7 +288,7 @@ Ektomorf - Vivid Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129772.jpg" />
 </div>
 
 
@@ -231,7 +315,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.116 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129773.jpg" />
 </div>
 
 
@@ -255,7 +339,7 @@ Crusade of Bards - Tales of the Seven Seas (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129774.jpg" />
 </div>
 
 
@@ -282,7 +366,7 @@ magnet:?xt=urn:btih:3597FE548AC468E407D19309515A9529C76F9065
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129775.jpg" />
 </div>
 
 
@@ -307,7 +391,7 @@ magnet:?xt=urn:btih:AE2AF8297FE36044E3C5635F617E854EB5473F71
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129777.jpg" />
 </div>
 
 
@@ -331,7 +415,7 @@ magnet:?xt=urn:btih:9054725144DE4F144F31FA9D5D6C9C4E0963E1D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129778.jpg" />
 </div>
 
 
@@ -355,7 +439,7 @@ Beyond God - The Great Divide (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129779.jpg" />
 </div>
 
 
@@ -382,7 +466,7 @@ Google Chrome 97.0.4692.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129780.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ magnet:?xt=urn:btih:02727BDB0EFA851150E973D37404076B5158A46B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129782.jpg" />
 </div>
 
 
@@ -430,7 +514,7 @@ magnet:?xt=urn:btih:42301379FEC199DE0C4DB4574BD0DC846B449A90
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129783.jpg" />
 </div>
 
 
@@ -457,7 +541,7 @@ Pig - The Swining - Red Raw & Sore (1999) Remastered, 2023, Cleopatra Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129785.jpg" />
 </div>
 
 
@@ -485,7 +569,7 @@ GPU-Z 2.44.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129786.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ magnet:?xt=urn:btih:8D3000D878AA8E51879744C0D1C21F3566E316E8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129788.jpg" />
 </div>
 
 
@@ -533,7 +617,7 @@ Strike Master - Up For The Massacre X Anniversary Edition (2006) Reissue, 2016, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129789.jpg" />
 </div>
 
 
@@ -560,7 +644,7 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129791.jpg" />
 </div>
 
 
@@ -571,92 +655,6 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:376313135F7B98D6E7300E48529416084428A36B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523942   (129792) от 20.01.2022
-
-Вечные / Eternals  (2021) WEB-DL [H.264/1080p] [IMAX Edition] [UKR, EN / UKR, EN Sub] [Line]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: Украинский  дублированный (Line)Язык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Full, SDH)Продолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB485B28F458D12DB5AB5163A46A22601A971B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478813   (129793) от 01.05.2012
-
-Chain Reaction - Коллекция (11 дисков, 27 винилов) (1995-2003) [MP3|192-320 кб/с]<Dub Techno, Minimal, Techno, Ambient, Abstract, IDM>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовый берлинский электронный лейбл Chain Reaction, получивший широкую известность в узких кругах минимал-техно-манов, отпочковался от легендарного лейбла Basic Channel, детища Морица фон Освальда и Марка Эрнестуса.
-
-Chain Reaction как лейбл-последователь Basic Channel - это внимательный взгляд в сторону даб-техно, спокойные, повторяющиеся ритмические пассажи, абстрактные картины, рисуемые шуршащими, звенящими, слегка поскрипывающими звуками, которые при долгом прослушивании гипнотизируют, подчиняют, и заставляю слушать, слушать и слушать - в общем, все то, за что и любят даб-техно! На этом лейбле выпускали свои релизы многие известные музыканты: Vladislav Delay, Monolake, Substance, Fluxion, Hallucinator и другие. Последняя пластинка, вышедшая на лейбле (релиз Hallucinator, имеющий название Morpheus), датирована 2003 годом и имеет номер CR-35.CD1Продолжительность: 01:00:48
-
-01. Fluxion - Aviation (6:06)
-02. Fluxion - Bipolar Defect (8:58)
-03. Fluxion - Multidirectional I (9:04)
-04. Fluxion - Bilateral Motion (4:15)
-05. Fluxion - Friction Pulse (5:19)
-06. Fluxion - Omnibus (3:27)
-07. Fluxion - Stream I (5:32)
-08. Fluxion - Stream II (4:23)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683051   (129794) от 09.12.2023
-
-Джеймс Мэтью Барри | Питер Пэн (2012) [MP3, Ксения Большакова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Мэтью Барри создал шедевр мировой детской литературы о мальчике Питере Пэне. Герой этой сказки никогда не постареет, а всегда будет побеждать врагов и помогать своим друзьям выбраться из трудных ситуаций, он дружит с феями и умеет летать!
-В пересказе Ирины Петровны Токмаковой.
-Для младшего школьного возраста.
-(   Читать дальше...   )Жанр: Зарубежная литература, сказочная повестьИздательство: АСТ, Астрель, АудиокнигаПродолжительность: 04:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C6D654F71688F38B24F25A75756418B8720EAB
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1611991   (202704) от 14.02.2023
+
+WinExt Pro 30.0 (ключ COMSS) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202704.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinExt - это набор бесплатных утилит для Windows. С его помощью вы можете сделать следующее:
+Быстрый поиск дубликатов файлов по содержимому. Ключевая особенность: при сравнении содержимого файлов – 100% точность. Высокоскоростной алгоритм сравнения, нужен всего 1 щелчок, чтобы получить результат. Многократное использование результата: сохранение и загрузка списка (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A8AEEBD5D86D34D90BE23ADD8806900B88E260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611977   (202716) от 13.02.2023
+
+USB Oblivion 1.17.0.0 Portable [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портативная утилита USBOblivion предназначена для стирания следов (неудачного) подключения USB-устройств - флешек, дисков и CD-ROM'ов из реестра компьютера в Windows XP, Windows 2003, Windows Vista, Windows 7, Windows 8, Windows 10 (32/64-битных версий). Утилита имеет тестовый режим работы, т.е. без фактического удаления данных из реестра, и, на всякий случай, создаёт (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9941EF2CFA2AA61C72C08632B04FB5975AC4BDFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611950   (202725) от 13.02.2023
+
+R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5980246C72F7FAF3E2471D05692B76B42D6F7423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656634   (203193) от 31.08.2023
 
 Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +79,7 @@ Magic Uneraser Home / Office / Commercial Edition 6.9 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203193.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203193.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Kate 23.08.0 Build 2141 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203201.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203201.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ iSpy 7.2.6.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203386.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203386.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Hetman Internet Spy Unlimited Edition 3.8 RePack (& Portable) by elchupacabra [M
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203494.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203494.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ AeroAdmin 4.9 сборка 3612 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203568.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203568.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Sidebar Diagnostics 3.6.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204116.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204116.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Airytec Switch Off 3.5.0.950 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204187.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204325.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204325.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ PerigeeCopy 1.7 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204953.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204953.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205071.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ IObit Smart Defrag Pro 11.1.0.466 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205662.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205662.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205671.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ YT Downloader 9.17.15 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205688.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205688.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ MAX Desktop 25.14.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205721.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205721.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 20.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205723.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205723.jpg" />
 </div>
 
 
@@ -369,7 +442,7 @@ Advanced SystemCare Pro 16.0.1.82 (акция Comss) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205870.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205870.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ DesktopNoteOK 3.88 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205882.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ WorldWide Telescope 6.1.2.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205890.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ EaseUS DriverHandy Pro 2.0.1.0 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205925.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ WirelessConnectionInfo 1.17 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206296.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Interactive Calendar 2.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206461.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ CLCL 2.1.3 Portable + Plugins [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206704.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206704.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ ScreenHunter Pro 7.0.1447 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206902.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206902.jpg" />
 </div>
 
 
@@ -552,80 +625,6 @@ ScreenHunter Pro – программа для получения снимков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7826424463AAC1156C23003212E5743DBC1BA938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580271   (206942) от 30.09.2022
-
-Family Tree Builder 8.0.0.8625 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень мощная программа, которая позволит вам построить генеалогическое дерево. Сразу стоит отметить, что после запуска вас ждет максимально понятный и удобный мастер, он проведет вас через основные шаги, а после вы уже сможете добавлять новых членов семьи.
-Дополнительная особенность программы заключается в том, что Ваше генеалогическое дерево можно разместить в сети (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D5B8D79DFB4D2B47B1C2FA233810B7584E9856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613298   (207055) от 18.02.2023
-
-Document Express Editor 6.5.0 build 22420 [En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Document Express Editor - популярная программа для редактирования и создания djvu файлов, а также документов во многих других форматах.
-Помимо djvu, программа умеет редактировать и создавать документы в графических форматах: jpg, bmp, tiff, gif и многие другие. Любой файл в любом из перечисленных графических форматов, с помощью программы Document Express Editor можно (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC23D8BB0794706EE0BF0695555BAB5172146C9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578663   (207288) от 26.09.2022
-
-Firemin 9.0.3.5608 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firemin — представляет собой небольшую утилиту для браузера Firefox. Во время продолжительной работы данный интернет-обозреватель начинает потреблять много оперативной памяти. В результате, работа системы замедляется, что вызывает неудобство для пользователя. В первую очередь данная программа подойдет для пользователей, работающих на старых компьютерах с небольшим (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7623EA179C7D2CC9BAB31159051FB21EF768363A
 ```
 
 

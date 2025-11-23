@@ -1,3 +1,78 @@
+###  Публикация: 1601383   (137590) от 31.12.2022
+
+Под омелой / Under the Mistletoe (2006) DVDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время поездки за рождественской елкой Том Чендлер погибает в аварии. Он возвращается в виде призрака к своему сыну Джонатану, но овдовевшая Сьюзан пытается сконцентрироваться на работе и не верит в привидения. Тогда отец с сыном вносят ее имя в список службы знакомств, где она знакомится с адвокатом Грегом Робертсом. Однако Том с Джонатаном считают, что ей подойдет (   Читать дальше...   )Производство: Канада / Insight Film and Video Production Inc.Жанр: фэнтези, драма, мелодрамаРежиссер: Джордж МенделюкАктеры: Джейми Рэй Ньюман, Майкл Шэнкс, Конан Грэхэм, Ингрид Торранс, Расселл Портер, Баркели Даффилд, Дерек Грин, Jerocko Harder, Донна Уайт, Линдсэй МаксвеллПеревод: двуголосый любительский (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D212F9AB2C22110D4A05D87EC3C8EAF05E6F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273304   (137591) от 31.12.2018
+
+В.В. Мадер | Математический детектив (1992) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор в занимательной форме знакомит читателя с методами решений логических задач. В первой главе рассматривается графический метод, во второй—табличный, в третьей главе показано, как решать логические задачи с помощью диаграмм Эйлера — Венна. Главы объединены занимательным сюжетом. Книга доступна учащимся начиная с шестого класса.Жанр: Обучение, логика, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ADAA13F7AF86349A4FABAEC941559D77348092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520992   (137592) от 31.12.2021
+
+Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take it Easy
+02. Witchy Woman
+03. Chug All Night
+04. Most Of Us Are Sad(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6717DFD27773E9C9843C0B6F7522EF647B2778CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088344   (137594) от 31.12.2016
 
 Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
@@ -6,7 +81,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137594.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137595.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:BD3264F2E5F369665973E25AB30ABBBD171A1E4B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137596.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:C15C5EB58F1306C35477FC05D92EECAFF7F2032C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137598.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:D7F82B323846149D5BF5BCF033E49D20E3E48E62
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137599.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ magnet:?xt=urn:btih:0A98803CB2F4510D97E31FAEAC61C9A7DDDA7B58
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137600.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137601.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137602.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:E97401414967146C44DC032775AC906C448A7751
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137603.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:CDD6CB535EDEA7423F55F93096036A411FDF6A47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137606.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137607.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ magnet:?xt=urn:btih:3607ACDF488415F201CBC8980B6A84DD90A96382
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_137608.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_137608.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ electro75
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137609.jpg" />
 </div>
 
 
@@ -332,7 +407,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137612.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137613.jpg" />
 </div>
 
 
@@ -383,7 +458,7 @@ magnet:?xt=urn:btih:F68374BE5617866AF4E17D78AC06517CB54C4A5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137614.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ Tankus The Henge - Luna Park! (2020) [MP3|320 Kbps] <Classic Rock, Jazz Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137615.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ magnet:?xt=urn:btih:4D5E7D16D573CE9E1AA0187B99F81226B0486534
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137616.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ magnet:?xt=urn:btih:75BAD1171E6E462D448701920DD0809A316FA041
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137618.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ magnet:?xt=urn:btih:5BCFE11A5E1CAA6E6C0D1ED7DAA130587F9BFF2F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137619.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137620.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ VA - Новогоднее Настроение: Русский Популярн�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137621.jpg" />
 </div>
 
 
@@ -566,7 +641,7 @@ magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137623.jpg" />
 </div>
 
 
@@ -577,84 +652,6 @@ magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A7DA858A17A8EB6105846F3DF490E617DA1031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520808   (137624) от 31.12.2021
-
-Множественные святые Ньюарка / The Many Saints of Newark (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137624.jpg" />
-</div>
-
-
-###  Подробнее
-
-1967 год, Ньюарк в штате Нью-Джерси. Маленький Тони Сопрано восхищается деловым партнёром отца — Ричардом Молтисанти по прозвищу Дики. Тот ответственно ведёт доверенную ему отцом, местным криминальным авторитетом, часть бизнеса и, в отличие от остальных мафиози, не гнушается иметь дело с чернокожими. Когда в городе вспыхивают беспорядки, спровоцированные жестоким (   Читать дальше...   )Производство: США / Chase Films, HBO Films, Home Box Office (HBO)Жанр: Криминал, драмаРежиссер: Алан ТейлорАктеры: Алессандро Нивола, Майкл Гандольфини, Лесли Одом мл., Вера Фармига, Джон Бернтал, Кори Столл, Рэй Лиотта, Микела Де Росси, Билли Магнуссен, Джон МагароПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4698A3E9C525EFEB6D22914D7FA8492480F770CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436251   (137626) от 31.12.2020
-
-History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:53]
-02 - Между Небом И Землей [00:03:16]
-03 - Ненавижу [00:03:08]
-04 - Разберись В Себе [00:04:01](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68255256B3221D3A2D42A884099ECF449DF0AE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679434   (137627) от 25.11.2023
-
-Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexodus (3:32)
-02. Love Is Blue (3:56)
-03. What’s That Look (3:26)
-04. Romanism (3:08)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
 ```
 
 

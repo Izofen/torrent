@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48325.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52C28581AF8F40B29F28A993117023FB22FB40E5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48326.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0776D49092414011BD3ABE0B0F18797F8CA3A8E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48327.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CA428D5C322096D8E9DDDEDF672C7C139ED80A77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48328.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:190C836D73EAE4285258CA43EC53F0F537E4B99F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48329.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:87E04E525BC4D41A081C005207ED63E1332DE7F1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48330.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F12FFE671110427D3B888171A9537161AE5028B9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48331.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:19954A8DF808A7F0A3298F32FAB68B8C1BA330E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48332.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0326DD23BA272B24E8DA1799E24EDE089B6120DC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48333.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - РАДИО БАТЯ - 019 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48334.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Benvista PhotoZoom Pro + Plug-in for Photoshop 9.0.2 RePack (& Portable) by elch
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48335.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:F47EC4AC047E16259DCC654102F74D43BBC945DA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48336.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48337.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:530CD3628063569E34198CB10F7E3D691575A0D2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48338.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48339.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:AF4B24ACD47D98A99C384FCC14927ACEB7B41E87
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48340.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C2C365BBC4D836944216E30A40D143419526CB23
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48341.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:1C7FB5F6949B06A02670FB42866665C273DA2E14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48342.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:FDFD79BBD26B7D02814D1F20D0E901337FA5F08B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48343.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8C0AE991B083F536B3B11136AE68E3AC82C7DCBF
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48344.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:3ED5E8A78410192E6D1BBF3747FACC9742A693E9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48345.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ruzar - The Life Stone (2015) [Ru/Multi] (1.0) Scene PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48346.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:A3749F3FFF58C14F298AB04F138DB50EFC94A3C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48347.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:219FE40F1F56FD964328561528EB536F4CCA6A4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48348.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.4.0.61453/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48349.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:7F0C056326CB9FB85693903D59217204AE9201D7
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48350.jpg" />
 </div>
 
 

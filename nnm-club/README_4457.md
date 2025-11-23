@@ -1,3 +1,81 @@
+###  Публикация: 1679306   (137815) от 25.11.2023
+
+Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Special Edition, earMUSIC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Gracia [00:04:44]
+02. Ô Viens, Ô Viens Emmanuel [00:04:59]
+03. O Christmas Tree [00:03:39]
+04. Feliz Navidad (Barbuda Relief and Recovery Charity Version) [00:06:36]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 2 CD, 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD6024FE6D2BAD25ACB8CBE870C03CE90B1A9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521009   (137816) от 31.12.2021
+
+Пробуждение / Awakening (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сенсорная видеопоэма, рассказывающая о мечтах молодой женщины, её духовном и чувственном путешествии по нетронутому острову Азорские острова.Производство: ПортугалияЖанр: документальный, видовойРежиссер: Энрике Грасиа ЭррераПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045889C9D09B5F9B040AB15F7818EF947A80391F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273262   (137817) от 31.12.2018
+
+VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop, House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137817.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Muka  MK X CeCe Peniston - 17 X Finally (Muka Short Mashup)
+002. Starjack & Collini  Ini Kamoze - Hotstepper (Starjack vs Kuba & Neitan Festival Edit)
+003. Vegas & Dj Julo Cruz  Khia - Bodak Yellow X My Neck My Back 2017 (Acapella In My Neck My Back) (Moombahton Mash-Up RMX)
+004. #The Goodfellas  Lil Uzi Vert - Unfazed (Intro)(   Читать дальше...   )Жанр: Dancehall, Future Bass, ElectroПродолжительность: 09:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 103181   (137818) от 31.12.2015
 
 Девять ярдов 2 / Десять ярдов / The Whole Ten Yards (2004) DVD5
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137818.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ magnet:?xt=urn:btih:6A8A1D293BA01C5DF555B892709C9A26680E18C4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137819.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:DE12AB6ACDFE8DFBA46F30CC818F91003889FDA7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137820.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ Reg Organizer 8.60 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137821.jpg" />
 </div>
 
 
@@ -104,7 +182,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137822.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137823.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ magnet:?xt=urn:btih:30775059605DD05A40A136C1D05A3E4D9F982BAF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137824.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ magnet:?xt=urn:btih:FF20AFC46E7F2C30B52C1559923A2214AA73C445
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137825.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:EBA3BEE21BBDD8F9EFC849CCF033452D5248BC73
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137826.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ TsukiPro The Animation / ЦукиПро Аниме [2017, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137828.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ magnet:?xt=urn:btih:D479E4628DF45B1048F1889C29C770A1C2C4F64A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137829.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ magnet:?xt=urn:btih:C3E4EEB9A927097ED6888D46FE68763D75ABE47B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137831.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Scorpions - Return To Forever (2015) (Japanese Premium Edition) [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137832.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ magnet:?xt=urn:btih:E83DB1762DF6ABADF6348FE757CF9A462DF9D645
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137833.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137834.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:7C8DEF3904097C7C29C955DC8A60CF0E6D006A1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137837.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ magnet:?xt=urn:btih:1C339282E2521A56B4C47D91FDA11FFE0E94951A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137838.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note ~ Tokubetsu Hen | Lor
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137839.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137840.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137841.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ magnet:?xt=urn:btih:C956DDC18EEF00054C60D5B7EFE7108A22A6832E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137843.jpg" />
 </div>
 
 
@@ -521,7 +599,7 @@ magnet:?xt=urn:btih:FBA5E5D7DDCC2609BF9400658964CFFD16CACE93
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137844.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ magnet:?xt=urn:btih:24A38EB39692B13A2DD8693727F58B6A5DD1D1C8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137845.jpg" />
 </div>
 
 
@@ -556,78 +634,6 @@ magnet:?xt=urn:btih:24A38EB39692B13A2DD8693727F58B6A5DD1D1C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84481F9634CDFA87C2AFBA5E51E74C9D2B5C9E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088657   (137848) от 31.12.2016
-
-Mozilla Thunderbird 45.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — 12 декабря 2004 года появилась бесплатная программа для работы с электронной почтой от Mozilla. Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA323A1A59E8D60CB46EC2B5DF6270B0D5D91A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195863   (137849) от 31.12.2017
-
-Джой / Joy (2015) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: США / 20th Century Fox, Annapurna Pictures, Davis Entertainment, TSG EntertainmentЖанр: Драма, комедия, биографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Дайан Лэдд, Вирджиния Мэдсен, Изабелла Росселлини, Даша Поланко, Элизабет Рём, Сьюзэн ЛуччиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, немецкие, итальянские, норвежские, шведские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FAADBBD2BC9CC1E174D925AE1A64547AFCD3E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520997   (137850) от 31.12.2021
-
-Ледяная история (2021) WEB-DLRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137850.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Стране Холода, где правит добрая королева Морожана и делают для детей мороженое, вдруг захватил власть злодей Сосулька. Девочка Варя, мальчик Артем и его Дедушка вступают в борьбу, волшебный сироп Добра спасает Варю и разрушает планы Сосульки. Друзья и Дедушка вновь запустили конвейер со старым добрым мороженым, что несет детям радость и добро.Производство: Россия / «Cinemaus Studio»Жанр: Семейный, фэнтези, приключенияРежиссер: Сергей РусаковАктеры: Камилла Войтова, Дмитрий Зориков, Полина Павлова, Владимир Глазков, Яна Пронина, Федор Сухов, Екатерина Королева, Наталья Фатеева, Ян РешетниковПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4D3FF79C4A8063ACAACE9923FC022EEDA60116
 ```
 
 

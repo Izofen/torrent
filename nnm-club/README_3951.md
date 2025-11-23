@@ -1,3 +1,75 @@
+###  Публикация: 1692540   (122408) от 17.01.2024
+
+DxO FilmPack 7 for Mac v.7.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122408.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO FilmPack — это подключаемый модуль для Adobe Photoshop, Adobe Lightroom, Apple Aperture и DxO Optics Pro. Кроме того, доступен как автономное приложение. DxO FilmPack придает цифровым изображениям стиль самых известных фотопленок: цвета – и зернистость, включая Kodachrome, Tri-X, Velvia, были проанализированы и воспроизводятся так, чтобы они могли быть применены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 2024 DxO LabsПоддерживаемая ОС: macOS 12.6.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA1610A36D723E8FBDF8BBB968B8531BAD43567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692726   (122409) от 17.01.2024
+
+DU Meter 8.05 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122409.jpg" />
+</div>
+
+
+###  Подробнее
+
+DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BB3ACE4540C09B9320BC457C64B9D788631088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692590   (122410) от 17.01.2024
+
+Д.Ю. Косицин | Язык программирования Python (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебно-методическое пособие является дополнением к дисциплине «Скриптовые языки программирования (Python)» и содержит лекции с примерами и пояснениями. Материал разбит на главы, после которых помещены задачи для отработки изложенного материала. В издании рассматривается Python 3.x как основная версия языка, но приводится сравнение с Python 2.x и отличия между (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139D3CA2C8DE4545A2A77C54E766F450A483F885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692555   (122411) от 17.01.2024
 
 Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
@@ -6,7 +78,7 @@ Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122411.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:DD219E6E8E857246CB74E0076939E9DC0BF7512C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122412.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:A60CD2C8A0E24BB99115F02FFF2B54F45CE0256B
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122413.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:F0928E873279D623649F6FE60A88A8343F271146
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122414.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ LDPlayer 9.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122415.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ USB Device Tree Viewer 4.0.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122416.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:22B44C01AA15826D9625633AA58E580F4707ED17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122417.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ Find Any File (FAF) 2.4.2b5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122418.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:66E21A8C7EBEE07D191A512CC61F69601F3309FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122419.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Foobar2000 2.1.1 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122420.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:667F7C33EC96883A0796D5B1D64E210F387672D4
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122421.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:2ECB61246121BE733ECCD8E4702DBFEFFF300154
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122422.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:85A3EC65A41CF9BEA68FB643831106877E190046
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122423.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ Smart Launcher 6.4 build 006 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122424.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Google Chrome 120.0.6099.225 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122425.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:161C0E2B49A6086A38566C1F7603B51872B15584
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122426.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ Duolingo: изучай языки 5.134.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122427.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:762EF6E773AAC5AB196542DFE186D13787160D99
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122428.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:334B2D3C031F097C477B38BE637FCD68A932F7CA
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122429.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:CDBD3982126F5636FD6EB9F96A3E3592A8DEF693
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122430.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:4524DD373F17E5F03D7AFF7FB7A65DA752190EF0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122431.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Internet Download Manager 6.42 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122432.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:983CBFAEF8DB884B1F0FC9B6BB121BE851B0D24D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122433.jpg" />
 </div>
 
 
@@ -552,78 +624,6 @@ magnet:?xt=urn:btih:983CBFAEF8DB884B1F0FC9B6BB121BE851B0D24D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99403D4FD0CE0C183F351CC6AFBE9BFF7C601C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692594   (122434) от 17.01.2024
-
-В розыске / Особо опасный / Wanted Man (2024) WEBRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_122434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский должен найти свидетельницу и сопроводить ее после того, как в результате стрельбы картеля погибло несколько агентов DEA. Однако в процессе своей миссии ему придется решить, кому доверять, когда выяснится, что нападение было совершено американскими силами.Производство: США / BCD Travel, Millennium Media, Red Orm Productions Inc., Thor PicturesЖанр: Боевик, триллерРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Келси Грэммер, Майкл Паре, Роджер Кросс, Бурк Флойд, Майкл Уорт, Джеймс Джозеф Пулидо, Зак Ли, Ксавьер Эстрада, Sherrie ProseПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:48Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692637   (122435) от 17.01.2024
-
-Девушка-кастет / Knuckle Girl (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многообещающая девушка-боксер рискует своей жизнью, чтобы спасти свою сестру от преступной группировки.Производство: Корея Южная, Япония / Kross PicturesЖанр: Боевик, криминалРежиссер: ЧханАктеры: Аяка Миёси, Хидэаки Ито, Ёсукэ Кубодзука, Гоки Маэда, Каната Хосода, Котона Минами, Сатоси Дзинбо, Рука Мацуда, Масаки Миура, ЭисинПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:32Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3713028301A2DBE2CAB5066EFCBC9FE81D1CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692642   (122436) от 17.01.2024
-
-Евгений Лисицин, Сергей Карелин | Системный Геймер (Книга 1) (2024) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятный облом, заснуть в своей постели, а проснуться хрен знает где. Точнее говоря в другом мире. Вроде и на мой похож, та же Москва, тот же Кремль… только вокруг творится какая-то жесть! Народ на флаерах рассекает, вместо электричества и бензина – магические кристаллы-батарейки, а миром правят аристократы. В Российской империи, например, Романовы. А еще здесь (   Читать дальше...   )Жанр: ПопаданцыИздательство: ИДДКПродолжительность: 07:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1416E0FE8148FD1D48980ADC2AAC5EABF3A6A73A
 ```
 
 

@@ -6,7 +6,7 @@ VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_502.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D5B668ED6481C7B0CDA1B532D8B6A4FDE5DE43B6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_503.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1260A2B8013772BD4087C547FB936477D2D8D5ED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_504.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:71322010CD20D46548FB179730D8662B23ACB171
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_505.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:631102059ABB2BBA6F88D6134EE298BFE9FC7E43
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_506.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4139DFD15D2CE4A42DB0F44EBF4EE5B39DA781EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_507.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A2F629BC6CCC9ABB52DABA6C818DF9C859CEA578
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_508.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9A8D6DDDFDD3725A5B48C25CB7888EE650EF9E16
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_509.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2F9B82E9457C5149AF399231639AC5134DF9D0C8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_510.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D5EFEDF29E4E066720FADFD7CBF991A941C8FA7F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_511.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:761B3F054E3A294000C4338DB87EE87B2841CE34
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_512.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:278A940A2300711DFC7E8C2472EA3CDE441CFB05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_513.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A1990A4B0F1332786711C8E2E8B1D583E5FA240B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_514.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C1FDB45F11CAF38285812AD0B4268FE85C70E68F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_515.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:A0F086508541115D49CC3920DF2EA8E631418B80
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_516.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:7DF35B8B78BADF9C57AE0B979C5A29244B6263A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_517.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_518.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:98E808D8B5014D35A4CB9C700679948798D1B202
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_519.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:AF208B1D07BE90338C5479F300B9A9B2562952CD
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_520.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:80011197F609855C8EF330908CCEA0573E6BCFA7
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_521.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:1175D12EA09B597DFB43C9B6D41250540560265C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_522.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_523.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_524.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_525.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_526.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_527.jpg" />
 </div>
 
 

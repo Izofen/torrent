@@ -1,3 +1,177 @@
+###  Публикация: 589522   (153051) от 14.12.2012
+
+Журнал | Наталья №1(102) [январь-февраль 2013] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153051.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наталья" - журнал по вязанию, включающий в себя модели вязаной одежды и аксессуаров, сопровождаемых схемами, инструкциями и описаниями. Новый выпуск представляет интересные модели для холодных и снежных дней. Модели для женщин, детские модели, вязаные пуловеры для мужчин - все это вас ждет на страницах любимого журнала.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06896CA1F3B57D9BA40EF2FE41C458435AE5ECC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434249   (153052) от 23.12.2020
+
+Гренландия / Greenland (2020) BDRip [576p] iPad [FRA Transfer]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963532D9BE9DA9643D63FE3C52E41640D2B5032B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968554   (153054) от 24.12.2015
+
+Mozilla Firefox 43.0.2 Final RePack (& Portable) by D!akov [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CE3D844C96E73859B5F288C479373EDE3A81E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086151   (153055) от 24.12.2016
+
+Tony Joe White - Closer To The Truth (1991) [APE|Lossless|image + .cue] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Tunica Motel  (04:22) 
+02|  Ain't Going Down This Time  (05:12) 
+03|  Steamy Windows  (04:01) 
+04|  (You're Gonna Look) Good In Blues  (05:16) (   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0AA688836752E16DF74DA13F94C993C10026C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601007   (153056) от 29.12.2022
+
+EaseUS Data Recovery Wizard Technician 16.0.0.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153056.jpg" />
+</div>
+
+
+###  Подробнее
+
+EaseUS Data Recovery Wizard служит для восстановления утраченных данных с ПК, ноутбуков и съемных накопителей. Программа позволяет восстанавливать файлы, изображения, документы, видеозаписи, потерянные из-за случайного удаления, форматирования, сбоя системы, неожиданного отключения питания, вирусной атаки или по другим причинам.
+Пользователь может предварительно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8140AC3B5EEF19DFA5EFABF7E9331499CFD9E0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344794   (153058) от 22.12.2019
+
+Человек-амфибия (1961) BDRemux [H.264/1080p] [remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153058.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому научно-фантастическому роману Александра Беляева.
+Однажды талантливый ученый доктор Сальватор спас жизнь маленькому мальчику, пересадив ему жабры акулы. С этого дня Ихтиандр, так назвал своего приемного сына ученый, мог плавать под водой, как рыба, нырять на любую глубину, но ему было тяжело подолгу находиться на суше... Годы спустя по тихому морскому (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Фантастика, Драма, Мелодрама, ЭкранизацияРежиссер: Владимир Чеботарев, Геннадий КазанскийАктеры: Владимир Коренев, Анастасия Вертинская, Михаил Козаков, Николай Симонов, Анатолий Смиранин, Владлен Давыдов, Николай Кузьмин, Михаил Медведев, Юрий Медведев, Анна НикритинаПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263F5384BF6D271936449940327859C346FA3616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853818   (153059) от 27.12.2014
+
+Бирюк (2014) SATRip (сезон 1, серии 1-4 из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олег Бирюков по кличке «Бирюк» — бывший опер убойного отдела, майор в отставке. Десять лет назад он ушел из милиции, так как при задержании преступника погибла заложница, и Бирюк посчитал себя виновным в ее смерти.
+Однажды Олег получил страшную весть от своей первой жены Юли: был убит их сын Максим. С супругой они разошлись больше 20 лет назад, когда мальчику было (   Читать дальше...   )Жанр: Детектив, криминалРежиссер: Игорь ДракаАктеры: Алексей Нилов, Алиса Золоткова, Артём Алексеев, Борис Бедросов, Виталий Куклин, Денис Старков, Игорь ЧерневичФормат: AVIПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E922A37ED048CADA93CC00538876178438482F3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677119   (153060) от 16.11.2023
 
 MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +180,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153060.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:6C51F4FB5DC3D7BA243E3B13FAA9AF5F91921369
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153061.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ Usher 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153062.jpg" />
 </div>
 
 
@@ -79,7 +253,7 @@ magnet:?xt=urn:btih:AB59E66AAFE887E0DC5A970903CD45626C0EF368
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153063.jpg" />
 </div>
 
 
@@ -103,7 +277,7 @@ magnet:?xt=urn:btih:DAAA940C190A71FE1181B30A17299444DC6E06F2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153064.jpg" />
 </div>
 
 
@@ -127,7 +301,7 @@ magnet:?xt=urn:btih:793C86F5B3B305C638E5FFD09979DCBB113A0A73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153065.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ magnet:?xt=urn:btih:5D17BD5D426C271022071ABDE3D06A02A06771D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153066.jpg" />
 </div>
 
 
@@ -176,7 +350,7 @@ magnet:?xt=urn:btih:40EF83CADDCA584D977F0D21495C398D6EFECAC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153068.jpg" />
 </div>
 
 
@@ -201,7 +375,7 @@ Supreme Unbeing - Enter Reality (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153070.jpg" />
 </div>
 
 
@@ -229,7 +403,7 @@ Best HD Wallpapers Pack (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153071.jpg" />
 </div>
 
 
@@ -253,7 +427,7 @@ magnet:?xt=urn:btih:CA3181D679DAEA568DDF38BEBADB9528D8AA0274
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153072.jpg" />
 </div>
 
 
@@ -279,7 +453,7 @@ magnet:?xt=urn:btih:9CE80E98BBCDA1355BBED9F58AF69F8E7CA969AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153073.jpg" />
 </div>
 
 
@@ -304,7 +478,7 @@ magnet:?xt=urn:btih:9CE80E98BBCDA1355BBED9F58AF69F8E7CA969AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153074.jpg" />
 </div>
 
 
@@ -328,7 +502,7 @@ CCleaner Browser 77.1.1836.93 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153075.jpg" />
 </div>
 
 
@@ -352,7 +526,7 @@ Telegram Desktop 2.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153076.jpg" />
 </div>
 
 
@@ -376,7 +550,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153077.jpg" />
 </div>
 
 
@@ -403,7 +577,7 @@ magnet:?xt=urn:btih:96ADF0786A33D6E2D6FE3CD1351C368438587D9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153078.jpg" />
 </div>
 
 
@@ -427,7 +601,7 @@ Yeah Bop Station - Upfront (1992) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153079.jpg" />
 </div>
 
 
@@ -454,7 +628,7 @@ magnet:?xt=urn:btih:0C83DC61B6E59515F95863ABAAE26A78184806D3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153080.jpg" />
 </div>
 
 
@@ -466,183 +640,6 @@ magnet:?xt=urn:btih:0C83DC61B6E59515F95863ABAAE26A78184806D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93294B608DC49A8BC64B4029F0FDEDA52645B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086408   (153082) от 24.12.2016
-
-Подшивка журналов | Elektronika Praktyczna (2015) [PDF] [Pl]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153082.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Elektronika Praktyczna" ("Практическая электроника") - журнал для радиолюбителей и профессионалов о новинках электроники на польском языке. В каждом номере приведены теоретические сведения, интересные статьи по технике и электронике, новинки в области электроники, справочные данные по электронным компонентам, практические конструкции разнообразной (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DB5F347D7C9C8236AA156D41B51EA2369BF23E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194470   (153084) от 26.12.2017
-
-Физики приближаются к созданию оптического компьютера
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Значительный шаг к созданию компьютеров будущего удалось сделать российским ученым совместно с зарубежными коллегами: они впервые смогли изучить внутреннюю структуру объемных фотонных кристаллов, которые считаются основой перспективной сверхбыстродействующей электроники. Понимание структуры позволит начать проектировать оптические компоненты вычислительной техники (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269940   (153086) от 21.12.2018
-
-Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
-
->>Консольные Игры
->>PS Vita
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terraria (Террария) — инди-игра в жанре приключенческой песочницы, которая выпущена независимой игровой студией Re-Logic. Особенностью игры является возможность исследовать мир, создавать различные предметы, строить сооружения и сражаться с разнообразными созданиями, которые случайно генерируются в 2D-мире. Музыка для игры, стилизованная под чиптюн, была написана (   Читать дальше...   )Тип издания: LicenseРазработчик: Engine SoftwareЖанр: Action-adventure,Язык озвучки: Не озвученаЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BD6105203B936C118921556B65C435C56237A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677224   (153087) от 16.11.2023
-
-Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My Heartbeat)
-02. State of Me
-03. Are You Listening
-04. The Decree(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAAC92523C78EA22406F0172440051C062C0155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657759   (153088) от 23.12.2020
-
-Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Roar
-02. Out Of Control
-03. Out On The Streets
-04. Neuromancer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968709   (153089) от 24.12.2015
-
-Мамульки Bend - Coverock (2015) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ансамбль
-2. Ay
-3. Лимония
-4. Оранжевое настроение(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347234   (153090) от 22.12.2019
-
-Райские холмы / Paradise Hills (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дивный новый мир. Здесь создан высокотехнологичный остров, имя которому — Райские холмы. Богатые семьи отправляют сюда «несовершенных» дочерей, чтобы преобразить их по своему желанию. Ведь если ты принадлежишь к высшему обществу, даже в далеком будущем брак по любви — непозволительная роскошь. Красота, покорность и непорочность — вот путь к новой (   Читать дальше...   )Производство: Испания / Nostromo Pictures, Colina Paraiso AIE, Radio Televisión EspañolaЖанр: Фантастика, фэнтези, триллерРежиссер: Элис ВэддингтонАктеры: Эмма Робертс, Даниэль Макдональд, Аквафина, Милла Йовович, Эйса Гонсалес, Джереми Ирвин, Арно Валуа, Дэниэл Хорват, Джои Сордил, Нэнси ДжекПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7150359438F465C997F4BC3A84E14D72884072E8
 ```
 
 

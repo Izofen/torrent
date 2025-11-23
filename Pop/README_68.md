@@ -6,7 +6,7 @@ VA - 130 Original Hits - 70's (2009) 6CD[FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160900.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ V.A. - Комсомольская Юность Моя (2008) [FLAC|Lossless]<Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160902.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:C23E94C197B7AEE2185DE4B9E2DDD4F2CB4A954A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160904.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ magnet:?xt=urn:btih:45BB7266599682599A3849867DD37A60DF9FC0CB
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160906.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EABC97D3453D98CB86EB2648465717AF96CD5DAC
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160908.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:65F14F15A33E63D134705407F72BC78200AE8066
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160910.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3695C260208147994DDD2D9A4B77ADB67E715AFE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160911.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:058EE9A697E715A5CF53E96CFB96F7EE29DE82FD
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160918.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:AE170FA1C674B2F5EE1D31CCA945351AE70EDDCA
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160922.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:79DDBBB7363352903DBC9DB4E719190167B8C22A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160925.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C5F40011F407F8366433BF58673D7191685BDB1A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160935.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - " Золотой фонд эстрады " - Главное, ребята, 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160939.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:F6B3F717D673D0DEE400C260129BBF3249201831
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160940.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:88D2131B7241F47CB9D4F5CB7DBD0787BA9851B7
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160941.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mirko Hirsch - Return To Instrumentals (2020) [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160958.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - The Bearded Man - Beards In The Snow 2021 (2021) [MP3|320 Kbps] <Dance, Pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161025.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Electronic ( Nen Order, The Smiths ) - Raise The Pressure (1996) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161047.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161077.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Car Music Dance Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161099.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161201.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Luis Rodriguez and Nathalie Aarts - Rhythm of My Heart (extended mix) (2023) [FL
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161292.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Chap - Digital Technology (2019) [MP3|320 Kbps] <Electronic, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161363.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161377.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161384.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Vanessa Zamora - Tornaluna (2018) [FLAC|Lossless|image + .cue] <Latin, Indie, Fo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161422.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ magnet:?xt=urn:btih:BEE919D06B7C6B906F30F37C68987E28D63067C5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161579.jpg" />
 </div>
 
 

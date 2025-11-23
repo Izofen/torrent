@@ -1,3 +1,77 @@
+###  Публикация: 1683257   (129631) от 10.12.2023
+
+Ф. Бруно | Программирование FPGA для начинающих (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129631.jpg" />
+</div>
+
+
+###  Подробнее
+
+FPGA (Field-Programmable Gate Array, программируемые пользователем вентильные матрицы, ПЛИС) в настоящее время стали основной частью большинства современных электронных и компьютерных систем. Чтобы реализовать свои идеи на основе FPGA, вам необходимо разобраться в их архитектуре, освоить набор инструментов разработки и изучить их важнейшие конструктивные особенности. (   Читать дальше...   )Жанр: Радиотехника и электроникаПеревод: Ю. В. Ревич , А. Ю. РомановИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358884DAC434A7D77144D5399A2B11D75DEAC87B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525519   (129632) от 20.01.2022
+
+K-Lite Codec Pack Update 16.7.5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129632.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BB4B161FB44A7CF897A5D814C2F24A5D40D9E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683269   (129634) от 10.12.2023
+
+Udemy, Bradley Jadir | DaVinci Resolve for Wedding Film Makers (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать красивые свадебные фильмы, неподвластные времени, с помощью DaVinci Resolve.
+Изучите приемы редактирования, сочетания клавиш и многокамерное редактирование, чтобы ускорить рабочий процесс.
+Поднимите свои раскраски на новый уровень с помощью цветовых кругов, бревенчатых кругов, раскраски HDR, кривых, искажения цвета, эффектов свечения и ореола, (   Читать дальше...   )Производство: UdemyЖанр: Дизайн видео, цветокоррекцияЯзык озвучки: АнглийскийПродолжительность: 05:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AD6CA15A082B4036F0D96560474DAC2150B74E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525504   (129635) от 20.01.2022
 
 Aiseesoft Video Converter Ultimate 10.3.28 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +80,7 @@ Aiseesoft Video Converter Ultimate 10.3.28 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129635.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129637.jpg" />
 </div>
 
 
@@ -63,7 +137,7 @@ magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129638.jpg" />
 </div>
 
 
@@ -87,7 +161,7 @@ magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129639.jpg" />
 </div>
 
 
@@ -111,7 +185,7 @@ magnet:?xt=urn:btih:DC178DDC531410B6CCBEC031328796B89D444807
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129640.jpg" />
 </div>
 
 
@@ -135,7 +209,7 @@ magnet:?xt=urn:btih:90BD01536B478C854DC95E87348E2900BB8AF590
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129641.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ magnet:?xt=urn:btih:878711FA9C45921B503753EC423C9B0A550CBF81
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129644.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ Swallow The Sun - 10 Albums (2003-2021) 14CD [FLAC|Lossless|image + .cue|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129645.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ magnet:?xt=urn:btih:3521726A5AEB91B6EAFAAE9B2309C60C18BFA00E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129646.jpg" />
 </div>
 
 
@@ -234,7 +308,7 @@ Telegram Desktop 3.4.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129647.jpg" />
 </div>
 
 
@@ -260,7 +334,7 @@ magnet:?xt=urn:btih:A964779820D0E86509D075B34DECE2F6EC8CDC92
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129648.jpg" />
 </div>
 
 
@@ -284,7 +358,7 @@ MyFuelLog2 v1.8.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129649.jpg" />
 </div>
 
 
@@ -311,7 +385,7 @@ magnet:?xt=urn:btih:BD8C4EEDFDD89C1DACC32025AE6FB1AEB3861CBC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129650.jpg" />
 </div>
 
 
@@ -335,7 +409,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129651.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ magnet:?xt=urn:btih:6B4A8DA5D63F9596C77DCA3804C878E02EB699C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129652.jpg" />
 </div>
 
 
@@ -383,7 +457,7 @@ magnet:?xt=urn:btih:D59550AD1A039254EB666953A1384C478355ACF3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129653.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129654.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ magnet:?xt=urn:btih:8C00C0A8B051154A38425F71526C26E0CD50029E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129656.jpg" />
 </div>
 
 
@@ -455,7 +529,7 @@ magnet:?xt=urn:btih:47C22E0952E852949B722BE78D95B51EC5662C80
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129657.jpg" />
 </div>
 
 
@@ -479,7 +553,7 @@ Detectives United 5: Deadly Debt (2022) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129658.jpg" />
 </div>
 
 
@@ -503,7 +577,7 @@ magnet:?xt=urn:btih:F4CB50D786DE0CBE21047B48F8D3208F387FBD21
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129659.jpg" />
 </div>
 
 
@@ -529,7 +603,7 @@ magnet:?xt=urn:btih:08CC369B226429333BFB5DFA909FCDCB6BB70C11
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129660.jpg" />
 </div>
 
 
@@ -553,7 +627,7 @@ magnet:?xt=urn:btih:9E9704ECCB68A6C3533FFC11F218F839B3F901C2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129661.jpg" />
 </div>
 
 
@@ -564,80 +638,6 @@ magnet:?xt=urn:btih:9E9704ECCB68A6C3533FFC11F218F839B3F901C2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:793144B7DE3FC6ED149D29DC3C40F1BB6842F5AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525446   (129662) от 20.01.2022
-
-Виталий Калгин | Виктор Цой и группа «Кино». Памятный альбом (2017) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с гибелью Виктора Цоя – лидера группы «КИНО» – закончилась эпоха великих героев русского рока, он был последним из таковых. Герои, безусловно, остались, но степень «величия» – иная. Они не так отбрасывают тень…
-
-Эпоха закончилась, но притом началась другая жизнь Цоя, другая жизнь «КИНО»: в обстоятельствах того, что группа не давала концертов, соответственно (   Читать дальше...   )Жанр: Биографии и мемуары, МузыкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347E9A029A37845B6DA03853A6A57542779A94E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490464   (129663) от 01.05.2012
-
-Vikings Fields Conquest (RePack) [En] 1993 | Pilotus
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговая стратегия на тему викингов. За исключением места действия - точная копия Kingdoms of Germany.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682363   (129664) от 10.12.2023
-
-Капитан Марвел 2 / The Marvels (2023) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: Дублированный (MovieDalen)Язык озвучки: русскийСубтитры: ОтсутствуютПродолжительность: 01:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C8644A94BF0F5230BB4E4E9AE76D4848DEC464
 ```
 
 

@@ -6,7 +6,7 @@ Lucky Troubles - The Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133148.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Jingle Bell Jam: Jazz Christmas Classics (1994) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133150.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133181.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133191.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133194.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133198.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133218.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133453.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133533.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133541.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133544.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Samantha Fish - 11 альбомов (2009 - 2023) [FLAC|Lossless|tracks + .cue|i
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133588.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Stevie Ray Vaughan and Double Trouble - The Essential Stevie Ray Vaughan and Dou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133630.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133722.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133728.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133750.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Dr. John - In The Right Place (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <New O
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133936.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Paquito D'Rivera & Louie Ramirez - A Tribute To Cal Tjader (1986) 2004, Yemaya R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133970.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133974.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133979.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Jacintha - 7 Альбомов (1999 - 2007) [MP3|320 кб/с]<Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134069.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ C.W. Stoneking - 2 Albums (2006..2008) [FLAC|Lossless]<Blues, Ragtime, Calypso, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134112.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dag Arnesen Trio - Norwegian Song 3 (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134206.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134209.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134218.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134227.jpg" />
 </div>
 
 

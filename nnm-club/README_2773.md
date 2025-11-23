@@ -1,3 +1,81 @@
+###  Публикация: 454882   (77236) от 19.02.2012
+
+Mafia II: Digital Deluxe / Mafia 2: Город грехов + 8 DLC [Ru] (RePack/1.0.0.1u5) 2010 | Fenixx
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77236.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мафия» бессмертна: долгожданное продолжение знаменитой гангстерской саги от создателей оригинальной игры — новое погружение в беспощадный и интригующий мир, сулящий множество острых ощущений.
+Mafia II создана на специально разработанном графическом движке, что позволило авторам проекта воплотить все самые смелые замыслы и сказать новое слово в жанре, каноны которого (   Читать дальше...   )Тип издания: RePackРазработчик: 2K CzechЖанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A766AC45B97C0BAC791DAE328615D954C16D6392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454155   (77237) от 19.02.2012
+
+Reallusion iClone v5.0.PRO + ResourcePack 5.0 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77237.jpg" />
+</div>
+
+
+###  Подробнее
+
+iClone - программа для создания великолепных 3D-анимации. В программе имеются уже готовые 3D-персонажи, а также все, что нужно для создания их виртуального жизненного пространства – одежду, реквизит, ландшафты. В iClone есть также объёмная библиотека движений, которые можно задавать персонажам. Но самая интересная возможность программы – использовать фотографии реальных людей для лиц 3D-героев. Для этого используется запатентованная технология FaceTrix, делающая фотографию объёмной (3D).
+
+Программа хорошо взаимодействует с редакторами 2D-графики, благодаря чему прощается редактирование текстур, а также поддерживает программы 3ds Max или Maya, при помощи которых можно делать элементы библиотеки для персонажей. Все сцены могут быть визуализированы в реальном времени с учетом рельефа, отражений и прозрачности. iClone проекты можно воспринимать серьезно и использовать для работы, но в качестве 3D-скринсейверов, заставок для мобильных телефонов и DVD с домашним видео они подойдут просто великолепно.Название программы: Reallusion iClone v5.0.PRO + ResourcePackЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454587   (77238) от 19.02.2012
+
+Коллекция старинных книг истории России в оригинале [XIX век] [PDF, DjVU, JPG]
+
+>>След.
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами рукописи и книги, касающиеся истории России XIX века, в оригинале.
+1.Абхазия и в ней Ново-Афонский Симоно-Кананитский монастырь 1898
+2.Альбом рисунков резной мебели 1898
+3.Археологическая комиссия(   Читать дальше...   )Жанр: ИсторияЯзык: Русский дореформенныйИздательство: Печатано в различных монастырях, типография Императорского двора, частные типографии тех летФормат: PDF, DjVU, JPGКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F6268138CF811DA90269F445ABDF045AAFF560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454512   (77239) от 19.02.2012
 
 Серии книг "Волкодав" и "Мир Волкодава" [1995 - 2009] [FB2]
@@ -6,7 +84,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77239.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ magnet:?xt=urn:btih:1031682E1B9D99BA395710CE645FBD18AFACA4A0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77245.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mortal Kombat 4 [Wineskin] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77250.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ magnet:?xt=urn:btih:B596960181835F3576CD43119599AB28C96C11AF
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77251.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:B596960181835F3576CD43119599AB28C96C11AF
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77253.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ Devil's Train - Devil's Train (2012) [MP3|V0 ~241 кб/с]<Hard & Heavy Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77257.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ magnet:?xt=urn:btih:2963DE0B6AA316232E7E0E3A73C232C058439706
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77258.jpg" />
 </div>
 
 
@@ -200,7 +278,7 @@ Topmodelz - Back To The 80s (2010) [MP3|320 kbps]<Hard Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77261.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ magnet:?xt=urn:btih:42BF9D6EB6606B43C7FE500BFED12EE97304A296
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77265.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ magnet:?xt=urn:btih:4EB44F03A43F208EE7E0365A2FDFFC72F4516E4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77267.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77269.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ Deep Purple - Double Original 1974 (2CD) Reissue / 2003, EMI Records/ [FLAC|Loss
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77274.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ VA - TranceMafia - Hellenic Music Revolutionaries (2012) [MP3|320 kbps]<Psychede
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77278.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ VA - More Than Miles: Dream House '96 (1996) [MP3|320 kbps]<Dream House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77284.jpg" />
 </div>
 
 
@@ -395,7 +473,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77297.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ Sentenced - The Funeral Album (Japanese Edition) (2005) [FLAC|Lossless]<Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77317.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77319.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77332.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77335.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77336.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77337.jpg" />
 </div>
 
 
@@ -611,7 +689,7 @@ Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77346.jpg" />
 </div>
 
 
@@ -644,7 +722,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77358.jpg" />
 </div>
 
 
@@ -664,91 +742,6 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455453   (77363) от 20.02.2012
-
-Фирма / The Firm (Сезон 1, 1-2 серии из 22)(2012) WEB-DLRip (SET)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал – продолжение нашумевшей в 1993г. одноименной драмы, в которой молодой юрист, выпускник Гарварда Митч Макдири обнаруживает, что престижная фирма, где он недавно начал работать, прикрывает чикагскую мафию.
-
-10 лет спустя Митч с семьей наконец-то выходят из-под прикрытия Федеральной программы защиты свидетелей. Они намерены вернуть свой прежний статус, положение в обществе и обеспечить себе и детям достойное будущее, однако вскоре понимают, что прежняя угроза висит над ними Дамокловым мечом…Жанр: Боевик, ДрамаРежиссер: Холли ДэйлАктеры: Наташа Калис, Тришиа Хелфер, Джульетт Льюис, Джош Лукас, Шон Мажумдер, Молли Паркер, Каллум Кит Ренни, Паулино Нюнс, Эри Коэн, Дэвид Ричмонд-Пек и др.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454607   (77364) от 20.02.2012
-
-Sigue Sigue Sputnik - 2 Альбома (1988, 2001) [FLAC|Lossless]<Electronic, Rock, Synth-pop>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Albinoni Vs Star Wars (Parts 1 & 2) 	4:38 
-02. 		Boom Boom Satellite 	4:22 
-03. 		Hey Jayne Mansfield Superstar!	4:28 
-04.		Super Crook Blues 	3:58
-05. 		Rio Rocks!	5:17 
-06. 		Success	3:48
-07. 		Dancerama 	4:45
-08. 		Orgasm 	3:27 
-09. 		M.A.D. (Mutual Assured Destruction) 	5:32 
-10.		Is This The Future! 	2:36Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:00 / 01:16:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455653   (77370) от 20.02.2012
-
-Одна ночь с королем / One Night with the King (2006) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в персидском городе Сузы. Король Ксеркс созывает всех на пир. Хадасса, красивая еврейская сирота, решает поехать с караваном в Иерусалим, чтобы увидеть Святую землю, вместе с другом Джесси Бен-Джозефом. Они приходят на пир короля, который тот устраивает накануне войны, ведомой, чтобы отомстить за смерть своего отца, Дария. Хадасса и Джесси видят, как королева Вашти отказывается приходить на праздник короля, так как она против войны, и созывает свой пир, говоря королю, что не станет унижаться и не придет на его пир.
-
-Король решает в таком случае лишить Вашти титула королевы и выбрать себе новую жену среди девушек Суз. Хадасса по рекомендации ее дяди Мордекая меняет свое имя на Эсфирь (в честь вавилонской богини Иштар). Во дворце за кандидатками следит королевский евнух Хигай. Девушкам предоставлены одежды, косметика, украшения - все, что понравится королю в свою единственную ночь. Эсфирь нравится Хигаю, благодаря своей находчивости и целостности, и он предлагает ей читать королю в ее (   Читать дальше...   )Жанр: ДрамаРежиссер: Майкл О. СажбелАктеры: Тиффани Дюпон, Люк Госс, Джон Ноубл, Омар Шариф, Джон Рис-Дэвис, Томми Листер, Джеймс Кэллис, Питер О’Тул, Джавен Кэмпбелл...Перевод: Двуголосый закадровыйПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E44394F2BDD9398543497F9A5479F8DC12F2BB5
 ```
 
 

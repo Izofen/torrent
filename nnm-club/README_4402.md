@@ -1,3 +1,75 @@
+###  Публикация: 592204   (136002) от 21.12.2012
+
+Nature Wallpapers (19.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5EE65812B38E967094F8435132DE7CD1ACE4A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592517   (136003) от 21.12.2012
+
+Sexy Girls Pack Wallpapers (21.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502A2EB5C7AA9AB088E1A72C7CF26546F760A474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592184   (136005) от 21.12.2012
+
+Nature Wallpapers (18.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C64C7C7394E5EBAC04E6EC0BE63DCE3535323D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592197   (136007) от 21.12.2012
 
 Wallpapers Sexy Girls (18.12.12) [Wallpapers 16+]
@@ -6,7 +78,7 @@ Wallpapers Sexy Girls (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136007.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Gilrs Wallpaper (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136009.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Sexy Girls Wallpapers (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136012.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Sexy Girls Pack Wallpapers (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136013.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Gilrs Wallpaper Collection (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136015.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Sexy Girls Pack Wallpapers (19.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136016.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Sexy Girls Wallpapers (18.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136017.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Desktop Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136019.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:D83BCA28C8836ED509717EA9BC3FC4543FCFB569
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136023.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:D83BCA28C8836ED509717EA9BC3FC4543FCFB569
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136026.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Class
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136027.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136029.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ magnet:?xt=urn:btih:E93D62F8D74BB1D0E9033044A340AC6FD0281EE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136030.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ Oddworld Stranger's Wrath HD [Ru/En/Multi10] (L) 2012 | GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136032.jpg" />
 </div>
 
 
@@ -357,7 +429,7 @@ ROSA Desktop Fresh 2012 (Национальная программная пла�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136034.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136034.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Ballance / Баланс [Ru/En] (P) 2004
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136036.jpg" />
 </div>
 
 
@@ -407,7 +479,7 @@ magnet:?xt=urn:btih:F15BE1C8FE717604B94573B6729E34C1AE641D43
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136037.jpg" />
 </div>
 
 
@@ -433,7 +505,7 @@ CopyTrans Manager 0.987 Portable [Multi / Русский]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136038.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136038.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ Driver Genius 12.0.0.1211 RePack (& Portable) by KpoJIuk [Русский, Анг
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136040.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Driver Genius - программа для управления драйвера�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136041.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136041.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Driver Genius - программа для управления драйвера�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136042.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136042.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ Driver Genius - программа для управления драйвера�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136044.jpg" />
 </div>
 
 
@@ -558,7 +630,7 @@ The Ultimate PID Checker 1.1.3.590 (20.12.2012) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136045.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136045.jpg" />
 </div>
 
 
@@ -570,80 +642,6 @@ The Ultimate PID Checker позволяет вычислить код проду
 активации MAK ключей.
 
 (   Читать дальше...   )Название программы: The Ultimate PID CheckerЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589293   (136046) от 20.12.2012
-
-iTunes 11.0.1.12 (x64) [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136046.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTunes хранит всю вашу музыку, приложения, подкасты, домашнее видео и материалы iTunes U вместе — на вашем Mac или PC. Вам не придётся искать диски в стопках: просто импортируйте CD в iTunes и быстро просматривайте всю свою коллекцию. Организуйте свои файлы так, как удобно вам. Переносите их на любые ваши устройства. Воспроизводите их в любом месте и в любое время. А функция Genius создаст для вас миксы из песен, которые хорошо сочетаются друг с другом.Название программы: iTunesЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592049   (136049) от 20.12.2012
-
-Борис Поташник | Дизайн логотипа [2012] [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн логотипа - это одна из самых интересных тем в профессии дизайнера. В этой книге на реальных примерах можно изучить весь процесс создания логотипа от сбора первичной информации от заказчика и до завершения окончательного варианта логотипа.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF57F2AE78D5C01B282206D8E1F96E22B7FF12F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591850   (136050) от 20.12.2012
-
-Advanced Tokens Manager 3.5 RC 3 [Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Tokens Manager приложение, которое поможет вам с сохранением активации Windows и восстановлением. Microsoft на каждую лицензию (ключ) накладывает предел активация в онлайне. Это приложение может сделать полную резервную копию активации, для последующего восстановления. Операция восстановление активации успешна на 100%, если новый Windows той же редакции, и установлен с оригинального дистрибутива. Можно использовать восстановление активации бесконечно на том же оборудовании. Активацию можно перенести c 32 битных ОС, на 64 битных ОС.
-
-(   Читать дальше...   )Название программы: Advanced Tokens ManagerЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79952.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4F3DF1F40C75DA5C6A0E624269BB5A9DE19284A2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79963.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:10C0357FBF9B1C05C5887EB5D802FB71A311F49D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79967.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:10C0357FBF9B1C05C5887EB5D802FB71A311F49D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79970.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ wallpapers nozomi sasaki
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79971.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:12125D33A8D59278A12BB2DAEFDD304FC2E3E333
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80002.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:12125D33A8D59278A12BB2DAEFDD304FC2E3E333
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80013.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0B6858C4ABA6AE0686198A2CD35F7A46FE2E7FEF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80020.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0B6858C4ABA6AE0686198A2CD35F7A46FE2E7FEF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80021.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Microsoft Touch Pack для Windows 7 2010 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80074.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Help & Manual Professional 6.0.2 Build 2352 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80075.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kateikyoushi Hitman Reborn! / Учитель-мафиози Реборн! [2006,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80093.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Alien Skin Blow Up 3.0.0.628 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80101.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blow Up включает продвинутые возможности таки�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80127.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:4A5D2A4225A1F4356416AEB82132FD468EE6E65F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80136.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:4A5D2A4225A1F4356416AEB82132FD468EE6E65F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80141.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Serebro - Опиумroz (2009) [FLAC|Lossless]<Рop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80142.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Xilisoft DVD Copy Express 2.0.1 build-0112 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80148.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Xilisoft DVD Copy 2 - gростая в использовании и быстр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80154.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Xilisoft DVD Copy 2 - gростая в использовании и быстр�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80155.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:2BA53EA0EF7614FB6534DB528E352EF274F60492
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80158.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mauro - Buona Sera - Ciao Ciao (1987) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80159.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:7897EA4FFC6655ECC122AD23F0E914BDF458089C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80163.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:083A3C863AAAA730F930BA9986287CD69267B155
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80177.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:083A3C863AAAA730F930BA9986287CD69267B155
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80179.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:229C0FEE2FF854C2E96BEDD9442A10C439AE9DB9
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80190.jpg" />
 </div>
 
 

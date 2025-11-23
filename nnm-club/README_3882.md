@@ -1,3 +1,81 @@
+###  Публикация: 1694916   (120614) от 27.01.2024
+
+Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Start (0:32)
+02. UR R´N`R (2:56)
+03. Move (3:54)
+04. Remedy (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695011   (120615) от 27.01.2024
+
+Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion Part 1: The Chant Of Tyrants
+02. Black Veils Of Justice
+03. Between Suns Of Light
+04. Binary Souls(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694866   (120616) от 27.01.2024
+
+4K YouTube to MP3 Pro for Mac 5.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120616.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23B12C57E6E8AF4624D03EEB20C0A2EDC37CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694918   (120617) от 27.01.2024
 
 Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +84,7 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120617.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120618.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120619.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120620.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120621.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:ACA83138959C8ACF9C279E160BDE080D599E0BD2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120622.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120623.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120624.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120625.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ PowerDirector – Video Editor v13.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120626.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120627.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120628.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ magnet:?xt=urn:btih:8F54F02E6ECAF4C2F13C44C442A59C0010F3BBA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120629.jpg" />
 </div>
 
 
@@ -342,7 +420,7 @@ magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120630.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120631.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120632.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120633.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ PhotoDirector - Редактор фото 18.9.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120634.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ China - China (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120635.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ VA - Uplifting Only Top 15: December 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120637.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ EverWeb (Standalone) 4.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120638.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ magnet:?xt=urn:btih:FB93C91989BE1781A1EF98B162C882CA5C262167
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120639.jpg" />
 </div>
 
 
@@ -593,78 +671,6 @@ magnet:?xt=urn:btih:FB93C91989BE1781A1EF98B162C882CA5C262167
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09BC7EB48711D732D0545E054D540EB94283163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695051   (120640) от 27.01.2024
-
-AnyGo 7.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120640.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2023 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5294093777A6A16BFF03BCAA40F709EB369071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694729   (120641) от 27.01.2024
-
-Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120641.jpg" />
-</div>
-
-
-###  Подробнее
-
-События этого произведения происходят в мире, параллельном мирам аниме "Судьба: Ночь схватки” и "Судьба: Начало”. Вам придётся представить, что события этих аниме так никогда и не произошли. В Третьей войне Святого Грааля дом Айнцберн вызывает Правителя вместо Мстителя. Святой Грааль из города Фуюки попадает в Румынию, чему напрямую способствует семья Иггдмилления, (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Асай ЁсиюкиЯзык озвучки: Японский, русский (KANSAI, AniDUB, AniLibria)Субтитры: Русские (AniPlay)Продолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4902E2DF38C6D830CC2C5888E99B8A3DDD14F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695046   (120642) от 27.01.2024
-
-ArenaNet | Артбук по игре Guild Wars 2 / The Art of Guild Wars 2 (2009) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Guild Wars 2".Жанр: АртбукЯзык: АнглийскийИздательство: NCSoftФормат: CBZКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78BD82A64740883C37D7E6701914202B7348C2A
 ```
 
 

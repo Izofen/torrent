@@ -6,7 +6,7 @@ V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Display Tester v5.35.5 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66191.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66192.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Magnetic Gardener - Time Ain't My Friend (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66193.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:026FD029DF7541EBC90B979A77DF42D8AAA341DF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66194.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - National Pop Dance Music Vol.106 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66195.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PowerDirector – Video Editor v15.3.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66196.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D2256B981CDE8FF941D995364919607BD54D2DD0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66197.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6E5FCD7020F19E56A580A0341D185732DB428F13
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66198.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Monkey House - Crashbox (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, Soft 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66199.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D4237BCC0BBB9738F1C71A0E97C243B9451A70DF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66200.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Nothing But... Late Night Deep House, Vol. 02 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66201.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Metallica - World Tour '93 (1993) Unofficial Release [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66202.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Birth Control - Bäng! (1982) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66203.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:ED8FAA7BA99574A13AF68F8744CC2682B23334FE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66204.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Jennifer Lopez - The Reel Me (2003) [FLAC|Lossless|tracks + .cue] <Electronic, L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66205.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Redemption - The Hard Way (2025) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66206.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66207.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66208.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Phyrxian Sun - Overlord (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66209.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5B0A30EFFD5809678E9C4DA4ABED6BC50E1593F0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66210.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:9019B78C82FDCCC8B9AC4DECF65564BEA6FEA53A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66211.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Bladewolf - Enter the Nightmare (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66212.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:9AE71B2F1A4CC2994A2B81F60EA8BF9BDB24834D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66213.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66214.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66215.jpg" />
 </div>
 
 

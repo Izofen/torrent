@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:377CD83E1DE6093AF1E1C2D96E4AE6A02028CBB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VueScan Pro 9.8.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60271.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60272.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2A1D9AAB031D47E9A3AB874954B9C1D7FE5FF6FD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60273.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lingerie Design School | Бельевой эксперт. Тариф «Я сам
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60274.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Psiphon 3 build 182 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60275.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60276.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F6E68B38695775A36E0A7A25ACB28C923498CA38
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60277.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AIMP 5.30 Build 2541 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60278.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ RustDesk 1.2.3-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60279.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:673A7FFED6824699EA1FDAA0214E47B944519A56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60280.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:7C60908B1A3EECEC200810DE0449DFD4C9305644
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60281.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E9A152D12A4DBA70D6DB04B8337EFB6F786F0624
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60282.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ExperienceIndexOK 4.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60283.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:7C89896190BDF712795D1D07D17112F96D2EECD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60284.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A34B36B1CFB7112BF0C069D653D2097D26C9DD13
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60285.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:DA83982AB3C7796134655085BC1BD27ADEEDD3A5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60286.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:2FF110637E02D8C383169AFDDCDE066DD48633CD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60287.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60288.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:93119CBDD24933BA46059365FFC756C6834F4259
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60289.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:2E4EBC19045E56C6F9D036FF091AF27649CA3508
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60290.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BEF950F47E8A49E18780DBCFD4B3336F75E71BBC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60291.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:322E94CFACD4930FCFF748E3F7AE8815A49507FD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60292.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60293.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F4A7C0EB7BBE85E92225194E67C4E4AE711CC7A3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60294.jpg" />
 </div>
 
 

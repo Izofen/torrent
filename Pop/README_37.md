@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104899.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104905.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105012.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105021.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B10819375F353DD393E84B9C1D511B581736356D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105023.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - DJ Hits 14 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105053.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - DJ Hits Vol. 2 New '97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105080.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105099.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105131.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4EBEC8A7D86E5208ABC667E2D83718527B5C1036
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105171.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105173.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105179.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (2019) [FLAC|Lossless|t
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105198.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105199.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105229.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ SuperDетки - Бикини-Мини (2007) Саундтрек к к/ф "Св�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105322.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1561C5B0F0DB435C2271D3CD0CB46A096B051ACB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105325.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105326.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7013198736AD043437F29F087A48CC1C9695AF5C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105336.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Edwin Starr - H.A.P.P.Y. Radio (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105391.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Jimmy James - Dancin' Till Dawn (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105392.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105471.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105585.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105601.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:D6809C8E97A908EA73AEB209337282C89E9217AF
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105652.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:B26A04F21997005784B9B3255543FAA9D98ED21B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105663.jpg" />
 </div>
 
 

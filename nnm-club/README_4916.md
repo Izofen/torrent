@@ -1,3 +1,180 @@
+###  Публикация: 1518777   (152365) от 21.12.2021
+
+Я заберу твою семью (2021) WEBRip (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елена посвящала все свое время семье, но ни муж, ни мать ее стараний не оценили. А когда в ее жизни появляется освободившаяся из тюрьмы младшая сестра, стало еще хуже. С детства избалованная, не приспособленная к жизни и изворотливая Рита решает окончательно «отравить» жизнь Елене, всячески настраивая против нее детей. Это оборачивается очередной трагедией и настолько (   Читать дальше...   )Производство: Украина / Кинокомпания «Киевтелефильм»Жанр: мелодрамаРежиссер: Сергей ЩербинАктеры: Анна Миклош, Александр Никитин, Евгения Осипова, Алексей Зубков, Игорь Рубашкин, Андрей Нестеренко, Александра Каштанова, Сергей Громов, Наталья Батрак, Артём НемовЯзык озвучки: русскийПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7512714375DB21D993BAD337A9AB880470C579B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271218   (152366) от 22.12.2018
+
+Яна Юрышева | Праздничное украшение новогоднего стола (2015) [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год - праздник особый, и каждый хозяйке хочется, что праздничный стол был красивым и незабываемым. С нашей книгой это проще простого! Ведь мы собрали в ней самые лучшие, красивые и, конечно, вкусные украшения для торжественного стола! Выбирайте, готовьте, удивляйте!
+
+Книжная серия | Вкусный Новый год [4 книги] (2015)Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226BC12589C73E2649058D0CD71212ADB3DFB519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347145   (152367) от 23.12.2019
+
+Татьяна Толстая и др. | Птичий рынок (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152367.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Птичий рынок” – новый сборник рассказов известных писателей, продолжающий традиции бестселлеров “Москва: место встречи” и “В Питере жить”: тридцать семь авторов под одной обложкой.
+Герои книги – животные домашние: кот Евгения Водолазкина, Анны Матвеевой, Александра Гениса, такса Дмитрия Воденникова, осел в рассказе Наринэ Абгарян, плюшевый щенок у Людмилы Улицкой, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EEC88075B8BB524431C35B08C5A4B08DFC7339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518856   (152368) от 21.12.2021
+
+Приключения трёх поросят v1.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная детская сказка о трёх поросят и сером волке.
+Без рекламы, без встроенных покупок! Можно играть без Wi-Fi и интернета.
+* Золотая медаль на "Global Ebook Awards".
+* Номинация на GIGA MAUS 2017 в Германии.(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 13 февраля 2018 г.Разработчик: Irene DeevПоддерживаемая ОС: Android 4.2+Жанр: РазвлеченияЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FCB4BEEEDA5039FFCDFCD21BC6B27E78181F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194865   (152369) от 27.12.2017
+
+Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C8 90 (06:45)
+ 02. Sine Song 5 (05:08)
+ 03. Stay Home (04:45)
+ 04. Wow (05:30)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22880185628316FEAFDA0D854D55B4233A9C69CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347535   (152370) от 23.12.2019
+
+Navicat Premium 15.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PremiumSoft CyberTech Ltd.Поддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Английский, немецкий, испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8712ED0921A5357972298F28E9E680AF23F300EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271268   (152371) от 22.12.2018
+
+Барри Уилкинсон | Основы проектирования цифровых схем (2004) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена вопросам проектирования цифровых логических схем. В краткой, но строгой форме в ней излагаются методы проектирования основных классов логических схем - от вентилей до схем на программируемых логических матрицах. Данная книга будет особенно полезной для студентов, изучающих электронику и вычислительную технику. Великолепная методика изложения, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13C91EB398F3BB25183DD82ED576E2747FC7DF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194904   (152372) от 27.12.2017
 
 VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +183,7 @@ VA - Atmosfera Records Best of Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152372.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:1A337C3080EB20664EB410C9E1D86CC957D3B445
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152373.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:838613C6490CEFB53A252A3F191102036FA4E9B6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152374.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ magnet:?xt=urn:btih:993AF86EEBB52E2612001FEA9DC1E8F1AFA1C15F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152375.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ magnet:?xt=urn:btih:19025529D7906928AA221C12E1A2E8FFF0209780
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152376.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152377.jpg" />
 </div>
 
 
@@ -156,7 +333,7 @@ Belinda Carlisle - Belinda Live! Good Heavens Tour! (1988) DVDRip [hand made 60f
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152378.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ The London Symphony Orchestra - The Power Of Classic Rock (1985) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152379.jpg" />
 </div>
 
 
@@ -210,7 +387,7 @@ magnet:?xt=urn:btih:E6D690C8A851C8409B106B9143AD07AA4EBCBCFF
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152380.jpg" />
 </div>
 
 
@@ -236,7 +413,7 @@ magnet:?xt=urn:btih:3067B7BF80E5CFFF43FE6590BDA587B7A34124C0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152381.jpg" />
 </div>
 
 
@@ -260,7 +437,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152382.jpg" />
 </div>
 
 
@@ -287,7 +464,7 @@ magnet:?xt=urn:btih:E7D5FF8061EB4F58E31AF8D0F6FD5FD427545FB3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152383.jpg" />
 </div>
 
 
@@ -312,7 +489,7 @@ ASCOMP BackUp Maker Pro 8.204 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152384.jpg" />
 </div>
 
 
@@ -337,7 +514,7 @@ James Grant - The Anjunadeep Edition 283 2019-12-19 [MP3|320 Kbps] <Deep House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152385.jpg" />
 </div>
 
 
@@ -364,7 +541,7 @@ VA - ЕвроХит Топ 40 Europa Plus 21.12.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152386.jpg" />
 </div>
 
 
@@ -391,7 +568,7 @@ VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152387.jpg" />
 </div>
 
 
@@ -418,7 +595,7 @@ magnet:?xt=urn:btih:8432F82F74BADEAADE083F7963D6665977818D42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152388.jpg" />
 </div>
 
 
@@ -442,7 +619,7 @@ Phase One Capture One 23 Enterprise 16.3.1.1718 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152389.jpg" />
 </div>
 
 
@@ -466,7 +643,7 @@ magnet:?xt=urn:btih:2259E6D0923D8EBDDA28404692E0481A6E921D80
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152390.jpg" />
 </div>
 
 
@@ -479,183 +656,6 @@ magnet:?xt=urn:btih:2259E6D0923D8EBDDA28404692E0481A6E921D80
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05CAD20CDE1B0CDBB6DD4C005C61DBB6F44734F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194868   (152391) от 27.12.2017
-
-K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Alternative, Post-grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not An Addict (04:50)
-02. A Sound That Only You Can Hear (04:15)
-03. White Kite Fauna (04:59)
-04. Mr. Freeze (04:23)(   Читать дальше...   )Жанр: Indie rock, Alternative, Post-grungeПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36B4862F1409AD6FD9015ED78DC2DEFF4DCDCD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518827   (152392) от 21.12.2021
-
-Джеймс Кори | Пространство (Книга 8). Гнев Тиамат (2021) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ворота в будущее человечества открыты. Одним махом стали доступны более тысячи новых миров, в их числе и Лакония, где император Дуарте установил режим, с помощью которого он намерен подчинить себе остальную часть галактики. Кажется, ничто не сможет остановить его – даже Солнечная система находится под его контролем. И хотя команда Росинанта начинает опасную подпольную (   Читать дальше...   )Жанр: Фантастика, космоопераПеревод: Галина СоловьеваПродолжительность: 16:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052134459318938BDAF0ECD466061F89876CFFC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434098   (152393) от 23.12.2020
-
-Павел Андреевич Виктор | Школьный курс физики 7-11 классы (2014-2020) CamRip
-
->>След.
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офлайн подборка уроков физики по программе 7-11 классов замечательного преподавателя физики одесского Ришельевского лицея Павла Андреевича Виктóра. Их около 700, они охватывают как курс основной, так и курс старшей школы. Курс находится в свободном доступе на авторском YouTube канале.Жанр: ФизикаПродолжительность: 483:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F55B1014326CA818A4A1EF9AAAE1C35686E72F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677074   (152394) от 16.11.2023
-
-Смерть на границе / Death on the Border (2023) WEB-DLRip [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преступная организация похищает юных девочек, превращая их в жертв сексуальной торговли. Коррумпированная полиция закрывает на это глаза, и единственными спасительницами похищенных становятся две решительные девушки — бывшая полицейская и ее подруга. Вместе они бросают вызов преступникам, всеми способами вызволяя их жертв и расправляясь с похитителями, параллельно (   Читать дальше...   )Производство: США / W ProductionsЖанр: криминал, драма, детективРежиссер: Венди УилкинсАктеры: Эрик Робертс, Шеннон Элизабет, Дэнни Трехо, Фрэнк Уэйли, Кико Эллсворт, Венди Уилкинс, Кика Магалхэс, Джей Хайрон, Дач-Барр Джонсон, Робин МакДональд и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:12Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271208   (152395) от 22.12.2018
-
-Wirecast Pro 11.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. В приложение интегрирована поддержка карт захвата Blackmagic. Кроме того, программное обеспечение поддерживает высококачественные видео форматы Main Concept H.264 и On2 VP6 Flash. «Чтобы производить и транслировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76972FEED722C64EC5F4560381F5F6417B8510C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194825   (152396) от 27.12.2017
-
-Manu Zain - Don't Give Yourself Away (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152396.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Don't Give Yourself Away (5:16)
-2.  Lou-Lou (4:33)
-3.  Precious (4:34)
-4.  Last Train (3:49)Жанр: Balearic, DowntempoПродолжительность: 00:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4514A50154ADBA189A4FEB3E77EFEE0D1FBF817
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347343   (152397) от 23.12.2019
-
-We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Post Rock, Doom Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shepherd's Walk (2:57)
-02. Squid Marks on a Broken Fool: Volume One (7:45)
-03. Private Windy Plains (6:40)
-04. A Stroll to Nowhere (2:50)(   Читать дальше...   )Производство: JM Throne ProductionsЖанр: Experimental, Ambient, Post Rock, Doom Jazz, InstrumentalПродолжительность: 00:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E289E5ECF53DD50F87561F7ADB0DF240780940BB
 ```
 
 

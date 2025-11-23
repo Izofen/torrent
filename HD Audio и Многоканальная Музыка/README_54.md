@@ -6,7 +6,7 @@ Wiener Philharmoniker & Tugan Sokhiev - Sommernachtskonzert 2025 / Summer Night 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65316.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65320.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65322.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65330.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Philosophobia - The Constant Void (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65406.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ In a Darkened Room - VOIX (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwave /
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65413.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Crossroad Jam - In the Beginning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65417.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Bare Wires - Cheap Perfume (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65418.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Alldori - Isle of Lesbos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65420.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cult Of Frey - By The Blood Of Odin, Pt. 2: Asgard (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65421.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Mississippi MacDonald - Slim Pickin' (acoustic) (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65422.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dead Fields Of Woolwich - Monarch Of The Grave (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65425.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65426.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65427.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Brunhilde - In Love Yours Hate (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65433.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Thomas Borgeback - Born66 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65448.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Cardio Killer - Mayhem Punk Rap (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65449.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Higher Power - There's Love In This World If You Want It (2025) [FLAC 24/88.2|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65450.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Then Comes The Night - Metal World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65459.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jeremiah Kane - Back For More (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65461.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65462.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Fly! - ...or Die! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65467.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65469.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ The Tee - The Tower and The Star (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65471.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Moonshine XXX - Frelate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65482.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Speaker Wars - The Speaker Wars (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65490.jpg" />
 </div>
 
 

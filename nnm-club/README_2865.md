@@ -1,3 +1,84 @@
+###  Публикация: 471622   (83680) от 22.03.2012
+
+Оргия крови / Orgy of Blood (2010) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эротическая легенда о трёхсотлетнем вампире Фоско и его семье. Жизнь Фоско и его жены Сабины протекает в сюрреалистическом мире наслаждения и предательства — непрекращающаяся оргия страсти двух влюблённых. Чета вампиров живёт в красивом доме, и неспешно воспитывают своего сына Дмитри. И всё это длится до тех пор, пока на их пути не появляется молодая наивная женщина Фауна и её бойфренд Мика. Именно они превращают Фоско и Сабину в подлых убийц одержимых местью и жаждой власти.Жанр: УжасыРежиссер: Крип КриперсинАктеры: Домициано Арканджели, Лориэлль Нью, Рендал Мэлоун, Джефф Дилан Грэхэм, Элисса Бри, Фиби ДолларПеревод: Многоголосый закадровыйПродолжительность: 01:46:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471472   (83682) от 22.03.2012
+
+Книжная серия "Нобелевская премия" (36 книг) [2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия, в которую вошли произведения нобелевских лауреатов.2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5655DE9968604683FCF233C5F826359D8D7699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471600   (83683) от 22.03.2012
+
+The Mars Volta - Noctourniquet (2012) [FLAC|Lossless]<Progressive Rock / Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whip Hand (4:49)
+02. Aegis (5:11)
+03. Dyslexicon (4:22)
+04. Empty Vessels Make The Loudest Sound (6:43)
+05. The Malkin Jewel (4:44)
+06. Lapochka (4:16)
+07. In Absentia (7:26)
+08. Imago (3:58)
+09. Molochwalker (3:33)
+10. Trinkets Pale Of Moon (4:25)(   Читать дальше...   )Жанр: Progressive Rock / ExperimentalПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471076   (83684) от 22.03.2012
 
 ГРОТ - Неизданное from AGR (2012) [MP3|320 кб/с]<Rap>
@@ -6,7 +87,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83684.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83687.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ magnet:?xt=urn:btih:D95EA7C2451017C5B4863FD9CD6393E4F97C88D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83691.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ magnet:?xt=urn:btih:74D09B279B34354BE9994AD74B2DE8F06DC82255
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83693.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Speedsoft - MAZ Sound Tools - VSampler v3.5.2 x86  by TEAM H2O (VSTi, DXi, STADA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83695.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ VSampler- это программное обеспечение, превраща
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83698.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83702.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ magnet:?xt=urn:btih:9FE941EBC9F49224A2F65150F7A501851EA7AB9E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83703.jpg" />
 </div>
 
 
@@ -235,7 +316,7 @@ VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83704.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ VA - Best Of Chillout Ibiza - Sunset Lounge (2012) [FLAC|Lossless]<Lounge, Chill
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83705.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ magnet:?xt=urn:btih:5F189FCC2B9220304D1118D259268B54018CB13E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83706.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ magnet:?xt=urn:btih:88E743CCEA37940FCB3228A01E6135742516061E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83707.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ magnet:?xt=urn:btih:88E743CCEA37940FCB3228A01E6135742516061E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83708.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ magnet:?xt=urn:btih:88E743CCEA37940FCB3228A01E6135742516061E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83710.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ magnet:?xt=urn:btih:88E743CCEA37940FCB3228A01E6135742516061E
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83711.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ Kaspersky World 1.3.2.102 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83714.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83715.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:12D24C0226E4D5D33EBBF7C1509288C25635537B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83717.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ Steve Grant's Barockestra - Roll Over Beethoven (2009) [MP3|320 кб/с]<Hard-Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83718.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ magnet:?xt=urn:btih:6CC90D6548B6046D9EB570C0998F05A0631B59A8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83719.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ magnet:?xt=urn:btih:38AED7E2B3F244A7D2034FC9B455B83FC19B7DDA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83720.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ magnet:?xt=urn:btih:7B24CB0841FFAD8927BD0F952104D8F15EC0AD98
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83722.jpg" />
 </div>
 
 
@@ -595,79 +676,6 @@ magnet:?xt=urn:btih:7B24CB0841FFAD8927BD0F952104D8F15EC0AD98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C794D5D02D8B3FF296BFBCD8BF527B9306AA4FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471961   (83723) от 22.03.2012
-
-NG: Последнее пристанище тамплиеров / The last stand of the templar's (2010) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переправа Иакова. Голый холм с видом на реку Иордан, в ста шестидесяти километрах к северу от Иерусалима. Команда археологов ведёт раскопки замка тамплиеров XII века. Средневековые мусульманские хроники утверждают, что за шесть дней жесткого боя погибло около 800 тамплиеров.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB983F492F9E2E0A37EBA22143E6302A67FDEC0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470734   (83726) от 22.03.2012
-
-Несколько дней из жизни И.И. Обломова (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм создан по мотивам романа русского писателя Ивана Гончарова "Обломов".
-В 19 веке русские помещики жили скучно и праздно. Трудно им было найти свое место в жизни, реализовать себя как личность. Вот и главный герой фильма Илья Ильич Обломов - не хотел трудиться лишь ради приумножения своего богатства, поскольку не видел в этом для себя высокой цели. (   Читать дальше...   )Жанр: ДрамаРежиссер: Никита МихалковАктеры: Олег Табаков, Андрей Разумовский мл., Юрий Богатырев, Олег Козлов, Андрей Попов, Елена Соловей, Авангард Леонтьев, Елена Клещевская, Галина Шостко, Глеб Стриженов, Евгений Стеблов, Евгения Глушенко, Николай Пастухов, Федор Стуков, Любовь Соколова, Николай Бурляев, Олег Басилашвили, Андрей Харитонов, Нонна Терентьева, Игорь Кашинцев, Эрнст РомановПродолжительность: 02:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE84A28358C7C5A474DC23553011813301B2E70A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471896   (83727) от 22.03.2012
-
-Q: Загадка женщины / Q (2011) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда судьба приводит людей на грань отчаяния, единственным способом вновь ощутить вкус жизни может стать нежданный аттракцион грандиозных чувственных наслаждений, которые способна дарить каждому новому знакомому очаровательная Сесиль. Попадая к юной красотке в сладкий плен удовольствий, любой теряет голову; все прочее перестает иметь для него значение, кроме одного — секс, секс, секс…Жанр: Драма, эротикаРежиссер: Лоран БуникАктеры: Дебора Реви, Хелен Зиммер, Гоуэн Диди, Джонни Амаро, Жоан ЛибероПеревод: Профессиональный многоголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE49D8AEC80C59DCBDAB3EAAD37B190FAA6B34AA
 ```
 
 

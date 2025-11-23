@@ -6,7 +6,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125261.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack ale
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125500.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125554.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125674.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126978.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127537.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127730.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127750.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128507.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128514.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130488.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130490.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Transarctica (RePack) 1993 [En] | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130545.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130588.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130631.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131787.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134407.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134473.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134668.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135110.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136739.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136781.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136819.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136919.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137186.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137261.jpg" />
 </div>
 
 

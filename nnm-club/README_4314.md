@@ -1,3 +1,78 @@
+###  Публикация: 1675656   (132785) от 02.12.2023
+
+Убить Риту (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрупкая с виду учительница химии Рита остается без работы за связи с учеником. Но благодаря своим навыкам ей удается заработать лёгкие деньги уборкой коттеджа. Правда этот коттедж оказывается местом преступления, а сама Рита оказывается в эпицентре криминальных разборок местных бандитов. Однако Рита не так проста — все это время она жила под прикрытием по чужому (   Читать дальше...   )Производство: Россия / 1-2-3 ProductionЖанр: криминал, драма, комедияРежиссер: Мария АграновичАктеры: Евгения Борзых, Артём Быстров, Анна Слю, Алексей Агранович, Артём Ткаченко, Александр Мизёв, Алексей Филимонов, Олег Гаас, Игорь Грабузов, Артур Бесчастный, Эрик ЯраловПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40DEAB932266887C7E7E644FB23CA76D83C0619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681182   (132787) от 02.12.2023
+
+KMS Tools Portable by Ratiborus 01.12.2023 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132787.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D737F02FA0990166F9C59F3FB78F6E7264AFD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680545   (132790) от 02.12.2023
+
+VMware vSphere ESXi 8.0U2 [amd64] 1xDVD
+
+>>След.
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия гипервизора VMware vSphere ESXi для сервера.
+
+Новый апплаенс - vCenter Server Appliance Migration tool.
+Новый API (REST-based APIs for VM Management) для упрощения автоматизации и управления инфраструктурой.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028DAB0D08A1F4E0EC9C6FAF84E6B63FE4744E66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595251   (132791) от 28.12.2012
 
 Creative Wallpapers (26.12.12) [Wallpapers]
@@ -6,7 +81,7 @@ Creative Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132791.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:ADA492C4EEDF8CC5889316F9E006569A89C4C1FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132792.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:74893CFC615757C1FD1965FC027CC54240F0E3B0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132793.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Resident Evil 4 Remake Deluxe Edition (2023) [PS4] [EUR] 5.05 [HEN] [License / 1
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132795.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ VA - Hotel Lounge IV by Bar de Paris (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132796.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ Interior Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132797.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ magnet:?xt=urn:btih:8E0A653609900962E6AFB015EC482F12614C1B2E
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132798.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:396DB0C3B8400048957620916E858E8ADAAAEF77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132800.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:97D208344ABA5E6FAA9CE7F73D6F85942A7135E1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132801.jpg" />
 </div>
 
 
@@ -233,7 +308,7 @@ Adobe Photoshop for Mac 2024 v.25.2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132802.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:92CF5C3960B2CD7A33F99002839F03FCA352FCAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132803.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ magnet:?xt=urn:btih:E83297D8BA3F0FF34B5FD07EBFD8DB8644AD6A83
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132805.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ magnet:?xt=urn:btih:5411710B05439CE731D6BE2D9D3776EF43DE3FB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132806.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ A Place In Time - Transitions [EP] (2012) [FLAC|Lossless]<Pop Punk, Easycore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132807.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ A Place In Time - Transitions [EP] (2012) [FLAC|Lossless]<Pop Punk, Easycore>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132808.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ SynWrite Editor 4.6 build 552 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132809.jpg" />
 </div>
 
 
@@ -411,7 +486,7 @@ SynWrite Editor - мощнейший текстовый редактор для 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132810.jpg" />
 </div>
 
 
@@ -435,7 +510,7 @@ Computer Desktop Wallpapers Collection (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132811.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:C67844ACF29C3758D3DC16B72E1EE9B276E3BDBC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132812.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ Computer Desktop Wallpapers Collection (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132813.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132814.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ Lynx Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132815.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ magnet:?xt=urn:btih:6D2111B42FACC5A201F57FE705C1D4788D825CA4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132816.jpg" />
 </div>
 
 
@@ -566,79 +641,6 @@ magnet:?xt=urn:btih:6D2111B42FACC5A201F57FE705C1D4788D825CA4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F81277FA6BBFAE2D341117ADFE2ACCEE500A9AC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595257   (132817) от 28.12.2012
-
-HQ Wallpapers for a desktop (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09020B95492984719794DEC26FB19B5DF598C553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346382   (132818) от 02.12.2023
-
-Льюис Кэрролл | Алиса в стране чудес (Аудиоспектакль) (2007) [MP3, Александр Клюквин, Рената Литвинова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Детская литература.
-«Алиса в стране чудес» Льюиса Кэрролла уже многие годы в числе самых любимых книг во всем мире. В англоязычных странах эта волшебная сказка занимает одно из первых мест по количеству упоминаний, цитат и ссылок. Да и у нас все дети знают, что «от уксуса – куксятся, от горчицы – огорчаются, от лука – лукавят, от вина – винятся, а от сдобы (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаВ ролях: Александр Клюквин, Рената Литвинова, Николай Фоменко и др.Издательство: Издательский дом «Союз»Продолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653D10000899F65F8D432BEBE3AAFCF1E6A92A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595270   (132819) от 28.12.2012
-
-Best HD Wallpapers Pack (27.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79285B4AE45B2C871EA0148815F985B8D0DD274
 ```
 
 

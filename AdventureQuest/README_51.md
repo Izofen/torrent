@@ -6,7 +6,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163507.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163764.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164520.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165987.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.1116.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167007.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167008.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167497.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167731.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167833.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168649.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169154.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169624.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169833.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170581.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170646.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Chorus (2021) [Ru/Multi] (Build 7785124) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170688.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Happy's Humble Burger Farm (2021) [Ru/Multi] (1.16.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170792.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171290.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171463.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Gap (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171474.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171640.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171671.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171791.jpg" />
 </div>
 
 

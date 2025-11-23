@@ -1,3 +1,87 @@
+###  Публикация: 468921   (96896) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96896.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 16 
+Название:  Desktop Wallpapers Pack 16 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468925   (96899) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96899.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 17 
+Название:  Desktop Wallpapers Pack 18 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468488   (96900) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96900.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 11 
+Название:  Desktop Wallpapers Pack 11 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468930   (96901) от 17.03.2012
 
 [Wallpapers] Desktop Wallpapers Pack 20
@@ -6,7 +90,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96901.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96904.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96904.jpg" />
 </div>
 
 
@@ -67,7 +151,7 @@ Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96905.jpg" />
 </div>
 
 
@@ -95,7 +179,7 @@ VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96906.jpg" />
 </div>
 
 
@@ -128,7 +212,7 @@ Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96908.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96908.jpg" />
 </div>
 
 
@@ -161,7 +245,7 @@ Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96911.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ magnet:?xt=urn:btih:D30E187F0C70E4E663A959EDB9491C0D13B5CF0A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96912.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96913.jpg" />
 </div>
 
 
@@ -252,7 +336,7 @@ magnet:?xt=urn:btih:2C7753739B2C6F545C19C9BDC5368BF2A4A9D245
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96914.jpg" />
 </div>
 
 
@@ -280,7 +364,7 @@ magnet:?xt=urn:btih:996656306FBA9B1A027F43E288210E2D186F09D0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96916.jpg" />
 </div>
 
 
@@ -308,7 +392,7 @@ magnet:?xt=urn:btih:C0C442F9740445AD031D329EF4DBC8290DED7A7C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96918.jpg" />
 </div>
 
 
@@ -332,7 +416,7 @@ Dada Life - March 2012 Mix (01-03-2012) [MP3|160 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96920.jpg" />
 </div>
 
 
@@ -365,7 +449,7 @@ magnet:?xt=urn:btih:7D8B7C58895C6D001443C72A2DFACB41C298A8BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96921.jpg" />
 </div>
 
 
@@ -393,7 +477,7 @@ magnet:?xt=urn:btih:3A9D94898C56527B2822F2530A03FF90275E2DFE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96922.jpg" />
 </div>
 
 
@@ -417,7 +501,7 @@ magnet:?xt=urn:btih:EC56FDE7B4A1FEC23E7640F197AC2705FED2C685
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96923.jpg" />
 </div>
 
 
@@ -445,7 +529,7 @@ magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96924.jpg" />
 </div>
 
 
@@ -473,7 +557,7 @@ magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96928.jpg" />
 </div>
 
 
@@ -501,7 +585,7 @@ magnet:?xt=urn:btih:9849459131DABA7D169AD9F8FDE79C6E9FDE6EB1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96929.jpg" />
 </div>
 
 
@@ -529,7 +613,7 @@ magnet:?xt=urn:btih:55109C1EB815825F62CE514EBB43C92A0CB71B42
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96930.jpg" />
 </div>
 
 
@@ -553,7 +637,7 @@ magnet:?xt=urn:btih:E98C79DA283B8E59EB3C6A60E77B1910DBD2981B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96931.jpg" />
 </div>
 
 
@@ -581,7 +665,7 @@ magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96932.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96932.jpg" />
 </div>
 
 
@@ -605,7 +689,7 @@ magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96935.jpg" />
 </div>
 
 
@@ -633,7 +717,7 @@ magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96936.jpg" />
 </div>
 
 
@@ -644,83 +728,6 @@ magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2711F665F4CF050AE0EE2B0E74642B3D4E5B5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468927   (96937) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96937.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 19 
-Название:  Desktop Wallpapers Pack 19 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469051   (96938) от 17.03.2012
-
-Формула 1. Гран-При Австралии. 2-ая свободная практика (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
-Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469111   (96939) от 17.03.2012
-
-VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Pena - Black Dance (Original Mix)2012Жанр: Dance, House, ClubПродолжительность: 05:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
 ```
 
 

@@ -6,7 +6,7 @@ Microsoft Activation Scripts (MAS) 2.9 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LazyMedia Deluxe v3.349 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33010.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0EF775C9B7B687ACC23F63F77B3E962D1406213D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33011.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hollowbody (2024) [En] (g2.2 patch 10 hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33012.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33013.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lumion Pro 2024.4.2.0 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33014.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1F41FB7D924CF4069AEC1D8B1DE2F984B57252C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33015.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:90A5037435F330D9AB9F123EFF3B5389DC5B5BD8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33016.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:469A3FCACC09C8180A3BE8A74F8B75A0C564A39E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33017.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33018.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Power Battle Watch Car: Watch Gamyeon-ui Yeogseub | Power Battle Watch Car: Retu
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33019.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33020.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Glary Disk Cleaner 6.0.1.21 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33021.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:349225FC13A9347298F01D2435CF0F3ECA979353
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33022.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:93C13613FC36B6CCD494718F56B4A26184FCA6C7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33023.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2DF26FF679958A576E8FE153F3D78B1D849FF993
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33024.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:92EDE9F49311FCD3C573A955C89CF5827CC95B01
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33025.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - The Best Of Suanda Voice 2024 [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33026.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Wind Blowers - Whiskey & Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33027.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:4787CC2BB5ADD1890EC901B48B3789C1952A4046
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33028.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Vedran Bozic - Planet Led Zeppelin (Live At Vintage Industrial Bar, Zagreb) (202
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33029.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:AA37F852FE4733E3629727CD22AB088E41190D31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33030.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33031.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:9635FF40EE8A2D95B7F361BC1F988C645F08DD51
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33032.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:AB57643BF1A3DF0C74C055C8A65AC51FFFA56A6E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33033.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33034.jpg" />
 </div>
 
 

@@ -1,3 +1,151 @@
+###  Публикация: 1087715   (142124) от 29.12.2016
+
+Brett Hoebel | 20 Minute Body (2014) HDTVRip [720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых востребованных фитнес-тренеров современности Бретт Хебел создал супер-комплекс, для выполнения которого Вам понадобится всего лишь 20 минут в день! Теперь любая отговорка о нехватки времени на спорт просто перестает работать. Трехэтапная программа поможет Вам быстро и эффективно избавиться от лишнего веса и проблемных зон.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 05:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047BC2A2A5AD6B8129305478DA2B8094CDE81971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195532   (142125) от 29.12.2017
+
+Comedy Woman. 10 лет (2017.12.29) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина ФедункивСубтитры: ОтсутствуютПродолжительность: ~ 00:46:45Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4449FB077EA41E9FDA065FBA50A2C7ED078096F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590326   (142126) от 17.12.2012
+
+Несколько счастливцев / Happy Few (2010) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое взрослая любовь? Две пары встречаются и влюбляются, теряют друг друга, а затем сходятся вновь… Фильм о двух парах, сошедшихся вместе и живущих "квартетом". Фильм о сложных отношениях, взаимной любви и об обязательно возникающих сложностях, когда чувства начинают переплёскиваться через край.Жанр: мелодрамаРежиссер: Антони КордьеАктеры: Марина Фоис, Элоди Буше, Рошди Зем, Николя Дювошель, Жан-Франсуа Стевенен, Алексия Стреси, Бланш Гардин, Женевьев Мниш, Филипп Пеймбланк, Наоми ФеррейраПеревод: Двуголосый закадровый (профессиональный)Продолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BEF768EC04C22752398C5B1BBDACD883002F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678866   (142127) от 23.11.2023
+
+PDF24 Creator 11.15.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142127.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
+Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7EC38A557287CE3E7A41069C68C7EA6097EFE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970214   (142128) от 29.12.2015
+
+Тупик / Standoff (2016) WEB-DL [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран войны Картер с дробовиком наперевес вынужден защищать двенадцатилетнюю девочку, ставшую свидетелем убийства.Производство: США / Goldrush Entertainment, First Point EntertainmentЖанр: ТриллерРежиссер: Адам АллекаАктеры: Томас Джейн, Лоренс Фишбёрн, Элла Бэллентайн, Джим Уотсон, Джон Тенч, Лаура ДеКартере, Тед Атертон, Джоанна ДугласПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: Sunshine Studio & Parovoz ProductionПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497084FDE18B8D9694E5F9C6ED6EE13F8B41B087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520263   (142129) от 28.12.2021
+
+VA - Deep Blue Sea, Vol. 2: Deep Chill Mood (2018) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airstream - One Way (Dreamtime Mix) (6:14)
+02. Frank Borell - Mystic Colours (In Heaven Mix) (6:00)
+03. Island Sun - Wonderful Life (Golden Days Mix) (5:45)
+04. La Estación Del Mar - La Ultima Estacion (Original Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD09DBDCEBF88950367D3652213459FAE833F5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088072   (142131) от 29.12.2016
 
 Overloud TH3 v3.3.0 [En]
@@ -6,7 +154,7 @@ Overloud TH3 v3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142131.jpg" />
 </div>
 
 
@@ -30,7 +178,7 @@ magnet:?xt=urn:btih:2E66C45CCD659DDFACF80811128E4EE417CE342B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142132.jpg" />
 </div>
 
 
@@ -54,7 +202,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142133.jpg" />
 </div>
 
 
@@ -78,7 +226,7 @@ magnet:?xt=urn:btih:8545B3DFB1B5B2F4B70FA89A71B2427FB28AF02E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142134.jpg" />
 </div>
 
 
@@ -102,7 +250,7 @@ magnet:?xt=urn:btih:EA8654B5B2A0C8DDECA004BB602605DBD007808D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142135.jpg" />
 </div>
 
 
@@ -126,7 +274,7 @@ WiFiSpoof 3.8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142136.jpg" />
 </div>
 
 
@@ -150,7 +298,7 @@ magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142138.jpg" />
 </div>
 
 
@@ -174,7 +322,7 @@ DriverPack Solution 17.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142139.jpg" />
 </div>
 
 
@@ -198,7 +346,7 @@ magnet:?xt=urn:btih:14A88261BB8DE5507CCEBFEFCEF38C5C1BAA6FAF
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142141.jpg" />
 </div>
 
 
@@ -222,7 +370,7 @@ magnet:?xt=urn:btih:A158799B3D56C8EB39843164DB058CA18C0FFE6A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142142.jpg" />
 </div>
 
 
@@ -246,7 +394,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142144.jpg" />
 </div>
 
 
@@ -270,7 +418,7 @@ magnet:?xt=urn:btih:AD6AD97441FE95E41F48AEB9E9D501BC76E31404
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142146.jpg" />
 </div>
 
 
@@ -294,7 +442,7 @@ magnet:?xt=urn:btih:F2645F0EC75561681156B5E5C35481887F9C3E9C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142147.jpg" />
 </div>
 
 
@@ -318,7 +466,7 @@ magnet:?xt=urn:btih:C501C66723ADBE437B12FD92E114E80ECE430C81
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142148.jpg" />
 </div>
 
 
@@ -342,7 +490,7 @@ magnet:?xt=urn:btih:06EBEDA37A7BCBADB10C67158C518EEE99C917E3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142149.jpg" />
 </div>
 
 
@@ -367,7 +515,7 @@ magnet:?xt=urn:btih:58CAA098AE6F69FEBAEAC56FAEB174ACC44E68EE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142150.jpg" />
 </div>
 
 
@@ -391,7 +539,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142151.jpg" />
 </div>
 
 
@@ -415,7 +563,7 @@ magnet:?xt=urn:btih:FED9AFC610D1C23D5240B1243CB9EF1C1CFB5691
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142152.jpg" />
 </div>
 
 
@@ -439,7 +587,7 @@ VivaVideo 9.12.6 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142155.jpg" />
 </div>
 
 
@@ -463,7 +611,7 @@ magnet:?xt=urn:btih:D9E26FBCC9A096D8185098DB6D5E5216DA3AAE78
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142157.jpg" />
 </div>
 
 
@@ -474,151 +622,6 @@ magnet:?xt=urn:btih:D9E26FBCC9A096D8185098DB6D5E5216DA3AAE78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B015887968A900D9601443FC9416F85E7E01D97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970307   (142159) от 29.12.2015
-
-NotGTAV (2015) [En] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142159.jpg" />
-</div>
-
-
-###  Подробнее
-
-NotGTAV это самая настоящая покадровая змейка. Все же помнят эту великую змею со времен Nokia 3310? Так вооооот, тут тоже самое только изобретательнее и покадрово. Вот вы под безумно психоделическую музычку с 10 fps в секунду бегаете по площадке и убиваете палатки, которые сразу же превращаются в баранов и ослов, хвостиком путешествующими за вами.Тип издания: RepackРазработчик: Not Games LLPЖанр: Arcade, Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611548D639A38B0A161DDE7B97FA1530238C4570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435833   (142160) от 29.12.2020
-
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №66 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5792x7968-8688x5792
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639EA164C05AD17C86876685EBEAB87127866C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970166   (142162) от 29.12.2015
-
-Плохие соседи по комнате / Bad Roomies (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда у двух друзей, которые живут в одной квартире, освобождается лишняя комната, они решили найти себе нового соседа. К этому делу парни подошли ответственно и устроили настоящий кастинг. Желающих поселиться в их квартире было достаточно, но друзья остановились на симпатичной девушке. Этот выбор стал роковым. Ведь отныне их жизнь никогда не будет прежней. Оба друга (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джейсон ШнельАктеры: Патрик Ренна, Томми Савас, Энни Монро, Джеки Тон, Пейдж Кеннеди, Кайл Ховард, Джорди Мастерсон, Кристофер Мастерсон, Линси Бартилсон, Эрик ПамфриПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionСубтитры: ОтсутствуютПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D334A1077FE527D556785FAF370751EF0C428C18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590684   (142163) от 17.12.2012
-
-Василий Сахаров | Ведун [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш человек, несколько необычный, но далеко не гений и не самый крутой боец, принимает участие в опасном эксперименте и проваливается в прошлое. Дороги назад нет, а вокруг 12-й век. Что делать дальше? Можно начать все с чистого листа, забиться в тихое теплое местечко и кайфовать. Ну, а можно поступить так, как велит честь и кровь, встать на сторону братьев-славян и за имеющиеся в запасе годы, выкопать могилу для целого Крестового похода. И не просто вогнать тварей на двух ногах под землю, но и повернуть вспять весь исторический процесс и дать тем, кого ты считаешь своими, возможность с меньшими потерями пережить Ночь Сварога.Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A8F384E343FC23C7758EB32488D9EA54BF1485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678784   (142165) от 23.11.2023
-
-Wondershare Recoverit for Mac 12.0.19.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2023Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DE92308372DFDC78B256ADA02E13D3BBB67BB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435861   (142166) от 29.12.2020
-
-Растровый клипарт - Fotolia - New Year and Christmas stock photos №79 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год и рождество с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5793x5448
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761DA796D4A36C81F6FD5EF2E3C53132935A5ED7
 ```
 
 

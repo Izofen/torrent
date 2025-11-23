@@ -6,7 +6,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35895.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CB745A086CF257707D72BC1105C5AA517127AAE4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35897.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35898.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NekoRay / NekoBox 4.0 beta 4 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35899.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:31357F2C94147CDA3298A20619F776A9AF5F41BF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35900.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:10687DE39D6B42FB04526C280CDBF0467619FBFB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35901.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Disco Elysium (2019) [Ru/Multi] (wina0a062f0) License GOG [The Final Cut]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35902.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F93DA7F7F998DC99F5ADAC92F903D1B3C4FA8E7B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35903.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:517816A7FF777F7345E1ACB8EC77D723FE5FA60A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35904.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Walter Trout - 29 альбомов (1989 - 2024) 33 CD [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35905.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EEC8972F8F745CF456B6D377AD73C1F324F977D1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35906.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Arma III (3) (2013) [Ru/Multi] (2.18.152405/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35907.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:9EB448A37415AC5DC56195847939377D84C0A81B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35908.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Adobe Photoshop 2025 26.1.0.121 (x64) RePack by SanLex [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35909.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:EB480EF22CEA091CC856E49F97E5193EF0DCE662
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35910.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:55DCA4791D9E59AAC96A5D2934BD82E1596048D1
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35911.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:8147C12264DE148967F2933BD2A833FA63E4B2E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35912.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:A0D9A42ADE7E36543A634191F62A84D94495B84B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35913.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35914.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:C4C7BFFF343A4681775FA30A2CD5B377421E3C40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35915.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C4C7BFFF343A4681775FA30A2CD5B377421E3C40
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35916.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Total Commander 11.03 Extended 24.11 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35917.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:95F321A928C08AC0EBAC6634AF8D9FAA216E5856
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35918.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:630B623D16A559124E564147B269563D1C635705
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35919.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:630B623D16A559124E564147B269563D1C635705
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35920.jpg" />
 </div>
 
 

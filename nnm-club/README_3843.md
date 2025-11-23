@@ -1,3 +1,75 @@
+###  Публикация: 1696288   (119600) от 02.02.2024
+
+OmniReader Pro for Mac 2.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119600.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65E5B68941868B5D13E52D598F1F4DBDC0DDD9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696510   (119601) от 02.02.2024
+
+Aiseesoft Mac Screen Recorder 2.2.22 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записи экрана и создания снимков экрана. Aiseesoft Screen Recorder — лучшее программное обеспечение для записи экрана, позволяющее записывать любые действия на компьютере Mac. Он может работать как хороший рекордер видеоигр, захват вызовов Skype, приложение для записи видео YouTube и многое другое для захвата любой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2024Разработчик: © 2008-2024 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EDF1BE4C40A525583AA32FFD156D7C1F81FBDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696312   (119602) от 02.02.2024
+
+djay - DJ App & AI Mixer 5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119602.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EBB640E9DF130E5C47573E54EA136DC805B6A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696363   (119603) от 02.02.2024
 
 Striker - Ultrapower (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +78,7 @@ Striker - Ultrapower (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119603.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119604.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119605.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119606.jpg" />
 </div>
 
 
@@ -114,7 +186,7 @@ Keep It 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119607.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ Bombarder - Sa Dna Groba (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119608.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ magnet:?xt=urn:btih:7B8BB8E4042457F93017ECDC2F17D4ACEDB5AA9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119609.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ magnet:?xt=urn:btih:8262B3FDE0154B18759D12E2443B6BA2F224DEDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119610.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ Topaz Photo AI 2 for Mac 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119611.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ magnet:?xt=urn:btih:EE17BE9F0E2078B91F766454654E045081571078
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119612.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Ableton Live Suite 12 Beta 12.0b26 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119613.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ magnet:?xt=urn:btih:5074B1FC3C457DA2884D1D73FFD5D9E1300D7AAE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119614.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119615.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119616.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:53269FBEF2DB91501418256B3A1DF34BB442D6B4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119617.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ magnet:?xt=urn:btih:2485E89FBD0C7F19B8C2C49F11F31C373CB70474
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119618.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ Fort Firewall 3.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119619.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119620.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ Downie 4 v.4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119621.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ VA - The Sound of 2024 Mix 1: Medellín (2024) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119622.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119623.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119624.jpg" />
 </div>
 
 
@@ -566,7 +638,7 @@ magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119625.jpg" />
 </div>
 
 
@@ -577,87 +649,6 @@ magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AEB48183CFF285CFD73ADC57F6814455D2F742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696267   (119626) от 02.02.2024
-
-Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Hold On To [00:03:34]
-02. Adrenaline Rush [00:03:04]
-03. Care About Us [00:02:28]
-04. The Corner [00:02:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1500788AE335B2B07CA4FA6CE6E23C1CA90AAB5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696475   (119627) от 02.02.2024
-
-Billie Piper - She Wants You (1998) Remaster, 2024, Virgin Records Limited [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Wants You [00:03:40]
-02. She Wants You (Radio Edit) [00:03:19]
-03. She Wants You (Erick Morillo Double Platinum Vocal Mix) [00:06:15]
-04. She Wants You (Erick Morillo “More Choo” Dub) [00:06:22](   Читать дальше...   )Жанр: Synth-pop, HouseПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EBA14FA5F5C73B4F69D91C3C24723C07AF7851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696490   (119628) от 02.02.2024
-
-Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dymytry - чешская метал-группа из Праги, которая описывает свой стиль как psy-core.Группа была основана в 2003 году Иржи Урбаном-младшим, сыном Иржи Урбана, основателя группы Arakain. Имидж группы основан на масках насекомых из Национального театра, мощных гитарных риффах, мелодичных припевах и наводящем на размышления вокале. Название "Димитрий" происходит (   Читать дальше...   )01. Enemy List 04:40
-02. Everything Is Black 03:39
-03. Wake Me Up (Before We Die) 03:18
-04. Legends Never Die 03:55(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD201FFC03AD80D9595C02D3CD61964DAF9FAF4
 ```
 
 

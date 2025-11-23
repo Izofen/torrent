@@ -1,3 +1,78 @@
+###  Публикация: 1347335   (154308) от 22.12.2019
+
+Downie 4 v4.0 (beta) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433851   (154316) от 22.12.2020
+
+Firefox Browser 84.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BFECB998BCCE394583FA2DE4E4C1FAD5E0D9BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347222   (154320) от 22.12.2019
+
+Records 1.6.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Records - Личная база данных и визуальный органайзер
+Records восхитительный и простой в использовании органайзер для создания личной базы данных. Это идеальный компаньон для всего, что вы хотите, чтобы собрать и систематизировать в жизни, включая ваши любимые фильмы, предлагая отличный баланс между легкостью в использовании и мощными функциями. Records использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2019Разработчик: Records TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676981   (154323) от 15.11.2023
 
 Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
@@ -6,7 +81,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154323.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Movavi Screen Recorder 10.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154326.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ KeepStreams 1.1.9.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154327.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ FileZilla 3.46.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154336.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154343.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:9C1A0FA38C50310FED89F17326F0DEC03510DFF2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154352.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Artweaver Free 5.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154353.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ A Better Finder Rename 11 v.11.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154354.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ iCash 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154356.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ SyMenu 6.14.7660 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154365.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:849BA7464AA1173E961C82CE948D2DDF62DFBC05
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154366.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ PowerPhotos 2.1.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154370.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ magnet:?xt=urn:btih:B41CFBAACDFF15BC0E11D7B306B8EAB8D94FD3A8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154378.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ Mitti 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154388.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Windows 10 Manager 3.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154390.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ Comedy Woman (2016.12.23) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154392.jpg" />
 </div>
 
 
@@ -393,7 +468,7 @@ magnet:?xt=urn:btih:E316E99E2384AD652189338E524016B84F71B7AF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154394.jpg" />
 </div>
 
 
@@ -417,7 +492,7 @@ McAfee Endpoint Security for Mac 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154396.jpg" />
 </div>
 
 
@@ -441,7 +516,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154402.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ Stats 2.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154403.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ IObit Uninstaller Pro 13.2.0.3 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154407.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ Type Fu 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154409.jpg" />
 </div>
 
 
@@ -537,7 +612,7 @@ UctoX 2 v2.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154410.jpg" />
 </div>
 
 
@@ -550,82 +625,6 @@ UctoX - это мощное приложение для выставления �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E9DB67368FF6CCEBED0F1349EFA98C22B9DED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433778   (154414) от 22.12.2020
-
-Kdenlive 20.12.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A68736945F6DA6289FFEFB6E62960A797A229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676843   (154415) от 15.11.2023
-
-Microsoft .NET 7.0.14 Runtime [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD61FD47FF87D7F4BCBAFF419C5273DFA49EC281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194831   (154420) от 26.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Мадонна ди Кампильо (Италия). Мужчины. Слалом (22.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154420.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 декабря 2017 года, пятница. 19:45 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Мадонна ди Кампильо (Италия).
-Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC789DEF8A705CF43B584DD12DF0EE5A1DD358A5
 ```
 
 

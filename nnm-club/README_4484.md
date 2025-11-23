@@ -1,3 +1,100 @@
+###  Публикация: 1520749   (138701) от 30.12.2021
+
+Тим Кларк, Брюс Хейзен | Бизнес-модели для команд. Как работает ваша компания и какую роль (на самом деле) играет каждый сотрудник (2021) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания работает (и зарабатывает) гораздо лучше, когда каждый сотрудник и команда в целом понимают свою роль в создании ценности для клиентов, стремятся к общим целям, обучают новичков в духе корпоративной культуры. Для этого нужно описать бизнес-модель команды: роли, приоритеты, затраты, доходы, способы создания ценности. И инструменты, которые помогут увидеть (   Читать дальше...   )Жанр: Бизнес-процессы, Зарубежная деловая литература, Организационный менеджмент, Производственный менеджмент, Управление персоналомПеревод: Василий ГороховФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123A609F30BDBDD307A57A22B29B96BA1DADE379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273106   (138702) от 30.12.2018
+
+Александр Камрадов | Хомо не Сапиенс. Тренд-порно-еда. Прочитай меня полностью! +18 (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцать первый век, бесконечный поток информации, технологический прогресс, миллионы различных предложений на рынке услуг (любой каприз за ваши деньги), возможность летать куда угодно, посетить любой, даже самый казалось бы недоступный уголок мира (в перспективе космос, Илон Маск не даст соврать), вероятность написать кому угодно (даже главе государства) в мессенджере, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034DEE9076A91CA09A50EEA42E75DD26B96BEA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195938   (138705) от 31.12.2017
+
+Журнал | Автомир [Россия] №1 (январь 2018) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138705.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2CC51E3265F530C929F3B16B322433DB72FD92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677762   (138707) от 24.11.2023
+
+Проект Лазарь / The Lazarus Project (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) ColdFilm
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж убежден, что сошел с ума, но затем встречает загадочную женщину по имени Арчи, которая вербует его в секретную организацию «Проект Лазарь», возглавляемую грозным Уэсом. Организация обладает способностью поворачивать время вспять каждый раз, когда мир находится под угрозой исчезновения, и отчаянно пытается остановить преступника, стремящегося уничтожить планету. (   Читать дальше...   )Производство: Великобритания / Urban Myth FilmsЖанр: Фантастика, боевик, триллер, драмаРежиссер: Марко Кройцпайнтнер, Карл ТиббеттсАктеры: Паапа Эссьеду, Анжли Мохиндра, Руди Дхармалингхам, Кэролайн Квентин, Том Бёрк, Саломе Гуннарсдоттир, Лорн Макдональд, Чарли Клайв, Лукас Лугрэн, Винетт РобинсонПеревод: Многоголосый любительский (ColdFilm)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09D8CA334EC8F79E3AE1DFE68510936A74709EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520551   (138709) от 30.12.2021
 
 Северный участок / Северный бастион / BAC Nord / The Stronghold (2020) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit] [DVO]
@@ -6,7 +103,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138709.jpg" />
 </div>
 
 
@@ -30,7 +127,7 @@ PowerISO 7.8 [DC 29.12.2020] RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138710.jpg" />
 </div>
 
 
@@ -54,7 +151,7 @@ magnet:?xt=urn:btih:5EE6FAB0E45B60A8B48BCF4F442A30EB8403D00F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138711.jpg" />
 </div>
 
 
@@ -80,7 +177,7 @@ magnet:?xt=urn:btih:9CD67E170998AF683B7540D66429123A33E2100B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138712.jpg" />
 </div>
 
 
@@ -104,7 +201,7 @@ magnet:?xt=urn:btih:AA9B5D1040DAA1ED0FAE7ACD3670696B95B5D30E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138713.jpg" />
 </div>
 
 
@@ -128,7 +225,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [Line, AD]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138714.jpg" />
 </div>
 
 
@@ -152,7 +249,7 @@ Windows 11 Pro 23H2 (x64) +/- Office 2021 by xCOrei2 (22.11.2023) [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138716.jpg" />
 </div>
 
 
@@ -177,7 +274,7 @@ magnet:?xt=urn:btih:68734A893005F20E4995978B32A080B6A497FBCB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138717.jpg" />
 </div>
 
 
@@ -204,7 +301,7 @@ magnet:?xt=urn:btih:7FCE6EDDCA7DC84448DE99C01323B75DE45A085E
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138719.jpg" />
 </div>
 
 
@@ -231,7 +328,7 @@ magnet:?xt=urn:btih:4794B0A832352F89A4EA624D1641783515C5E59D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138720.jpg" />
 </div>
 
 
@@ -255,7 +352,7 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138721.jpg" />
 </div>
 
 
@@ -282,7 +379,7 @@ magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138722.jpg" />
 </div>
 
 
@@ -306,7 +403,7 @@ magnet:?xt=urn:btih:D1E7F2AA07989A6C7E1ECB28A672FB31EF0A47A1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138723.jpg" />
 </div>
 
 
@@ -330,7 +427,7 @@ Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138724.jpg" />
 </div>
 
 
@@ -357,7 +454,7 @@ magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138725.jpg" />
 </div>
 
 
@@ -381,7 +478,7 @@ magnet:?xt=urn:btih:662C2139ECC3304CA65EE57F9D6264DA07572A77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138726.jpg" />
 </div>
 
 
@@ -405,7 +502,7 @@ magnet:?xt=urn:btih:2FB95F33F456A6CF99EC2AEB65D22694589441D6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138727.jpg" />
 </div>
 
 
@@ -429,7 +526,7 @@ magnet:?xt=urn:btih:91BE4A3F62F046A4B45E9B2E824C31B6637C5623
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138729.jpg" />
 </div>
 
 
@@ -453,7 +550,7 @@ magnet:?xt=urn:btih:B78D148B732916F9D1ECEBAC6B8FD3B96DDAAC51
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138730.jpg" />
 </div>
 
 
@@ -477,7 +574,7 @@ magnet:?xt=urn:btih:B03E49352D9913FD0F23F662065C86FC8D72EAA9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138732.jpg" />
 </div>
 
 
@@ -501,7 +598,7 @@ Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138733.jpg" />
 </div>
 
 
@@ -528,7 +625,7 @@ magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138734.jpg" />
 </div>
 
 
@@ -539,102 +636,6 @@ magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A83FC3A5022950351E775A4D12178748221EC1E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679252   (138735) от 24.11.2023
-
-UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы испытать удачу? Отправляйтесь в погоню за собственным наследием и оставьте свой след на карте в игре UNCHARTED: Наследие воров. Коллекция. Насладитесь захватывающими кинематографическими сюжетами и популярнейшими играми культовой серии UNCHARTED вместе с обаятельными и хитрыми ворами – всеми любимыми Натаном Дрейком и Хлоей Фрейзер.Тип издания: LicenseРазработчик: Naughty Dog LLC, Iron Galaxy StudiosЖанр: Action, AdventureЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436195   (138737) от 30.12.2020
-
-SamDrivers 20.12 LAN [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590838   (138739) от 18.12.2012
-
-Синдром дракона (12 серий из 12) (2012) 2хDVD9
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма основан на реальных фактах, связанных с обнаружением в 1993 году в небольшом украинском городе Кировограде огромной коллекции древностей, стоимостью около миллиарда долларов, принадлежавшей обычному электрику Александру Ильину, а также на материалах расследований, гипотезах и домыслах, появившихся по этому поводу за пятнадцать лет.Жанр: Детектив, психологический триллерРежиссер: Николай ХомерикиАктеры: Дмитрий Муляр, Андрей Мерзликин, Лев Борисов, Екатерина Климова, Леонид Бичевин, Кристина Асмус, Карина Андоленко, Елена Шевченко, Алексей Гуськов, Юрий Цурило, Алексей Серебряков, Карэн Бадалов, Даниил Спиваковский, Борис Каморзин, Александр Ивашкевич, Людмила Чурсина, Ольга Чурсина, Александр Семчев, Алексей Кравченко, Никита Емшанов, Артём Ткаченко, Даниил Белых, Юрий Беляев, Владимир Капустин (II), Сергей Романюк, Павел Майков, Наталья Романычева, Владимир Ямненко, Иван Иванов (V), Олеся Железняк, Александр Феклистов, Маргарита Шубина, Инна Королёва, Ольга Аросева, Владимир Зельдин, Юрий Яковлев-Суханов, Николай Пономаренко, Юрий НазаровПродолжительность: 12 х ~ 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349075   (138740) от 30.12.2019
-
-Человек-паук 2 / Spider-Man 2 (2004) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихоня Питер Паркер балансирует на грани двух своих жизней: супергероя Человека-паука и обычного студента колледжа. Его отношения со всеми, кто ему дорог, в опасности или зашли в тупик. А жизнь приготовила ему новое испытание. Он должен использовать все свои суперспособности, чтобы одолеть жестокого безумца доктора Отто Октавиуса.Производство: США / Columbia Pictures, Marvel Enterprises, Laura Ziskin ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Сэм РэймиАктеры: Тоби Магуайр, Кирстен Данст, Джеймс Франко, Альфред Молина, Розмари Харрис, Дж.К. Симмонс, Донна Мерфи, Дэниэл Гиллис, Дилан Бейкер, Билл НаннПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9864CE736676EA399FF829FE5D3EC5F3618AE9A6
 ```
 
 

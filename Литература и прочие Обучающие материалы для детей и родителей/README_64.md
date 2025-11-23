@@ -6,7 +6,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174910.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174910.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16610062002744566A623F4EF23D613A35BB0A0E
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174917.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174917.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4B57214C97971DBEEB8EA041551D16C241BA1DBB
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174965.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174965.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6CA0D4ABD1F52CB0426B1078823387DC95008942
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174987.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174987.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:34B646A45B859BE5D6564018B8846D41721DCE42
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175041.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175041.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4A72DC34E643489D34C0F02EF4A124CDBAB1321F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175050.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175050.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7C8A47B579E793FE3670594432C60FA073D0EBEF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175170.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175170.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8EDDB796ABFBFE986CB97891D637354238C662FE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175300.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175300.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4506AC65446157F4D60A4683434CDFB3CE2FF1DA
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175339.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175339.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C9EA2DB1E4B9E745775C689AB96FA2DF3A8E45A2
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175400.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175400.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:46CF8A9569504F9B01B3876D1CAE0A7586627E6E
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175436.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175436.jpg" />
 </div>
 
 
@@ -270,6 +270,30 @@ magnet:?xt=urn:btih:B5388C1D6F202DF9F9A8712737C5063F0AAC088D
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 232330   (175444) от 07.12.2020
+
+Disney | Раскраски для детей от Disney (2010) [Сборник] [JPEG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_175444.jpg" />
+</div>
+
+
+###  Подробнее
+
+900 Ч/б картинок из всеми любимых Диснеевских мультиков для раскраски. Будет интересно мальчикам и девочкам разных возрастов.Жанр: РаскраскаФормат: JPEGРазрешение файлов: разное от 253х450 до 1038х579 pix
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329190   (175504) от 07.12.2020
 
 Е. Немирова | Аппликации и поделки из бумаги для детей 5-7 лет (2010) [PDF]
@@ -278,7 +302,7 @@ magnet:?xt=urn:btih:B5388C1D6F202DF9F9A8712737C5063F0AAC088D
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175504.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175504.jpg" />
 </div>
 
 
@@ -302,7 +326,7 @@ magnet:?xt=urn:btih:033C99D4002C68D11D56DA2747473CB8B9F2C9C9
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175520.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175520.jpg" />
 </div>
 
 
@@ -327,7 +351,7 @@ magnet:?xt=urn:btih:DD4CE41CDBA680F7638828AA903FE0897E8F0732
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175523.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175523.jpg" />
 </div>
 
 
@@ -351,7 +375,7 @@ magnet:?xt=urn:btih:EE5F8031F72609F7071637387B800DD5E64A1F8D
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175537.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175537.jpg" />
 </div>
 
 
@@ -375,7 +399,7 @@ magnet:?xt=urn:btih:31FFF187945C5AA00B36A330871A8C12C79E2E13
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175551.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175551.jpg" />
 </div>
 
 
@@ -400,7 +424,7 @@ magnet:?xt=urn:btih:2B23B3D83602CDA332B6F731362557B83E6BB530
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175554.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175554.jpg" />
 </div>
 
 
@@ -424,7 +448,7 @@ magnet:?xt=urn:btih:6BF7707EAFB1C385F61B023F48BE603B1BC4D38D
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175558.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175558.jpg" />
 </div>
 
 
@@ -448,7 +472,7 @@ magnet:?xt=urn:btih:1B96794AA3C724B23DA4FEBD5E9CD5EB55E2133D
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175595.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175595.jpg" />
 </div>
 
 
@@ -473,7 +497,7 @@ magnet:?xt=urn:btih:01A74E40BB155F5F5BC05A70A4C184A7B05132EB
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175619.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175619.jpg" />
 </div>
 
 
@@ -497,7 +521,7 @@ magnet:?xt=urn:btih:F57915F9A2AB7D0A7F3499DA5542E5667607C41C
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175629.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175629.jpg" />
 </div>
 
 
@@ -521,7 +545,7 @@ magnet:?xt=urn:btih:EBA19599B3721D5AB8D0963FAAF3179074689FA2
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175685.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175685.jpg" />
 </div>
 
 
@@ -546,7 +570,7 @@ magnet:?xt=urn:btih:6A94D5011EED4D1CCC0A13F8FA38CF4AAD1FE390
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176017.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176017.jpg" />
 </div>
 
 
@@ -570,7 +594,7 @@ Belfarpost | Настольная экономическая игра. Милл�
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176115.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176115.jpg" />
 </div>
 
 
@@ -594,7 +618,7 @@ Bucilla | Схемы для вышивки крестом фирмы Bucilla (19
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176154.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176154.jpg" />
 </div>
 
 
@@ -608,30 +632,6 @@ Bucilla | Схемы для вышивки крестом фирмы Bucilla (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF8D693281AA5ECEA5125ED321805C1F3F2EB515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464237   (176176) от 06.12.2020
-
-И.А. Вербицкий | Конструирование из поролона. Детские маски (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены выкройки и способы изготовления из поролона детских карнавальных масок, с помощью которых можно оформить любой детский праздник или театральное представление в дошкольном учреждении и дома. Для широкого круга читателей.Жанр: Поделки своими рукамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0858E08D28FB9AB96CDB0560C7876BD7116720
 ```
 
 

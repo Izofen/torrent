@@ -6,7 +6,7 @@ Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68361.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68453.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68805.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69235.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69266.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69537.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69538.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69940.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70118.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70629.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70769.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70947.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71414.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71481.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Country Soft (2025) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71684.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:AE8EE4D820D554F29433EF10CAA1EA8FC0C10084
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71805.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71902.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75868.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trail
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77829.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Ce
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77954.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Roc
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78208.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:078BE8753E29CA93716E61022643134D995E9186
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79120.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81362.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81834.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81860.jpg" />
 </div>
 
 

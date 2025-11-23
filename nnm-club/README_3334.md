@@ -1,3 +1,78 @@
+###  Публикация: 1738105   (106366) от 21.07.2024
+
+4K YouTube to MP3 5.5.0.0108 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106366.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB36295C7EA48608EA4DC4E667C46F809907368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738066   (106367) от 21.07.2024
+
+U2 - Beautiful Day (2000) Remastered, 2024, 2024 Island Records Limited / UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Day (Remastered 2024) [00:04:07]
+02. Summer Rain (Remastered 2024) [00:04:08]
+03. Always (Remastered 2024) [00:03:47]
+04. Discothèque (Live From Mexico City / Remastered 2024) [00:05:09](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F2D41FF6C8EE793B270DF3B7EB23A6F3A85CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738186   (106368) от 21.07.2024
+
+Уте Эрхардт | Хорошие девочки отправляются на небеса, а плохие – куда захотят (2020) [MP3, Адель Романенкова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщинам с раннего детства внушают, что они должны быть «хорошими». Их главное предназначение в жизни – быть хорошей матерью и женой. Со всем остальным справятся мужчины. И женщины, сами того не осознавая, становятся зависимыми. Они отказываются от своих истинных желаний и устремлений в угоду интересам своих близких. Главное — быть покладистой и желанной. Эта цель (   Читать дальше...   )Жанр: саморазвитие / личностный рост, самореализация, самосовершенствованиеПеревод: Елена ФайгльИздательство: Альпина ДиджиталПродолжительность: 07:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400FB3D960BF33EF53243A52D699FAB23354A12F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738196   (106369) от 21.07.2024
 
 Селеста Инг | Всё, чего я не сказала (2021) [MP3, Надежда Винокурова]
@@ -6,7 +81,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106369.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:4B780C90132F01F58A8C963065A2C64F2AED8FB9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106370.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106371.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:50DDDE68C1938FC50B94279D77540C4E6CA59BDE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106372.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106373.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Santa Ana Winds - Final Rendezvous (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106374.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:3E0897FBFEEF3A972228B81DA90B2F3A8A1CDF37
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106375.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:0D486C64F78A50E1FC3D4EE91EA8E745DF5EF349
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106376.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ magnet:?xt=urn:btih:F686146A02732C24B77B8BE9509E3F53ADE7E00B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106377.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ magnet:?xt=urn:btih:4CDEF844269801FEFDBAE09789E34AF0B59D8011
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106378.jpg" />
 </div>
 
 
@@ -257,7 +332,7 @@ magnet:?xt=urn:btih:970A8E38423524F2339F8D7BF9302D1BFEFDB6C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106379.jpg" />
 </div>
 
 
@@ -281,7 +356,7 @@ magnet:?xt=urn:btih:11083ED2BB1EF3D9901BE73B7C5855684189E0E8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106380.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ Adobe InCopy 2024 19.5.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106381.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Ar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106382.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ Autorun Organizer 5.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106383.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ magnet:?xt=urn:btih:211B44E974086AC68E4921B686C9EBC6361861B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106384.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ magnet:?xt=urn:btih:3FD4868D3A90372C1FDDF85930C4DF50B348945A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106385.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ magnet:?xt=urn:btih:FAB4F0717FB9DD87B277ABD61DE5D990DAE73028
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106386.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106387.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ Tarja - Best of: Living the Dream: Tarja's Non-Rock Specials (2024) [FLAC 24/44.
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106388.jpg" />
 </div>
 
 
@@ -503,7 +578,7 @@ magnet:?xt=urn:btih:8CBF2BA839BA51522268DAA07EA1523223CF7616
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106389.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106390.jpg" />
 </div>
 
 
@@ -554,7 +629,7 @@ magnet:?xt=urn:btih:1418371F70FBBB21EC14EDFD4B09E3926FD3A375
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106391.jpg" />
 </div>
 
 
@@ -565,78 +640,6 @@ magnet:?xt=urn:btih:1418371F70FBBB21EC14EDFD4B09E3926FD3A375
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44ED38AC1623CFD03E0A9252083342E41F87304C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738109   (106392) от 21.07.2024
-
-DP Animation Maker 3.5.30 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AEE6DA9EABCF17ED80DCA8CCBDEE2B80F155F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738254   (106393) от 21.07.2024
-
-Александр Грибоедов | Горе от ума. Живая классика (2014) [PDF]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из бессчётного числа написанных книг классикой становятся единицы – именно потому, что проблемы, затрагиваемые в них, универсальны. И книга «Горе от ума» яркий тому пример. Любовь и ревность, честь и предательство, одиночество и непонимание, социальная несправедливость – темы, которые волнуют не только литературных героев, но и сидящих в классе учеников. Нужно лишь (   Читать дальше...   )Жанр: внеклассное чтение, детская проза, книги для детейИздательство: CLEVERФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ABB48EC4447713B8B0337807896215BB1A5A6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738282   (106394) от 21.07.2024
-
-File & Image Uploader Donated 8.4.4 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpg" />
-</div>
-
-
-###  Подробнее
-
-File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292A180A877CEA8F3817CA0810257EFB6D5FCD1F
 ```
 
 

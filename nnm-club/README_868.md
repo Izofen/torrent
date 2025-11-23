@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22905.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MakeMKV 1.17.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22906.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22906.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4AC5BCBDA3C48E39FE0F8645AC19240F264A4679
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22907.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0893035F66DCAED233FB71391C12F445BE6B286E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22908.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8E00129A507BB0B185B282791AFF3B5D1D6DAF2D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22909.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22909.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22910.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22911.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A85647E6DE12F5E8CF0A66155E79E26478A34F05
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22912.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22912.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:FF81745F2D2C74CF389748982A70ABF1B5450656
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22913.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22913.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1E7FE486F1AE348C4A25D8A00FFB34E64C55B435
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22914.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22914.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Advanced Renamer 4.11 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22915.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22915.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:66191443754981416C2D042978DA7CEC14DF9A55
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22916.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C073FB4706B410C23E5CE284ED604E3B71194E4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22917.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22917.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SweetScape 010 Editor 15.0.2 + Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22918.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22918.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F721FD4ABEA04202FA0E7919BADFCE10F5A1F56D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22919.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22919.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D65ECB94309C4630FB9D05EAF9A207D66FF77C20
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22920.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ A TAVERN FOR TEA (2023) [Ru/Multi] (2.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22921.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:730E95F132EB4BA04BCEC007FA389B3B22237A5A
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22922.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7C16B4BD2D85894BF2094DD27E57AD3A15001A84
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22923.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:D696428915823E102C39D15D225BF71CAFACAFB9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22924.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5BB7EAB2B47F67B4D431BEE56DB6F224E69F59B7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22925.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22925.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:4C955B6490AA96F3B837CB8DC14DFFA8CFF58820
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22926.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6F8AB43A4DF6CB4347E3E72FCCA7B1C01090554E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22927.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AAAC208DFF96981F91D8E572DC36704226B0BAE0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22928.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Revo Uninstaller Free 2.5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22929.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22930.jpg" />
 </div>
 
 

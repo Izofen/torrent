@@ -6,7 +6,7 @@ If Not for Me - Eulogy (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163332.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sonic Death - 4 Albums (2020-2022) [MP3|320 Kbps] <Garage Rock, Hardcore Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163337.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6691D1251B3F7D409BB4F73A264BE5D2E97A4FD4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163353.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Def Leppard - On Through the Night (1980) Japanese Edition, Reissue, Remastered,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163357.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ C.I.T.A. - Heat Of Emotion (1996) Japan [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163364.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ManDoki Soulmates - Magyar kepek (2022) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163367.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163377.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Zapoy! - 5 Albums (2015-2022) [MP3|320 Kbps] <Street Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163379.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Odd Dimension - The Last Embrace To Humanity (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163399.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Biff Byford - School Of Hard Knocks (2020) [FLAC|Lossless|image + .cue] <Hard'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163400.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sweet Hole - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163406.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Creeping Death - The Edge Of Existence (2021) [APE|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163417.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Comecon - The Worms Of God (2008) 2CD Reissued-2009 [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163422.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Biwo - Life And Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163433.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Richard Marx - Stories To Tell (2010) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163435.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Grim Comet - Winter of Hate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163443.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ritual King - Ritual King (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163447.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ STRADIE (STRΛDIE) - Кровоточие (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163451.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:1B4080C3B02C7B4F0C037116B5543F354C7FC5E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163452.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Scuzzy Yeti - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163455.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Witchcliff - 2 Albums, 2 Singles (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163457.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Catastrophic - Born Into Bondage (2012) [APE|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163464.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Extreme Cold Winter - 2 Albums (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163469.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163474.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mare Infinitum - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163477.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Boz (Bollox Of Zatan) - Fury of Pegana (2022) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163480.jpg" />
 </div>
 
 

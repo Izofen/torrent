@@ -1,3 +1,84 @@
+###  Публикация: 1759948   (103193) от 12.11.2024
+
+Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [MP3|320 Kbps] <Soul, Soulful House, Deep House>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
+02. Outstanding (Macattack Mix) [00:08:04]
+03. Best Of You (12" Mix) [00:04:54]
+04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7935B9053894CAE4CD72FCFE7E5A325198BF6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759897   (103194) от 12.11.2024
+
+Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Angello & Modern Tales - Darkness In Me
+02. Anti Up - Freaky Feed Me
+03. Magnificence & Corey James - Time Machine
+04. Marco Strous & Gabe - Snogo(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F818627ED3DB7AA65C6020F967B351EA978C77D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760106   (103195) от 12.11.2024
+
+Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betrayal
+02. The Allure Of Dariah
+03. The Last Peaceful Journey
+04. Turmoil(   Читать дальше...   )Жанр: Progressive Gothic, Doom MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A54A6EEF69C45C05736E5F7EEEBAB93B80750FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760095   (103196) от 12.11.2024
 
 Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2022, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +87,7 @@ Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103196.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103197.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:8329B01596498E310D17C866A90132FBB2FD85B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103198.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:BC91A4E1D3E423BC5EC64BA43ED24BAA3850CF5C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103199.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ Nell Bryden - I Love You So Much I’m Blind (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103200.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ As I May - Dark Royal Revy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103201.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103202.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ The Tragically Hip - Up To Here (1989) Deluxe Edition, Remastered, 2024, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103203.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103204.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Timothy Drury - Timothy Drury (1996) [FLAC|Lossless|image + .cue] <West Coast, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103205.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ Captain Black Beard - Sonic Forces (2020) Reissue, Remastered, 2024, Pride & Joy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103206.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ magnet:?xt=urn:btih:8578BEA0AB917149DD7EF1219A854DCEC9283DAE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103207.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103208.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ magnet:?xt=urn:btih:9F46F63C7164B8EFB3AB6DDD291D1E2C57D38E83
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103209.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ Impellitteri - War Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103210.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ Wormed - Omegon (2024) [FLAC|Lossless|image + .cue] <Death Metal, Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103211.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ magnet:?xt=urn:btih:FC932B47E50682654C7C85463E73E710DCF04043
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103212.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ Darwin (Влад Дарвин) - Путь открыт (2010) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103213.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103214.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ Skinny Hightower - THE MAN (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103215.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ Dane Donohue - L.A. Rainbow (2024) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103216.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ Pinnacle Point - Symphony Of Mind (2020) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103217.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103218.jpg" />
 </div>
 
 
@@ -606,85 +687,6 @@ Seventh Crystal - Entity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB119264391EF0F8DAC2D5D65EB4DA2D0E1ABFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759802   (103219) от 10.11.2024
-
-НХЛ 2023-2024. Вашингтон Кэпиталз - Сент-Луис Блюз (09.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103219.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 ноября 2024, воскресенье. 03:00 МСК. Стадион: Энтерпрайз-центр (Сент-Луис, США), 18 096 зрителей (91% при вместимости 19 808)
-Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Джордан Самуэль-Томас (Вест Хартфорд, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B66E9EEB8B0E0577D651751512EE5F7AE13E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759735   (103220) от 10.11.2024
-
-The Waterboys - Dream Harder (1993) Directors Cut, 2024, Geffen [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss The Wind [00:02:28]
-02. The New Life [00:06:41]
-03. Glastonbury Song [00:03:44]
-04. Preparing To Fly [00:04:33](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821D6F5307203FEE6C4FFB70D81B66F303947AED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759740   (103221) от 10.11.2024
-
-Nationwide - Echoes (2024) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fade Away (5:18)
-02. Dreams (4:53)
-03. Can’t Get Over You (4:19)
-04. Without You (5:25)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E473E97B7DAB1E27687FEC853240FBCE0151F13
 ```
 
 

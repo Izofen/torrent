@@ -6,7 +6,7 @@ Flowers Wallpapers
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100389.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0AB6994B530052EE99BC062C9F7BF82543A65161
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100390.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Хиты на радио клубнячек и попса vol.9 (2012) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100393.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:164EF86350B7353E79BFCACCDE25D3EFAC16CC1A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100395.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mozilla Thunderbird 10.0.4 Final (Extended Support Release) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100399.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100399.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100403.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dropbox 1.3.41 Special Monday build [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100407.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100407.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Dropbox — облачное хранилище данных, принадлеж
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100413.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:E0259566EAC8D208D3FCEA15641E69C299912374
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100414.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Mixed Wallpapers 0.10
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100415.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:840E02D8C7D88F48EEA4FA7C2ABA1AAA44817D08
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100416.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E06F847AEBDDB97CDC95A5E358340BCF2D039DE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100420.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Genuine Registry Doctor 2.5.4.2 + Portable [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100422.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100422.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Genuine Registry Doctor - многофункциональная програм�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100424.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Snoop Dogg - Stoner’s EP (2012) [AAC|~260 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100425.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Texture pack 1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100427.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Waylon Jennings - 5 Original Album Classics (2008) [MP3|320 кб/с]<Country>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100431.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Case One (1999) [MP3|256 кб/с]<Intelligent, Artcore, Jungle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100440.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100441.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:83668095240496819AEC985AE81B24FD47EDCAB7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100447.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Motorcitysoul - Technique (2008) [MP3|320 кб/с]<Deep House, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100448.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100449.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100452.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100453.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100455.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100456.jpg" />
 </div>
 
 

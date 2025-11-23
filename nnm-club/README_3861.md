@@ -1,3 +1,78 @@
+###  Публикация: 1695771   (120068) от 30.01.2024
+
+Прерванный путь / Broken Ways (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я бы назвал фильм романтическим вестерном. Молоденькая наивная девушка выходит замуж за понравившегося ей бравого и смазливого ковбоя. И не знает, дурочка, что он никакой не ковбой, а  элементарный бандюган, хамло и абьюзер. Вот что теперь ей делать?Производство: США, Biograph CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Генри Б. Уолтхолл, Бланш Свит, Гарри Кэри, Чарльз Горман, Фрэнк Опперман, Джозеф МакДермотт, Гертруда Бембрик, Уильям А. Кэрролл, Эдвард Диллон, Дороти ГишПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3090E04D14EDAEC239CFCE1AA4B5031A432BDEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695724   (120069) от 30.01.2024
+
+Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue: Under The Pyramids
+02. Egyptron
+03. Living Dead In Beverly Hills
+04. Rusted Gold(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A86ADBA40C50440FD38520564A2E24507CAB137
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695661   (120070) от 30.01.2024
+
+Stats 2.9.22 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451C66BF9FF56B32539B181867B27D07615F936A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695646   (120071) от 30.01.2024
 
 Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +81,7 @@ Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120071.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120072.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120073.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ MWeb Pro 4.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120074.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ Imagress - Sentient (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120075.jpg" />
 </div>
 
 
@@ -137,7 +212,7 @@ Iris 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120076.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120077.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120078.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120079.jpg" />
 </div>
 
 
@@ -239,7 +314,7 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120080.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ File List Export for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120081.jpg" />
 </div>
 
 
@@ -290,7 +365,7 @@ magnet:?xt=urn:btih:FE6D39B085AB98CB09FF79887D058AD637DD1753
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120082.jpg" />
 </div>
 
 
@@ -317,7 +392,7 @@ ForkLift 4 v.4.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120083.jpg" />
 </div>
 
 
@@ -341,7 +416,7 @@ magnet:?xt=urn:btih:A30483DD2DCA49470014DF6091BE105F4C0966DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120084.jpg" />
 </div>
 
 
@@ -366,7 +441,7 @@ magnet:?xt=urn:btih:EF71B1387A6E742915ECCDAAD0E83AF0DCA7F780
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120085.jpg" />
 </div>
 
 
@@ -390,7 +465,7 @@ AudFree Spotify Music Converter for Mac 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120086.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ Folder Hub for Mac 1.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120087.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Sante DICOM Editor 10.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120088.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ magnet:?xt=urn:btih:C98B428723F6214CF59C42131895376A8330FDE2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120089.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120090.jpg" />
 </div>
 
 
@@ -511,7 +586,7 @@ magnet:?xt=urn:btih:274E9DE13228337AABFA60098A7CBF1850DC6326
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120091.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120092.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120093.jpg" />
 </div>
 
 
@@ -574,83 +649,6 @@ magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30127F3D837324DE0A279EA7804E531CD465EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695722   (120094) от 30.01.2024
-
-Карел Чапек | Рассказы из карманов (2008) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-В аудиокнигу «Рассказы из карманов» вошли аудиоверсии избранных произведений из сборников «Рассказы из одного кармана» и «Рассказы из другого кармана» самого известного чешского писателя, автора слова «робот», философа и защитника демократии Карела Чапека. «Рассказы из одного кармана» впервые были опубликованы в Праге в 1929 году.
-Карел (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 03:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F31A52BB9FF2EE8D062B9421A93B0B3204D352A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695647   (120095) от 30.01.2024
-
-C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kesuari (4:33)
-02. Once More Around the Moon (4:07)
-03. Take Wing, My Soul (3:39)
-04. Flightingale (4:00)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA123ED8CD5D2C18E3E36793E00376E56112245B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695664   (120096) от 30.01.2024
-
-AltTab for Mac 6.65.0 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C659B3A494897B1264717F5F3F4B53AE4B8B5B27
 ```
 
 

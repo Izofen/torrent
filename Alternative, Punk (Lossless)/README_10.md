@@ -6,7 +6,7 @@ Elle King - Love Stuff + The Elle King EP (2016)  [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162656.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163059.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cancer Bats - You'll Never Break Us (2020) Separation Sessions, Vol. 1 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Seether - Disclaimer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163245.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ If Not for Me - Eulogy (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163332.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ataraxia - Sous Le Blanc Rosier (2007) 2CD [FLAC|Lossless|image + .cue] <Gothic,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163495.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164485.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165121.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Divine Horsemen - Bitter End Of A Sweet Night (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165406.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166232.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166365.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sunsleep - Moonlight Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167208.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Deftones - White Pony (2000) 20th Anniversary Deluxe Edition, 2020, Reprise Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167581.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sellouts - Sellouts (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167709.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Leander Kills - Verkeringo (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mode
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167718.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Heroin and Your Veins - Collection 5 Releases (2007-2012) [FLAC|Lossless|Web-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167790.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168140.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168212.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Liedfett - Hi! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Deutschrock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168251.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Mayflower - Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168437.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Flash Forward - Endings = Beginnings (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169235.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Muse - Ghosts (How Can I Move On) [feat. Mylene Farmer] (2022) Single [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169583.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A89C7A85FACF5C7D5DFD1419D1E7F5A1BFEE4986
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169652.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Fathom - The Lurking Gloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169883.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Majula - The Blace Tapes, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169902.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Lionheart - Welcome to the West Coast III (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169958.jpg" />
 </div>
 
 

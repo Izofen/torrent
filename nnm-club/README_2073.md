@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AA947D33DC8FC00AB40A0CE9F990BCCD3F8B005F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54264.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CB335FEE2C54A6A1BE9E0661E8CD4AD62C603195
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54265.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ The Gino Marinello Orchestra - Compilation (2024) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54266.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Electronic compilation part 84 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54267.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:18F6E1BE6202C8B6837241E6F74F22C58B412ED3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54268.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54269.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:0AB7BCC1261C81F530425BFDB2BD109CA799B647
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54270.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:521147D536BA5876C94D79A33710C7E1162C2A18
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54271.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:86EC396C1C684174A986DCA3F46ADFBEDD95DFD7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54272.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Bakhtin - This is Bakhtin (2024) [MP3|320 Kbps] <Pop, Rap, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54273.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:88F7FF3BD18FB921CB0503806B88D2D9C2225B07
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54274.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Slimjet 43.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54275.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Comodo Dragon 124.0.6367.207 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54276.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:81281905DA3AF2FA9A620757ED7D75F648161FCA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54277.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:680A179078C82E9DD7E48349F09DDEB1F7CB71B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54278.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ W10Privacy 5.1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54279.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ O&O ShutUp10 1.9.1438 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54280.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:74968F6F448915A29B82BECA239FD5F05A0214DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54281.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:74968F6F448915A29B82BECA239FD5F05A0214DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54282.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54283.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ SoundSwitch 6.11.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54284.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:23AA7582B70EE6B5441456F6A431A9EAAE7C0143
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54285.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54286.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ TreeSize Professional 9.1.5.1885 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54287.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:FBD1BF88BD186161CF38BBD39333DB75E26BDD93
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54288.jpg" />
 </div>
 
 

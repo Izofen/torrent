@@ -6,7 +6,7 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106144.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113516.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113518.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114276.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Gentoo Linux 2024-02-18 [i386/amd64] 1xCD, 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116415.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ elementary OS 7.1 Horus [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116798.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасност
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117299.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FreeBSD 14.0 [i386, amd64] 4xCD 2xDVD 4xUSB FlashDrive
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117466.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117906.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Runtu Lite 22.04 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119546.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121623.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ KingStation 0.3a [x86-64] (AppImage)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122581.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122838.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Linux XP SMB Desktop build 503 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124605.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125655.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126321.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ CLion 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126675.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WebStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126705.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126812.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126986.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ubuntu ServerPack 20.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128013.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Ubuntu ServerPack 18.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128015.jpg" />
 </div>
 
 

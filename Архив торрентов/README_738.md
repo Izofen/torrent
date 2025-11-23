@@ -1,3 +1,75 @@
+###  Публикация: 1085977   (153780) от 23.12.2016
+
+Тролли / Trolls (2016) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь в увлекательное приключение, которое заведет ее далеко от привычного ей мира, Розочка объединяет усилия с самым мрачным троллем на свете по имени Цветан для достижения успеха в своей смелой миссии спасти ее друзей из тисков зловещих бергенов и их лидера, короля Хрящ Старший. Невероятные приключения Розочки проверят ее силу, покажут ее истинную суть и (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Майк МитчеллАктеры: Анна Кендрик, Зои Дешанель, Джастин Тимберлэйк, Кристин Барански, Джеффри Тэмбор, Кристофер Минц-Плассе, Джеймс Корден, Кунал Нэйэр, Гвен Стефани, Расселл БрэндПеревод: Дублированный (iTunes)Продолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE30683ED957827F5DA203223798EE4F47B31FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676899   (153787) от 15.11.2023
+
+Blackmagic Design DaVinci Resolve Studio 18.6.3 Build 19 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153787.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A5D8ECB610496257A4CDA2865F18A9409BD780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433773   (153791) от 22.12.2020
+
+V-ray 5.00.42 for Cinema 4D R20-R23 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153791.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray для Cinema 4D предоставляет стандарт в отрасли технологии фотореалистичного 3D-рендеринга в руках художников и дизайнеров Cinema 4D. Благодаря интеллектуальным инструментам и мощным возможностям рендеринга сочетание скорости и творческого контроля V-Ray идеально подходит для любого проекта. Единственный на сегодняшний день визуализатор способный рендерить GPU (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D21E9DD4E295CFFA65915547902343B903A4E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676867   (153794) от 15.11.2023
 
 EZ CD Audio Converter 11.3.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +78,7 @@ EZ CD Audio Converter 11.3.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153794.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ RadioBOSS Advanced 6.1.0.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153811.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Vidmore Video Converter 2.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153813.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ GIMP 2.10.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153818.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:95B02FD705B22BF071D067F9EB053E1D525B063A
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153827.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Opera 65.0.3467.78 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153832.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Internet Download Manager 6.32 Build 3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153837.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Athentech Perfectly Clear Complete 3.9.0.1711 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153838.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Movavi Picverse 1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153841.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:D1C561BA9F5A0B14BCA839C13A4471378A4B073A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153852.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Ashampoo Burning Studio 18.0.1.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153854.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Perfectly Clear WorkBench 4.2.0.2382 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153858.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Adobe Audition 24.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153862.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Smart Driver Manager Pro 7.1.1105 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153869.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Office Tool Plus 10.4.2.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153876.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Plexim Plecs 4.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153881.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ Maxthon Cloud Browser 5.0.2.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153887.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153888.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ The Bat! Professional 7.4.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153894.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ MiniTube 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153899.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ O&O DiskImage Professional 15.1 Build 162 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153903.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:007ABCF055FB6E16115A68BCFF3F329E36A9379B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153906.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ Display Driver Uninstaller 18.0.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153907.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8AAA171B89B01E2DB13AD3FFAFD858C40F1AEAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270720   (153909) от 21.12.2018
-
-MusicLab - RealStrat 5.0.0.7420 STANDALONE, VSTi, VSTi3, AAX (x86/x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153909.jpg" />
-</div>
-
-
-###  Подробнее
-
-MusicLab - RealStrat - виртуальный инструмент с инновационным подходом к моделированию звука гитары и методов эмуляции гитары на стандартной и на MIDI клавиатуре. RealStrat обеспечивает невероятное звучание, основанное на уникальных способах исполнения и простой в использовании раскладки клавиатуры, а также передовые ключ / педаль / переключатель скоростей системы, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD420408277ACF26B7B51B472E67EE03C9A6907A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085983   (153911) от 23.12.2016
-
-Все тайное становится явным / When the Bough Breaks (2016) HDRip [H.264] [MP4|1024x428]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суррогатная мать для семейной пары становится помешанной на будущем отце ребенка.Производство: США / Screen Gems, Unique FeaturesЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Джон КассарАктеры: Моррис Честнат, Реджина Холл, Романи Малко, Майкл Кеннет Уильямс, Гленн Моршауэр, Тео Росси, Жасмин Сабино, Гиги Эрнета, Том Ноуики, Денис ГоссеттПеревод: Многоголосый закадровый  - (BD EUR)Язык субтитров: АнглийскийПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B8203D5E4DF54FB7427B1A248E7D4D88C35F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676864   (153919) от 15.11.2023
-
-PotPlayer 231113 (1.7.22038) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D4C3CE848D51826D007D9F61D8FF96B3736BFB
 ```
 
 

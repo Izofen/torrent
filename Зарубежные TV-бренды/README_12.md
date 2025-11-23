@@ -6,7 +6,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142716.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4285B2B48A0D8B833382EB5014CE345AD55B1BA
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142982.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143841.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144016.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5F448273AB2E461219C6DA575649302E97306635
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144420.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144647.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144999.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145116.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145365.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145663.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:0C4CA1FB12068B69565C38BA7020024AC2320D0E
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146290.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146383.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:15FE6073D527467A6EEEEB1137A6D86CA9DEEC15
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146679.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146886.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146899.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:9AA9391324F1E352B4EEF2B98AC2B5667EE0DAEF
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146947.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147015.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:480ACCC6CC3C6CB4A26BDC4D48544B6A32FC9B04
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148358.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148541.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Nat Geo Wild: По следам мифических чудовищ: Кошма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148546.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NG. Королевство белых медведей / Kingdom of the Polar Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148974.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149113.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ NG. Затерянная гробница царя Ирода / Herod's Lost Tom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149334.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Animal Planet: Спасение слонов с Яо Мином / Saving Africa'
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149785.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B665085018134F84EDDF5D8641C4915719B8AB50
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149790.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Чикаго времен Аль Капоне / Al Capone's Chicago (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150118.jpg" />
 </div>
 
 

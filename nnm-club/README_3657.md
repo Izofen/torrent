@@ -1,3 +1,78 @@
+###  Публикация: 1703968   (114764) от 02.03.2024
+
+Blizzard Entertainment | Артбук по игре Diablo 4 / The Art of Diablo IV Collector's Edition (2023) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Diablo IV".
+Коллекционное издание, входит в набор "Diablo IV Limited Collector's Box".
+
+Серия артбуков по играм Diablo: Артбук DiabloЖанр: АртбукЯзык: АнглийскийИздательство: Blizzard EntertainmentФормат: CBZКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587DDEE932BF8FE002E18FDDBD0659CA718DB37F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703910   (114765) от 02.03.2024
+
+Мегамозг против Синдиката Судьбы / Megamind vs. The Doom Syndicate (2024) WEB-DL [H.264/1080p] [EN / EN, ESP Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая команда злодеев Мегамозга, Синдикат Судьбы, вернулась. Наш недавно коронованный синий герой теперь должен продолжать выглядеть злым, пока не соберет своих друзей, чтобы помешать своим бывшим злым товарищам по команде запустить Метро-Сити на Луну.Производство: США / DreamWorks Animation Television, DreamWorks AnimationЖанр: мультфильм, фантастика, боевик, комедия, криминал, приключения, семейныйРежиссер: Эрик ФогельПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, испанскиеПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA2D7E43AAAB668D915F585319772E1BBD47154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703869   (114766) от 02.03.2024
+
+Потерянный в ночи / Perdidos en la Noche / Lost in the Night (2023) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Житель шахтерского городка Эмилиано ищет виновных в исчезновении его матери-активистки, которая отстаивала местные рабочие места у международной горнодобывающей компании. Однажды он находит улику, которая приводит его к богатой семье Алдама. Эмилиано устраивается на работу в дом Алдама, чтобы раскрыть их секреты.Производство: Мексика, Германия, Нидерланды / Cárcava Cine, Match Factory Productions, Pimienta Film, Snowglobe Films, Tres TunasЖанр: триллер, драмаРежиссер: Амат ЭскалантеАктеры: Juan Daniel García Treviño, Эстер Экспозито, Барбара Мори, Джеронимо Медина, Вики Араико, José Antonio Becerril, Soraya Carrillo, Bianca Gonzalez, Майра Эрмосильо, Mariana Díaz LeonПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, испанскийСубтитры: испанскиеПродолжительность: 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FF714086A1A923EE0F6C1931856E969AFDE516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297363   (114767) от 02.03.2024
 
 Игра престолов / Game of Thrones (2019) WEB-DL [H.264/1080p] (сезон 8, серии 1-6 из 6) Кравец
@@ -6,7 +81,7 @@
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114767.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:262BC242F895AB859AAFBF3E0184D939949D0306
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114768.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:A0D745FB39A2DDD26DD393E9EFF1C21F61604674
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114769.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:2549D9C5C77303D99F9BE9ED8B548935A1F5A393
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114770.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:150B4747328EDAFC6D322F6241470F593E9FDE61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114771.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:AC0FFC1A7B74F67F205DAC12D540DAF635BAAA84
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114772.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ Homeseek (2023) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114773.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:83E7563ACCBE06F2D9CC3BF61EDFBBDE63A21CA2
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114774.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:274ABC80818F4C71F298DF43D0B979B4E606373D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114775.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ magnet:?xt=urn:btih:BDFA3A7B578008AE4BDF03CE282A8A8E65BEB3EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114776.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:BDFA3A7B578008AE4BDF03CE282A8A8E65BEB3EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114777.jpg" />
 </div>
 
 
@@ -271,7 +346,7 @@ magnet:?xt=urn:btih:902B205FEE51BBBFEDFE5EB187B080B420E2EF78
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114778.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ magnet:?xt=urn:btih:668C7001709C4732702D457A2FDBD21AA4039E36
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114779.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ KMS Tools Portable by Ratiborus 01.03.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114780.jpg" />
 </div>
 
 
@@ -343,7 +418,7 @@ magnet:?xt=urn:btih:410FC843D2DC64EE27730E7C223F58AF8DFEA8BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114781.jpg" />
 </div>
 
 
@@ -367,7 +442,7 @@ CG Cookie, Kent Trammell | Creating a Stylized 3D Forest Environment with Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114782.jpg" />
 </div>
 
 
@@ -391,7 +466,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114783.jpg" />
 </div>
 
 
@@ -415,7 +490,7 @@ magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114784.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ magnet:?xt=urn:btih:6DD2E6208D33F5AB6077BD096C8D7703240CE2F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114785.jpg" />
 </div>
 
 
@@ -463,7 +538,7 @@ ProShot v8.24.0 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114786.jpg" />
 </div>
 
 
@@ -487,7 +562,7 @@ Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114787.jpg" />
 </div>
 
 
@@ -514,7 +589,7 @@ magnet:?xt=urn:btih:0C663069DD7D34BADC914A5CC4F42B091E4AE2A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114788.jpg" />
 </div>
 
 
@@ -539,7 +614,7 @@ Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114789.jpg" />
 </div>
 
 
@@ -553,87 +628,6 @@ Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D98B8F4801334AD5A508EE51475A34B6EB2F804
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703650   (114790) от 01.03.2024
-
-Лица - Коллабы (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114790.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лица - Подкаст 1
-2. Лица/Кукрыниксы - По тротуарам
-3. Лица - Подкаст 2
-4. Лица/Денис Клементьев - Сантанакокс(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311378A1E4C664178C2C663ED0BE7936E269828E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703666   (114791) от 01.03.2024
-
-Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blue Moon (Larsson–Hjalmarsson)
-02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
-03. Dance, Dance (Larsson–Hjalmarsson)
-04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703790   (114792) от 01.03.2024
-
-Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100,000 Voices [00:04:44]
-02. She Put Sunshine [00:03:30]
-03. Little Blue [00:04:25]
-04. WELLLL [00:02:38](   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8254C200CAAA233BADC4E8D4F90A192C4A068A71
 ```
 
 

@@ -6,7 +6,7 @@ VA - Clubничка DFM 50x50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97575.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:B5E5AF7E60E1B517969210229BA5948F52CF95CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97577.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ VA - 15 Top Trance Hits 03 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97578.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Astronaut Ape - The Mirror (2012) [MP3|320 кб/с]<Ambient, Downtempo, PsyChill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97580.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F522685858D38F78BF5DD375E397FB58DE80FA97
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97581.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:3E3C698DF1855FF6A487C318E5493FD4A4430302
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97582.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E0AA15800720AFC5A731569CF00F3FE2ED99D4FD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97583.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:B75E855EF6A44E4CE14B033BA80F20BB83E3C10B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97584.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Trance Symphony Volume 8 (23.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97586.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:4C89B4AE54254CF37C6FA44106BBE70B037F2E13
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97591.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - XXXL Супер Танцевальный 50\50 Весна (2012) [MP3|256 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97594.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:68F56C38DEA52AA543BD72D97F227FE89B81E626
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97598.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:3A904B7C5DCA3BD8363D4630E17E9E4437882B7C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97600.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A492DD088E8DC54D05E7A624CB0EA08563E817AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97605.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kammerer - Enter The Cheesedragon (2012) [MP3|320 кб/с]<Lounge, Nu Jazz, Trip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97606.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:254DB41750285A4B3CB450C9F89D12C58DFDC03B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97607.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:009F90EFA49A689249997DB8DC6EA28440EAD6A8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97612.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AIDA64 Extreme Edition 2.20.1856 Beta Portable by BALISTA [Мульти, Рус�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97618.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kaspersky Offline Update 12.0.0.374 (h) [Русский] / (12.0.0.374 h)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97624.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97624.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kaspersky Offline Update 12.0.0.374 (h) [Русский] / (12.0.0.374 h)
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97625.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:36919D1530BAEF2B2B64418BA636F05E97BBFDCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97629.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:812FA47CAE82C84C5F8CE98778E95163D20CA8AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97634.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Science Of Dance (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97635.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:9105B893EA333AA238C10A78E9A06296A6F9FFEA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97638.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ magnet:?xt=urn:btih:4E7198630885A3EB8ADAFA54BA6F96AF1CE69E2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97644.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ magnet:?xt=urn:btih:D5145959628A5F88B3954F935094306B3241EC70
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97653.jpg" />
 </div>
 
 

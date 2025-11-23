@@ -6,7 +6,7 @@
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12098.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:08B18BD2AC4C8E95896C3902DDC150851A60062D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12099.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8ACDE8EF1DF8A101C7097DA0C95868E0FA8CFCB3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12100.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:227E43E43FD34D7655835C376D5E944161F4C3A0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12101.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:51F1F0C20C1E4649A47E5B9B9E4C38AB3E9EADDE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12102.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12103.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12104.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12105.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Karing 1.2.0.810 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12106.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12107.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:19EE71BD822670085E18AE2142551D722AE78BC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12108.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.70.7500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12109.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:0D0191DA913C863B18C04A6CE2401D0EFDCD9C86
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12110.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12111.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12112.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12113.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12114.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12115.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12116.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8F735A0990950801F83B5F4096FC73ECAE85D5E1
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12117.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12118.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dance Gavin Dance - Pantheon (2025) [MP3|320 Kbps] <Post-Hardcore, Progressive, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12119.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Das Ich - Staub (1994) Vinyl Edition, Remastered, 2024, Danse Macabre Records[MP
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12120.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:FEC4C279DA26275ED0846F77650A1C06F6D32015
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12121.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12122.jpg" />
 </div>
 
 

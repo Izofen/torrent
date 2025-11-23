@@ -6,7 +6,7 @@
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51549.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1.5) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51550.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51551.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51552.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51553.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51554.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Backpack Hero (2023) [Ru/Multi] (7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51555.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:03E8F272571614DC2DF14B97E8BD6AF9D540628B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51556.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A3E5A434A52F10FDD9864EFCBC1CC1711FE154C2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51557.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51558.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51559.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B6158C7C9B56B8AE60D60AEFF4EDF5F19BAE1749
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51560.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Curious Expedition 2 (2021) [Ru/Multi] (1844/dlc) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51561.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:CA175BFBC8920F75C3F3DCD129B56D7C455F9EFC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51562.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:0EC3CC17FA51F9714AA83283C3E8543E924CD271
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51563.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:8D7BE4CB8EAC3FECED8B4DDDA7FF1D86E5A65623
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51564.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:80769E3C4960EEF6E132AD8ECF2AA82D10FDC62B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51565.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Windows 11 23H2 (x64) 24in1 +/- Office 2021 by Eagle123 (06.2024) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51566.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EE903C691F645981DF0BACA2A52DFECCE5047351
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51567.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3A1404F362C3CA107BB3014A7579C206432826C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51568.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu / Mushoku Tensei II: Jobless Reincar
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51569.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A648657DA78943565B18E7E1F4577AAF0584DCF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51570.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:3F7408620B7EABA54F5C2A58CEDB4D4CD956E05D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51571.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6B111BB73AB8A96F4D7A17AB27F0C221B46094DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51572.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Adobe Photoshop 2024 25.9.1.626 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51573.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Generation Zero (2019) [Ru/Multi] (2780013/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51574.jpg" />
 </div>
 
 

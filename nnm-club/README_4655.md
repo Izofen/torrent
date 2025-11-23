@@ -1,3 +1,153 @@
+###  Публикация: 1195255   (144272) от 28.12.2017
+
+Mozilla Thunderbird 52.5.2 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FE659398EB3664FFE63BB2B1F823D2B0EDB6B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520060   (144273) от 26.12.2021
+
+Фантазии для взрослых / Fantasies / Les fantasmes (2021) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144273.jpg" />
+</div>
+
+
+###  Подробнее
+
+За закрытыми дверьми спален всегда найдется место для смешных, неловких, уморительных или просто забавных ситуаций. Шесть разных пар в погоне за острыми ощущениями устроят настоящую буффонаду — кому удастся укрепить отношения, а кто обречен на френдзону?Производство: Франция / France 2 Cinema, Gaumont, Mandarin FilmsЖанр: КомедияРежиссер: Давид Фонкинос, Стефан ФонкиносАктеры: Карин Вьяр, Кароль Буке, Моника Беллуччи, Дени Подалидес, Сюзанн Клеман, Матис Барбедетт, Полин Клеман, Гаэль Камилинди, Жереми Липман, Эмерик КомеруаПеревод: Любительский многоголосый (Muzoboz)Язык озвучки: Русский, французскийСубтитры: французские (SDH)Продолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6001FCCC52A04A808401D0F234A4865AD6E6AFBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087218   (144274) от 28.12.2016
+
+Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation / Intro Running (02:38)
+02. Execution Onwards (02:39)
+03. Abstergo Rooftop (04:18)
+04. The Animus Room (04:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5E464AEE40425F0E61F7A202BC0D8A525C75A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969851   (144276) от 28.12.2015
+
+Дрожь земли 5: Кровное родство / Tremors 5: Bloodlines (2015) HDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигантские черви-людоеды, известные как Грабоиды, терроризируют жителей Южной Африки. И самое страшное — это то, что Грабоиды со временем превратились в еще более опасных тварей…Производство: США, Universal 1440 EntertainmentЖанр: Ужасы, Фантастика, БоевикРежиссер: Дон Майкл ПолАктеры: Майкл Гросс, Джейми Кеннеди, Эрнест Ндлову, Лоуренс Джофф, Зак Хендрикз, Натали Бекер, Эммануэль Кастис, Брэндон Оре, Дэниэл Дженкс, Джаррод ПинтоПеревод: Дублированный (iTunes)Продолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A57F118FA0205B8C6ADAAFB7087D66E5D5A6135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739773   (144277) от 29.12.2013
+
+Т. Фарафонтова | Крепостная бабушка (1926) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расскажу я вам, как в каторжных работах цепях я была. Не по наслышкам али по книгам узнала я это, а все перенесла в жизни своей с малых лет....Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7C0470EDD777A9830DFC09852358E2837EFED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272410   (144278) от 27.12.2018
+
+VA - Project Logical: Progressive House (2018) [MP3|320 Kbps] <Progressive, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144278.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ian O'shea - Star Vision
+002. Dj Nevel - It's Never Over (Original Mix)
+003. Alex Greenhouse - Moonlight
+004. Bombastics - Mumbaya (Merlin Milles Remix)(   Читать дальше...   )Жанр: Progressive, Dance, HouseПродолжительность: 10:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B30279ED2D8D764A78C0B09A6C3BC0A69D155D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520017   (144279) от 26.12.2021
 
 Бессмертные войны: перерождение / The Immortal Wars: Rebirth (2020) WEBRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +156,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144279.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:F0B1F1A34CB61D29FE366CB10E7101CBECE6972E
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144280.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ magnet:?xt=urn:btih:DA0F9F0C253D3973C8DC754C0B40970F1AE85064
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144281.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ Vermillion Watch 5: London Howling (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144282.jpg" />
 </div>
 
 
@@ -102,7 +252,7 @@ Billie Holiday - The Essential Brunswick Recordings (1935 - 1939) 3CD, 2014, Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144283.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ Passengers - Casino: The Classic Collection (1994) Compilation [APE|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144285.jpg" />
 </div>
 
 
@@ -156,7 +306,7 @@ Topaz Video Enhance AI 2.6.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144286.jpg" />
 </div>
 
 
@@ -180,7 +330,7 @@ magnet:?xt=urn:btih:AE03638698080F5BF02FB8E0A5DE334A93EE0DE1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144287.jpg" />
 </div>
 
 
@@ -204,7 +354,7 @@ magnet:?xt=urn:btih:16AFA181C090E1C692B60C9CB25F9F7B35E107B7
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144288.jpg" />
 </div>
 
 
@@ -228,7 +378,7 @@ magnet:?xt=urn:btih:1082761FA2FA2E3200A341E37E73CA37F5BB484F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144289.jpg" />
 </div>
 
 
@@ -252,7 +402,7 @@ magnet:?xt=urn:btih:5D1FC1436E546FBE63323B10404D7A8D2F494526
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144290.jpg" />
 </div>
 
 
@@ -276,7 +426,7 @@ magnet:?xt=urn:btih:826D3497C95298E42B51D91D64669B95BB21B014
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144291.jpg" />
 </div>
 
 
@@ -302,7 +452,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144293.jpg" />
 </div>
 
 
@@ -329,7 +479,7 @@ magnet:?xt=urn:btih:2B1241D1AB214C60750640F5E555C21D3A1D4ADA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144294.jpg" />
 </div>
 
 
@@ -353,7 +503,7 @@ magnet:?xt=urn:btih:FDB28A1B8D4232AAC6D92AF3185DFB2B833E6CBF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144295.jpg" />
 </div>
 
 
@@ -377,7 +527,7 @@ magnet:?xt=urn:btih:3FDA4E07F510B92B545DC1410E0598A6B2FDA5BF
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144296.jpg" />
 </div>
 
 
@@ -403,7 +553,7 @@ Group | Stand Up Сезон 8 (2018) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144298.jpg" />
 </div>
 
 
@@ -427,7 +577,7 @@ PROMT for Microsoft Office 11 Build 9.0.556 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144299.jpg" />
 </div>
 
 
@@ -451,7 +601,7 @@ magnet:?xt=urn:btih:DFFE5FA4109D2A6FF8BB2F08BB9CB319B1DC00A3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144300.jpg" />
 </div>
 
 
@@ -475,7 +625,7 @@ magnet:?xt=urn:btih:A7FE9CCDA82DAD6C2D2FE8AF45701C0C1D9BF7FA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144301.jpg" />
 </div>
 
 
@@ -486,154 +636,6 @@ magnet:?xt=urn:btih:A7FE9CCDA82DAD6C2D2FE8AF45701C0C1D9BF7FA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0258D8FAEF0FDDA9674981CBB6BFDF8A586E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348048   (144302) от 27.12.2019
-
-Дитя робота / I Am Mother (2019) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144302.jpg" />
-</div>
-
-
-###  Подробнее
-
-После глобального катаклизма человечество вымирает. В подземном бункере автоматически активизируется аварийная программа, и робот-гуманоид «Мать» выращивает из эмбриона человеческого ребенка. Девушка, воспитанная под бережным присмотром «Матери», никогда не видела ни поверхности Земли, ни других людей. Но однажды ее мир переворачивается, когда на пороге убежища появляется (   Читать дальше...   )Производство: Австралия / The Penguin Empire, Southern Light Films, Rhea Films (II)Жанр: Ужасы, фантастика, триллер, драмаРежиссер: Грант СпьюторАктеры: Роуз Бирн, Хилари Суэнк, Клара Ругор, Люк Хокер, Тейлия Стурзэйкер, Джейкоб Нолан, Хэйзел Сэндери, Саммер Лентон, Мэдди ЛентонПеревод: ДублированныйСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D94B85573F052D94AA73E2A835073CD181E7DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589820   (144303) от 16.12.2012
-
-Универсальный солдат 4 / Universal Soldier: Day of Reckoning (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее время. Программа «Unisol» по-прежнему актуальна и снова введена в эксплуатацию. Давним и непримиримым врагам времён Вьетнамской войны Эндрю Скотту и Люку Деверо суждено встретиться в очередной раз, дабы продолжить своё извечное противостояние и нескончаемую борьбу. Однако, новые опасности и трудности заставляют двух солдат на время объединиться пред лицом (   Читать дальше...   )Производство: CША / Foresight Unlimited, Signature Pictures, Baumgarten ManagementЖанр: Фантастика, БоевикРежиссер: Джон ХайамсАктеры: Жан-Клод Ван Дамм, Дольф Лундгрен, Скотт Эдкинс, Кристофер Ван Варенберг, Дэвид Дженсен, Остин Нолти, Рой Джонс мл., Мария Боннер, Рас Блэквелл, Джеймс ДюМонтПеревод: Профессиональный (полное дублирование)Субтитры: ОтсутствуютПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AB24EFEF016453F6003EACADBEEB1B2FA8A685
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519923   (144304) от 26.12.2021
-
-Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геймдизайнер Томас Андерсон сделал себе имя работой над трилогией игр «Матрица». Хотя окружающий мир периодически даёт сбои и обнажает свою истинную сущность, бывший Нео исправно посещает психотерапевта, принимает пилюли и практически убедил себя, что всё это — игра его воображения. Но однажды на него выходит хакерша Багз и предлагает снова следовать за белым кроликом.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: Фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (full, SDH), украинские (Forced), английские (full, SDH)Продолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91367FE10E7FA4B4A18802C9ACBF05B4DCC44755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435514   (144305) от 28.12.2020
-
-VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новинки и немного эксклюзива вы услышите в новых треках сборника "Deep Glow Electro House". Deep House и вправду можно слушать часами напролет, за чашкой ароматного кофе наблюдая из окна жизнь ночного мегаполиса в свете неоновой рекламы и ощущая переплетение звуков города в которые вливаются эмоций людей.001. Renoa - Two Beers
-002. Deep Couture - In The Music
-003. Scot & Millfield - Get The Beat
-004. Bruce Leroys - Cassette Tape(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9F48BF0157C3E1D884F662EE3B335C5897D95F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678589   (144306) от 22.11.2023
-
-Dropshare 5 v.5.42 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144306.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF3F081AEF35B7789D962381D02A9E51CA75ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969813   (144307) от 28.12.2015
-
-Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Columbia Pictures, LStar Capital, Sony Pictures Animation, Sony Pictures Digital, Sony Pictures ImageworksЖанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Генндий ТартаковскийПерсонажи: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский (Forced, iTunes), украинский (iTunes), английский (SDH, Commentary)Продолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAD427C74241C8CBCA7681DDF9F0939A449E0E3
 ```
 
 

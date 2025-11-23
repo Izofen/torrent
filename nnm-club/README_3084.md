@@ -1,3 +1,84 @@
+###  Публикация: 475032   (98057) от 30.03.2012
+
+Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Start  (3:34)
+02. One Last Time  (4:55)
+03. Love Sweet Love  (3:30)
+04. Fly Away  (3:40)
+05. Darkest Before The Dawn  (3:53)
+06. Room 414  (2:47)
+07. Voodoo Moon  (4:16)
+08. Anywhere You Run  (3:57)
+09. Last Bluesman Gone  (2:10)
+10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475364   (98058) от 30.03.2012
+
+Роберт Пайк | Жертва [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из тюрьмы Синг-Синг сбежали четверо заключенных, которых ничто никогда не связывало, ни в тюрьме, ни до нее. Причем один из них имел возможность через несколько месяцев досрочно освободиться. Что толкнуло его связаться с этой компанией и пойти на побег? Не оправдались и расчеты преследователей на то, что неожиданный беглец постарается спрятаться где-нибудь подальше. Он отправился в Нью-Йорк. Что задумал преступник и какие события последуют за этим?2011Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475504   (98059) от 30.03.2012
+
+Родители / Parenthood (1989) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть главой большой семьи — задача не из легких. Тем более, если ты, как любой уважающий себя родитель, хочешь, чтобы твои дети выросли приличными людьми. Вот Гилу Бакмену и приходится «крутиться», чтобы делать успешную карьеру, и одновременно быть любящим мужем и заботливым отцом.Жанр: КомедияРежиссер: Рон ХовардАктеры: Стив Мартин, Рик Моранис, Киану Ривз, Мэри Стинберджен,Том Халс, Джейсон Робардс-Младший, Дайэн УистПеревод: Одноголосый закадровый (А. Михалев)Язык субтитров: английские, испанскиеПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475569   (98060) от 30.03.2012
 
 VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]<Pop, House, Dance>
@@ -6,7 +87,7 @@ VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98060.jpg" />
 </div>
 
 
@@ -39,7 +120,7 @@ magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98061.jpg" />
 </div>
 
 
@@ -67,7 +148,7 @@ Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98066.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98066.jpg" />
 </div>
 
 
@@ -100,7 +181,7 @@ Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98067.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98069.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ Saline OS 1.6 [i386 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98070.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ VA - Jazz Legends 3CDs (Collection) (1998) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98071.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98072.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98072.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98073.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98073.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusio
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98074.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98075.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98075.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98076.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98077.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98078.jpg" />
 </div>
 
 
@@ -419,7 +500,7 @@ magnet:?xt=urn:btih:0DF5EFAB727DC974EBD2E473B12EE435F1692DBE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98079.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ VA - XXXL Блатнячок радио Шансон 3 (2012) [MP3|256 kbps]<Ш�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98080.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98081.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98081.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98082.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ magnet:?xt=urn:btih:6874B086DDE83B1EB67368CDA3C26F34F77B002F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98083.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ magnet:?xt=urn:btih:F77EEF73A9399DE19F4E546C7B14F313A71893C0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98084.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98086.jpg" />
 </div>
 
 
@@ -611,7 +692,7 @@ magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98089.jpg" />
 </div>
 
 
@@ -635,7 +716,7 @@ magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98090.jpg" />
 </div>
 
 
@@ -646,87 +727,6 @@ magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B50D30C0B0B0BE34F08170F6CBD3ECCD7CECF743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475254   (98091) от 30.03.2012
-
-Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Boy (3:27)
-02. Too Hurt To Dance (3:16)
-03. Keeping My Baby (2:50)
-04. Well, Well, Well (2:43)
-05. Don't Forsake Me (4:01)
-06. Endlessly (2:59)
-07. Breath Away (4:12)
-08. Lovestruck (2:52)
-09. Girl (2:27)
-10. Hard For The Heart (4:58)2010Жанр: Pop, SoulПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475072   (98092) от 30.03.2012
-
-Наследница / The Heiress (1949) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 1840-ых годах в Нью-Йорке. Кэтрин живет со своим отцом, доктором Слопером. Ее мать умерла за несколько лет до этого, и доктор Слопер постоянно сравнивает свою дочь с ней, не в пользу первой. Кэтрин знакомится с Морисом Тоунсендом, красивым, но ветренным молодым человеком, и через некоторое время он делает ей предложение. Доктор Слопер уверен, что он хочет жениться на ней из-за наследства и противится их браку.Жанр: Мелодрама, ДрамаРежиссер: Уильям УайлерАктеры: Оливия Де Хэвилленд, Монтгомери Клифт, Ральф Ричардсон, Мириам Хопкинс, Ванесса Браун, Бетти Линли, Рэй Коллинз, Мона Фриман, Селена Ройл, Пол Лииз, Гарри Энтрим,  Русс Конуэй, Дэвид ТарсбиПеревод: Двуголосый закадровыйПродолжительность: 01:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475049   (98095) от 30.03.2012
-
-Дикий Юг. Разыскиваются живыми / Wild South. Wanted Alive (1990-1999) IPTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
 ```
 
 

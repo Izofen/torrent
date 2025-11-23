@@ -1,3 +1,81 @@
+###  Публикация: 1704154   (114322) от 04.03.2024
+
+Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dope 'n Roll (4:21)
+02. Day Of The Living Dead (4:07)
+03. Electric Fire (2:48)
+04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704346   (114323) от 04.03.2024
+
+Чингиз Абдуллаев | Альтернатива (Книга 1). Альтернатива для грешников (2024) [MP3, Pogorelov FM]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночная операция по задержанию банды преступников. Опасно, но не опаснее любой операции группы особого назначения. Уж такова работа многоопытного полковника и его людей. Однако одна-единственная случайная находка внезапно наводит полковника на след запутанного, необычного преступления. Преступления, раскрыть тайну которого практически невозможно…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 09:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8F623D6D68EB0DDD17057E93AFB3E4ADC6041C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704495   (114324) от 04.03.2024
+
+VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Happiness (4:18)
+02. Chillaxonic - Iridescent (5:10)
+03. Kool&Klean - My World (5:25)
+04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704358   (114325) от 04.03.2024
 
 TunesKit AceMovi Video Editor 4.9.23 [Multi]
@@ -6,7 +84,7 @@ TunesKit AceMovi Video Editor 4.9.23 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114325.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114326.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114327.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114328.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114329.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Data Extractor 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114330.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Reader for Mac 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114331.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114332.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114333.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114334.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114335.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ K-Lite Codec Pack Update 18.1.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114336.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ djay - DJ App & AI Mixer 5.1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114337.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ USB Device Tree Viewer 4.0.5.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114338.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ Fort Firewall 3.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114339.jpg" />
 </div>
 
 
@@ -392,7 +470,7 @@ EarthView 7.9.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114340.jpg" />
 </div>
 
 
@@ -416,7 +494,7 @@ Dropover Pro for Mac 4.13.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114341.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ FinePrint 11.42 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114342.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ magnet:?xt=urn:btih:BA8658D06A5097A7216BFA8E729D01DBC516979D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114343.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ magnet:?xt=urn:btih:21C4E2271739FEFC0AD410F6EC10BE0AAD5B3A87
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114344.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114345.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114346.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ Creedence Clearwater Revival - Бродячий оркестр. Архив по�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114347.jpg" />
 </div>
 
 
@@ -579,81 +657,6 @@ Creedence Clearwater Revival - Бродячий оркестр. Архив по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704407   (114348) от 04.03.2024
-
-Наталья Калинина | Агентство "Мистерио" (Книга 1). Вечеринка Смерти (2024) [MP3, Александр Иванов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114348.jpg" />
-</div>
-
-
-###  Подробнее
-
-На таинственной вечеринке погибают шесть популярных блогеров. За поиск причин трагедии берется команда из молодых и талантливых людей. У них нет опыта в расследованиях, но с их способностями можно заглянуть туда, куда простым обывателям вход закрыт. Медиум, ведьма, экстрасенс, хакер, рунолог и малозаметная девушка, которая умеет четко организовать работу. Новое дело (   Читать дальше...   )Жанр: детектив, мистикаИздательство: ЛитРесПродолжительность: 11:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08B1A274A277B0E7FF998D67583C8C34CCD8753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704475   (114349) от 04.03.2024
-
-Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Audio Converter for Mac Конвертер аудио файлов, поддерживающий практически все распространенные форматы файлов, включая AAC, AC3, AIFF, AU, FLAC, MP3, M4A, OGG, WAV, WMA и т.д. Так же эта программа позволяет извлекать аудио-дорожки из видео-файлов в формате MPEG, MOV, MP4, M4V, RM, WMV, ASF, MKV, TS, MPV, AVI, 3GP, FLV и т.д. Помимо конвертирования аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF21D13DA1C0345E2BF0286E9CA817D3758268A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704215   (114350) от 04.03.2024
-
-Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01 - Hole In The Sky.
-02 - Don't Start (Too Late).
-03 - Meglomania.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
 ```
 
 

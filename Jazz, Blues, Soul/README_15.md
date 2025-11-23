@@ -6,7 +6,7 @@ Bywater Call - Shepherd (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40063.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40065.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tom Mansi & the Icebreakers - Eyeball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40069.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40070.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ellen Edwards - A Beautiful World (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40071.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Airborne Blues Virus - Minnie Water Music (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40074.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Delta Generators - The Lost Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40075.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40156.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40158.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40164.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40165.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40166.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40167.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40168.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40171.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40172.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40194.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bill Wyman & The Rhythm Kings - 17 альбомов, 2 Box Set (1997 - 2018) 26 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40243.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40352.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Hamish Anderson - ELECTRIC (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40354.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Joe Pass - Virtuoso Live! (1992) Victor [FLAC|Lossless|tracks + .cue] <Bop, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40768.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Herb Ellis & Joe Pass - Two For The Road (1974) 1985, Pablo [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40769.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Charles Lloyd - Forest Flower (1967) 2012, Atlantic [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40771.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Vintage Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40775.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Marilyn Monroe - Deluxe: I Wanna Be Loved By You (2012) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40895.jpg" />
 </div>
 
 

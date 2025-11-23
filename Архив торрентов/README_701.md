@@ -1,3 +1,76 @@
+###  Публикация: 969357   (147195) от 27.12.2015
+
+Hetman Word Recovery 2.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа восстанавливает документы популярных пакетов Microsoft Office, Open Office, а также файлы Adobe PDF, текстовые файлы настроек и т.д. Hetman Word Recovery возвращает файлы с любых носителей информации c файловой системой FAT и NTFS.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0602DC9D0F2F0CE9E06A55D2590E2FECA43DA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678063   (147207) от 20.11.2023
+
+BetterDisplay Pro for Mac 2.0.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147207.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterDisplay — поистине замечательный инструмент. Приложение позволяет вам преобразовать ваши дисплеи в полностью масштабируемые экраны, позволяет управлять яркостью, обеспечивает масштабирование XDR / HDR (дополнительная яркость выше 100% на совместимых дисплеях), полное затемнение до черного, помогает вам создавать и управлять виртуальными дисплеями (манекенами) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2023 waydabberПоддерживаемая ОС: macOS 12.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2FB0ABEA7B9751524690C73DEC43383346D806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678016   (147220) от 20.11.2023
+
+Icecream Video Editor Pro 3.11 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Video Editor - видеоредактор, предлагающий большое количество опций и функций для создания видео проектов. Присутствует возможность добавлять видео файлы, изображения и аудио файлы в программу, чтобы затем добавить их на таймлайн.
+Также пользователь может добавлять цвета, визуальные эффекты и переходы между сценами, добавлять текст, применять к нему эффекты (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151BC3455A8386BF3E9F3633A39DA8A1CF268EE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347814   (147225) от 25.12.2019
 
 UniConverter 11.6.2.7 [Multi/Ru]
@@ -6,7 +79,7 @@ UniConverter 11.6.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147225.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ save2pc Ultimate 5.58.1589 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147230.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ VSO ConvertXtoHD 1.3.0.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147276.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ magnet:?xt=urn:btih:FCEDB0FCC36E91E22C3D55B92BF9685E871209FE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147296.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ The Logo Creator 6 FREE [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147305.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ ForkLift 4 v.4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147313.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ Movavi PDF Editor 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147317.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:C223D0F1B84845EC16567E388F2EF493E83F59D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147319.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:C223D0F1B84845EC16567E388F2EF493E83F59D9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147325.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147327.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147329.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Geekbench 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147331.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Topaz Photo AI for Mac 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147339.jpg" />
 </div>
 
 
@@ -327,7 +400,7 @@ magnet:?xt=urn:btih:E898A8DBBD5937F483352A9E9B1A6AE820CA1933
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147343.jpg" />
 </div>
 
 
@@ -351,7 +424,7 @@ Downie 4 v.4.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147348.jpg" />
 </div>
 
 
@@ -377,7 +450,7 @@ magnet:?xt=urn:btih:D1C1ED35FDB1FAE8D5A09A7D6713F99FD829C1D3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147368.jpg" />
 </div>
 
 
@@ -401,7 +474,7 @@ Kinza Browser 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147375.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ Hetman Office Recovery 2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147376.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ Avant Browser Ultimate 2016 build 01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147394.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ AnyBurn 4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147399.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ K-Lite Codec Pack 9.6.0 (Basic, Standart, Full, Mega, x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147426.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ AnyTrans for Android 6.4.1 (build 20181220 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147437.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ Hetman Excel Recovery 2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147443.jpg" />
 </div>
 
 
@@ -556,82 +629,6 @@ Hetman Excel Recovery восстановит файлы электронных �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FB875ECE16FACD38BF29E069466133B8ED53C5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271689   (147444) от 25.12.2018
-
-Pixelmator 3.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Pixelmator Team LtdПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A53313F16B27CAF15916B49FE8F49B0698B772
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271866   (147451) от 25.12.2018
-
-Brave Browser 0.58.17 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCD645A12636334D40B976C387CE075E66A9181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589505   (147452) от 15.12.2012
-
-Lush Tower Defense [Игра] (Android 2.1+)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lush Tower Defense - игра в стиле обороны башнями. Защити город Lushington Springs от вторжения неприятеля.
-
-Эта игра является хитом на Windows Phone 7, теперь в нее можно играть и на Android!
-
-Вам предстоит защищать Лишингтон Спрингс в который очень быстро решили проникнуть враги, пробираясь через леса, снежные переходы, пустыни, фермы и т.д. Ваша задача, как и во всех играх подобного типа, на имеющиеся средства грамотно расставить оборону и во время ее апгрейдить, чтобы у противника не было шанса. За уничтоженные юниты вы также зарабатываете деньги, без которых играть будет не возможно.Жанр: Стратегия, Аркада и экшн
-
-## Скачать торент
-```bash
-нет
 ```
 
 

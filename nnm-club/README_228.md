@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6005.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C23CE1D59C837AAFCD51BEBD5586A4AC10F860F7
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6006.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:FA945CCBB8975C94942466A1C376F3F0714F74A1
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6007.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4C4C47F6102D6B1E8688DF11145475A307D7C58D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6008.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6009.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:76B4E433B48429B4C35BECDBDB3EECEAF37CA8E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6010.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Insofta 3D Text Commander 6.5.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6011.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6012.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:AD4CDB318508E887EEA516EC26E813E151CA5C6E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6013.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4F6A7A99DA91E0692339794CD7874796BAAC6EBC
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6014.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:7AD0E8BD3A74A8C495A971FD1884021747894F40
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6015.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:885B1589CE50813CB718D883838C1765AA5933D4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6016.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Photo Pos Pro 4.16 Build 46 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6017.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6018.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6019.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:3A62FECE0920963AB55B766C17800F1B5901467C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6020.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Uptooda (ex. image uploader) 1.4.5 Build 5392 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6021.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6022.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6023.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:57A6B19DF2EEB63FB7CE97D5A092A290AC089372
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6024.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C65D162102BF3F3903AE2C8FF18B29D0ABEF504C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6025.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Music Collection 3.9.3.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6026.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Insofta Cover Commander 8.0.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6027.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6028.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:E88F6665A7797FDDC9E620E3B1F5CFD1264B81C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6029.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6030.jpg" />
 </div>
 
 

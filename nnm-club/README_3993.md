@@ -1,3 +1,75 @@
+###  Публикация: 1691245   (123500) от 11.01.2024
+
+AIDA64 Extreme / Engineer / Business / Network Audit 7.00.6700 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123500.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FC70094F0D8E878DC61C9E8030BD267847767F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691274   (123501) от 11.01.2024
+
+Конфетный переулок / Candy Cane Lane (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семьянин Крис каждый год пытается выиграть конкурс на лучшее украшение дома к празднику, соревнуясь с соседями. Ради победы он заключает сделку с эльфийкой по имени Пеппер, чья магия становится причиной хаоса для всего города. Теперь Крису и его семье предстоит разрушить колдовство и спасти Рождество.Производство: США / Amazon Studios, Imagine EntertainmentЖанр: фэнтези, комедия, семейныйРежиссер: Реджинальд ХадлинАктеры: Эдди Мерфи, Джиллиан Белл, Трэйси Эллис Росс, Дженнея Уолтон, Тадеус Дж. Миксон, Madison Thomas, Ник Офферман, Крис Редд, Робин Тиди, Дэвид Алан ГрирПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C87C67FE32E2E65CB8B05CD86A9B493BC8D50A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691162   (123502) от 11.01.2024
+
+Падение империи / Deep in the Forest (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123502.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем напряженность политической обстановки в США достигла такого уровня, что страна разделилась на два крайних лагеря: Демократическую и Республиканскую партии. Разгоревшийся конфликт приводит к гражданской войне. Часть членов Демократической партии и их родных тайно вывозят на заброшенную лыжную базу, чтобы защитить от преследований республиканцев. (   Читать дальше...   )Производство: США / Brooklyn Reptyle Productions Inc., Deep in the Forest L.L.C., Hall², Noble Savage ProductionsЖанр: триллерРежиссер: Джереми Дилан ЛэнниАктеры: Эва Абрамян, Уилл Брэдли, Урсула Брукс, Ларри Седар, Джедидайя Дайер, Росс Майкл Фрейзер, Макара Гэмбл, Питер Джейсон, Дуан Джонсон, Дервин ДжорданПеревод: Многоголосый профессиональный (OKKO)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E2638512BE9D949C41FBACC60CCC58546901FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690917   (123503) от 11.01.2024
 
 «Союзмультфильм» обратился в СК из-за прав на «Чебурашку» в США
@@ -6,7 +78,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123503.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123503.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123504.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:BD2071B772BA21556D86D705174EC46D21E059EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123505.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:1ACB23DEF6F8EB250A492175986965D0FEBDD1A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123506.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:CB101F58D366B370EF5729725095F1E889A6B1F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123507.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:2AC73FAC9C9A463CE4589636509E6CDB46A7C11F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123508.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:3BA610BB953118FEA81555BAF174DD8DDC47CA93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123509.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ HWiNFO 7.69 Build 5310 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123510.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Euphoriall - Dasos (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123511.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:BB4720B53313F6E5ED68D23C1F0AD249B6ACE698
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123512.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ Gerald Wilson Orchestra - Monterey Moods (2007) Mack Avenue [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123513.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ We Are Space Horses - Apologia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123514.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ Registry Finder 2.58.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123515.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:0B42A79729F12819BDFC69E98834310037C91BBA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123516.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:D6C3525B2F5FF25A663F57EA88110D2C50670BF3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123517.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ VA - Synth Radio Collection (2010-2015) [MP3|320 Kbps] <Electronic, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123518.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ Music Collection 3.6.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123519.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:1C479FF475209971783B3207D8CE01DD685C4AD2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123520.jpg" />
 </div>
 
 
@@ -452,7 +524,7 @@ magnet:?xt=urn:btih:6E11E761592D998E968705D79ADD9BC6F76EB581
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123521.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123522.jpg" />
 </div>
 
 
@@ -503,7 +575,7 @@ K-Lite Codec Pack Update 18.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123523.jpg" />
 </div>
 
 
@@ -527,7 +599,7 @@ John’s Background Switcher 5.7.0.1  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123524.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ magnet:?xt=urn:btih:714DC78CBB501561CFA42896C29757CBBD66179C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123525.jpg" />
 </div>
 
 
@@ -562,81 +634,6 @@ magnet:?xt=urn:btih:714DC78CBB501561CFA42896C29757CBBD66179C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:593DF9ED81D3CFD896CA2CA97585700DFEAC7070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691140   (123526) от 10.01.2024
-
-Warren Zevon - Excitable Boy (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Asylum Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123526.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johnny Strikes Up The Band 2:54
-2. Roland The Headless Thompson Gunner 3:49
-3. Excitable Boy 2:43
-4. Werewolves Of London 3:31(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555A1DA5D654D9E4820041869C8983C0F23541BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691000   (123527) от 10.01.2024
-
-Firefox Browser 121.0.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C5C6C69903ACFB409042C5BB712A5E6D858600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691019   (123528) от 10.01.2024
-
-Журнал | Армейский сборник №1 (январь 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123528.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: Министерство обороны РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51340B8AA13043A5875F101A8E421AFA2F261D8
 ```
 
 

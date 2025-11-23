@@ -1,3 +1,60 @@
+###  Публикация: 495767   (252676) от 13.05.2012
+
+VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_252676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DJ Ruslan Nigmatullin - Kiss the sun
+002 Руслана - ЕЙ-форі-Я!
+003 Bryce feat. Carlprit - Dance with me
+004 NikitA - Авокадо
+005 Far East Movement feat. Justin Bieber - Live my life
+006 Dj Fenix & Kathy Soul - Скажи Мне Да
+007 Alexander Popov - Elegia (Original mix edit)
+008 Миshа feat. Чук и Гек - Во Всех Новостях Весна
+009 Chuckie feat. Gregor Salto - What happens in Vegas
+010 Алисия & Влад Корса - Здесь и сейчас2012Жанр: Pop,DanceПродолжительность: 05:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496438   (252874) от 14.05.2012
+
+VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_252874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Rok, R&BПродолжительность: 02:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496748   (253245) от 15.05.2012
 
 VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
@@ -6,7 +63,7 @@ VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253245.jpg" />
 </div>
 
 
@@ -30,7 +87,7 @@ VA - Хитовый Рай Версия 50/50 (2012) [MP3|256 кб/с]<Pop,Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253411.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ VA - Лучшие Хиты Диско Золотые 80-е (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253560.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253560.jpg" />
 </div>
 
 
@@ -96,7 +153,7 @@ VA - Летний Союз Новинок 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253764.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253764.jpg" />
 </div>
 
 
@@ -129,7 +186,7 @@ Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254246.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254246.jpg" />
 </div>
 
 
@@ -156,7 +213,7 @@ VA - UNKNOWN 70'S (2020 - 2023) 5CD (обновляемая) [MP3|320 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255074.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255074.jpg" />
 </div>
 
 
@@ -183,7 +240,7 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255840.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255840.jpg" />
 </div>
 
 
@@ -216,7 +273,7 @@ VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256411.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256411.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257295.jpg" />
 </div>
 
 
@@ -282,7 +339,7 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257591.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257591.jpg" />
 </div>
 
 
@@ -296,6 +353,225 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837565   (257956) от 17.11.2025
+
+Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Killing Me
+ 02 - Amour
+ 03 - Endless Sorrow
+ 04 - Your Eyes(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837576   (257957) от 17.11.2025
+
+Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exactly the Way You Are
+ 02 - Madness Or Love
+ 03 - Ends Up By You
+ 04 - Starlit Promise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502675   (259144) от 28.05.2012
+
+VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren Pres. Gaia - Status Excessu D (Radio Edit)
+02. Ian Carey, Snoop Dogg, Bobby Anthony - Last Night (Rhab Remix)
+03. Dj Niki & Mc Kako$ - Make Love (Special Radio Version)
+04. Taio Cruz feat. Flo Rida - Hangover
+05. ATB feat. Jansoon - Move on
+06. Gilles Luka Feat Niusha - Plus Pres
+07. Flo Rida feat. Christina Aguilera - Good Feeling (Official Remix)
+08. Pulsedriver vs. Djs Form Mars - Youth Of The Nation (DJ Gollum Edit)
+09. Dj Erohin & Marq Markuz - Dj, Kill Me By Yo Music
+10. David Guetta feat. Flo Rida & Nicki Minaj - Where Them Girls At(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502648   (259184) от 28.05.2012
+
+VA - Авто хит. Динамит 101.2 FM (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Клипsа - Это я.
+002. Вельвеt - Прости.
+003. Ж. Фриске - А на море белый песок.
+004. П. Гагарина - Любовь под солнцем.
+005. Лера Лера - Леди.
+006. Ю. Морозова - Скучаю (DJ Vitalik Vitamin mix).
+007. Точка G - Полетели за мной.
+008. Е. Отрадная - Оревуар.
+009. Данко - Ломаная линия.
+010. Валерия - Кривое зеркало.(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 05:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8157A7C0217A88F583A0D3559EEC6660FAD1EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502462   (259299) от 29.05.2012
+
+VA - The Official UK Top 40 Singles Chart (20.05.2012) [MP3|320 кб/с]<Рop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rita Ora Feat Tinie Tempah - R.I.P
+02 Fun Feat Janelle Monбe - We Are Young
+03 Carly Rae Jepsen - Call Me Maybe
+04 Alex Clare - Too Close
+05 Tulisa - Young
+06 Rihanna - Where Have You Been
+07 The Saturdays - 30 Days
+08 Train - Drive By
+09 D'banj - Oliver Twist
+10 Gotye Feat Kimbra - Somebody That I Used To Know(   Читать дальше...   )Жанр: Рop, Rok, R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB20B8CC43D12E13231E0F4037ABDA5FEC48B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503679   (259639) от 30.05.2012
+
+VA - Лучшая 200ка: Самая модная Русский (2012) [MP3|128 кб/с]<Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. НеАнгелы - Твоя
+002. А-Студио - Я Искала Тебя
+003. К. Орбакайте - До Свидания, Лето!
+004. А. Климик - Ближе
+005. Бьянка feat. Ираклий - Белый Пляж
+006. DJ Н. Крайнова - Беги За Мной
+007. Премьер-Министр - Перезвони
+008. М. Лоренс - Лунная Ночь (Disco Radio Mix)
+009. Иракли vs Бьянка - Белый Пляж (DJ Kirill Clash & DJ Dmitriy Nema Remix)
+010. Винтаж feat. DJ Smash - Москва(   Читать дальше...   )2012Жанр: Pop , DanceПродолжительность: 12:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65541BCB95EF0B11F92F31C5B82363AA1945C1E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503354   (259864) от 31.05.2012
+
+VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Fun Feat Janelle Monбe - We Are Young
+02 The Wanted - Chasing The Sun
+03 Carly Rae Jepsen - Call Me Maybe
+04 Rita Ora Feat Tinie Tempah - R.I.P
+05 Alex Clare - Too Close
+06 Rihanna - Where Have You Been
+07 Paloma Faith - Picking Up The Pieces
+08 Train - Drive By
+09 Gotye Feat Kimbra - Somebody That I Used To Know
+10 Tulisa - Young(   Читать дальше...   )Жанр: Рop, Rok, R&B
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
 ```
 
 

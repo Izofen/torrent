@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C3E9D4987D1752B77EC1C93D59A7CCD63BFE5EE7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:34207924D5280FE859B873A8646BBAB36EE54A8E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46042.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46440.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:D52D60A077A14E44D04F19C2AACD7E38F3E0D3F4
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46575.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46578.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46641.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46651.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46652.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46653.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E22B95AD279DE9D61647D9526254C5F07D473879
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46734.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:85196DF50D3B7CF2033AA29665445E3FC0B6F543
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46735.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46784.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46786.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46880.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46961.jpg" />
 </div>
 
 

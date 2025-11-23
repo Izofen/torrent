@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70350.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:30D5CB5DD207BF694E815C3C725879B0EC9126F7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70351.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nick Brignola - On A Different Level (1990) Reservoir [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70352.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Rob McConnell & The Boss Brass - The Jazz Album (1976) 1996, Sea Breeze Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70353.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 3 (2025) [FLAC 24/48|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70354.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70355.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70356.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ A Day To Remember - Big Ole Album Vol. 1 (2025) [MP3|320 Kbps] <Post-Hardcore / 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70357.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|tracks + .cue] <NWOBHM,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70358.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70359.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Dream Theater - Awake (1994) Japanese Edition, 2xCD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70360.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70361.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70362.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70363.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70364.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70365.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Eddie Blues Barney - Blues on the other side (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70366.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:8D051E297FA03FFDD4F82047862E581020D3D10D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70367.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:EB114CC0BC5E9C3F06EDDAC09CA81E17968D84E2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70368.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70369.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70370.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70371.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:117B273DBD52B4501668CBBA64FCDEF8DC7FD4AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70372.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70373.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70374.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70375.jpg" />
 </div>
 
 

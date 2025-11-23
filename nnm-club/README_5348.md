@@ -1,3 +1,177 @@
+###  Публикация: 1673616   (164531) от 02.11.2023
+
+System Dashboard Pro 1.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164531.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1249B5D31ABA83AA3D4B22D54A5ADE73585C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346299   (164532) от 18.12.2019
+
+VA - Anjunadeep: The Yearbook 2019 (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff & James Grant - Dapple (05:20)
+02. 16BL - Vette (06:08)
+03. Nox Vahn - Brainwasher (04:40)
+04. CRi - Initial (05:03)(   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E354C8DAD3945BF6A4CC1128683943BB591FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432385   (164533) от 17.12.2020
+
+iCollections 6 v6.7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEF131B9B63AEF823D76F26B004FF64BDF25755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517046   (164534) от 13.12.2021
+
+LaunchBar 6.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164534.jpg" />
+</div>
+
+
+###  Подробнее
+
+LaunchBar - функциональная замена Spotlight на Mac. После запуска приложения вам необходимо задать комбинацию клавиш, по которой будет открываться строка поиска LaunchBar. По нажатию клавиш в центре экрана будет доступна поисковая строка, в которой вы, как и в Spotlight, можете начать вводить название приложения и затем мгновенно его запустить. Надо отметить, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: Objective Development SoftwareПоддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB497CA65BA55D4AC3B9ABA5F691B7E95DC83345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597790   (164535) от 16.12.2022
+
+Adobe Illustrator 2023 27.1.1.196 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2022 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474ADCE87895E86AA77A5BAC1917596FDC08DE33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119385   (164536) от 16.12.2022
+
+Любовь прет-а-порте (2017) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — знойный римский ловелас, избалованный сынок богатого папочки. Она — красавица, одинокая москвичка, которая всю жизнь ждала того, единственного. Он всю жизнь флиртовал, играл, блефовал. Она трудилась, презирая ложь и компромиссы. Одна короткая встреча в Риме запутала их жизни в яркий клубок надежд, обломов и страсти. Он стал для неё тем, кого она готова была (   Читать дальше...   )Производство: Россия, ОДА-ФильмЖанр: КомедияРежиссер: Макс НардариАктеры: Ольга Погодина, Андреа Прети, Лариса Удовиченко, Джанкарло Джаннини, Паоло Контичини, Нино Фрассика, Владислав Лисовец, Михаил Химичев, Пьетро Де Силва, Тоска Д’АквиноПеревод: Не требуется (Русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1258014F0FAB8514D28EA1E7B99C664352D42C0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346061   (164537) от 18.12.2019
+
+Andre 3000 & Madlib - Otis Benjamin 2.0 (MadStacks) (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap, Mashup>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soon the New Hello (1:22)
+02. Roll 'em Flush feat. Big Boi & Raekwon (3:31)
+03. A Player's Ups and Downs feat. Pimp C (2:27)
+04. One In A Million (1:09)(   Читать дальше...   )Производство: Altered CratesЖанр: Hip-Hop, Rap, MashupПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5138865DB83124575F82E13859D9680A58BA8976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516933   (164538) от 13.12.2021
 
 AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
@@ -6,7 +180,7 @@ AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164538.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ NCH WavePad Mater 11.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164539.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ Leprous - Pitfalls (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164540.jpg" />
 </div>
 
 
@@ -81,7 +255,7 @@ Duplicate Photos Fixer Pro 2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164541.jpg" />
 </div>
 
 
@@ -107,7 +281,7 @@ Microsoft встроила в Windows 10 частичку Windows 11, превр
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_164542.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_164542.jpg" />
 </div>
 
 
@@ -131,7 +305,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164543.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ SSH Config Editor Pro 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164544.jpg" />
 </div>
 
 
@@ -179,7 +353,7 @@ Screen Snapshot 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164545.jpg" />
 </div>
 
 
@@ -203,7 +377,7 @@ VA - Chillout King Ibiza: Chill Around the World (2017) [AAC|~323 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164546.jpg" />
 </div>
 
 
@@ -230,7 +404,7 @@ magnet:?xt=urn:btih:5FBF95A82F2A20C6435AAC4F714A597AA1EB5E9B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164547.jpg" />
 </div>
 
 
@@ -255,7 +429,7 @@ VA - Dark Goa Psychedelic Trance (2019) [MP3|320 Kbps] <Trance Psychedelic, Goa>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164548.jpg" />
 </div>
 
 
@@ -282,7 +456,7 @@ Cookie 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164549.jpg" />
 </div>
 
 
@@ -308,7 +482,7 @@ SideNotes 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164550.jpg" />
 </div>
 
 
@@ -332,7 +506,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock/Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164551.jpg" />
 </div>
 
 
@@ -359,7 +533,7 @@ Atmosphere - Whenever (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164552.jpg" />
 </div>
 
 
@@ -386,7 +560,7 @@ Smultron 12.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164553.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ magnet:?xt=urn:btih:590ED9A5ADD5397E3F9EA748DDFA48751CB01BB0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164554.jpg" />
 </div>
 
 
@@ -436,7 +610,7 @@ magnet:?xt=urn:btih:96E97259F2D1E3CBCF95D080C3676ABBFAC33D4E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164555.jpg" />
 </div>
 
 
@@ -460,7 +634,7 @@ CollageIt 3 Pro v.3.6.12 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164556.jpg" />
 </div>
 
 
@@ -472,189 +646,6 @@ CollageIt умеет (   Читать дальше...   )Тип издания:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2614BB01E641C390FEB50E596A0952D55397E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597837   (164557) от 16.12.2022
-
-Приглашение / The Invitation (2022) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164557.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти матери Эви делает тест ДНК и обнаруживает кузена, о существовании которого даже не подозревала. Она получает приглашение от внезапно обретённой семьи на пышную свадьбу в английской глубинке. Эви окружают заботой и вниманием, но вскоре она узнает, какие жуткие тайны стоят за показным радушием родственников.Производство: США, Венгрия / Screen Gems, Mid Atlantic FilmsЖанр: ужасы, триллерРежиссер: Джессика ТомпсонАктеры: Натали Эммануэль, Томас Доэрти, Шон Пертуи, Хью Скиннер, Кэрол Энн Кроуфорд, Алана Боден, Стефани Корнелиуссен, Tian Chaudhry, Кортни Тейлор, Скотт Александр ЯнгПеревод: Дублированный (Лицензия)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1671A8BF9BEA7FD58BAAE516EB7503A666552D1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673642   (164558) от 02.11.2023
-
-Elm Street - The Great Tribulation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Sirens
-02. Take the Night
-03. The Price of War
-04. If Provoked, Will Strike(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AD8CD56E56ACCDBD830B107E99E614E296EB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516862   (164559) от 13.12.2021
-
-VA - Chillout King Ibiza: Aperitivo Del Mar (2018) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinematic - Memories (Red Carpet Mix) (6:00)
-02. Retro Rider - Fantaisie Sur La Cote (The Del Mar Dub) (6:59)
-03. Adriatic Grooves - Simsalaboom (Blue Sky Cut) (6:31)
-04. The Ocean Piano - Breath of the Sea (Piano Dream Mix) (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 05:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282071EE390D6CF0374814BC5B06371626BB652A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597847   (164560) от 16.12.2022
-
-Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A605B75753D42755C83585EBAB74453D16FBEE97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673600   (164561) от 02.11.2023
-
-Edenbridge - The Chronicles Of Eden (2008) 2CD [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Edenbridge (с англ. — Мост в Эдем) — австрийская группа, исполняющая симфонический пауэр-метал. Лидер группы и основной композитор — Арне «Ланвалль» Сокхаммер, бессменная вокалистка — сопрано Сабина Эдельсбахер.01. Thin Red Line
-02. The Silent Wake
-03. Images In The Sand
-04. For Your Eyes Only(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E76CF4EC8A81883FA8FDB28B0117C2F19E4456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346215   (164562) от 18.12.2019
-
-A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Alternative Rap, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sesame (1:36)
-02. Grape (4:36)
-03. Burgundy (3:09)
-04. Champagne (3:11)(   Читать дальше...   )Производство: Chinese Man Records - CMR048DIGЖанр: Hip-Hop, Alternative Rap, Electronic, R'n'BПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9296F1A4BF6050B1EA3D79C3A5CBECFB74BAEAE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673756   (164563) от 02.11.2023
-
-iPulse 3.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
-Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2023Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D596F0C290C73FFAFC7B6DCDAC999ED9A367862F
 ```
 
 

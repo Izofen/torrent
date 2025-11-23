@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66581.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66582.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66583.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66584.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66585.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66586.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66587.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66588.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66589.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66590.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66591.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66592.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:3E24A512F57765791E7FDC9D4EAE47396495E889
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66593.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66594.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66595.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:E1F338E796CA6212986B43F38EF62DDF998B70C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66596.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66597.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66598.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Da
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66599.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66600.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66601.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66602.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66603.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:DE90468FC8BC08527F4033178919EAE266FFD250
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66604.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:98B6DCF3A52737F7FAA6B3BEE75D12F192F30145
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66605.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1756871   (103479) от 24.10.2024
+
+VA - Interplay ADE 2024 (Extended DJ Mixes) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Popov & Ahmed Helmy - In Your Mind (Extended Mix) (03:27)
+02. Ahmed Helmy - Stay (Extended Mix) (05:45)
+03. LTN & Omair - Fractal (Extended Mix) (05:38)
+04. LTN - Sakura (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B079B8BEFC50BCAE3DE5A0FB6894F6B27098B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757012   (103480) от 24.10.2024
+
+Zooloo / The Seaweeds - Black Pearls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:04)
+02. Zooloo / The Seaweeds feat. Francis Têtu - Sailed Away (4:19)
+03. I Smell a RatЖанр: BluesПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE871485CBBEBDA740FCF4AABB6B31F5FBBCA0A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756893   (103481) от 24.10.2024
+
+Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103481.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eyes Of The Night
+2. High Plains Drifter
+3. Hoist Up The Sail
+4. Immortal Prince(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E28C1F1981023035760A033A1BC893C0472651F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756954   (103482) от 24.10.2024
 
 Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +86,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103482.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103483.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103484.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103485.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103486.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ magnet:?xt=urn:btih:EFB824A0BBDD6BB1617858B406673772276AC3EF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103487.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103488.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103489.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ Malabari - Down The Maelstrom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103490.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103491.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ The Grammers - Rockfield (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103492.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ magnet:?xt=urn:btih:4668C87514275B2CDF48545BBDC234A341F7FBD1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103493.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ Moonrise - Under The Flight Crows (2011) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103494.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ magnet:?xt=urn:btih:D409D29776B70231C84293F5CA6FFB3DDFA198D8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103495.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ Starcrazy - Starcrazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103496.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ Mother's Cake - Ultrabliss (2024) [FLAC|Lossless|WEB-DL|tracks] <Progresive, Spa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103497.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ Jaime Narvaez - Joyous Cosmology EP (2019) [FLAC|Lossless|tracks] <Deep House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103498.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103499.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|image + .cue] <Melo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103500.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ Jim Peterik & World Stage - Roots & Shoots Volume Two (2024) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103501.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103502.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103503.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103504.jpg" />
 </div>
 
 
@@ -606,87 +686,6 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A99B5FE2DCD457367FA2DE1E42477248E9BFB80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755848   (103505) от 20.10.2024
-
-Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpio Rising [7:02]
-02. Why Not? [8:35]
-03. Sweet and Lovely [7:40]
-04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756395   (103506) от 20.10.2024
-
-Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Dawn [04:15]
-02. Aij/A.S. [05:21]
-03. Seasons [07:06]
-04. E.O.S [05:38](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B9FA9FC27FAA4AB24A8E1BDB177ADE72B1522D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756257   (103507) от 20.10.2024
-
-Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [3:44]
-02. Over the Rainbow [4:25]
-03. Like Someone in Love [3:08]
-04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
 ```
 
 

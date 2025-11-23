@@ -1,3 +1,77 @@
+###  Публикация: 1821801   (91273) от 03.10.2025
+
+Максим Дынин | Карт-Хадашт не должен быть разрушен! (2025) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91273.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Карфаген должен быть разрушен!» Эти слова римского сенатора Катона-старшего известны всем. Но мало кто задумывался, что же произошло на самом деле. Почему слова озлобленного римлянина привели к уничтожению величайшего торгового города-государства Средиземноморья, не представлявшего угрозы для Рима и даже связанного с ним кабальным договором?
+…После подрыва на мине (   Читать дальше...   )Жанр: Фантастика, боевик, попаданцыИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2DA4D83DC961AFECF24A8A7198E30425870FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821799   (91274) от 03.10.2025
+
+Школьный автобус / The Lost Bus (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм показывает события время пожара в Кэмп-Файре в Калифорнии, самого смертоносного лесного пожара в стране за столетие, и как предотвратить подобные трагедии в будущем, а также рассказывает истории водителя автобуса и школьной учительницы, которые помогали тушить лесной пожар.Производство: США | Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью Макконахи, Америка Феррера, Юл Васкес, Эшли Аткинсон, Кимберли Леви МакКонахи, Леви МакКонахи, Джон Мессина, БойскаутыПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914251D9C0454893AC92D8076E87BEB2BEB8EE21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821795   (91275) от 03.10.2025
+
+Алим Тыналин | Нэпман [9 книг] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1928 год, разгар НЭПа. Успешный промышленник Леонид Краснов неожиданно оказывается в центре опасной игры. В его теле – сознание человека из 2024 года, за его технологиями охотятся конкуренты, а на кону – судьба советской индустриализации.
+Используя опыт корпоративных войн будущего и помощь преданной команды, он пытается построить новую модель промышленного (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374C3E86F73EADF9C2999D9B3C0284241117DAC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821780   (91276) от 03.10.2025
 
 VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +80,7 @@ VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91276.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91277.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:7F142C0FE06FE1C37F6C0EDA29FDCA98D5B84712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91278.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ magnet:?xt=urn:btih:71FA48A6652D8C2CB89954F1AC7CE2088D8318F6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91279.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:3BC87674EC27B2721B0882ABFE39F197B2F6E940
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91280.jpg" />
 </div>
 
 
@@ -129,7 +203,7 @@ Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91281.jpg" />
 </div>
 
 
@@ -156,7 +230,7 @@ Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91282.jpg" />
 </div>
 
 
@@ -183,7 +257,7 @@ magnet:?xt=urn:btih:A01A62450CA1BEE195723DFAC33EA5E8235D481C
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91283.jpg" />
 </div>
 
 
@@ -207,7 +281,7 @@ magnet:?xt=urn:btih:8B43D052EA749FF212098AD050D3A7B7A18E58E6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91284.jpg" />
 </div>
 
 
@@ -231,7 +305,7 @@ Reg Organizer 9.86 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91285.jpg" />
 </div>
 
 
@@ -255,7 +329,7 @@ Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indust
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91286.jpg" />
 </div>
 
 
@@ -282,7 +356,7 @@ Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91287.jpg" />
 </div>
 
 
@@ -309,7 +383,7 @@ magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91288.jpg" />
 </div>
 
 
@@ -336,7 +410,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91289.jpg" />
 </div>
 
 
@@ -360,7 +434,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91290.jpg" />
 </div>
 
 
@@ -384,7 +458,7 @@ magnet:?xt=urn:btih:308AA65C1A23E90BA00697CC132957B767163573
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91291.jpg" />
 </div>
 
 
@@ -408,7 +482,7 @@ magnet:?xt=urn:btih:3D0AFA4B6639F1443212BF9C7E05597BCA2F13F7
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91292.jpg" />
 </div>
 
 
@@ -433,7 +507,7 @@ magnet:?xt=urn:btih:611F0DAD04E03A80B1073AAF802320F521A9ABAD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91293.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ magnet:?xt=urn:btih:AF52BFEDE2CCAB91BE2465CA42C9FEB1E8E24FE7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91294.jpg" />
 </div>
 
 
@@ -481,7 +555,7 @@ magnet:?xt=urn:btih:4C95DB3B0A99F72767615999F340783C4BBB98C5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91295.jpg" />
 </div>
 
 
@@ -506,7 +580,7 @@ magnet:?xt=urn:btih:655D738E45F7A13F1C6117ADD4D57AB9FDF0A428
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91296.jpg" />
 </div>
 
 
@@ -530,7 +604,7 @@ Reg Organizer 9.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91297.jpg" />
 </div>
 
 
@@ -554,7 +628,7 @@ magnet:?xt=urn:btih:37F3E3E6DE117997696DBADEA2365192CE47D469
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91298.jpg" />
 </div>
 
 
@@ -565,84 +639,6 @@ magnet:?xt=urn:btih:37F3E3E6DE117997696DBADEA2365192CE47D469
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554111DA35488C17215FBEB45B53EB30DABD9C23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821674   (91299) от 03.10.2025
-
-Сборник мультфильмов: В гостях у сказки. Выпуск  3 (1971-1990) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: В зоопарке ремонт; Пугало; Когда растаял снег; Крошка Енот; Последний заяц; Шиворот-навыворот; Самолетик; Слоно-дило-сенок; Соломенный бычок.Производство: СССР / ТО Экран, СоюзтелефильмЖанр: Мультфильм, короткометражка, детский, русская сказка, экранизацияРежиссер: Натан Лернер, Розалия Зельма, Анатолий Солин, Олег Чуркин, Борис Бутаков, Владимир Самсонов, Борис Ардов, Анатолий РезниковАктеры: Клара Румянова, Мария Виноградова, Зоя Зелинская, Владимир Басов, Светлана Харлап, Станислав Чекан, Зинаида Нарышкина, Борис Ардов, Алексей Баталов, Екатерина Райкина и другиеСубтитры: отсутствуютПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6977EEC6EFD2F273BEE2DA40446D19999B23B964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821773   (91300) от 03.10.2025
-
-ЧайФ - Вот так (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кораблик бумажный
-2. Мотя и Лука
-3. Там, где со мною будешь ты
-4. Дедушкина песня(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821771   (91301) от 03.10.2025
-
-ЧайФ - Вот так (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кораблик бумажный
-2. Мотя и Лука
-3. Там, где со мною будешь ты
-4. Дедушкина песня(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7520BBEB1FB030148E0186B09DD7AE7848A541A6
 ```
 
 

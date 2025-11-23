@@ -6,7 +6,7 @@ MSActBackUp 1.2.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54939.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.30.6900 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54940.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E996FF78BD990E58389DA2AEAEAD011D21004A60
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54941.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8C08DC9B61F98C72A6CC1F37E560AAB87B034A1D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54942.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3212BAEDAFB4711E25DEF79A454CEE8DBE892A51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54943.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Transmission 4.0.6 (38c164933e) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54944.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:4CD0CBF79743AEEA8D4BF4AF917817859503A252
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54945.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C6F023923300DA9631E86F2229CE1AE8EF9DE51D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54946.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Process Explorer 17.06 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54947.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:77FDAEA3588683CF12AFD81B97532D0234966F62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54948.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:63D50B0B8A201DDFFEEF40200C20295A384E6D7F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54949.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:921C39A1442E082310ACE685E057F3063DFCC8B4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54950.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54951.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54952.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A8E555CB965EA4839DF49A02F16E301BABEF4E5B
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54953.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Windows 11 [10.0.22631.3593], Version 23H2 (Updated May 2024) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54954.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D347C659557697129C415FF8596115A0584D7737
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54955.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:47D12BDEFF853309C615901F98C9467986A72DE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54956.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:7668B79B903F517FF0B51A2C5464D08F5549FA96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54957.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:5631DDAC2AEBD9E38C1C1426E28F723A5B2B2DA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54958.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:215DBF8A26E2B654DBF82078A0D1EB6E6EF30273
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54959.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:215DBF8A26E2B654DBF82078A0D1EB6E6EF30273
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54960.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:215DBF8A26E2B654DBF82078A0D1EB6E6EF30273
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54961.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:0E7A031F5219386530A78AE00C68F364E588F7AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54962.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D2421EC2952F8A084E689BE13935BB0C8458C6E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54963.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F8A8B8365460BBF4719380C7EC911D1DB0A76EDF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54964.jpg" />
 </div>
 
 

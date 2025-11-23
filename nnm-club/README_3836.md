@@ -1,3 +1,76 @@
+###  Публикация: 425793   (119418) от 04.02.2024
+
+Василий Шукшин | До третьих петухов (2006) [MP3, Алексей Дубровский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Макарович Шукшин (1929–1974) – выдающийся писатель, самобытный обаятельный актер, крупный кинорежиссёр – оставил значительный след в истории отечественной культуры.
+«До третьих петухов» сказка про Ивана-дурака, как он ходил за тридевять земель набираться ума-разума. Нет покоя русскому человеку. Вечно тянет его в светлую даль, вечно болит и чего-то просит (   Читать дальше...   )Жанр: Классика советской прозы, сказкаПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2465DEFE3BBC765A2D0E4CBA7C386849EB7ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696712   (119419) от 04.02.2024
+
+Большое маленькое приключение / The Inseparables (2023) WEBRip [H.264/1080p] (звук с TS) [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтатель и искатель приключений Дон Кихот не пропускает ни единой возможности совершить эпический подвиг. Хоть он не рыцарь, а всего лишь игрушка, герою, вооруженному безграничной фантазией, отваги не занимать. Когда его друзей из кукольного театра похищают, Дон Кихот спешит им на помощь. Дона и плюшевого мишку, ищущего семью, ждет удивительное путешествие через (   Читать дальше...   )Производство: Бельгия, Франция, Испания / A Contracorriente Films, nWave PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Жереми ДегрусонАктеры: Моника Янг, Оливье Пэрис, Дэнни Фезенфельд, Донте Пэрис, Джордан Бэйрд, Дакота Уэст, Арт БраунПеревод: Дубляж (Мосфильм-Мастер звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:34Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696817   (119420) от 04.02.2024
+
+Фотообои на основе снимков спутников Роскосмоса [JPG]
+
+>>Мультимедиа и прочее
+>>Темы и Изображения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскосмос объявил о создании космических заставок. Любой желающий может установить красивые картинки на экран своего смартфона. Фотообои созданы на основе спутниковой съемки — да, все это завораживающие виды нашей Земли! Имеются обои с календарем на 2024 год.Формат: JPGРазрешение файлов: 2657х4724 - 2658х4724
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EC51BFF2CC5B54D0443FD700446FAAE628A221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696827   (119421) от 04.02.2024
 
 VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
@@ -6,7 +79,7 @@ VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119421.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119422.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119423.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ Dominia - Timeless (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119424.jpg" />
 </div>
 
 
@@ -114,7 +187,7 @@ Mental Destruction - Road of Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119425.jpg" />
 </div>
 
 
@@ -141,7 +214,7 @@ Minenwerfer - Feuerwalze (2023) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119426.jpg" />
 </div>
 
 
@@ -168,7 +241,7 @@ Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119427.jpg" />
 </div>
 
 
@@ -195,7 +268,7 @@ Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119428.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ Pandora's Key - Yet I Remain (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119429.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119430.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119431.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119432.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119433.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119434.jpg" />
 </div>
 
 
@@ -384,7 +457,7 @@ Video Cut&Crop&Join for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119435.jpg" />
 </div>
 
 
@@ -408,7 +481,7 @@ Lethargy of Death - Necrology (2010) [FLAC|Lossless|image + .cue] <Funeral Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119436.jpg" />
 </div>
 
 
@@ -435,7 +508,7 @@ Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119437.jpg" />
 </div>
 
 
@@ -462,7 +535,7 @@ Leo - Leo Metal, Vol. 45 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119438.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ magnet:?xt=urn:btih:4BB25E064D1EEDB9F1D1611490667E511CFCC6FF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119439.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119440.jpg" />
 </div>
 
 
@@ -543,7 +616,7 @@ magnet:?xt=urn:btih:28EBCBF5E5131229F44A4BBF37E81493C39ED155
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119441.jpg" />
 </div>
 
 
@@ -570,7 +643,7 @@ magnet:?xt=urn:btih:34E56D1B82524AC5A3CFEFDDEC89BDFC482C8544
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119442.jpg" />
 </div>
 
 
@@ -597,7 +670,7 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119443.jpg" />
 </div>
 
 
@@ -611,84 +684,6 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD75756AB910A7013D3DEDD3F161B37D46D61BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696572   (119444) от 03.02.2024
-
-Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Baby Why (6:57)
-02. I Ain't Waiting (5:48)
-03. Let Freedom Ring (5:23)
-04. Spend The Night (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C07E772A6C95CB0467DFC5B19417256ADCFE979
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696507   (119445) от 03.02.2024
-
-June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Incomplete [00:02:56]
-02. Black Cat [00:03:09]
-03. Used to Happen [00:03:10]
-04. Tell Me How [00:02:48](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696524   (119446) от 03.02.2024
-
-PowerPhotos 2.5.6 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119446.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EE91AF9757824DEA1420A1AC02F11B5F4026F0
 ```
 
 

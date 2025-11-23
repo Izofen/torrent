@@ -6,7 +6,7 @@ Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161417.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Robert Connely Farr - Shake It (2022) [FLAC|Lossless|WEB-DL|tracks] <Marsh blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161419.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Blues from Russia (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161421.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161425.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blues Whale - Leaving The Blues Behind (2021) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161427.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161428.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161438.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bernie Marsden - Chess (2021) [FLAC|Lossless|image + .cue] <Blues Rock, Rock'n'R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161458.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Count Basie & His Orchestra - The Count Basie Collection (1937 - 1939) 3CD, 2021
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161464.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161698.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161738.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161866.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Richard Bargel - Dead Slow Stampede (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162029.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Ryan Neville and The Midnight Blues Band - Fire on the Tracks (2020) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162045.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Reckless and Blue - Can't Give Me the Blues (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162082.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Philipp Fankhauser - Heebie Jeebies - The Early Songs of Johnny Copeland (2022) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162129.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162181.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Voodoo Room - Tension City Blues (2020) [FLAC|Lossless|tracks + .cue] <Classic R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162190.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Justin Johnson - Rough Edges (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162201.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162237.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162257.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Electric Blues Mates (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162295.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Lone Crow Rebellion - Ain't No Shame (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162329.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Kyle Kelly Pleasants - Why Can't We All Just Get Along (2020) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162332.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162384.jpg" />
 </div>
 
 

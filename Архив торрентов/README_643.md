@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136226.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|~257 кб/с 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136227.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mageia 3 beta 1 [x86-64] (3xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136229.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Various Artists - Commercial Suicide Is Painless Vol.1 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136230.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Borgore - Turn Up (2012) EP [MP3|320 Kbps] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136236.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C06036182B27C34A97F35D69787C15C39826ABD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136240.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Memory Drawings - Music For Another Loss (2012) [FLAC|Lossless]<Electronic, Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136250.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136250.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Fiction - Lifescapes: Guitar For Stress Relief (2011) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136251.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136254.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mageia 3 beta 1 [i586] (3xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136255.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136255.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Mageia 3 beta 1 [i586] (3xDVD)
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136258.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136259.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D8BCDD3F060A348C153EC25A5716ECA5598C3536
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136263.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:80520FDAFF59F098CB713940F21D267A4777B08D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136266.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - The Best Of Chillout Mode (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136270.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B43A9656E5154440B42E62F5DCA597132D4DA208
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136273.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Marck Schwarze Trane & Stiv Hey - Squermus (11.12.2012) [MP3|320 кб/с]<Techno
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136278.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:C7E0E6E99908F4A3059CC9D795A599CEEA0B075F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136279.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:87354EB9430CBC0F35FA166E74482C769CAAEBC6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136282.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Indesinence - 2 альбома (2006-2012) [APE / FLAC|Lossless]<Death / Doom Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136286.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136286.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Indesinence – дэт-дум группа из Лондона. Они собр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136329.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ WindowBlinds 7.4.0 build 320 (Public) [Eng] + 127 best visual styles (Обнов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136338.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ WindowBlinds 7 – программа, предоставляющая польз
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136364.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:EE861D3338D7A76A73C39C6FF59A78A139CCF473
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136374.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Helicon Filter 5.1.2.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136390.jpg" />
 </div>
 
 

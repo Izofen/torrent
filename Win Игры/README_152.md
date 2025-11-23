@@ -6,7 +6,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44629.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44631.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44665.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44666.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monster Jam Showdown (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44667.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.17.22308.0/dlc) Scene Tenoke [Pr
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44684.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44689.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44694.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44697.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44755.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:3B744720A9BA2A4FFC48119DE6ED728D41515090
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44775.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dimensions (2023) [Ru/Multi] (4.0) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44794.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44800.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44801.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44803.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44804.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44810.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44851.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LightRay (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44853.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44854.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44859.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.0) Scene FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44877.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44879.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44885.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44893.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Eventide - Ensemble Bundle 2.20.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36858.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36859.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36860.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3011 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36861.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Raising Jake Studios SideMinder Plu-ins 11.2024 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36862.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36863.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ RegCool 2.016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36864.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Wheeler Walker Jr - Ram (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36865.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Baby Audio - Transit 2 1.1.0 VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36866.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:D28670213C98C3771F11CC3A934F8FA0DD020B69
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36867.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:BDD469D7972ABBEAB00DAA8A4521B603BAAB4645
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36868.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6E516A6D434FE554CCD073A169C578F09841AA5F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36869.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - no pare, sigue sigue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36870.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ u-he - Zebra Legacy 2.9.4 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36871.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Telegram Desktop 5.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36872.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:E2E69F109370E114D5372D1B6683E401BC4634E1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36873.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ ImgDrive Pro 2.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36874.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4F1ED27F07EEAC7E7ACB50C852AF01790637AE2C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36875.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:3A0889FB9734F797742406EFF21CCBB423578A11
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36876.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Fit AI / Планы Тренировок. Спортзал v1.3.7 Mod by vadj [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36877.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NIUBI Partition Editor 10.0.9 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36878.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:277CF84CD8F53AA1665A8F80AC6A9C8068DD6469
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36879.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Filmora - Редактор видео с AI 14.2.30 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36880.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E7C5F61DE44ABD612D82E958027786FEB802DF8F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36881.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ meteoblue weather & maps Cirrus Uncinus 2.8.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36882.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28390.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Notepad++ 8.7.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28394.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.3 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28397.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28397.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ jetAudio HD Music Player Plus v12.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28400.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28400.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Snappy Driver Installer Origin R777 | Драйверпаки 25.00.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28406.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28406.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ IObit Driver Booster Pro 12.2.0.542 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28409.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28409.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28442.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3A5CB71D3D29BEE5B5ED158CD85FFD5BBA215766
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28443.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Topaz Video AI Pro 6.1.0 (x64) Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28449.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28449.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PDFCreator 5.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28455.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.7.8 Mod by Mixroot [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28461.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ R-Studio Network / Technician 9.4 Build 191430 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28477.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Topaz Photo AI Pro 3.4.5 (x64) RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28484.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Topaz Gigapixel AI Pro 8.2.1 RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28485.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Tor Browser Bundle 14.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28487.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28487.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ CPU-Z 2.14.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28490.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28490.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Vanced Tube v5.3.80.119 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28503.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Topaz Gigapixel AI Pro 8.2.1 RC + models Portable by 7997 (x64) [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28522.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28522.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Topaz Gigapixel AI 8.2.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28525.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Any Video Downloader Pro 9.1.15 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28547.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28547.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ CoolUtils Total Image Converter 8.2.0.279 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28551.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28551.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VK Музыка: песни и подкасты v7.8.1 Mod by VK Equals [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28552.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28552.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Smart AudioBook Player Pro v11.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28554.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28554.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ YT Downloader 9.11.20 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28557.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28557.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Google Chrome 133.0.6943.54 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28562.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28562.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ RisohEditor 5.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28565.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28565.jpg" />
 </div>
 
 

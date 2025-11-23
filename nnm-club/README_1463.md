@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38391.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Desktop Calendar 3.18.208.6740 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38392.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ToonMe v0.7.14 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38393.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Picsart AI Photo Editor, Video v26.1.6 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38394.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38395.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by ElaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38396.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:CEA6BD2B66F7440CBDE240CDF553D6D5178F1B1F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38398.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:95B06478599D0B194666075C322358E88DD0E3BD
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38399.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:73CAE4489171413E782AE48D48CB231FFF9EE002
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38400.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Text Edit Plus 14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38401.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Jumanov - Compilation CD 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38402.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:73E2A49A27BB2EF5453DE353DEFFDD7EB3B96517
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38403.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B34FD03DFC7DEAAF7682D58420F8D827D678F266
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38404.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:550CDA3A773CBE7D6A02764DA01430CAEC53440E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38405.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5FD70BFB1A23FA9EFD2154D238E567552CA1C971
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38406.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:C2A6CFFE23A19061D27BF5887872EE857F8296CB
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38407.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Magic Eraser / Магический ластик v2.11.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38408.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:E1769851B18E83BF36B2AA2CCC6CA09CAE4BF9B0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38409.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:05405EEFB8D1C0B96ED20F6765BAA51915039B47
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38410.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:853BF783BD45EBD5670AB2A92AFBD9D3C9B241FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38411.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38412.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Pro Pool 2024 v1.57 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38413.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:4CD06125711901C424ACBC7A8B2ABE279C5B38D1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38414.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E159632FAB3E2C386BCB5D0EB76F665D7F4944CA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38415.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ The Cure - Studio Albums (5 releases) (1996-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38416.jpg" />
 </div>
 
 

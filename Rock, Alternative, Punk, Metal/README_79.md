@@ -6,7 +6,7 @@ MAW - The Humble Collapse (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71770.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BlackSun - Karma Somnium (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71782.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sacred - Fire to Ice (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71786.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Garden Of Stone - The Grave Mistake (2025) [MP3|320 Kbps] <Melodic Death, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71787.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Imperial Measures - The Promise of Morning (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71794.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:5746BD5CB1D12EC1DC135454851F3391E7FCA3F0
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71795.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71800.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Evadam - Jiva (Deluxe Edition) (2013) [MP3|320 Kbps] <Oriental Electronic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71809.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sunlight - Son Of The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71816.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Riptyde - Of Conquest And Downfall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71823.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|image + .cue] <Doom, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71824.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71849.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Enchanted Steel - Might and Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71866.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kamanchaka Iquique - Esmeralda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71868.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Noirad - Aegean Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71869.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71877.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Post Meridiem - Академистика (2015) [MP3|256 Kbps] <Hard Rock, Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71881.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nazty Gunz - Hot Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71885.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71893.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71911.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71914.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71915.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71916.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71919.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lord Agheros - Anhedonia (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian ambient b
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71943.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71970.jpg" />
 </div>
 
 

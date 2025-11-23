@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:28CFCF9AE3EE80BA854133E2AC714FCD62E8EFF8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48066.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:52F72B86AFB8B1AD0C420900C6C5E02BDD8BB3EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48067.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:338107A126F75A0015FFEC33A180F0BF3F1E1CF8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48068.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Music News For Forum vol.007 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48069.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4190341D46555D7531B7DD76ED206F28B73A2708
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48070.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Fyodor Dostoevsky | Dostoevsky: Letters and Reminiscences (1923) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48071.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B7ADD29A9D6E8AC967E66397FBF2F6799A1C06FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48072.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B7ADD29A9D6E8AC967E66397FBF2F6799A1C06FA
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48073.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:57C0833081D0AD7800E347BDA266A17827D5503F
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48074.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:544B73796FFD18E805AA585B2E04EAF9CC8A4EBE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48075.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Трибьют Руки Вверх! (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48076.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9144FD5BEDFB9265ECDFC2197FCC6A8CBD6A1DE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48077.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0522EBC560FA8AB11FADF56A55061E2CB30BBAAA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48078.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ogu and the Secret Forest / Огу и Таинственный Лес (2024) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48079.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ iZotope - VEA 1.0.2 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48080.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:8983441A22652B231619D951745F3F495D8F0F20
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48081.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:1CA45881EC100B453053A29F5D66A62C5A0E6EBC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48082.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:4C64F5216CDD66A15845033EA267E200E3718FF3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48083.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:3F44C4E7F16279524C1FB2D135A621B5CC394978
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48084.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4543340615C10D59BD50FEDD3191B02BC9A58ADC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48085.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:7CF5DBEFC6E9589EEEB3C84693B866E78CAA24AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48086.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The Backrooms: Survival (2022) [En] (1.28) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48087.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:FCBD5E89580F100A64DCA52D3595836FB016F509
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48088.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Antivirus Removal Tool 2024.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48089.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:690E790EA1CC8D74A31E2343755E44B5AC8FC114
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48090.jpg" />
 </div>
 
 

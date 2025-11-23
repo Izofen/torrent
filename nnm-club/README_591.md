@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15675.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FacePic - AI Face App v2.6.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15676.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4C56E30E0E31A432E3499B0487BC104FD85DD301
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15677.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BB1081ABEBCB2AE31462FA7BB1C2E6E9690F6523
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15678.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C77F89F359680EEC5260EF960D06CCC97E915C1C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15679.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:322DE4738B3282CC7EF1B833816A6840CC334FA2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15680.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15681.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2B72BD3EE8865CA1390E5542E9DA3EFB2B68197F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15682.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ OCCT 14.0.13 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15683.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E2A24D2946783733B154C31D8842FBE10E5796A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15684.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:71C92821F94AAEE4EAD9C2EB44FEDD7BD462DCDB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15685.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1B62AABB226E87C6F1CBE17D33585ABBC1270BC1
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15686.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:87D29D87364DF83C18A2E3BE306040B52503916E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15687.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15688.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15689.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15690.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15691.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15692.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:D0F91CC2E31A8299180109011463E8311FC00981
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15693.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15694.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15695.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15696.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Ashampoo Driver Updater 1.8.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15697.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Total Commander 11.55 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15698.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:42DA2B3569BCCD9A92C57E40672F4C902B042046
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15699.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15700.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99451.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Dj VoJo - STYLE vol.2: В Ж...ПУ ПАФОС (07.04.2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99455.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99457.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99457.jpg" />
 </div>
 
 
@@ -101,7 +101,7 @@ The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99459.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99460.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99462.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99464.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99465.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99467.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99471.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99473.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99474.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99475.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99476.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99480.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99483.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99486.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99488.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99489.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Techni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99490.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99492.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99493.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99494.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99497.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99504.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ magnet:?xt=urn:btih:A0FB221012A1154FC944B478BDCD258EE866A498
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99509.jpg" />
 </div>
 
 

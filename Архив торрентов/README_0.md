@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1678.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 16.09.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1692.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1828.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RUTUBE - видео, шоу, трансляции 30.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1845.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:81396621216D15D73713F7C62F91C85FB06E416C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1858.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Serif Affinity Photo 2.6.3.3322 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1880.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Remini / Улучшение Фото v3.7.1070.202515697 Mod by Mixroot [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1882.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Flyoobe 1.21.411 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1889.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Internet Download Manager 6.42 Build 45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2031.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Internet Download Manager 6.42 Build 45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2032.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Chromium 140.0.7339.186 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2039.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:66B70B84F8CB95903601A225D2D96793922ED812
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2044.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ YT Downloader 9.17.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2047.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MassTube Ultra 21.0.2.164 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2048.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Opera One 122.0.5643.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2068.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Vivaldi 7.6.3797.52 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2170.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ YT Downloader 9.17.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2179.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Internet Download Manager 6.42 Build 43 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2186.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:30023509FFE1FD98CBD16660D4A79733BAA7E696
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2199.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ IObit Driver Booster Pro 13.0.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2210.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Purvpn 9.2 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2213.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Google Chrome 140.0.7339.186 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2224.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ InnoExtractor Ultra 11.1.0.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2304.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MassTube Ultra 21.0.2.164 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2334.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Internet Download Manager 6.42 Build 43 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2344.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.3 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2353.jpg" />
 </div>
 
 

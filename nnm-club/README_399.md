@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:447E1EF98116067C3B8E5FD54735D94C9E6A3CDD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D87B5F297D841351652807631F84B77169982C00
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10559.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CCleaner 6.38.11537 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10560.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10561.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10562.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:CB59DF4BEE35755456498CAC99999616E7B59E79
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10563.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ TuneIn Radio Pro v39.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10564.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:8F83843F482426C2F45765EFF4E95EEA23114DC1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10565.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5E6EC1A1ADC777694AB4470928A74007829B0EBE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10566.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ YT Downloader 9.12.21 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10567.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:329D5E072E30FD6D32A56325ECBC6D14C961CDEF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10568.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A4C9191491090A1BAB8E48FC4AADE13BCFF72E3E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10569.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:89C88C6C723E8553DA4E704FEC347F638FCF9FE9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10570.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0B08A4AEED3481DEDFB0FFBF2647780916EF0998
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10571.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:447773D43EAEB0A703BF52EC85F3CD73E163E93F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10572.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:91B9CBB31229D3A46BFB408A6D1E6DDAA2249F77
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10573.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E4BBD4BDA4BF187AF728684229B40E7A34174D01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10574.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Satin Jackets - Cruise Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10575.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:ED743CC1E36ED939A3DB1262589CC3EB9C5B327B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10576.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:BCFEA7EAE5506080A1CC0E918343B10523B9CBC0
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10577.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:0C6F31C4ED33E3A39232831B0F109760B1C127D0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10578.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7D53480D35A0AA9FB934E7A1B47EF353772845DD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10579.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:574E6A1BD3703772A1B6649116BD5D94FE113D6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10580.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:053F4951DBB6A679276612473DE1BF3C14229F3D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10581.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ilan Bluestone - Anthem Test (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - fun and funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70767.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5A4529C3D00D25B58C40D6C68B82B966F57555FA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70768.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70769.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70770.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70771.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:86CD1D4157AAEEE742A3A3EDDBD68E657815FE1B
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70772.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70773.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70774.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 1) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70775.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Latin Jazz House & Beats (2025) [FLAC|Lossless|WEB-DL|tracks] <Latin Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70776.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E8F7B7F4AA95833DBF525FCF318B5019D78FEA59
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70777.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5DAB63971CB53C0F4345446C059CC31FC5C59EF4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70778.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EA00EBEA86AF4B0D7BC8A560C412C670B32E02E0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70779.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B98E63FDDF21D391FD5027A001FB8013C7C6537C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70780.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:191D1912C8F1F971564F2D24D61D9480466C919C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70781.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:26D6AA8A0942CB074AFC4F3F492BC46507F24DDB
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70782.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:4BFB327039F7126CE256AD847CA851B8231E17E6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70783.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E53FDFE1FA687D4CE20C2C52BFF07B35047CAF97
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70784.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70785.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70786.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AC6F2875631613A6D98A0732518800D71E506A8C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70787.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:6ABDD4B5430C70DAC4F3E61BDF508AA7A52FDAC9
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70788.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sante DICOM Viewer Pro 14.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70789.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:AC21B529A0E85659D76372D656C40DD143A9A706
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70790.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sante DICOM Editor 10.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70791.jpg" />
 </div>
 
 

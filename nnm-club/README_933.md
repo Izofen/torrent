@@ -6,7 +6,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24595.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DigiKam 8.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24596.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Soft Rock Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24597.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24597.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rosetta Stone: Изучение языков v8.32.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24598.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24598.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:22E981980FD2CDB0964FDBC15AAFA308F3C88B15
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24599.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24599.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dual Space - Multiple Accounts & App Cloner 6.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24600.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4251B89F1BB151638FF685DE700D7F5DCCE786CE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24601.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24601.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24602.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24602.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F0FCEABC2A97EB6DBAB634CEB48F1001FE827013
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24603.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E282449F8CEE7BC36A04F73ACF7A19082CFC850A
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24604.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24604.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24605.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24605.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MobaXterm 25.1 build 5288 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24606.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ FurMark 2.7.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24607.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24607.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A0C00909FB1F2FA5B4019F7148A7878971DC6BB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24608.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:81EE432F44C3FB0FAA534ABCD68D365CE4250E69
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24609.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Udemy, Businge Ismail | Houdini for every Artist (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24610.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24610.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ LazyMedia Deluxe v3.368 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24611.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1F3A5036C434C54124431414A23B0BF86EE3E2A1
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24612.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24612.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:23DCE634D9FFCCB05554B33E07080F03C18C12AD
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24613.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:84681F0ABA0C0786A4E35F0FCC2E61E56D32A594
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24614.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:F28FD4F12BC593A20C8A741BCDBC900C1D65BD25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24615.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24615.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.312.0.0/dlc) Repack Other s [Digital 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24616.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.312.0.0/dlc) Repack Other s [Digital 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24617.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24617.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.03.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24618.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:CADD15ADF46D805F6720CEEA9E5956EDBA41B279
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24619.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24619.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Display Driver Uninstaller 18.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24620.jpg" />
 </div>
 
 

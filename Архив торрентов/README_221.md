@@ -6,7 +6,7 @@ Change MAC Address 24.06 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CCleaner 6.25.11131 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Video AI 5.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51404.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adguard 7.17.2 (7.17.4712.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51406.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ nthLink 6.4.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51407.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ashampoo Photo Optimizer 10.0.4.11 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51409.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Artweaver Plus 7.0.17.15576 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51414.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Snappy Driver Installer Origin R765 | Драйверпаки 24.06.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51420.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ CCleaner 6.25.11131 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51421.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ IM-Magic Partition Resizer 7.2.0 Professional |Server | Unlimited Edition RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51428.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PotPlayer 240618 (1.7.22266) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51430.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wondershare UniConverter 15.5.14.110 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51433.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:A4A4C2B2AADBE02890B3F04EADECFD48A57AF4C8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51436.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Reg Organizer 9.45 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51440.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Date a Live V | Рaндeву с жизнью [ТВ-5] [2024, TV, 12 из 12] WEB
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51441.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 43 Public Beta 4 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51446.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ qBittorrent 4.6.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51449.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ iTop VPN 5.6.0.5262 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51465.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:6B4C06EF1494C5B711E3E95645E6B9086819B936
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51470.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Windows Manager 2.0.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51478.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ PictureThis - Plant Identification v4.0.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51490.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Double Commander 1.1.16 gamma + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51495.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VidCoder 10.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51500.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ashampoo WinOptimizer 27.00.03 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51510.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Chromium 126.0.6478.127 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51536.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Adobe Photoshop 2024 25.9.1.626 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51573.jpg" />
 </div>
 
 

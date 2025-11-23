@@ -6,7 +6,7 @@ OneCommander Pro 3.70.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114370.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ FinePrint Software (FinePrint 11.42 / pdfFactory Pro 8.42) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114373.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Gigapixel AI 7.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114377.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ NirLauncher Package 1.30.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114378.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Photo AI 2.4.0 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114379.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Windows 10 Manager 3.9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114381.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Malwarebytes Windows Firewall Control 6.9.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114385.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ uJAM - Beatmaker BUNDLE 2.3.1 (03.2024) VSTi, VSTi 3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114389.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ nthLink 6.2.6.0 x86 / 6.3.1.0 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114398.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ EZ CD Audio Converter 11.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114410.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114411.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Topaz Video AI 4.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114413.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 04.03.2024) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114420.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114441.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tenorshare 4uKey - Password Manager 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114442.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Malwarebytes AdwCleaner 8.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114451.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114457.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114458.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114459.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114461.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114463.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114464.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114466.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Serial Box & SerialSeeker 03-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114468.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Affinity Designer 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114470.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Affinity Publisher 2 v.2.4.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114472.jpg" />
 </div>
 
 

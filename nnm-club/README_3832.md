@@ -1,3 +1,83 @@
+###  Публикация: 1696743   (119314) от 04.02.2024
+
+Oromet - Oromet (2023) [MP3|320 Kbps] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Familiar Spirits
+02. Diluvium
+03. AlpenglowЖанр: Funeral Doom MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72FE92C842B2D71330B4EA4A06809EAA823E1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696830   (119315) от 04.02.2024
+
+Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation (Meditacao) [4:52]
+02. Shadow Waltz [2:06]
+03. Mood Indigo [3:24]
+04. More Than You Know [3:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CA487108EDA048F7749853C26B4872564AC24E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696946   (119316) от 04.02.2024
+
+The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Systems, Go! (5:08)
+02. The Archimedean Point (6:06)
+03. The Electrics Were Down (5:55)
+04. Lacus Temporis (10:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696929   (119317) от 04.02.2024
 
 Маленькая задира / The Little Tease (1913) WEBRip
@@ -6,7 +86,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119317.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119318.jpg" />
 </div>
 
 
@@ -57,7 +137,7 @@ The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119319.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ Randy Stark - At the Tower (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119320.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119321.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ magnet:?xt=urn:btih:BCF1CC9E3213FC2B8FC6840B251971E7B4A09E87
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119322.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ StaxRip 2.35.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119323.jpg" />
 </div>
 
 
@@ -187,7 +267,7 @@ magnet:?xt=urn:btih:3B75BF842B4A5B042D7026FEDD00E378C4FF1EA9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119324.jpg" />
 </div>
 
 
@@ -211,7 +291,7 @@ magnet:?xt=urn:btih:1FCEAC9B1D68D76C4CE66EA9AEA27C6FE6D440AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119325.jpg" />
 </div>
 
 
@@ -235,7 +315,7 @@ Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119326.jpg" />
 </div>
 
 
@@ -262,7 +342,7 @@ magnet:?xt=urn:btih:48EDBE8B6E858359FB650B1741AB869BBE2512CD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119327.jpg" />
 </div>
 
 
@@ -287,7 +367,7 @@ Helloween - Treasure Chest (2002) Bonus Track Edition, 2024, Noise Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119328.jpg" />
 </div>
 
 
@@ -314,7 +394,7 @@ magnet:?xt=urn:btih:7AB603C7FDBC2E3465A50CEE6368DE349E8A447A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119329.jpg" />
 </div>
 
 
@@ -338,7 +418,7 @@ magnet:?xt=urn:btih:6049E1A1476F257BFAC18673C05FB9CBECF6A8DC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119330.jpg" />
 </div>
 
 
@@ -366,7 +446,7 @@ magnet:?xt=urn:btih:5E3ECF6E16927DFBF872B82290D478F8BD6F01AF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119331.jpg" />
 </div>
 
 
@@ -393,7 +473,7 @@ magnet:?xt=urn:btih:1B15A610619EFA36E20B982F0146751DF6CECB03
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119332.jpg" />
 </div>
 
 
@@ -420,7 +500,7 @@ magnet:?xt=urn:btih:1A104893106447B1F0A71ED1ED5AA82E4A1D34D6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119333.jpg" />
 </div>
 
 
@@ -444,7 +524,7 @@ Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119334.jpg" />
 </div>
 
 
@@ -471,7 +551,7 @@ Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119335.jpg" />
 </div>
 
 
@@ -498,7 +578,7 @@ magnet:?xt=urn:btih:CE8966109ADAC623AEDA48E0D06AD952B7CE2624
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119336.jpg" />
 </div>
 
 
@@ -522,7 +602,7 @@ magnet:?xt=urn:btih:2436477FFC195024F6A6BD07B7CCE40DFB8DC559
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119337.jpg" />
 </div>
 
 
@@ -546,7 +626,7 @@ magnet:?xt=urn:btih:8DF122B4C8D8B4467A8F7FD3C7884CFBFA814EFD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119338.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ magnet:?xt=urn:btih:BD6A4FCA69CB8C6C2924240550B1F7DFAF3F4FDB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119339.jpg" />
 </div>
 
 
@@ -584,81 +664,6 @@ magnet:?xt=urn:btih:BD6A4FCA69CB8C6C2924240550B1F7DFAF3F4FDB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBCBA2271E0051C34A0B199DBBE5ED3E9B6FA645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696889   (119340) от 04.02.2024
-
-Skype 8.112.0.206 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DD2461876F85803EE6AF2B455563F2B595936F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696819   (119341) от 04.02.2024
-
-James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Neo-Soul, Future-Garage, UK-Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me (Pt. 1 / Endel Focus Soundscape) [00:02:36]
-02. Tell Me (Pt. 2 / Endel Focus Soundscape) [00:03:30]
-03. Tell Me (Pt. 3 / Endel Focus Soundscape) [00:03:07]
-04. Tell Me (Pt. 4 / Endel Focus Soundscape) [00:03:16](   Читать дальше...   )Жанр: Electronic, Neo-Soul, Future-Garage, UK-BassПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77AF07F8BB83935BFA367C551868F754E8FEC42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696784   (119342) от 04.02.2024
-
-PictureThis - Plant Identification v3.77 Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 31.01.2024Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25DC27CB83617796FFBD7E01DB0D569EF5678FC
 ```
 
 

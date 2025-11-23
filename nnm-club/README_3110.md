@@ -1,3 +1,79 @@
+###  Публикация: 480847   (99182) от 10.04.2012
+
+Эпицентр / Epicenter (2000) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_99182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
+
+Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
+
+Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480856   (99184) от 10.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480863   (99185) от 10.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480860   (99186) от 10.04.2012
 
 [Wallpapers] Wallpapers Sexy Girls (10.04.12)
@@ -6,7 +82,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99186.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99193.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99196.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99197.jpg" />
 </div>
 
 
@@ -112,7 +188,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99199.jpg" />
 </div>
 
 
@@ -145,7 +221,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99203.jpg" />
 </div>
 
 
@@ -178,7 +254,7 @@ Alix Combelle - The Swinging Mister Alix (2000) [MP3|320 кб/с]<Saxophone Jazz
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99204.jpg" />
 </div>
 
 
@@ -211,7 +287,7 @@ FeedDemon 4.0.0.22 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99208.jpg" />
 </div>
 
 
@@ -239,7 +315,7 @@ FeedDemon - Одна из наиболее достойных программ �
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99209.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99209.jpg" />
 </div>
 
 
@@ -265,7 +341,7 @@ FeedDemon - Одна из наиболее достойных программ �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99212.jpg" />
 </div>
 
 
@@ -289,7 +365,7 @@ VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99215.jpg" />
 </div>
 
 
@@ -322,7 +398,7 @@ magnet:?xt=urn:btih:E863C37C1FC750F479DB4784DFFA27EE0E8B5449
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99218.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99218.jpg" />
 </div>
 
 
@@ -346,7 +422,7 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99223.jpg" />
 </div>
 
 
@@ -378,7 +454,7 @@ magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99230.jpg" />
 </div>
 
 
@@ -405,7 +481,7 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99231.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99231.jpg" />
 </div>
 
 
@@ -438,7 +514,7 @@ Hot Chocolate - Their Greatest Hits (1993) [FLAC|Lossless]<Pop Rock, Ballad, Dis
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99233.jpg" />
 </div>
 
 
@@ -462,7 +538,7 @@ magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99234.jpg" />
 </div>
 
 
@@ -488,7 +564,7 @@ magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99236.jpg" />
 </div>
 
 
@@ -512,7 +588,7 @@ Marica Hiraga with Manhattan Jazz Quintet - Close to Bacharach (2008) [MP3|320 �
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99242.jpg" />
 </div>
 
 
@@ -545,7 +621,7 @@ magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99243.jpg" />
 </div>
 
 
@@ -569,7 +645,7 @@ magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99244.jpg" />
 </div>
 
 
@@ -593,7 +669,7 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99247.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99247.jpg" />
 </div>
 
 
@@ -619,7 +695,7 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99253.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99253.jpg" />
 </div>
 
 
@@ -630,96 +706,6 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480765   (99254) от 10.04.2012
-
-Королевство океанов. Между Сушей и Морем / Kingdom of the Oceans. De La Terre A La Mer (2011) BDRip [сезон 1 серия 4]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о безграничности и свободе подводного мира, о королевстве живого разумного существа по имени Океан станет еще одной познавательной страницей в жизни нашего космоса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный - А. ДасевичПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66984FC3C07CF03AE39BB1E153D98776597D3791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480481   (99255) от 10.04.2012
-
-Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Drum & Bass, Soulful>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Crimea & Physical Illusion - Soulful Nights (06:51)
-02. Sunny Crimea & Physical Illusion - Your Lovers Tear Across The Kiss (06:31)
-03. Sunny Crimea & Physical Illusion - Too Hot (06:35)
-04. Sunny Crimea - Underneath (06:04)
-05. Physical Illusion - Desperately (07:19)
-06. Physical Illusion - Brilliants (05:28)
-07. Sunny Crimea - Lounge - Lizards (06:00)
-08. Sunny Crimea & Physical Illusion - Fading Shadows (05:51)
-09. Sunny Crimea & Physical Illusion - Way Out (06:17)
-10. Sunny Crimea & Physical Illusion - Fading Shadows (Stunna Remix) (06:52)2012Жанр: Drum & Bass, SoulfulПродолжительность: 1:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D591D99421B391351D4C4033ACD43F431D45E9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480716   (99256) от 10.04.2012
-
-Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles Was Du Brauchst
- 02. Volkerball
- 03. Gnadenlos
- 04. Doktor
- 05. Radioaktiv
- 06. Weichen Und Zunder
- 07. Foltergeist
- 08. Gammelfleisch
- 09. Heldmaschin
- 10. Konigin(   Читать дальше...   )2012Жанр: Industrial MetalПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
 ```
 
 

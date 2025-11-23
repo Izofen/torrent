@@ -6,7 +6,7 @@ Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбниц
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) Mod by Balatan v5.10.2 [Ru/Mu
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B4BBB0AF4D02DBE78437630CEB44C9C247017BD9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61364.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:34E2DF0E66DF19823C6779948F14EFB9FBFC46CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61365.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6D4F221B10CB3EBB6B04156DA9B6F45C41836034
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61366.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ STAR WARS: Battlefront Classic Collection (2024) [Ru/Multi] (20240319/dlc) Repac
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61367.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DBED1D75BB54DC62DA16740CA81B552FC4206F15
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61368.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chiyu Mahou no Machigatta Tsukaikata / The Wrong Way to Use Healing Magic / Не
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61369.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61370.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61371.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:59F7DB9821DE74F72FBB1222A0B6756118A87FB6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61372.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4A60C6772C6C52C647723477FDBF1FE874FE36D1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61373.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:6BC4446C08C2621CD9FAAAEB54F7B6E1FD7DDEE7
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61374.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Best Songs: The 70s (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61375.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Opera One 109.0.5097.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61376.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61377.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1A20AAE91A7BC3CD88C62DA3F9DDEDF0D8EFAB15
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61378.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Gigi D'Agostino - Sound of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <EuroDance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61379.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D8451ED4B4F27B6CF4E22A8C794CE7F257B8A525
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61380.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pacifist 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61381.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ OpenNumismat 1.9.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61382.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ IconChamp for Mac 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61383.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4C99C6FB29CDB5B6A94F018715BDB35C55970DE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61384.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Folder Icons 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61385.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:46C45B36C5B6CD30FFF0621767A01E5F71779EF3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61386.jpg" />
 </div>
 
 

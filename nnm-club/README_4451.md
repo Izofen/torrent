@@ -1,3 +1,81 @@
+###  Публикация: 1520808   (137624) от 31.12.2021
+
+Множественные святые Ньюарка / The Many Saints of Newark (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137624.jpg" />
+</div>
+
+
+###  Подробнее
+
+1967 год, Ньюарк в штате Нью-Джерси. Маленький Тони Сопрано восхищается деловым партнёром отца — Ричардом Молтисанти по прозвищу Дики. Тот ответственно ведёт доверенную ему отцом, местным криминальным авторитетом, часть бизнеса и, в отличие от остальных мафиози, не гнушается иметь дело с чернокожими. Когда в городе вспыхивают беспорядки, спровоцированные жестоким (   Читать дальше...   )Производство: США / Chase Films, HBO Films, Home Box Office (HBO)Жанр: Криминал, драмаРежиссер: Алан ТейлорАктеры: Алессандро Нивола, Майкл Гандольфини, Лесли Одом мл., Вера Фармига, Джон Бернтал, Кори Столл, Рэй Лиотта, Микела Де Росси, Билли Магнуссен, Джон МагароПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4698A3E9C525EFEB6D22914D7FA8492480F770CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436251   (137626) от 31.12.2020
+
+History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:53]
+02 - Между Небом И Землей [00:03:16]
+03 - Ненавижу [00:03:08]
+04 - Разберись В Себе [00:04:01](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68255256B3221D3A2D42A884099ECF449DF0AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679434   (137627) от 25.11.2023
+
+Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexodus (3:32)
+02. Love Is Blue (3:56)
+03. What’s That Look (3:26)
+04. Romanism (3:08)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2228D2D788EDFB71F6224BD053DB9C8DB5AADF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196126   (137628) от 31.12.2017
 
 Двойник / The Assignment (1997) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137628.jpg" />
 </div>
 
 
@@ -31,7 +109,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137630.jpg" />
 </div>
 
 
@@ -55,7 +133,7 @@ magnet:?xt=urn:btih:D1C2279B39F10B308A38A9ED0B91F01E6D018232
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137632.jpg" />
 </div>
 
 
@@ -79,7 +157,7 @@ WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137633.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ magnet:?xt=urn:btih:207EF04AA421267E6439A1CA4641B5E4ED263547
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137634.jpg" />
 </div>
 
 
@@ -130,7 +208,7 @@ magnet:?xt=urn:btih:4AC8FB0485CE6A8368A5514F1B6438AD15773281
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137637.jpg" />
 </div>
 
 
@@ -154,7 +232,7 @@ magnet:?xt=urn:btih:4772C9B136157A39D38A44B6BBB115FA186B9217
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137638.jpg" />
 </div>
 
 
@@ -178,7 +256,7 @@ magnet:?xt=urn:btih:6920E532DCCDCC082536E416654FF24F25668A59
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137639.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ magnet:?xt=urn:btih:8929FC9D4023420D05A671FEE957CDB0C76F7AF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137640.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ MediaInfoXP 2.44 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137642.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ Gary Butcher aka Gary B, Luminous: ex resident of Cafe Del Mar - Discography 10 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137643.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ magnet:?xt=urn:btih:57AFD4B8681633E3D5D60505EA621BFB77011530
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137646.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ magnet:?xt=urn:btih:C11696AED7FCC41F3FA0999EBA7CF686B50E7BCC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137647.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137649.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ Volume2 1.1.5.404 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137650.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137651.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137652.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ magnet:?xt=urn:btih:803BA047DC0E6B40E076E10BC91E5CF06CDC54EA
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137653.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ magnet:?xt=urn:btih:20867699534CAD09E8E1BD04791F37A475179999
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137654.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Mylene Farmer - Видеоколлекция от ALEXnROCK (2017) BDRip, DVDRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137656.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ magnet:?xt=urn:btih:96C05CE8C5BC61D13C4108041A7C4A326964CA1C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137657.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ magnet:?xt=urn:btih:8431783A8B287E858D4656EE6CECF63A68FEC493
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137658.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ magnet:?xt=urn:btih:1F8F3A4B8D0D938598C9D8422742B8E2676009E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137659.jpg" />
 </div>
 
 
@@ -564,81 +642,6 @@ magnet:?xt=urn:btih:1F8F3A4B8D0D938598C9D8422742B8E2676009E7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6528A3DD8D4004F0D51079F18B53F27E80082C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601312   (137661) от 31.12.2022
-
-Wise Disk Cleaner 10.9.7.813 RePack (& portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0E90305FD4D4492C1985FC0B7D7878AB1CA8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605927   (137663) от 31.12.2016
-
-Верка Смердючка - 6 альбомов (2003-2006) [FLAC|Lossless|image + .cue] <Pop / Parody>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 | Мы весело гуляем | 02:57
-02 | Пылесос | 02:36
-03 | Цибуля | 02:35
-04 | Йоги рекетиров не бояться | 03:12(   Читать дальше...   )Жанр: Pop / ParodyПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE210CCF5BBCF83ECA9E12EED42CF48D053C909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679549   (137664) от 25.11.2023
-
-С Богами: Последние 49 дней / Singwa hamkke: ingwa yeon / Along with the Gods: The Last 49 Days (2018) BDRip [AV1/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший мстительный призрак Ким Су-хон предстаёт перед королём Подземного мира, и ангел смерти Кан-ним просит для него прохождение обычной процедуры — он уверен, что сможет убедить судей в невиновности своего подопечного. Король соглашается, но ставит условия: в течение 49 дней ангелы должны вознести душу старика Хо, чьё земное время давно истекло, и доказать невиновность (   Читать дальше...   )Производство: Юж. Корея / Dexter Studios, Lotte Entertainment, Realies PicturesЖанр: драма, фэнтези, приключенияРежиссер: Ким Ён-хваАктеры: Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ма Дон-сок, Ким Дон-ук, Ли Джон-джэ, Чо Хан-чхоль, Лим Вон-хи, Ким Мён-гон, Чон Ю-анПеревод: двухголосый любительский, многоголосый любительскийЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1973F5EE478B76B49C25972B039B4A4DDE03D9
 ```
 
 

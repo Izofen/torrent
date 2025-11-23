@@ -1,3 +1,153 @@
+###  Публикация: 1330531   (140524) от 29.12.2019
+
+Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история разворачивается в мире цивилизованных антропоморфных животных, где хищникам и травоядным приходится сосуществовать вместе. В большинстве учебных заведений двум отрядам позволяют учиться вместе.
+Главным героем станет серый волк по имени Легоси, который обучается в подобной школе и состоит в драмкружке. На вид он кажется опасным, но на деле он мягкий и (   Читать дальше...   )Производство: OrangeЖанр: драма, психология, повседневностьРежиссер: Мацуми СинъитиПеревод: laciЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97F56B5A8C96789D0FA33BD5D0AC196D709FE6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272732   (140526) от 29.12.2018
+
+Атул Гаванде | Все мы смертны. Что для нас дорого в самом конце и чем тут может помочь медицина (2019) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140526.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге известный американский хирург говорит о том, что возможности современной науки существенно изменили течение человеческой жизни. Теперь мы живем более качественно и значительно дольше, чем, например, сто лет назад.
+Но есть и другая сторона медали: из-за научных достижений процессы старения и умирания превратились в один из медицинских феноменов. Теперь (   Читать дальше...   )Жанр: Медицина, Психология и психотерапияПеревод: Анастасия БродоцкаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2869835470744EE0F8B4D56E3D7CAC3041889DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679121   (140527) от 24.11.2023
+
+Dead Moon - Going South (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Must Be A Witch [00:02:53]
+02. Dead Moon Night [00:04:55]
+03. Don't Burn The Fires [00:03:47]
+04. Johnny's Got A Gun [00:02:41](   Читать дальше...   )Жанр: Hard-Rock, Punk-RockПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF29FE39E34D6749494D1BDF8DF50E138E084FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351312   (140528) от 29.12.2019
+
+Горбун из Нотр Дама / The Hunchback (1997) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позднее французское средневековье, Париж конца XV века. Сюжет фильма предстает в виде истории — легенды на фоне мастерски воссозданного исторического колорита.
+Трое мужчин: архидиакон Собора Парижской Богоматери Клод Фролло, звонарь собора — горбун Квазимодо и поэт Пьер Гренгуар добиваются любви одной женщины — цыганки Эсмеральды, но основное соперничество возникает (   Читать дальше...   )Жанр: Мелодрама, ДрамаРежиссер: Питер Медак /Peter Medak/Актеры: Сэлма Хайек /Salma Hayek/, Мэнди Пэтинкин /Mandy Patinkin/, Ричард Харрис /Richard Harris/, Эдвард Аттертон /Edward Atterton/, Джим Дэйл /Jim Dale/, Бенедик Блайт /Benedick Blythe/, Найджел Терри /Nigel Terry/Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4877E564EB1B820F5452C5E1226566BDF5E1E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435697   (140529) от 29.12.2020
+
+Лори Готтлиб | Мне нужен самый лучший! (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему столько умных, красивых, интересных женщин в свои 30 все еще одиноки? Как «успеть» выйти замуж и завести детей? Какие предрассудки и заблуждения мешают в личной жизни? Новая книга Лори Готтлиб – это отрезвляющее, часто смешное, местами болезненное, но максимально честное исследование женских романтических амбиций.Жанр: О психологии популярноПродолжительность: 09:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA29191D7D7B374D09BEC840F4FBB2AB63E0F824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195656   (140530) от 30.12.2017
+
+Растровый клипарт - Animals #13 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 301x398-9144x5529
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2A5F89AA78B94EE19E2E98288FB62D82AF2C6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590829   (140531) от 18.12.2012
 
 Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
@@ -6,7 +156,7 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140531.jpg" />
 </div>
 
 
@@ -38,7 +188,7 @@ Blinded Colony - Bedtime Prayers (2007) [WavPack|Lossless]<Melodic Death Metal>
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140532.jpg" />
 </div>
 
 
@@ -62,7 +212,7 @@ SQLiteFlow 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140533.jpg" />
 </div>
 
 
@@ -86,7 +236,7 @@ magnet:?xt=urn:btih:5A53D6133FCC6B839A40C7820D5190332AA4F611
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140535.jpg" />
 </div>
 
 
@@ -110,7 +260,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140536.jpg" />
 </div>
 
 
@@ -143,7 +293,7 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140537.jpg" />
 </div>
 
 
@@ -170,7 +320,7 @@ magnet:?xt=urn:btih:999AFAD6724824029261CFC1755D803E0A488DEF
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140538.jpg" />
 </div>
 
 
@@ -194,7 +344,7 @@ magnet:?xt=urn:btih:F2F4AB81E3B4DB91AABD08468E8B0F6389589102
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140539.jpg" />
 </div>
 
 
@@ -218,7 +368,7 @@ magnet:?xt=urn:btih:FAD0C4105DFE077812782B8109435CD0EF081669
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140541.jpg" />
 </div>
 
 
@@ -243,7 +393,7 @@ magnet:?xt=urn:btih:22D24D295895ED168F8256106AF51CC6813F5B1E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140543.jpg" />
 </div>
 
 
@@ -267,7 +417,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -291,7 +441,7 @@ magnet:?xt=urn:btih:C23F62C5AC272DF38A22FB5168FC22CB378A02FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140545.jpg" />
 </div>
 
 
@@ -315,7 +465,7 @@ Troglodyte - Don't Go In The Woods (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140546.jpg" />
 </div>
 
 
@@ -348,7 +498,7 @@ Timemator 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140547.jpg" />
 </div>
 
 
@@ -372,7 +522,7 @@ magnet:?xt=urn:btih:DA909C416CF24B87DCEC03BF220FDBDF7C151347
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140548.jpg" />
 </div>
 
 
@@ -396,7 +546,7 @@ magnet:?xt=urn:btih:43F8F2CB5226E6D5AFE6877566B004EE175078E7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140549.jpg" />
 </div>
 
 
@@ -420,7 +570,7 @@ magnet:?xt=urn:btih:A2CF28E1FC5FC2610F303DFE4A6CAEC8B1F0553E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140551.jpg" />
 </div>
 
 
@@ -444,7 +594,7 @@ magnet:?xt=urn:btih:CAC345BD46AFF2C2DBD7F29AA8AC529E02218288
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140552.jpg" />
 </div>
 
 
@@ -468,7 +618,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140553.jpg" />
 </div>
 
 
@@ -492,7 +642,7 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140554.jpg" />
 </div>
 
 
@@ -506,155 +656,6 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C093D59B938DC9861905EE739FD9BACCDE80CDC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348912   (140555) от 29.12.2019
-
-Ford против Ferrari / Ford v Ferrari (2019) WEBRip [Line, AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция / 20th Century Fox Film Corporation, Chernin EntertainmentЖанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:32:30Реклама: Присутсвует банер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195718   (140556) от 30.12.2017
-
-Comedy Woman. 10 лет (2017.12.29) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развлекательное шоу, в котором пресловутая женская логика оказывается как нельзя кстати. Девушки с выдающимся юмором и не менее выдающимися формами не позволят заскучать самому закоренелому снобу и накажут смехом даже законченного шовиниста. Сomedy Woman - место, в котором приятно побывать и не стыдно об этом вспомнить! Особенно зажигательные танцы, очень смешные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-Шоу, юморАктеры: Наталья Еприкян, Екатерина Скулкина, Екатерина Варнава, Мария Кравченко, Полина Сибагатуллина, Татьяна Морозова, Надежда Сысоева, Надежда Ангарская, Марина Федункив.Субтитры: ОтсутствуютПродолжительность: ~ 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDD479B7DD7D8977C7A5337F7CE7F12F8CF4FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854943   (140557) от 30.12.2014
-
-Михаил Костин | Ложные истины (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Хроники Этории».
-На войне юноши взрослеют быстро. Сын простого торговца из деревушки Виллон Дарольд Ллойд и его друзья познают эту страшную аксиому на себе. Жестокая судьба не щадит их — вчерашние друзья оказываются врагами, а враги лишь растут в числе.
-По дорогам Этории мчатся закованные в сталь рыцари, льется кровь, горят города, и мрачные тени (   Читать дальше...   )Жанр: Боевая фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32729143E35A249A0739799EDED8A1E2718F316A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565288   (140558) от 29.12.2019
-
-Разбойник Варавва / Barabba (1961) DVD9
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библейская легенда о воре и убийце Варавве, которого помиловал Понтий Пилат. Он был схвачен римскими властями, приговорён к смерти, заключен под стражу и ожидал исполнения приговора, но, к счастью для него, канун казни совпал с иудейским празднованием Песах, где иудейскому народу по сложившейся традиции было дано право освободить от уголовного наказания (смертной (   Читать дальше...   )Жанр: Драма, ИсторическийРежиссер: Ричард Флайшер / Richard FleischerАктеры: Энтони Куинн, Сильвана Мангано, Артур Кеннеди, Кэти Хурадо, Гарри Эндрюс, Витторио Гассман, Норман Вуленд, Валентина Кортезе, Джек Пэланс, Эрнест БоргнайнПеревод: профессиональный (многоголосый закадровый) - лицензияЯзык субтитров: английские, испанские, французские, немецкие и др.Продолжительность: 02:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBD6658A37DD8D86481EADB02222D592A07D62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970486   (140560) от 30.12.2015
-
-А. Сидорова (ред.) | 200 кулинарных навыков, которые помогут вам правильно и вкусно готовить (2016) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не получается разделать курицу, замесить тесто необходимой консистенции, приготовить яйцо-пашот? С нашей книгой вы можете забыть о подобных трудностях! Здесь собраны и раскрыты секреты кулинарного мастерства, которые помогут вам усовершенствовать свою технику и превратить любое блюдо в маленький шедевр. Эта книга – не скучная многотомная теория, это практические (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D425FBA05D79FC542F313613F91CF7806FB51C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679170   (140561) от 24.11.2023
-
-Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Have the Power [00:02:05]
-02. Xenon Gods [00:04:23]
-03. A Silent Symphony [00:06:23]
-04. Bridge of Death [00:04:48](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
 ```
 
 

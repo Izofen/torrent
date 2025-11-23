@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135863.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E67E6FA841A520EAC367AD81607EBDDD914A9C27
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135872.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:96DD0B9FE86E30EFA976FDA2866138EDF20702FB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135878.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2FEA771A4400F11CAB42AB34A9D5C1375EFF38B8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135879.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ AnyDVD HD 7.1.3.0 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135883.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135883.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135890.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ AnyDVD HD - это программа для дешифрования CSS и с�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135909.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:8BBE1BC44CCFE4267EAEFBDDD9A7910B08E73739
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135911.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ USB Disk Security 6.2.0.30 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135917.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ USB Disk Security - инновационное программное обесп
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135920.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3743E49682CA2901F430B3B093D0A8E8382177D5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135925.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Monster Trucks Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135928.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ New year wallpapers 2013 (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135930.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ RonyaSoft Poster Designer 2.01.42 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135933.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135933.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Drum & Bass Remixers Vol. 2 (2012) [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135939.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ My Daily Wallpaper 6.00 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135942.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135942.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ New year wallpapers 2013 (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135950.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Desktop Wallpapers (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135953.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ HQ Wallpapers for a desktop (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135954.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:0071452D3427653ECF5585CC0CAE98194E186DC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135955.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dragon Wallpapers (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135956.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Best HD Wallpapers Pack (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135958.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Winter Wallpapers (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135964.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ New year wallpapers 2013 (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135965.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135966.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Winter Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135967.jpg" />
 </div>
 
 

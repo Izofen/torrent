@@ -1,3 +1,99 @@
+###  Публикация: 1430924   (169367) от 11.12.2020
+
+MyPublicWiFi 24.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169367.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyPublicWiFi - бесплатная программа, которая превратит ваш ПК в точку доступа Wi-Fi с брандмауэром и возможностью отслеживания адресов посещенных сайтов. Отличное решение для организации временной точки выхода в интернет в гостинице или на массовых мероприятиях, либо для расширения Wi-Fi покрытия в вашем доме. Есть возможность ограничить доступа пользователей к определенным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810BFEE3FAEAA8D2283ECBC4842354316FFB2997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515541   (169368) от 07.12.2021
+
+FBackup 9.4.460 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169368.jpg" />
+</div>
+
+
+###  Подробнее
+
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FC7FBB554AAB0C3B49E22C1CFD34203FEC76C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430748   (169373) от 11.12.2020
+
+Logic Pro X 10.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CADECBFBE83FE50CAC6B7799470A1052F68496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515456   (169375) от 07.12.2021
+
+TechSmith Camtasia 2021 Studio 2021.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89E6B39950B184BC4D46F78C18B558D3C91ACA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344533   (169381) от 11.12.2019
 
 Эверест / Abominable (2019) BDRip [H.264/1080p]
@@ -6,7 +102,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169381.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169390.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ Bandicam 4.5.3.1608 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169392.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ Adobe Acrobat Pro DC 2019.021.20058 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169393.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ QLab 4 v4.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169404.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ PotPlayer 1.7.21091 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169410.jpg" />
 </div>
 
 
@@ -150,7 +246,7 @@ magnet:?xt=urn:btih:A206A01B7307CF84BE2ACC5892B274ED02E56149
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169420.jpg" />
 </div>
 
 
@@ -174,7 +270,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.9 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169422.jpg" />
 </div>
 
 
@@ -198,7 +294,7 @@ WinRAR 5.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169426.jpg" />
 </div>
 
 
@@ -222,7 +318,7 @@ Psiphon 3 bild 151 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169438.jpg" />
 </div>
 
 
@@ -248,7 +344,7 @@ Air Printer - Printer Server Pro for Mac 5.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169441.jpg" />
 </div>
 
 
@@ -272,7 +368,7 @@ TechSmith Snagit 2022.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169451.jpg" />
 </div>
 
 
@@ -296,7 +392,7 @@ Transmit 5.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169456.jpg" />
 </div>
 
 
@@ -322,7 +418,7 @@ Keyboard Maestro 10 v10.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169458.jpg" />
 </div>
 
 
@@ -347,7 +443,7 @@ Auslogics Disk Defrag Pro 10.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169508.jpg" />
 </div>
 
 
@@ -371,7 +467,7 @@ Araxis Merge Pro Edition 2023.5973 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169521.jpg" />
 </div>
 
 
@@ -396,7 +492,7 @@ Winamp 5.9.1 RC3 Build 10025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169526.jpg" />
 </div>
 
 
@@ -420,7 +516,7 @@ Waterfox 2019.12 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169530.jpg" />
 </div>
 
 
@@ -444,7 +540,7 @@ Native Instruments Komplete Kontrol 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169538.jpg" />
 </div>
 
 
@@ -468,7 +564,7 @@ RAR Extractor  - unzi‪p‬ 8.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169545.jpg" />
 </div>
 
 
@@ -493,7 +589,7 @@ Internet Download Manager 6.38 Build 15 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169558.jpg" />
 </div>
 
 
@@ -517,7 +613,7 @@ Fork 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169560.jpg" />
 </div>
 
 
@@ -528,102 +624,6 @@ Fork 2.35 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D753B8E02CFE7E8C114151FB0B7079BDA2C7F04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430873   (169563) от 11.12.2020
-
-2Gis Все города 3.16.3 (Декабрь 2020) Portable by Punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169563.jpg" />
-</div>
-
-
-###  Подробнее
-
-2ГИС - справочник организаций, включающий в себя карты городов. Более 20 000 000 пользователей в более чем 250 городах России, Украины, Казахстана, Италии, Кипра и Чехии регулярно используют 2ГИС в личных целях и для решения бизнес-задач.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF86DF353516C77D3AE1BE9ED1CAB1288208684A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672559   (169568) от 28.10.2023
-
-GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169568.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CAD4E39AF8A874EDE4BE41A4A61721478796A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344532   (169572) от 11.12.2019
-
-Эверест / Abominable (2019) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие на самую высокую точку мира? Что может быть круче! Так решает Лу, когда случайно находит огромное, но очень милое чудовище посреди шумного мегаполиса. Пусть их преследуют ученые из сверхсекретной лаборатории, зато её новый друг умеет смешить и творить чудеса. Лу уверена, что поможет дружелюбному йети вернуться домой — на Эверест.Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Джилл Калтон, Тодд ВилдерманПерсонажи: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2C39FA8B232C52655426FB3AFA7055762A7B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430737   (169573) от 11.12.2020
-
-Icecream PDF Editor PRO 2.43 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D85A5994087450CB388171DB08ADBC6C999EC33
 ```
 
 

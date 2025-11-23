@@ -6,7 +6,7 @@ Radio Moscow - 7 Albums (2007 - 2017) [FLAC|Lossless|tracks + .cue]<Garage Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128082.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Runemagick - Last Skull Of Humanity (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128084.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128091.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ammanas - Solitude (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128221.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128222.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sword - III (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128223.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128225.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Foetal Juice - Grotesque (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128226.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128227.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Off Grid - Reign Of The Architect (2023) [MP3|320 Kbps] <Progressive Rock, Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128249.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128258.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ David Gilmour - Rattle That Lock (2015) Japanese Edition, Reissue, 2020, Sony Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128261.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dreamwalkers Inc - The First Tragedy Of Klahera (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128349.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128350.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128355.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128357.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128358.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128359.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cryptic Conversion - Eldritch Echoes (2023) [FLAC|Lossless|image + .cue] <Brutal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128360.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Morbus V - Aura (2022) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal, At
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128362.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Helreidh - Fingerprints Of The Gods (2001) Reissued 2002 [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128364.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Inthuul - Songs From A Dead Winter (2023) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128368.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Insomnium - Songs Of The Dusk (2023) MCD [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128372.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:D094A0A47BC7F0EEE394C537162ED44BA418349B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128376.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Immortal Synn - The Singles Collection (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128381.jpg" />
 </div>
 
 

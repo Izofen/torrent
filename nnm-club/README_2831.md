@@ -1,3 +1,93 @@
+###  Публикация: 467413   (82021) от 14.03.2012
+
+Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, Psychedelic rock, Blues rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shocking You
+02. I'll Follow The Sun
+03. Roll Engine Roll
+04. Time Slips Away
+05. Dowee Dowee
+06. So Far From Home
+07. Just A Song
+08. You'll Come
+09. Boll Weevil
+10. I'll Write Your Name Through The Fire(   Читать дальше...   )Жанр: Rock, Nederbeat, Psychedelic rock, Blues rockПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467724   (82022) от 14.03.2012
+
+VA - Московские окна: Песни на все времена (1995) [MP3|320 кб/с]<Pop< Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Леонид Утёсов - Московские Окна (4:55)
+02.Эмиль Горовец - Голубые Города (3:03)
+03.Эдуард Хиль - Человек Из Дома Вышел (2:33)
+04.Эдита Пьеха - Только Ты (2:04)
+05.Аккорд - Назло (3:10)
+06.Галина Великанова - Ландыши (2:33)
+07.Владимир Трошин - Нелётная Погода (3:22)
+08.Аккорд - Возвращайся (3:48)
+09.Эмиль Горовец - Седьмой Этаж (3:03)
+10.Герг Отс - День Рождения (2:49)(   Читать дальше...   )1995Жанр: Pop< RetroПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE60BD9AE16EAE5EFEF75B85598B06F6CF7A8E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467902   (82023) от 14.03.2012
+
+BBC: Загадки истории. Век полетов: Легенды мировой авиации [Диск 2] / Century Of Flight. The epic story of human triumph in the sky. (1997,2011) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм – полномасштабное исследование истории авиации, в создании которого принимали участие крупнейшие авиаконструкторские бюро мира, музеи авиации и авторитетные эксперты. Не всегда эксперименты по созданию новых видов летательных аппаратов заканчивались удачно. Многие прототипы ждала печальная участь. Однако негативный опыт был тоже частью того успеха, которого удалось достигнуть в покорении воздушного пространства.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2x~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467381   (82025) от 14.03.2012
 
 Острова. Евгений Леонов (2006) DVDRip
@@ -6,7 +96,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82025.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@ magnet:?xt=urn:btih:5F8F034BF361B4D1CE25EAEBDD95EAAECD5562FA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82027.jpg" />
 </div>
 
 
@@ -54,7 +144,7 @@ magnet:?xt=urn:btih:5F8F034BF361B4D1CE25EAEBDD95EAAECD5562FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82029.jpg" />
 </div>
 
 
@@ -79,7 +169,7 @@ magnet:?xt=urn:btih:4F438EEBAC5D96CB1BC06BDAEC9CDD10CFB37C6A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82030.jpg" />
 </div>
 
 
@@ -103,7 +193,7 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82031.jpg" />
 </div>
 
 
@@ -127,7 +217,7 @@ Kaspersky World 1.3.2.96 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82036.jpg" />
 </div>
 
 
@@ -151,7 +241,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82037.jpg" />
 </div>
 
 
@@ -175,7 +265,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82038.jpg" />
 </div>
 
 
@@ -199,7 +289,7 @@ magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82040.jpg" />
 </div>
 
 
@@ -223,7 +313,7 @@ magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82041.jpg" />
 </div>
 
 
@@ -247,7 +337,7 @@ magnet:?xt=urn:btih:CEBFAB4D79DFCEF97696AAE04F445083237620AB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82042.jpg" />
 </div>
 
 
@@ -272,7 +362,7 @@ magnet:?xt=urn:btih:CEBFAB4D79DFCEF97696AAE04F445083237620AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82043.jpg" />
 </div>
 
 
@@ -296,7 +386,7 @@ SUPER © v2012.build.50 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82047.jpg" />
 </div>
 
 
@@ -323,7 +413,7 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82049.jpg" />
 </div>
 
 
@@ -356,7 +446,7 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82054.jpg" />
 </div>
 
 
@@ -389,7 +479,7 @@ magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82056.jpg" />
 </div>
 
 
@@ -413,7 +503,7 @@ magnet:?xt=urn:btih:2E49E31E84FA293659AF23DA86AD04F812F199F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82057.jpg" />
 </div>
 
 
@@ -438,7 +528,7 @@ magnet:?xt=urn:btih:13E257CF870B3E829D23691A6B3DD8EF8516943F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82061.jpg" />
 </div>
 
 
@@ -462,7 +552,7 @@ magnet:?xt=urn:btih:42DF231A1B8A95E5B6273EEEB55D3DEE019C9E03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82062.jpg" />
 </div>
 
 
@@ -486,7 +576,7 @@ magnet:?xt=urn:btih:42DF231A1B8A95E5B6273EEEB55D3DEE019C9E03
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82063.jpg" />
 </div>
 
 
@@ -510,7 +600,7 @@ Warp [En] (RePack) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82067.jpg" />
 </div>
 
 
@@ -534,7 +624,7 @@ magnet:?xt=urn:btih:640FE41B717E3495610555435208F90251C9D907
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82071.jpg" />
 </div>
 
 
@@ -561,7 +651,7 @@ magnet:?xt=urn:btih:19D8F86911F38588514E44780C02A1DD3E44C37D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82072.jpg" />
 </div>
 
 
@@ -572,89 +662,6 @@ magnet:?xt=urn:btih:19D8F86911F38588514E44780C02A1DD3E44C37D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2BF69AA92446F31050F14DDBA6EACE2CB586090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467721   (82073) от 14.03.2012
-
-VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|Lossless]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.David Bowie - China Girl (4:16)
-02.Rod Stewart - You're In My Heart (4:29)
-03.Marillion - Kayleigh (3:36)
-04.Marc Cohn - Walking In Memphis (4:16)
-05.The Cars - Drive (3:55)
-06.Chris Rea - Fool ( If You Think It's Over ) (4:04)
-07.Bob Dylan - Knockin' On Heaven's Door (2:30)
-08.Deacon Blue - Real Gone Kid (4:06)
-09.The Doobie Bros - What A Fool Believes (3:44)
-10.Alannah Myles - Black Velvet (4:47)(   Читать дальше...   )1997Жанр: RockПродолжительность: 02:35:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467871   (82075) от 14.03.2012
-
-[Lossless RePack] Warp [En] 2012 | RG Packers
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82075.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Warp игрокам предстоит выступить в роли Нуля – смертоносного, но милого оранжевого малютки-пришельца, оказавшегося в непростой ситуации. Захваченный в плен группой жестоких ученых, которые собираются ставить на нем опыты, Нуль должен сбежать из исследовательской лаборатории, полагаясь только на свои уникальные способности. Игрокам предстоит определиться с планом побега: это может быть кровавая месть каждому попавшемуся на пути человеку или хорошо спланированное скрытное прохождение игровых эпизодов. Бесчисленное количество комбинаций способностей главного героя и возможность совершенствовать их позволяют игроку находить максимально эффективные пути для решения головоломок и продвижения по уровням игры Warp, оттачивая свое мастерство и устанавливая новые рекорды.Тип издания: RePackРазработчик: TrapdoorЖанр: Arcade / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467935   (82076) от 14.03.2012
-
-Д. Гринбергер, К. Падески | Управление настроением. Методы и упражнения [2008] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанная двумя блестящими клиническими психологами, эта книга научит вас, как улучшить свою жизнь с помощью наиболее эффективной и широко используемой формы психотерапии — когнитивной. Задания, предлагаемые авторами, позволят вам освоить навыки, которые уже помогли тысячам людей победить депрессию, тревогу, гнев, стресс, тягу к алкоголю и наркотикам, трудности в отношениях с другими людьми.
-Наблюдая за собой и выполняя упражнения, вы не только научитесь изменять мысли, от которых чувствуете эмоциональный дискомфорт, но и отработаете навыки решения самых разных проблем.
-Книга адресована широкому кругу читателей.2008Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
 ```
 
 

@@ -6,7 +6,7 @@
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8FEA952EB3121D3AB1710C56F7EE666421F7285F
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14369.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B47065C41ABFE2122B8E99C6F1C30CABC961D111
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14504.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:43AC19545D9591BC2576B7E6827EEC7E96EDAEB0
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14548.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:70D409372C5AA4CE58BBBF6941D22396D7183AAB
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14581.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14591.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14674.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14860.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:212D12E1F7A24872CDCA5FCC2992899A1A7B54C9
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14864.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:6D4830FA863C1FA5EED47DCC427851839B4B6B71
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14896.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EFBC3C0B83E3D0EB6BE4FECB14D01840B6AD4290
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19221.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19463.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19746.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21068.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26512.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27570.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27587.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28320.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:44283EFF8F9E32DFA43DF3155A4AD9F798AEA16F
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28475.jpg" />
 </div>
 
 

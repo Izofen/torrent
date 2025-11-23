@@ -1,3 +1,84 @@
+###  Публикация: 1703190   (115154) от 28.02.2024
+
+Anaka - The Unwavering (2015) [MP3|320 Kbps] <Heavy, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doomsday Divide
+02. Deathborn
+03. Ominous Visions
+04. Damage(   Читать дальше...   )Жанр: Heavy, Groove MetalПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A56EDE0B32440F68178EB89ED48B47E9B464967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703176   (115155) от 28.02.2024
+
+Traveler - Traveler (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbreaker
+02. Street Machine
+03. Behind The Iron
+04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1F4BDF22D468BAF0E2FFD58E8E774E4FFAC74B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703247   (115156) от 28.02.2024
+
+Sahib Shihab - And The Danish Radio Jazz Group (1965) 2008, Oktav [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Di-Da [5:10]
+02. Dance of the Fakowees [4:13]
+03. Not Yet [3:25]
+04. Tenth Lament [6:20](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682320C7D41ECAC5D5228966A5F497BC1591AF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703241   (115157) от 28.02.2024
 
 Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -6,7 +87,7 @@ Marian McPartland - Contrasts (1992, 1994) 2CD, 2003, The Jazz Alliance [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115157.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ DeFilm - Coming to Your Heart Soon (1987) Reissue, 2004, Parlophone [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115158.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ DeFilm - DeFilm (1985) Reissue, 2011, Parlophone [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115159.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115160.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:1933138BCFA8530AB7FA82BD879F6B4FD7C27EFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115161.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ K-Lite Codec Pack Update 18.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115162.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:B0AB33617B2CD526871A583ACBA8F562DC8CB8A2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115163.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115164.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115165.jpg" />
 </div>
 
 
@@ -237,7 +318,7 @@ magnet:?xt=urn:btih:B8F1279B38EB7E2CCE4B788166418190F3F09606
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115166.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115167.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Detraktor - Full Body Stomp (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115168.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:5A93538DBE8F312BF865DD4AA4980E50F7EFE353
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115169.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115170.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115171.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ Monkey's Audio 10.52 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115172.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ Ace Frehley - 10.000 Volts (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115173.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ Anaka - The Oblivion Call (2024) [MP3|320 Kbps] <Heavy, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115174.jpg" />
 </div>
 
 
@@ -471,7 +552,7 @@ The Sahib Shihab Quintet - Seeds (1968) 2008, Rearward [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115175.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ Monster Mike Welch - Nothing But Time (2023) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115176.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ magnet:?xt=urn:btih:5152B6C06D85CB199C499D04DC121D5B83C07B39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115177.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ magnet:?xt=urn:btih:A814D3B7AA2022D77F031264D22A120EC26CFE62
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115178.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ magnet:?xt=urn:btih:C01A7BFF48E62E633AD8EA738C981EC4B6D7B8B6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115179.jpg" />
 </div>
 
 
@@ -585,78 +666,6 @@ magnet:?xt=urn:btih:C01A7BFF48E62E633AD8EA738C981EC4B6D7B8B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C89E4668236F012BFCECB989A48D5A3626920AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703201   (115180) от 28.02.2024
-
-7 килограмм за 7 дней / 7 chili in 7 giorni (1986) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два несостоявшихся врача решают открыть клинику для похудения, переделав для этого загородную виллу жены одного из них, несмотря на возражения её многочисленных родственников. Первый же заезд клиентов в их заведение превращается в череду забавных событий, к тому же родственники жены создают блистательным "специалистам диетологии" дополнительные трудности.Производство: Италия / C.G. Silver FilmЖанр: КомедияРежиссер: Лука ВердонеАктеры: Ренато Поццетто, Карло Вердоне, Тициана Пини, Елена Фабрици, Сильвия Анникьярико, Франко Диоджене, Фьямметта Баралла, Сальваторе Поркаро, Аннабелла Скьявоне, Франко АддуччиПеревод: Одноголосый любительский, А.ГерусовЯзык озвучки: Русский, итальянскийСубтитры: Итальянские, английскиеПродолжительность: 01:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5730A3B3DC19870D23B89D19D5E553838A10C6AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703291   (115181) от 28.02.2024
-
-Вова Бо | Храм Перечеркнутых Имен. Анима (Книга 2) (2024) [MP3, Sibiryak]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разломы, фарм, прокачка, нежить, некромант превратился в рыцаря смерти, импы, бесконечные фаерболы, Зазеркалье, Сиил, Лютый, разборки, снова фарм, разломы, прокачка, дикие земли, паровозик чух-чух-чух, терпение клановых на исходе, расплата и открытие истинного пути призывателя. Все это и многое другое, может быть, будет в этом томе.Жанр: LitRPG, боевое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 11:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344868D09E82DC26A71F3C9926B97193D26E7438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703136   (115182) от 28.02.2024
-
-С богами: Два мира / Singwa hamkke: joewa beol / Along With the Gods: The Two Worlds (2017) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасая ребёнка из горящего здания, пожарный Ким Джа-хон погибает героической смертью. И тут же три ангела смерти сопровождают его в мир мёртвых, где смертному предстоит пройти семь судов и держать ответ перед семью Богами. Ангелы будут его защитниками, и если Джа-хона признают безгрешным, он получит возможность реинкарнироваться и начать новую жизнь.Производство: Корея Южная / Dexter Studio, Realies PicturesЖанр: фэнтези, приключения, драма, детективРежиссер: Ким Ён-хваАктеры: Чха Тхэ-хён, Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ким Дон-ук, О Даль-су, Лим Вон-хи, То Гён-су, Ли Джун-хёк, Е Су-джонПеревод: Многоголосый профессиональный (WinMedia, HDRezka), Авторский (А. Дольский)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEAC5F37F738683D7918F77840F2CF56BD40305
 ```
 
 

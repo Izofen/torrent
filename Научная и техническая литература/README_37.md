@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50879.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CDF15F662911844641F6D8D7E17D393E610C9F0F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50888.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6E72E810906D090570751A125766A67AB4122878
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50956.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7FAC5CD41B4D84DFF674F8CFF609175657B419FA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50988.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3E9127E4D8FFF48A8176DED68577A0D144CB581C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51169.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FF8C5FD194EA79856452C08B81E80A129F01FEA2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51177.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A4CFD3B9C057FBF7E7AF6C13C06E73DE8B09E04C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51204.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6D65A3DDC6938459365D41DACA6C19F7FFFFACC5
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51238.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:8BD6430CDC2B281621D801769CCA2E21B3D8CA27
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51267.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:9BFB3AA5E5C6DAC8EA232171A29FA1DFF69796C3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51690.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B18FB468A8D6ABBD7832A94D41A448DA2C154D1E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51822.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F0C985F2F1C503100120D96113C0D7B038FA3180
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51838.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:78D726A5652921EA7766002306D2D0385D7ED38D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51851.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:ED318371B03C003EFD6A909E92321F8FB1A29DB6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52111.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:3649B0AD6C59164C1F752E4B68369313FB319BA1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52148.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:A9A005DCC58A20928396245E3D9B4B7CA7EFB758
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52159.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectua
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52262.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AA644562FA9C30BFCE23FF8F5BC53F98E5EABF92
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52280.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AEAB3350CEF1066021D9C0241C03BF13BC16C05D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52293.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:32E0F1A19C8AEC15FB1F6509E6A145B9DBE9E350
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52307.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5439A1DCBB8CB15C557AFD8C7AAB597CE5FC7A0A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52359.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Rhona Snelling | Speaking: A2 Pre-intermediate (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52384.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52579.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52664.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52688.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52708.jpg" />
 </div>
 
 

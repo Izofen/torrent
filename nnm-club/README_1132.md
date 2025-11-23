@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29785.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29786.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:6BFE5DA52BD537C2DB6EC76DD9CD10FFAB442964
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29787.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0EA8CFBD2FC0E9450C72E39A3D9DDB28FB6E329F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29788.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DBFFA6C0C6F499BEE9385CF2AF40C84ECA67EF5C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29789.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D97F660CC4853AB6A2801A2CE88605D2FC1F1C24
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29790.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E077F65C152B8D4923A3EDAFF89E00FB9AB1A654
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29791.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D13B68756A79DE8723B2C5F1A100DC84A59DA869
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29792.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29793.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:26839AE7830E4756FB01BEDE754D0A6CAC1A9BE2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29794.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Joplin 3.2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29795.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:AE0923845D3D28E37307DBC769BAFBAA4B83630A
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29796.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Linkin Park - From Zero: A Cappellas (2025) [FLAC 24/48,96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29797.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ CudaText 1.220.7.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29798.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:54DBD361E192CF6A0B38799069A7F4A02683A167
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29799.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:5BE1E2DFECF35BA90902F88E1B72F7EF01367251
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29800.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CDA35D3D2727CBBD898D901233B7B2CBDB5074BF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29801.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:3F0EC2A792672DEDD58F76B5B92C5F678DF99D38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29802.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29803.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5FE71AE363C61C9C3F3165B8BF130CEDF698006B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29804.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:A6CA79CC29FB208B9706514238835963F3DBDF5F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29805.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:9DDAA1B46C7115C64F0C6FE5D16E9CB042C5FAFC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29806.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D7C30B047768843930037A9665D1FD1BB02438EE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29807.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:70FED08F582135D6B53F2FA3C449B7AF0B502372
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29808.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29809.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3C880B76587B7853EC1888F951D7B4E7EBBCCD2D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29810.jpg" />
 </div>
 
 

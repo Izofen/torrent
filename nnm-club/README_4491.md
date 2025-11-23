@@ -1,3 +1,127 @@
+###  Публикация: 590364   (138938) от 18.12.2012
+
+Haruna Luna - 3 сингла (2012) [MP3|320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138938.jpg" />
+</div>
+
+
+###  Подробнее
+
+SinglesЖанр: J-PopПродолжительность: 00:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B21BCA24538F76B9E6F9B0DE2502B50BDB96D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272941   (138939) от 30.12.2018
+
+HammAli & Navai - JANAVI (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138939.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Хочешь, я к тебе приеду
+2. Ноты
+3. Закрываю глаза
+4. Проваливай(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1E04DD5D9FA41689FB904BD8C87EA89076571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679212   (138942) от 24.11.2023
+
+Сбopник | «Автор.тудэй. Постапокалипсис» [35 книг] (2018-2023) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник, посвященный творчеству авторов с сайта Автор.тудэй, теперь в жанре "постапокалипис".Жанр: Боевая фантастикa, постапокалипис, приключенияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2056AF23AA9933D58E65D18841B7136804292F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088119   (138943) от 31.12.2016
+
+Джулия Кеннер | Необходимый грех. У любви и успеха – своя цена (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мирового бестселлера «Обнаженные тайны» и вторая аудиокнига психоэротической трилогии «Страсти по Старку».
+В игре с Дэмиеном Старком Ники рискнула и… выиграла. Миллион долларов, жизнь, полную удовольствий, и мужчину, которого успела полюбить. Но кое-что по-прежнему пугает Ники, – свою главную тайну Старк по-прежнему не раскрыл…Жанр: Зарубежные любовные романыПродолжительность: 09:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C03CD527BE5F4068410FD375F324B29FF8F8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436182   (138944) от 30.12.2020
+
+Поженились старик со старухой (1971) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138944.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода на пенсию Фёдору Фёдоровичу Харламову было необходимо оформить все бумаги в сельсовете. Тут выяснилось, что его брак официально не зарегистрирован. Пришлось прожившим вместе более пятидесяти лет супругам на следующее утро ехать за несколько километров, чтобы получить необходимую бумагу.Производство: СССР / Рижская киностудияЖанр: Короткометражный, драма, экранизацияРежиссер: Гарник АразянАктеры: Анастасия Зуева, Алексей Грибов, Виктор Сергачев, Александр Дегтярь, Светлана СтариковаСубтитры: ОтсутствуютПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1328F1CD6AEB44D9B2B03D03859E11C40D79D02B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273047   (138945) от 30.12.2018
 
 VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
@@ -6,7 +130,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138945.jpg" />
 </div>
 
 
@@ -33,7 +157,7 @@ magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138946.jpg" />
 </div>
 
 
@@ -57,7 +181,7 @@ VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alterna
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138948.jpg" />
 </div>
 
 
@@ -84,7 +208,7 @@ Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138949.jpg" />
 </div>
 
 
@@ -111,7 +235,7 @@ magnet:?xt=urn:btih:D7319749762FAF31DB466A3C628DED1A9F529C64
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138951.jpg" />
 </div>
 
 
@@ -135,7 +259,7 @@ magnet:?xt=urn:btih:F70B173E3FA500E69C236776D29EA15485A9F046
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138952.jpg" />
 </div>
 
 
@@ -159,7 +283,7 @@ magnet:?xt=urn:btih:15AD471F5811711D158B5609F9847D518FB22B35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138953.jpg" />
 </div>
 
 
@@ -184,7 +308,7 @@ magnet:?xt=urn:btih:15AD471F5811711D158B5609F9847D518FB22B35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138954.jpg" />
 </div>
 
 
@@ -208,7 +332,7 @@ magnet:?xt=urn:btih:06272C6AB9BB2BD8A172738456E563033390E656
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138955.jpg" />
 </div>
 
 
@@ -232,7 +356,7 @@ Liveclasses, Дмитрий Щербаков | 3D моделирование в 
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138958.jpg" />
 </div>
 
 
@@ -256,7 +380,7 @@ magnet:?xt=urn:btih:10FB3723945E57D164684506672ACD14A60E7171
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138959.jpg" />
 </div>
 
 
@@ -280,7 +404,7 @@ magnet:?xt=urn:btih:CD123454100FACFBA8B7A4C3717C7121B74C7BA0
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138960.jpg" />
 </div>
 
 
@@ -304,7 +428,7 @@ magnet:?xt=urn:btih:4C7ED860F9732B155C9D1ADAD56E7336D045CFB1
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138961.jpg" />
 </div>
 
 
@@ -330,7 +454,7 @@ magnet:?xt=urn:btih:E043EDE8BFB3DC262863804228CF0283E82C3F60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138964.jpg" />
 </div>
 
 
@@ -354,7 +478,7 @@ magnet:?xt=urn:btih:C0976E7F0F68CAA09C37A4749CFC01347215785D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138965.jpg" />
 </div>
 
 
@@ -379,7 +503,7 @@ Auslogics Duplicate File Finder 9.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138967.jpg" />
 </div>
 
 
@@ -403,7 +527,7 @@ magnet:?xt=urn:btih:2955737C177BFBFE3A5A63FCD37EB562709E8700
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138969.jpg" />
 </div>
 
 
@@ -427,7 +551,7 @@ magnet:?xt=urn:btih:F81336E56F7375DACC802539B578C19E3BBE30E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138970.jpg" />
 </div>
 
 
@@ -451,7 +575,7 @@ magnet:?xt=urn:btih:A1CD84155A2BCE9E2DC617ED4CC0ECC2CFCAE9FF
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138971.jpg" />
 </div>
 
 
@@ -475,7 +599,7 @@ magnet:?xt=urn:btih:F1107EC7393E0C864AAF1315594050F070BEA9D0
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138972.jpg" />
 </div>
 
 
@@ -501,7 +625,7 @@ magnet:?xt=urn:btih:2C7DB026982223EA81B287B64E7E7438965B67AF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138974.jpg" />
 </div>
 
 
@@ -512,130 +636,6 @@ magnet:?xt=urn:btih:2C7DB026982223EA81B287B64E7E7438965B67AF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F9D8AFEF9102ED06648FDEB61EE5D49C9F04CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088022   (138975) от 31.12.2016
-
-Александр  Генис | Обратный адрес (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая аудиокнига Александра Гениса не похожа на предыдущие. Литературы в ней меньше, жизни больше, но юмора столько же. “Обратный адрес” – это одиссея по архипелагу памяти. На каждом острове (Луганск, Киев, Рязань, Рига, Париж, Нью-Йорк и вся Русская Америка) нас ждут предки, друзья и кумиры автора. Среди них – Петр Вайль и Сергей Довлатов, Алексей Герман и Андрей (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311076B780B971F3E557B308448AD4F575F19F0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436238   (138976) от 30.12.2020
-
-Картинки - NNM-Club - Календари на 2021 от Warrior 123 №20 - 1436238 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 3500x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ED85479F10505BB47DB303890DFD1AD7EE23D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273089   (138977) от 30.12.2018
-
-Билли Мэдисон / Billy Madison (1995) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великовозрастный балбес Билли Мэдисон, наследник невероятно богатого владельца сети отелей, проводит круглые сутки в разглядывании непристойных журнальчиков, поглощая пиво и устраивая идиотские розыгрыши.
-Правда, довольно скоро ему приходится взяться за ум: Мэдисон-старший сообщает Билли, что собирается передать бизнес подхалиму мистеру Гордону, и единственное условие, (   Читать дальше...   )Производство: США / Robert Simonds Productions, Universal PicturesЖанр: КомедияРежиссер: Тамра ДэвисАктеры: Адам Сэндлер, Брэдли Уитфорд, Джош Мостел, Бриджит Уилсон, Норм МакДоналд, Марк Белцмэн, Ларри Хэнкин, Тереза Мерритт, Дина Платиас, Даррен МакГэвин, Хрант Альянак, Винсент Марино, Джек Мэтер, Кристофер Келк, Марк ДонатоПеревод: Многоголосый закадровый (Lizard Cinema Trade)Субтитры: русские, английские (для слабослышащих)Продолжительность: 01:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E2879AC9F80CFE32ABE3EF6201AB6B52F30538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348971   (138979) от 30.12.2019
-
-Джо Диспенза | Развивай свой мозг. Как перенастроить разум и реализовать собственный потенциал (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно в науке господствовало мнение, что мозг фиксирован и имеет четко организованные структуры, что мы рождаемся с ограниченным числом нейронов, а поврежденные нервные клетки не восстанавливаются. Теперь эти убеждения подвергаются сомнению. Современная нейробиология утверждает: наш мозг меняется на протяжении всей жизни – в ответ на каждый жизненный опыт, (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FFB09444812C919416F13FD88CDF3F643902C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088505   (138980) от 31.12.2016
-
-VA - Record Super Chart #468 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat Sean Paul & Anne-Marie - Rockabye (Denis First Remix) 4:08
-02. R3HAB & SKYTECH - Everything (Extended Mix) 4:15
-03. Alan Walker - Alone (DJ Amice Remix) 3:31
-04. KSHMR & B3nte & Badjack - The Spook Returns (Extended Mix) 4:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8482C692D8D2B3F5AA1E099D4B676E2C44F140AE
 ```
 
 

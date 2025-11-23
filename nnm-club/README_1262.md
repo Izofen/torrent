@@ -6,7 +6,7 @@ Corr Database 2024 (2023) [En] (2024) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33165.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33166.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:34F69574DCACACC67FCE02718A3F49275752F1D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33167.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OpenShot Video Editor 3.3.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33168.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33169.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Opera One 115.0.5322.119 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33170.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C8D9A8D4A717AB4F3E67713579179014C1C3375C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33171.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33172.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33173.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33174.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8B1D53B96DAA6332FD80CE84EF0334C51E072A5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33175.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E1F24659F8BE090DE89F693B683BE174F6445862
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33176.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0DF9AD9D02172337E61311756338364B9EB72659
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33177.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Multi Commander Full Edition 14.5 Build 3054 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33178.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - Sensual Sexy Songs 2 (2024) [MP3|320 Kbps] <Pop, R&b, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33179.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:4483E748E684D25A9F3FB47D28C7067451CD84ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33180.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Madrona Labs - Studio Bundle 12.2024 VST, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33181.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tablacus Explorer 24.12.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33182.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Imagine 1.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33183.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ ClipAngel 2.15 & portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33184.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:956E9A6EF5C85C7E51AEF38EE1B5A9F324C0FD60
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33185.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D8FBC6A47E4357819911CA2D63E9796B1844A250
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33186.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack seleZe
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33187.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack seleZe
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33188.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33189.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:9417AF70DAB99F860204352C538418EBF5B2727D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33190.jpg" />
 </div>
 
 

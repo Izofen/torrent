@@ -6,7 +6,7 @@ Son Seals - 9 Albums (1973 - 2000) [FLAC|Lossless|image + .cue|tracks + .cue] <E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41103.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Guitar Jack Wargo - Blues Therapy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41153.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vern Daysel & The Burning Breeze - Round Up the Wagons (2024) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41154.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gohobo - Open Door (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41155.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eric Turner Band - Midnight Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41156.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Greyhound's Washboard Band - Don't Ditch It (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41157.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Art Tatum - Jewels In The Treasure Box (1953) 3CD, 2024, Resonance Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41158.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gavin Harper - Mixed Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41160.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Romantic Piano Music Masters - Jazz Music for Sex & Romance (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41174.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Joe Pass - The Best Of Joe Pass (1973 - 1982) 1991, Pablo [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41581.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Frank Sinatra - Everybody Loves Somebody (1939 - 1954) 2005, MCSA Entertainment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41664.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chick Corea - Priceless Jazz Collection (1986 - 1993) 1997, GRP [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41669.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Phos Toni - Electro Swing Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41783.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Dennis Spencer Group - Bluesman from Jupiter (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41785.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Frank Sinatra & Tommy Dorsey - Love Songs (1940 - 1941) 1997, RCA Victor [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41889.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42300.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Frank Sinatra - Sensational Sinatra (1997) Penny [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42414.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Frank Sinatra - S'Wonderful (1996) Razamataz [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42510.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42615.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42618.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bob Dylan & The Band - The 1974 Live Recordings Sampler (2024) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42726.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Layla Zoe - Into the Blue (2024) Live in Concert [MP3|320 Kbps] <Hard Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43131.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43148.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43252.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Erin Nicole Neal - Sunshine's on You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43356.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43669.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Majogami (2025) [Multi] (20659537) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252571.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Voidtrain (2023) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252572.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252572.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CRABS MUST DIE! (2025) [Ru/En] (20696190) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253110.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253110.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wartorn (2025) [Ru/Multi] (Build 20757091) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254072.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254072.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wartorn (2025) [Ru/Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254095.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254095.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Salt 2: Shores of Gold (2025) [Ru/Multi] (1.0) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255588.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255588.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255637.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255637.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255686.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255686.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Angry Video Game Nerd 8-bit (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255905.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255905.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Surviving Mars Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256318.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ambrosia Sky (2025) [En] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256319.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256319.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Verho - Curse of Faces (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256328.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256328.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Angry Video Game Nerd 8-bit (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256384.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256384.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wartorn (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256394.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256394.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Deluxe 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256606.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256606.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256607.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256607.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ CRABS MUST DIE! (2025) [Ru/En] (20696190) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256614.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256614.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256640.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256645.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256690.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dark Moon (2025) [Ru/Multi] (Build 2025-10-29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256777.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16651r) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256794.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256794.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Creator (2025) [Ru/Multi] (0.1.05.1028.88888888/dlc) Repack FitGirl [Support
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256806.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256806.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.4/dlc) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257498.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20708995) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257499.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.2.0.0/dlc) Repack
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257599.jpg" />
 </div>
 
 

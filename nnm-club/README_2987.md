@@ -1,3 +1,88 @@
+###  Публикация: 484853   (89374) от 19.04.2012
+
+Jack White - Blunderbuss (2012) [MP3|~245 кб/с (V0)]<Blues-Rock, Garage Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing Pieces
+02. Sixteen Saltines
+03. Freedom At 21
+04. Love Interruption
+05. Blunderbuss
+06. Hypocritical Kiss
+07. Weep Themselves To Sleep
+08. I'm Shakin'
+09. Trash Tongue Talker
+10. Hip (Eponymous) Poor Boy(   Читать дальше...   )2012Жанр: Blues-Rock, Garage Rock, Indie RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E636E3572BAEBB8448F95D13170DC04B985CC169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484991   (89375) от 19.04.2012
+
+Шерлок Холмс: Игра теней / Sherlock Holmes: A Game of Shadows from AGR (2011) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See Everything
+02. That Is My Curse (Shadows - Part 1)
+03. Tick Tock (Shadows - Part 2)
+04. Chess (Shadows - Part 3)
+05. It's So Overt It's Covert2011Жанр: SoundtrackПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9160CBDD1589153484FFAB4827165532651D3FF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485023   (89376) от 19.04.2012
+
+Diginoiz - Old School Rockin' Live Drums [AIFF|MIDI|REFILL|REX|WAV][английский]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Old School Rockin' Live Drums - библиотека аутентичной rock/pop перкуссии эпохи 80-х. Библиотека содержит: - 61 петлю (BPM: 80, 90, 100, 110, 120, 180), - 36 сбивок (BPM: 80, 90, 100, 110, 120,) - миди файлы, в качестве дополнения. Для ознакомления также приложена Демо версия: Old School Rockin Live Drums - Promomix (MP3, 256 kbps, 44.1 kHz, Joint Stereo).Название программы: Diginoiz - Old School Rockin' Live DrumsЯзык интерфейса: английскийФормат: AIFF, MIDI, REFILL, REX, WAV
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484090   (89380) от 19.04.2012
 
 Комендант птичьего острова (1939) DVDRip
@@ -6,7 +91,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89380.jpg" />
 </div>
 
 
@@ -30,7 +115,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89381.jpg" />
 </div>
 
 
@@ -63,7 +148,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89382.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ magnet:?xt=urn:btih:9957FAD2B1A2D17706BEEDDD4251768E9FE59F80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89389.jpg" />
 </div>
 
 
@@ -113,7 +198,7 @@ magnet:?xt=urn:btih:5FC44DCE00E1CE13264C0DBA5F25E68F3202F191
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89390.jpg" />
 </div>
 
 
@@ -137,7 +222,7 @@ magnet:?xt=urn:btih:CF99948F4C701F17C2D70C24E38C010BAB1A1A5F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89396.jpg" />
 </div>
 
 
@@ -162,7 +247,7 @@ magnet:?xt=urn:btih:AE6D903D705FEC634817C2205EBF2FAB319E7309
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89397.jpg" />
 </div>
 
 
@@ -187,7 +272,7 @@ Julia Donaldson, Axel Scheffler | Gruffalo [1999] [PDF] [En]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89399.jpg" />
 </div>
 
 
@@ -211,7 +296,7 @@ Kaspersky World 1.3.5.88 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89404.jpg" />
 </div>
 
 
@@ -244,7 +329,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89407.jpg" />
 </div>
 
 
@@ -269,7 +354,7 @@ VA - Сборник медленных хитов Vol.5 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89408.jpg" />
 </div>
 
 
@@ -302,7 +387,7 @@ magnet:?xt=urn:btih:4A401CB2A2F2DEF48803A0B909BD94C469231164
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89409.jpg" />
 </div>
 
 
@@ -327,7 +412,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89410.jpg" />
 </div>
 
 
@@ -354,7 +439,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89413.jpg" />
 </div>
 
 
@@ -378,7 +463,7 @@ magnet:?xt=urn:btih:F6D2EF75C34D061E6A92080D00B06BA585DFE5BD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89414.jpg" />
 </div>
 
 
@@ -405,7 +490,7 @@ Johann Sebastian Bach – Weihnachtsoratorium Christmas Oratorio: VA (1734) 2CD,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89415.jpg" />
 </div>
 
 
@@ -438,7 +523,7 @@ magnet:?xt=urn:btih:3C5F3A9AC00282EE23770CA17CA355D7F5E3BE5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89417.jpg" />
 </div>
 
 
@@ -462,7 +547,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89429.jpg" />
 </div>
 
 
@@ -486,7 +571,7 @@ Spreu & Weizen - 4 albums (2009-2011) [FLAC|Lossless] <Martial Industrial, Neocl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89431.jpg" />
 </div>
 
 
@@ -517,7 +602,7 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89432.jpg" />
 </div>
 
 
@@ -541,7 +626,7 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89433.jpg" />
 </div>
 
 
@@ -566,7 +651,7 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89437.jpg" />
 </div>
 
 
@@ -599,7 +684,7 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89441.jpg" />
 </div>
 
 
@@ -611,80 +696,6 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484400   (89444) от 19.04.2012
-
-ВАС: авторское право защищает не авторов, а правообладателей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89444.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Существующее законодательство в сфере интеллектуальной собственности надо пересмотреть, полагает глава ВАССуществующее законодательство в сфере интеллектуальной собственности защищает не столько права авторов, сколько интересы крупных компаний, заявил председатель Высшего арбитражного суда (ВАС) Антон Иванов. Такую точку зрения он выразил на пресс-конференции, которая посвящена второму Петербургскому международному юридическому форуму, передает РИА «Новости».Регулирование интеллектуальной собственности стало противоположностью того, ради чего оно задумывалось, полагает Иванов. Законы задумывались для защиты творческих личностей, создающих «новое во всех сферах деятельности», а превратились в нормы для лейблов, скупающих «за бесценок чужие творческие решения» и продающие их остальным, заявил глава ВАС. «И заставляют их (покупателей) платить, но уже не на цели творчества, а на свои собственные коммерческие цели», — сказал Иванов.Председатель ВАС считает, что противоречие стало очевидным с развитием Интенета. «Я (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484702   (89447) от 19.04.2012
-
-Нокаут / Haywire (2011) [1080p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэллори Кейн — секретный спецагент. Она молода, умна и красива. Время от времени шеф международной спецслужбы Кеннет вызывает ее для выполнения заданий, не всегда санкционированных правительством. Но после провала череды операций Мэллори осознает, что она пешка в двойной игре. Теперь ей нужно использовать весь свой талант и опыт, чтобы скрыться от международного розыска, защитить свою семью и отомстить за предательство…Жанр: Боевик, ТриллерРежиссер: Стивен СодербергАктеры: Джина Карано, Юэн МакГрегор, Майкл Дуглас, Антонио Бандерас, Ченнинг Татум, Матьё Кассовиц, Майкл Фассбендер, Майкл Ангарано, Дебби Линн Росс, Джулиан АлькаразПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484827   (89448) от 19.04.2012
-
-Александр Лазаревич | "Червь" Дилогия [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89448.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Червь. 1992 год: "Князь Тьмы""
- Рассказ, созданный в 1991 году, недавно отметил свое 20-летие. Основная оригинальная идея рассказа - искусственный интеллект не будет создан искусственно, а появится в ходе естественного отбора компьютерных программ по принципу дарвиновской эволюции. Несмотря на то, что эта идея была впоследствии (2003 г.) украдена Голливудом и использована в фильме "Терминатор-3" (т.н. "Скайнет"), я все же надеюсь, что аудиокнигу (а точнее "аудиофильм" - фонограмму к так и не снятому кинофильму), будет интересно послушать и новому поколению читателей (слушателей).2012Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
 ```
 
 

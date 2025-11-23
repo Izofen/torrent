@@ -6,7 +6,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86992.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87146.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:643C02B3F603A8F79A019F4DC2426C4FEEA2B664
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FC4FADD3DE77720717E1B6F6FABF9134984120E0
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87814.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87818.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:6828070C3FDCB9B2E168CF7064DFA4D1A35675A1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88855.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:15A7B6999F1A75AA521FB076D5E36CF79DFF27F3
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90484.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96091.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98561.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114757.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:BCBAFF38F7F8864428726DCC0F0FA97113988136
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116283.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:2E917190BAE2FA435031B490011A903183100C2B
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116305.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116765.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116768.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116807.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:8F1A629A46BD84DD666A36EBD8DD5903E93293E2
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116954.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7963A73F72B34C9FD3B43EAD3FC5E6B189637D5B
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117625.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121787.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:DA11400155C69517836BDAFEA9C3DA2A30CA42EA
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121791.jpg" />
 </div>
 
 

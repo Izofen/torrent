@@ -1,3 +1,76 @@
+###  Публикация: 1734984   (107016) от 06.07.2024
+
+reaConverter Pro 7.817 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107016.jpg" />
+</div>
+
+
+###  Подробнее
+
+reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
+Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6EAC1069F88C82A0E7514240881213E450B2F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734969   (107017) от 06.07.2024
+
+RJ TextEd 16.25 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107017.jpg" />
+</div>
+
+
+###  Подробнее
+
+RJ TextEd - мощный текстовый редактор с большим количеством функций и подсветкой синтаксиса. RJ TextEd имеет поддержку кодировок ANSI, UTF-8, Unicode и Unicode BE, обладает настраиваемой подсветкой синтаксиса языков программирования, позволяет выделять текст столбцом и сворачивать отдельные секции кода для удобства редактирования. Присутствует автоподстановка и ручная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D94E27C371DA9E0AC42CC44A7935D158282152B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735073   (107018) от 06.07.2024
+
+Нулевой фокус / Zero no shoten / Zero Focus (1961) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе Сейчо (Сэйтё) Мацумото... Через неделю после свадьбы Тейко Ухары её муж Кеничи уезжает в короткую командировку и не возвращается. Имея среди своих вещей только пару старых фотографий, Тейко отправляется выяснить, что с ним случилось. Поиски приводят её в отдалённый город на севере японских островов... Дальнейший сюжет, наполненный (   Читать дальше...   )Производство: Япония / Shochiku CompanyЖанр: драма, криминал, детективРежиссер: Ёситаро НомураАктеры: Ёсико Куга, Хизуру Такачихо, Инэко Арима, Кодзи Намбара, Ко Нисимура, Садако Савамура, Ёси Като, Тацуо Нагаи, Мицуко Сакура, Таканобу ХозумиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91282199D351C757B49461D3B17242B8A0298CF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735039   (107019) от 06.07.2024
 
 Футбол. Чемпионат Европы 2024. 1/4 Финала. Португалия - Франция (05.07.2024) HDTVRip [H.264/720p-LQ]
@@ -6,7 +79,7 @@
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107019.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ Tommy Vext - Antarctica (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107020.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ VA - The Sound of Trance, Pt. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107021.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:AEFF74E1993B378F60E444BF5CB7335C679EB565
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107022.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ magnet:?xt=urn:btih:ED02FCCA1ABE06E2E31D8C3B76AE020722DFB11D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107023.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ VA - Compilation part 95 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107024.jpg" />
 </div>
 
 
@@ -162,7 +235,7 @@ Steinberg - WaveLab 12 Pro 12.0.20 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107025.jpg" />
 </div>
 
 
@@ -186,7 +259,7 @@ magnet:?xt=urn:btih:415A62C61E5309B24FF35F5CA27DD58ED3E49A0C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107026.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ magnet:?xt=urn:btih:F0C514562456FEB50E0701C49D8A6DB953E90C8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107027.jpg" />
 </div>
 
 
@@ -235,7 +308,7 @@ magnet:?xt=urn:btih:2A358E1781E54840BECF1C4E8D4B9522FC762DB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107028.jpg" />
 </div>
 
 
@@ -259,7 +332,7 @@ magnet:?xt=urn:btih:2D11697B6B6EA424D2FEB5319162AFF6FB6060F4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107029.jpg" />
 </div>
 
 
@@ -283,7 +356,7 @@ magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107030.jpg" />
 </div>
 
 
@@ -307,7 +380,7 @@ magnet:?xt=urn:btih:869256DCC617216DB0A11D3400E9145453EDEADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107031.jpg" />
 </div>
 
 
@@ -331,7 +404,7 @@ magnet:?xt=urn:btih:6B2BC4EE3FFBCF63A5AD54DCE2B4446CC1A74077
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107032.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ YT Downloader 9.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107033.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ magnet:?xt=urn:btih:CFA73D01E0C092F030611251AFF28272A7BC971B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107034.jpg" />
 </div>
 
 
@@ -403,7 +476,7 @@ R-Studio Network / Technician 9.4 Build 191332 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107035.jpg" />
 </div>
 
 
@@ -427,7 +500,7 @@ magnet:?xt=urn:btih:69860AEE2AFAC341DA0F711D29C8545749109F79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107036.jpg" />
 </div>
 
 
@@ -452,7 +525,7 @@ Charles Persip - And The Jazz Statesmen (1960) 1994, Bethlehem [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107037.jpg" />
 </div>
 
 
@@ -479,7 +552,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107038.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107039.jpg" />
 </div>
 
 
@@ -527,7 +600,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107040.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2992 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107041.jpg" />
 </div>
 
 
@@ -563,81 +636,6 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79128EB597C44ED99D2B5A8A1129A8E9C1FB93FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734943   (107042) от 05.07.2024
-
-XYplorer 26.20.0100 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107042.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F30FBE4027BCCB333FCB4E6666E781A126E858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734853   (107043) от 05.07.2024
-
-VA - Armada Electronic Elements - Ibiza 2024 - Extended Versions (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ede – Do My ThingЖанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 03:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A961A803B869567E0AF52A9911C899322B4109BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734838   (107044) от 05.07.2024
-
-Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You (Bossa Nova Version)
-02. I Love You Always Forever (Leo Portela Rework)
-03. Hunting High and Low (Summer Remix)
-04. Alive And Kicking (Leo Portela Rework)Жанр: Bossa Nova, LoungeПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FB218DD1E52F53831B214E4A62E18C511A4497
 ```
 
 

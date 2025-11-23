@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68322.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7ACB8A0570A14E03EAD3363EA5B4E4C258FC22A4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68323.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68324.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Injustice System - Collapse of Mind (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68325.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Iron City Houserockers - Blood On The Bricks (1981) Remastered, 2025, Omnivore R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68326.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Persefone - Studio Albums (7 releases) (2004-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68327.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:A32C16BCEFBF973E7F52BBA698FEF545BB852EF8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68328.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Tenebrae - Loss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68329.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68330.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Smith/Kotzen - Black Light / White Noise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68331.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:42E8B49201BE9916FAAA94A222ABF87A989FC481
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68332.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Charles Mingus - The Lost Album From Ronnie Scott's (1972) 3СD, 2022, Resonance
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68333.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Budapest Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68334.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Metamorphosis - 6 Albums, 1 EP (2002-2021) [ MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68335.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68336.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:258F01FE8CD4AB40070A81ECB21E455B0B2A083F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68337.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68338.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Black Dog - Live at the ICA (London 2024) (2025) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68339.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:29ABF9C3C1E543AE27F5B35A11FD2A51024DA578
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68340.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68341.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Black Dog - Further Vexations (2009) [MP3|320 Kbps] <Braindance, Darkwave, E
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68342.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Flying Lotus - Until the Quiet Comes (2012) [FLAC|Lossless|tracks + .cue] <IDM, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68343.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68344.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kiama - Sign Of IV (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68345.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Pravitas - The Parasitic Divine (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68346.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68347.jpg" />
 </div>
 
 

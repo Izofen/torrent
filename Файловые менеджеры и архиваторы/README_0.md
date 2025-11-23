@@ -6,7 +6,7 @@ Multi Commander Full Edition 15.4 Build 3089 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20604.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20604.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PeaZip 10.4.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21413.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Total Commander 11.51 LitePack & PowerPack + Portable 2025.3 by SamLab [Multi/Ru
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24128.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24128.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bandizip Pro-Ent 7.37 Build 69087 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27999.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ FreeCommander XE 2025 donor v920 x64 & public v921 x32 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32442.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Bandizip 7.36 Build 68355 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41516.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ReNamer Pro 7.6 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41591.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ReNamer Pro 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41607.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Rename Expert 5.31.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45044.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Far Manager 3.0.6565 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52140.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WinNc 10.7.5.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55558.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FileOptimizer 16.60.2819 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60878.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Advanced Renamer 4.17 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91253.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ OneCommander Pro 3.102.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125942.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ASCOMP F-Rename Pro 2.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152503.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Double Commander 1.1.29 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173392.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:927025955A20E82B1E293C2347A1E3EDB095F6C8
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186161.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Far Manager 3.0.6575 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193414.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193414.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:EEF709ABBEF0901DDAE5A0B5093FCFC65717DA29
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196309.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196309.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Files 2.5.10 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196416.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196416.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ FileOptimizer 16.30.2781 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198376.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198376.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PerigeeCopy 1.7 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204953.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204953.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ File Viewer Plus 6.1.0.60 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230243.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_230243.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ WinRAR 7.20 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246157.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ WinRAR 7.20 Beta 1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246198.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246198.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Directory Opus 13.19 Build 9399 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246358.jpg" />
 </div>
 
 

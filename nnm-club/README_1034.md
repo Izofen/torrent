@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27232.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2D4E3ADB37ABA9B69B68BC12068894594E67411
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27233.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27233.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8AC272E6229FA3F380DD107805CC0DFE12AE548F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27234.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:369230360A3005AEBC188C9993B51F21D06636D8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27235.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27235.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2E548E8C0E9E8586B0B64E831A2949FE37673D63
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27236.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Activation Program 1.03 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27237.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Windows Server 2022 LTSC [10.0.20348.3207], Version 21H2 (Updated February 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27238.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27238.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.60.7300 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27239.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27239.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:61286ED0628EBA4887A5CBD5B456344878D7BD13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27240.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27240.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E7E62074307B52872B6C0BC92723C193D8FC582D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27241.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27241.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2641CAC0EC393C15287EFBD3F0C2D37C200D4179
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27242.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27242.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27243.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27243.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27244.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E9E0644A897F6310CC6581E731DF09FC1746B37F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27245.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27246.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AOMEI Backupper Technician Plus 7.4.2 RePack by KpoJIuK DC 18.02.2025 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27247.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27247.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:198BC461282E4A9592159FB6B74AD0C3035A4445
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27248.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27248.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27249.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27249.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A516A0A0F36BD81B6090DFDC8BEBEC11853C75C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27250.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27250.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Windows Server 2025 LTSC [10.0.26100.3194], Version 24H2 (Updated February 2025)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27251.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27251.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A403A359C7B9AB52F57976681531021F8BB7148C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27252.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27252.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:75CF491C0D38B461BF76D14265F27F0CE5DAF592
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27253.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A2A61D1BD83EF19588364DFA83F982BA1F68503F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27254.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27254.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27255.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A69F35CC966D0B1009F6AAEEBAA0FC31AFA130A1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27256.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27256.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Puzzle Quest 3 (2023) [Ru/Multi] (3.5.0.41964/dlc) Repack Let'sРlay
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27257.jpg" />
 </div>
 
 

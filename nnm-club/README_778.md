@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20553.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20555.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EE818740D531D90F32995C2B41F617AA3B0114C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20556.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B55AC0DACCF9CB410CE7516CDFF09B266059CDDC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20557.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ HEU KMS Activator 61.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20558.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:76AD2812D4310091E3FFE0C3EEE0EF60C56F695A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20559.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1BD6FB647D565BAE57C726BC808F472B1F1BBF5F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20560.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:F489FACC68A79C990A6E3AF9052BC740BC2A0B03
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20561.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20561.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PotPlayer 250313 (1.7.22508) RePack (& Portable) by elchupacabra (23.04.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20562.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20562.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E6E8A40EC9312F2355FBAA5EE6BC39F5B4DC8CE3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20563.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20563.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Adobe Acrobat Pro 2025.001.20458 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20564.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9219FBBEC61C03FB4543F814CE14AB9269CD3276
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20565.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:1E01248C219E243CD6D1833D057B75B99A50CA16
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20566.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:AC3A9EAC76AA188D4A1425D3270E9E3D21B4C435
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20567.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:5FD02D85041150D248F9981FAF0D28ED3E18EB71
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20568.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20568.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5FD02D85041150D248F9981FAF0D28ED3E18EB71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20569.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20570.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Prince of Persia: Lost Crown v1.0.0f [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20571.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20571.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20572.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20572.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20573.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20573.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:B00AA6A181676CC2403D037F45622CAA8309A843
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20574.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20574.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wondershare UniConverter 16.4.2.194 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20575.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20575.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:564206408093FB13CA1CB3107C48EC9805E01D9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20576.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:052CFE2090BEB8332440F62AB551D696C78A0F1D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20577.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20577.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:DD22317E351E5F4DC1BA89A700F06156E26E615B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20578.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:758CE46E7FB66198AE45F889FEFD66B1AEFA624D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20579.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20579.jpg" />
 </div>
 
 

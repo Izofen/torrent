@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26790.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26790.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B9FDCC9BDE8BAF4C235B98A19AC849311BF69083
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26791.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26791.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5BB904888EE6709C020CDE10E0EC6338B8CB5DDA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26792.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26792.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:79A5BC77B1B915ECA63ACBDF550E457C6781A920
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26793.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26793.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Q-Dir 12.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26794.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7A78A51CF89D1AF79B5E9D56628AD81B3AFD4FA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26795.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26795.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CA246F8225A5C35019D3C51C6DFF35296037A1EA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26796.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26796.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D7403AAF86BAAF44AF3EEA59301BB38C1CF7C559
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26797.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26797.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:27AA0768E76E9F49FA63E8103FE3E3106ABCCC63
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26798.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26798.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1A7EC9FA72E52DB5695E8AE460A048D0EE07B8AF
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26799.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26799.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:EF07E184DA1EAE7124805A7F1E307D4D14A5D4B8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26800.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26800.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8733CEA96297D05341871621A795AF44152604CB
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26801.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26801.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Capture One 23 Enterprise 16.5.6.2733 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26802.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26802.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4C5C2694602CF356A26EC5BB315C62314E01A554
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26803.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26803.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7D71CC39053EF96E5E2D59858C5F31A3258E0704
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26804.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26804.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:32AEC8BF96182FA41DEB7AC5940B857BDE33E7BD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26805.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26805.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:4F258622955C65903594F3F2587FD2C09A946954
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26806.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26806.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26807.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26807.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:89B815CE37A0514F68AB2E71450261D8352FFBB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26808.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26808.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B87F3475AB226768955DA6BF330903797B45349D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26809.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26809.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8B3D6E1671430ECBFDBB31846E7F96CE2252E8F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26810.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26810.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26811.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26811.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9DF9C337EC4ED352497D5845F84203D6C1B61636
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26812.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:4F5113610F911EA88A094CB603B193AEA6329138
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26813.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26813.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Vanced Tube v5.3.80.141 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26814.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26814.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ AVS4YOU Software AIO Installation Package 6.0.2.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26815.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26815.jpg" />
 </div>
 
 

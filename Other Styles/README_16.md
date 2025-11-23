@@ -6,7 +6,7 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154696.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154753.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154854.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image +
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155299.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155477.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155701.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155713.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156392.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156695.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156813.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156856.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157375.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157689.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157892.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157901.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158223.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158335.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158487.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158717.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vor
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159593.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159619.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159825.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160026.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160636.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160639.jpg" />
 </div>
 
 

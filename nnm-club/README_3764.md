@@ -1,3 +1,76 @@
+###  Публикация: 1823175   (117546) от 10.10.2025
+
+Фоны - Creative Fabrica - Fall Autumn Digital Backdrops Bundle PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117546.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 осенних фонов для ваших творческих задач.Формат: PNGРазрешение файлов: 4096x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F9B371E6664347093B871978A240834991C3A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699790   (117547) от 14.02.2024
+
+Гюстав Флобер | Три повести (2013) [MP3, Юлия Тарасова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика.
+Три повести (Trois Contes, 1877) – авторский сборник французского классика Гюстава Флобера (1821–1880), включает в себя необычные и яркие сюжеты повествований.Жанр: Зарубежная литература, классика, повестьИздательство: МедиаКнигаПродолжительность: 04:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FD329104B818EB38EF47698F0494F90785C8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823174   (117548) от 10.10.2025
+
+Шрифты - Envato - Recubs Press - Display Letterpress Font - 92HK2YT [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый символ Recubs Press основан на прочной геометрической структуре с квадратными окончаниями и равномерной шириной штрихов, что обеспечивает читаемость при любом размере. Стиль Regular сочетает в себе приятную среднюю насыщенность с лёгким состариванием, передавая очарование ручной печати без ущерба для чёткости. Стиль Block усиливает зернистость и плотность, (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8630226E27367374DC09E0F5F0F9271663F3AFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699629   (117549) от 14.02.2024
 
 Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955) 2006, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +79,7 @@ Donald Byrd Sextet With Yusef Lateef & Barry Harris - Complete Recordings (1955)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117549.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ magnet:?xt=urn:btih:C8453562763BE536CAD4E9D9B5EA3A7F65E00D96
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117550.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117551.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ magnet:?xt=urn:btih:DE88ABFF9EAD1488D2AFBB28289E7780A780E1DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117552.jpg" />
 </div>
 
 
@@ -110,7 +183,7 @@ A Better Finder Attributes 7 v.7.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117553.jpg" />
 </div>
 
 
@@ -134,7 +207,7 @@ magnet:?xt=urn:btih:786F68249EAEC4C3D38DAE23B9D4AC24CAA2EBCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117554.jpg" />
 </div>
 
 
@@ -158,7 +231,7 @@ Barry Harris - At The Jazz Workshop (1960) 2006, Riverside [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117555.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ magnet:?xt=urn:btih:08867DE1CC186167DECA0B7F11BD60E7F73B5275
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117556.jpg" />
 </div>
 
 
@@ -210,7 +283,7 @@ Barry Harris Trio - Preminado (1960, 1961) 1990, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117557.jpg" />
 </div>
 
 
@@ -237,7 +310,7 @@ magnet:?xt=urn:btih:52FC7E1889ED2F3D3D4ECDEC503DED591EED5893
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117558.jpg" />
 </div>
 
 
@@ -262,7 +335,7 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117559.jpg" />
 </div>
 
 
@@ -289,7 +362,7 @@ magnet:?xt=urn:btih:A1330F846E0473699AC83621C8482204E398E494
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117560.jpg" />
 </div>
 
 
@@ -316,7 +389,7 @@ magnet:?xt=urn:btih:E3F8DA7B9B60641763385C4DC15CF7515A7740A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117561.jpg" />
 </div>
 
 
@@ -340,7 +413,7 @@ magnet:?xt=urn:btih:7CBD6C3CB40B791675991737B35393965BFAC21D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117562.jpg" />
 </div>
 
 
@@ -364,7 +437,7 @@ magnet:?xt=urn:btih:2304A38CE9FD5D1B9E09EDE663F7C8B1768875FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117563.jpg" />
 </div>
 
 
@@ -388,7 +461,7 @@ magnet:?xt=urn:btih:B0D0ACCD40974E8FBEA57D2056068F6537911C83
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117564.jpg" />
 </div>
 
 
@@ -412,7 +485,7 @@ magnet:?xt=urn:btih:AABFC60263358923AF611976D70321D9696852C4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117565.jpg" />
 </div>
 
 
@@ -436,7 +509,7 @@ Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117566.jpg" />
 </div>
 
 
@@ -463,7 +536,7 @@ MyLanViewer 6.6.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117567.jpg" />
 </div>
 
 
@@ -487,7 +560,7 @@ magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117568.jpg" />
 </div>
 
 
@@ -511,7 +584,7 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117569.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117570.jpg" />
 </div>
 
 
@@ -564,7 +637,7 @@ magnet:?xt=urn:btih:147732CB9856A3D4D01F6FCCD459268932EF690E
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117571.jpg" />
 </div>
 
 
@@ -578,84 +651,6 @@ magnet:?xt=urn:btih:147732CB9856A3D4D01F6FCCD459268932EF690E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699735   (117572) от 14.02.2024
-
-Ася Рыбкина | Игла для Анархиста (2023) [MP3, Наталья Ростова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неугомонная авантюристка – вот как можно в двух словах описать героиню книги Асю. Ещё бы: она же бывшая спортсменка, а, значит, настоящий боец! «Вылетев в трубу» с очередным бизнесом, подаренным щедрым мужем, Ася от скуки принимается расследовать дело о гибели любимого артиста своей лучшей подружки, рокерши. Дело давно закрыто, но споры о причине смерти солиста группы (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 13:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B721BAAA6196EAD60A2F04D78928EBF1558745A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699802   (117573) от 14.02.2024
-
-Swinsian 3.0 Preview 13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
-● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
-● Быстрое и эффективное управление
-● Импорт библиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 SwinsianПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29F0980DD2D814F4E58A2C94E0F4798E6C92AA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699632   (117574) от 14.02.2024
-
-Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz [6:30]
-02. January 17 [6:05]
-03. You'll Always Need Friends [5:42]
-04. Feather, But No Wings [5:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DB9EB2B051D327FCF4D7CA3AA9E2865A2D5832
 ```
 
 

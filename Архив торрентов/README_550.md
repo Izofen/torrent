@@ -6,7 +6,7 @@ AOMEI Partition Assistant Technician Edition 10.3.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2024 25.4.0.319 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare Recoverit for Mac 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119598.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ OmniReader Pro for Mac 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119600.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Aiseesoft Mac Screen Recorder 2.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119601.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ djay - DJ App & AI Mixer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119602.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keep It 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119607.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Topaz Photo AI 2 for Mac 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119611.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Ableton Live Suite 12 Beta 12.0b26 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119613.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Fort Firewall 3.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119619.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Downie 4 v.4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119621.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Telegram Desktop 4.14.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119637.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Skype 8.112.0.206 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119644.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Brave Browser 1.62.156 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119645.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Wondershare UniConverter for Mac 15.5.1 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119648.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ RS Explorer / RS Проводник 2.0.9.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119651.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ TikTok 33.2.5 Lite-Mod by Dmitry Nechiporenko + Plugin 1.26 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119654.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ PDF Reader Pro 3.3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119655.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Opera One 106.0.4998.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119657.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ IceCream Ebook Reader Pro 6.46 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119663.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ PortableApps.com Platform 29.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119664.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ WizTree 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119668.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Visual Studio Code 1.86 + Автономная версия (standalone) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119677.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ ONLYOFFICE 8.0.0.99 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119681.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Wondershare PDFelement 10.2.8.2643 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119684.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Image Uploader 1.4.0 Build 5125 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119685.jpg" />
 </div>
 
 

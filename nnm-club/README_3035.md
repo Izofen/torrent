@@ -1,3 +1,84 @@
+###  Публикация: 458831   (94799) от 27.02.2012
+
+[Wallpapers] Military 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение военной темы. 64 картинки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC119DBCEECD4C0E4DD24A10A193642250073BDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458813   (94803) от 27.02.2012
+
+VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia - Shores Of Eden (Original Mix)
+02. Mike Shiver vs Matias Lehtola - Slacker (Original Mix Edit)
+03. Monada - Turbulence (Radio Edit)
+04. Eco - When I'm Gone (Radio Edit)
+05. Vengeance - Stasis (Denga & Manus Webifier Mix Edit)
+06. Andrew Rayel - Believe (Radio Edit)
+07. Sophie Sugar - Skyline (Original Mix Edit)
+08. Signum - Harmonic (Edit)
+09. Andrew Rayel - 550 Senta (Radio Mix)
+10. Re:Locate vs Robert Nickson - Resource (Original Mix Edit)(   Читать дальше...   )25.02.2012Жанр: TranceПродолжительность: 09:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459015   (94810) от 27.02.2012
+
+И.С. Кравцов | Кавказ и его военачальники. [1886] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический очерк генерала И.С.Кравцова посвящен окончательному этапу покорения Кавказа и трем русским военачальникам: князю А.И.Барятинскому, Н.Н.Муравьеву и Н.И.Евдокимову — командовавшим русскими войсками. Очерк был напечатан в 1886 году в журнале «Русская старина» (в шестом и седьмом номерах). Он составлен в яркой, полемической манере. Автор, сам «кавказец» (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458990   (94816) от 27.02.2012
 
 Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
@@ -6,7 +87,7 @@ Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94816.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94816.jpg" />
 </div>
 
 
@@ -38,7 +119,7 @@ Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94824.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ Dir en Grey - The Rose Trims Again (2008) DVD9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94827.jpg" />
 </div>
 
 
@@ -97,7 +178,7 @@ VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94835.jpg" />
 </div>
 
 
@@ -130,7 +211,7 @@ VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94841.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94845.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94860.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94860.jpg" />
 </div>
 
 
@@ -229,7 +310,7 @@ David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94863.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94867.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ Meat-Grinder - Воскрешение из пепла (2004) [MP3|320 кб/с]<S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94872.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ VA - Mysteries Of Psytrance vol. 2 (Compiled by Ovnimoon) (2012) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94880.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94884.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94889.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94891.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94891.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94893.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94894.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94896.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ Sena Ehrhardt Band - Leave The Light On (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94899.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94899.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94906.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94913.jpg" />
 </div>
 
 
@@ -623,7 +704,7 @@ Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94914.jpg" />
 </div>
 
 
@@ -656,7 +737,7 @@ VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94916.jpg" />
 </div>
 
 
@@ -676,103 +757,6 @@ VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D976CBA82E803930D23606F6D569659EE7C316E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459528   (94921) от 29.02.2012
-
-Flowjob - Support Normality (2006) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Run Baby Run (The Big Escape Version) - (10:14)
-02 - Everland Airport - (07:45)
-03 - Flangers In The Night - (08:20)
-04 - Have Fun & Survive - (09:00)
-05 - Wannafrisbee - (09:04)
-06 - They Are Not Alone - (08:17)
-07 - Mood Food - (07:56)
-08 - Wadley - (09:32)
-09 - Glitter - (07:48)2006Жанр: Psychedelic / ProgressiveПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460048   (94927) от 29.02.2012
-
-Jenny Evans - Lunar Tunes (2008) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Moon (5:13)
-02. Sister Moon (4:53)
-03. Moonlight Serenade (7:03)
-04. The Moon and Stars (4:26)
-05. Moonlight in Vermont (4:10)
-06. Hymn to Selene (4:31)
-07. Silly Boy (4:27)
-08. 'Tis Full Moon (4:29)
-09. Old Devil Moon (4:13)
-10. Moonlight on the Ganges (4:58)(   Читать дальше...   )2008Жанр: Vocal JazzПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458651   (94930) от 29.02.2012
-
-Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Tone - Dance Time (with Noga) [8:47]
-02. Cosmic Tone - Are U Ready [7:22]
-03. Cosmic Tone - Pink (with Noga) [7:30]
-04. Cosmic Tone - Modulator (Edit) [8:05]
-05. Cosmic Tone - Toxic [8:11]
-06. Cosmic Tone - Rhythm Is The Power [7:38]
-07. Cosmic Tone - Open Your Mind [7:16]
-08. Cosmic Tone - Give Me Sound [7:03]
-09. Zikimoto - Maniac (Cosmic Tone remix) [7:54]2011Жанр: Psychedelic / Full OnПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 

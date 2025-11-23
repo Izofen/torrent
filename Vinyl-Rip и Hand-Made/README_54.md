@@ -1,3 +1,116 @@
+###  Публикация: 1599189   (201512) от 09.03.2023
+
+In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_201512.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Flames — шведская музыкальная группа, играющая в жанре мелодичный дэт-метал.
+Группа была основана в 1990 году ударником и гитаристом Йеспером Стрёмбладом как сайд-проект его основной группы Ceremonial Oath.
+В 1993 году Стрёмблад покинул группу и сосредоточился на In Flames. К нему присоединились гитарист Гленн Люнгстрём и басист Йохан Ларссен, сформировав первый (   Читать дальше...   )1994 - Lunar Strain + Subterranean (EP)
+1996 - The Jester Race
+1997 - Whoracle
+1999 - ColonyЖанр: Melodic Death Metal, Melodic Groove Metal/MetalcoreПродолжительность: 13:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617270   (201677) от 07.03.2023
+
+Оркестр Поля Мориа - Бабье Лето (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_201677.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Бразильский Карнавал · Brasilia Carnaval
+A2 Бабье Лето · L'ete Indien «Africa»
+A3 Мелиза · Melisa
+A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829272   (202040) от 25.10.2025
+
+Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-The Gate (2:05)
+02-Push The Limits (6:35)
+03-Gravity Of Love (4:02)
+04-Smell Of Desire (4:49)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age, DowntempoПродолжительность: 02:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510172   (202566) от 19.02.2023
+
+Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Folk Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_202566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01. Lay, Lady, Lay
+02. Baby, Let Me Follow You Down
+03. If Not For You(   Читать дальше...   )Side One:
+01. Romance In Durango (Live)
+02. Señor (Tales Of Yankee Power)
+03. Gotta Serve Somebody(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues RockПродолжительность: 03:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656575   (203055) от 31.08.2023
 
 Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
@@ -6,7 +119,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -33,7 +146,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -60,7 +173,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203349.jpg" />
 </div>
 
 
@@ -86,7 +199,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -113,7 +226,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -140,7 +253,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -168,7 +281,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -195,7 +308,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -222,7 +335,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -249,7 +362,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203795.jpg" />
 </div>
 
 
@@ -276,7 +389,7 @@ magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204160.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -329,7 +442,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -355,7 +468,7 @@ magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204462.jpg" />
 </div>
 
 
@@ -382,7 +495,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204616.jpg" />
 </div>
 
 
@@ -409,7 +522,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -436,7 +549,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -463,7 +576,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205374.jpg" />
 </div>
 
 
@@ -490,7 +603,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205759.jpg" />
 </div>
 
 
@@ -517,7 +630,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205984.jpg" />
 </div>
 
 
@@ -544,7 +657,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -571,7 +684,7 @@ AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206229.jpg" />
 </div>
 
 
@@ -586,114 +699,6 @@ AC/DC  — австралийская рок-группа, сформирова�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650659   (206467) от 12.08.2023
-
-Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eleine - шведская метал-группа, образованная в 2014 году, известная своим звучанием в стиле «дарк-симфо-метал» с влиянием блэк-метала, дэт-метала и трэш-метала.2015 - Eleine
-2018 - Until The End
-2020 - Dancing in Hell
-2023 - We Shall RemainЖанр: Symphonic MetalПродолжительность: 03:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5CAD9E055657ADBC21805EB2D811DF9AF0DEE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311369   (206695) от 03.10.2022
-
-Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206695.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Talk Of All The USA
-A2	Samson And Delilah
-A3	Try A Little Understanding
-A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530138   (206839) от 01.10.2022
-
-Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
-1999 - Slipknot (10th Anniversary Edition)
-2001 - Iowa (10th Anniversary Edition)
-2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183813   (206927) от 06.08.2023
-
-Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01 Atomic
- 02 Some Other Place, Some Other Time
- 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 ```
 
 

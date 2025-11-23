@@ -6,7 +6,7 @@ Dying Fetus - War of Attrition (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Brut
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108264.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108266.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108345.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Ca
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108346.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108380.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108392.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108417.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108461.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108467.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108468.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Metal Massacre 15 (2021)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108573.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108590.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108664.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108754.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108774.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108789.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Spee
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108796.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108841.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108917.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108990.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109040.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109155.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109174.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109179.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109196.jpg" />
 </div>
 
 

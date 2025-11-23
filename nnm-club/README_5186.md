@@ -1,3 +1,183 @@
+###  Публикация: 1675325   (160260) от 09.11.2023
+
+Perfectly Clear WorkBench 4.6.0.2613 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A00C435DD2BC9C587BD30C0CF6AC2FD1A02DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675452   (160261) от 09.11.2023
+
+Михаил Пыляев | Причуды и странности известных людей. Знаменитые чудаки и оригиналы (2006) [MP3, Денис Некрасов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Кругозор, Повседневная жизнь.
+Михаил Иванович Пыляев (1842–1899) русский писатель и журналист, собиравший занимательные истории и анекдоты о петербургской жизни XVIII и начала XIX вв.
+Все враги боялись адмирала Ушакова, а кого боялся сам Ушаков? Какое необычное оружие выбрал князь А.С. Меньшиков для дуэли с графом Клейнмихелем? Кому обещал отдать в жены свою (   Читать дальше...   )Жанр: Историческая литература, краеведениеИздательство: Литрес Паблишинг, СиДиКом, ЭлитайлПродолжительность: 10:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90FDFEC658634CE4A646477C959B1DFDECA54BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675291   (160262) от 09.11.2023
+
+Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Experimental, Trip Hop, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humming (Live / Remastered 2023) [6:33]
+02. Cowboys (Live / Remastered 2023) [4:58]
+03. All Mine (Live / Remastered 2023) [4:02]
+04. Mysterons (Live / Remastered 2023) [5:44](   Читать дальше...   )Жанр: Experimental, Trip Hop, DowntempoПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4001162E704FBD0A76B0A4A02CFF8065AB122E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675022   (160263) от 09.11.2023
+
+VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Bobo - Let Yourself Be Free
+02. 2 Unlimited - The Real Thing
+03. 2 Brothers On The 4th Floor - Dreams
+04. Black Label - Givin' You My Love(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675176   (160264) от 09.11.2023
+
+Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Born
+02. Bring The Metal Back
+03. Man Of War
+04. For Our Home(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675548   (160265) от 09.11.2023
+
+Из омута / From the Submerged (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой еще мужчина, но уже опустившийся бродяга, не в состоянии терпеть нищету, страдания и собственную никчемность. Он готов покончить собой и броситься с моста в омут реки, покончив с омутом жизни. Но случайная свидетельница, молоденькая барышня, смогла остановить его и убедить, что самоубийство большой грех и надо терпеть посланные нам испытания. А спустя время, (   Читать дальше...   )Производство: США, The Essanay Film Manufacturing CompanyЖанр: короткометражный, драма, немое киноРежиссер: Теодор УортонАктеры: Е.Х. Кэлверт, Рут Стоунхаус, Уильям Уолтерс, Джозеф Аллен ст., Милдред Уэстон, Фред Вульф, Чарльз Хичкок, Долорес Кассинелли, Брайант Уошберн, Билли МэйсонПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26523FEE289A930E8E0C4A448A83829451BDF1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675362   (160266) от 09.11.2023
+
+Виктория Лапина | Не бояться жить (2023) [MP3, Юрий Сельчихин]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионам людей не хватает поддержки и понимания, особенно в трудные периоды жизни. Часто на этом фоне опускаются руки и теряется последняя надежда. Психолог Виктория Лапина делится своей историей из жизни, которая описывает её путь от разрушения к спасению. Данная книга дарит невероятное тепло и искренность, а так же способствует пробуждению веры в то, что жизнь (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD2EA0BC8DB42B293B10E32C3378AD5E575D97E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675472   (160267) от 09.11.2023
 
 Шарксплотейшн / Sharksploitation (2023) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +186,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160267.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160268.jpg" />
 </div>
 
 
@@ -57,7 +237,7 @@ magnet:?xt=urn:btih:7228768FA3B1BBC88B7B347698DC1B39ED1368C7
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160269.jpg" />
 </div>
 
 
@@ -81,7 +261,7 @@ magnet:?xt=urn:btih:0B4D152707DDA730323BDCACB2C7DCD78C6B28F5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160270.jpg" />
 </div>
 
 
@@ -106,7 +286,7 @@ n-Track Studio Suite 10.0.0.8196 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160271.jpg" />
 </div>
 
 
@@ -130,7 +310,7 @@ magnet:?xt=urn:btih:DFD3925297DA507C9616FDABC2CB71920BEDE6A9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160272.jpg" />
 </div>
 
 
@@ -155,7 +335,7 @@ magnet:?xt=urn:btih:CD0EB0D1C6498653EB0331FAB21C4F359D112A1E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160273.jpg" />
 </div>
 
 
@@ -179,7 +359,7 @@ magnet:?xt=urn:btih:14B0278A945ACFA764F79A0CC5B1B0743F87BF07
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160274.jpg" />
 </div>
 
 
@@ -203,7 +383,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160275.jpg" />
 </div>
 
 
@@ -228,7 +408,7 @@ magnet:?xt=urn:btih:A40E1A7FA6F1D7474EFCC2A771075B2C92BEF407
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160276.jpg" />
 </div>
 
 
@@ -254,7 +434,7 @@ magnet:?xt=urn:btih:30ED451114C24AE16CFAFAE0C4A862F52B09FEC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160277.jpg" />
 </div>
 
 
@@ -278,7 +458,7 @@ magnet:?xt=urn:btih:B310F9196E3F5DE9F1AA5D8A1282022ED4E8B224
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160278.jpg" />
 </div>
 
 
@@ -302,7 +482,7 @@ The Alley Tones - Buzzard's Luck (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160279.jpg" />
 </div>
 
 
@@ -329,7 +509,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160280.jpg" />
 </div>
 
 
@@ -356,7 +536,7 @@ magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160281.jpg" />
 </div>
 
 
@@ -380,7 +560,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160282.jpg" />
 </div>
 
 
@@ -404,7 +584,7 @@ magnet:?xt=urn:btih:EA436E80D52E475A63BDBD4EE2DFDDA724554910
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160283.jpg" />
 </div>
 
 
@@ -428,7 +608,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160284.jpg" />
 </div>
 
 
@@ -455,7 +635,7 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160285.jpg" />
 </div>
 
 
@@ -469,192 +649,6 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A4C2DA7936D89A3413BFCF8DBE30C50A3455D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675502   (160286) от 09.11.2023
-
-DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160286.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DBBB89CC9CF975D4ED30D01A07B8AF0B288994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675459   (160287) от 09.11.2023
-
-Kaliopi & The Blues Messengers - Blues for Minnie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Cat Blues (3:46)
-02. Kissing In The Dark (2:26)
-03. Messin' With The Blues (5:09)
-04. Hoodoo Lady (2:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4AD4E253815EEAEAC91243ADD9C48927090D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675598   (160288) от 09.11.2023
-
-D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock , Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard to Be Easy (5:10)
-02. Linger at the Edge of My Memory (5:05)
-03. Tiny Little Fires (3:33)
-04. Right Where You Should Be (3:43)(   Читать дальше...   )Жанр: Progressive Rock , Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675461   (160289) от 09.11.2023
-
-Luke - Strange Boy In Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Outside Our Door (3:59)
-02. Can't Keep My Mind Off You (3:30)
-03. Into Deep (4:11)
-04. Sadie (Don't You Stop This Thing Tonight) (4:44)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBA180BD2DED63703FA79D4814DE69FE86A6587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675575   (160290) от 09.11.2023
-
-Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowly Light Collides (5:14)
-02. Mind Is A Shadow (feat. Vincent Jackson Jones) (4:59)
-03. How Many Dreams (4:01)
-04. Spirit And Matter (5:00)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8EEFD90DD69020A9D39C198BEBE268DCB9DE98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675602   (160291) от 09.11.2023
-
-Secret Sphere - Blackened Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crossing Toll (1:59)
-02. J.'s Serenade (5:52)
-03. Aura (4:34)
-04. Bloody Wednesday (5:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEE5827E8A53E483F305E6012798330C873D9D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675373   (160292) от 09.11.2023
-
-Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Awakening Of Kerodet
-02. When Our Troops Unite
-03. They Conquered
-04. Fate Is Calling(   Читать дальше...   )Жанр: Power Metal OperaПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5782E4D9B070D16969987DB5E85A35A7E4C8FF8D
 ```
 
 

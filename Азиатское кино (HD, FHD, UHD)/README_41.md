@@ -1,3 +1,27 @@
+###  Публикация: 1633982   (252174) от 18.05.2023
+
+Блуждающая Земля 2 / Liu lang di qiu 2 / The Wandering Earth II (2023) WEB-DL [H.264/1080p]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_252174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце угасает. Последний шанс человечества на спасение — поиск нового дома. Объединившись, люди находят возможность изменить орбиту Земли, отправившись в неизвестность. Но это путешествие на много сотен световых лет во тьму несет разрушение и хаос. Планета растерзана катаклизмами, в которых выживут далеко не все. И все же только в бесконечной пустоте можно обрести (   Читать дальше...   )Производство: Китай / CFC Pictures, China Film Co., Ltd., G!Film Studio, Rollin StudiosЖанр: фантастика, боевикРежиссер: Франт ГвоАктеры: Джеки У, Энди Лау, Ли Сюэцзянь, Нин Ли, Энди Френд, Ван Чжи, Ша И, Чжу Яньманьцзы, Тун Лия, Зина БлахусоваПеревод: Дублированный (Велес), Профессиональный многоголосый (TVShows)Язык озвучки: Русский, КитайскийСубтитры: английские (Full, SDH)Продолжительность: 02:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E648568F1A00C56BCAE4082480DB3BE9458F3FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836139   (252266) от 09.11.2025
 
 Рейд 2 / Serbuan maut 2: Berandal / The Raid 2: Berandal (2014) BDRip [AV1/1080p-LQ]
@@ -6,7 +30,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252266.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_252266.jpg" />
 </div>
 
 
@@ -30,7 +54,7 @@ magnet:?xt=urn:btih:7F96225E1EAC30218B5C1D01E590F345015F57C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254396.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254396.jpg" />
 </div>
 
 
@@ -54,7 +78,7 @@ magnet:?xt=urn:btih:AC5F734DE08E8E193EE2B3113F289D7D8F5D8A60
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254403.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254403.jpg" />
 </div>
 
 
@@ -78,7 +102,7 @@ magnet:?xt=urn:btih:702BE1FA923624EF1ADFB391AAF09BB579CC40CC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254428.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254428.jpg" />
 </div>
 
 
@@ -102,7 +126,7 @@ magnet:?xt=urn:btih:F98D7728C30B3862D9001DDB7A2D19B32DD699C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254498.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254498.jpg" />
 </div>
 
 
@@ -126,7 +150,7 @@ magnet:?xt=urn:btih:967E8760403B0DA86746B5A5D7C73908F0E3ED96
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254515.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254515.jpg" />
 </div>
 
 
@@ -150,7 +174,7 @@ magnet:?xt=urn:btih:152462DD771BF0BAE4A48DB2D5BD8158EC93C7B4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254738.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ magnet:?xt=urn:btih:9CE0F0B5061D24CE3D759478DBD7A220623F7A92
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254795.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254795.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ magnet:?xt=urn:btih:31DAFB9DE2162FB5398B84FAF71E004F584E2354
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254851.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254851.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ magnet:?xt=urn:btih:FD5FAD32EB014170C33436FF86349246D704BE6D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254909.jpg" />
 </div>
 
 
@@ -246,7 +270,7 @@ magnet:?xt=urn:btih:89B91DA8D23C3990525C9AA7A2EBB36B49F00C5B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255067.jpg" />
 </div>
 
 
@@ -270,7 +294,7 @@ magnet:?xt=urn:btih:8A5CEA0590C05156391EAB136B74F8C8082DF9D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255146.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255146.jpg" />
 </div>
 
 
@@ -294,7 +318,7 @@ magnet:?xt=urn:btih:E46E48D8A22D83D6C4D6386556D12ED389262794
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255241.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255241.jpg" />
 </div>
 
 
@@ -318,7 +342,7 @@ magnet:?xt=urn:btih:6F8848EB8ACCAA0CE8973EA932B48FAE4CA7F435
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255428.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255428.jpg" />
 </div>
 
 
@@ -342,7 +366,7 @@ magnet:?xt=urn:btih:992411F9F75389B338E1BB969E837C9F38214DD7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255489.jpg" />
 </div>
 
 
@@ -366,7 +390,7 @@ magnet:?xt=urn:btih:239BDD4FAD862E969D8EC2D15EF2F836C848BC4F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256579.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256579.jpg" />
 </div>
 
 
@@ -390,7 +414,7 @@ magnet:?xt=urn:btih:F954CE1A2A907B3E7B9359B4CE98FE3C61049CF8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256580.jpg" />
 </div>
 
 
@@ -414,7 +438,7 @@ magnet:?xt=urn:btih:8A13901EBCF0E758E8C721147F10D8742122DAB1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256595.jpg" />
 </div>
 
 
@@ -438,7 +462,7 @@ magnet:?xt=urn:btih:DE3DAB95E74BF9D451F69D28D11FCA9D677E0585
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256627.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256627.jpg" />
 </div>
 
 
@@ -462,7 +486,7 @@ magnet:?xt=urn:btih:17055079E4F6CD14DDB7778D31D901CFEF49DBD7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256631.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256631.jpg" />
 </div>
 
 
@@ -486,7 +510,7 @@ magnet:?xt=urn:btih:56523E1528B9D4F3B60233CA04A11238CD810F4A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257535.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257535.jpg" />
 </div>
 
 
@@ -510,7 +534,7 @@ magnet:?xt=urn:btih:36BB256E38707E716B49A6178B7B9ABB8A716C26
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257767.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257767.jpg" />
 </div>
 
 
@@ -534,7 +558,7 @@ magnet:?xt=urn:btih:2975A32D56F6622E0A59AF7BBF7686FF6F76BA19
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257782.jpg" />
 </div>
 
 
@@ -558,7 +582,7 @@ magnet:?xt=urn:btih:0EF1378EFBC3BA7D7889ACD023EDE4E708BD3EF2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257922.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257922.jpg" />
 </div>
 
 
@@ -570,6 +594,30 @@ magnet:?xt=urn:btih:0EF1378EFBC3BA7D7889ACD023EDE4E708BD3EF2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F364FD54232F4DF217359D205663A4D7D7654AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838098   (257929) от 20.11.2025
+
+Выход Дракона / Enter the Dragon (1973) BDRip [H.265/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257929.jpg" />
+</div>
+
+
+###  Подробнее
+
+На острове, превращённом в неприступную крепость, боевики открыли школу боевых искусств, которая является лишь ширмой для прикрытия бизнеса по контрабанде. В эту цитадель проникает Ли и становится участником жестокого турнира.Производство: Гонконг, США / Concord Productions Inc., Мост-Видео, Sequoia ProductionsЖанр: боевик, драма, криминалРежиссер: Роберт КлаузАктеры: Брюс Ли, Ши Кень, Джон Сэксон, Джим Келли, Боло Йен, Ана Капри, Анджела Мао, Роберт Уолл, Бетти Чюн, Джефри УиксПеревод: Многоголосый (Superbit, Kinoteatr TV), авторский (Живов)Язык озвучки: Русский, узбекский, английскийСубтитры: отсутствуютПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC7CAD04DAE4F6125243BC02F97E11FD813BD51
 ```
 
 

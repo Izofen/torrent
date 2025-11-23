@@ -6,7 +6,7 @@ Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152777.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152842.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153256.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153391.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153419.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:1840C65B54FBC39CD7E4F7371B8088313580A129
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153430.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153584.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Первый танцевальный, Vol. 16 (Новогодний) (2018
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153831.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:01BE17A7535153E62947AEEBA6830137813D7DB0
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153836.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:804627631B60C8D23C67FA41F08BFAF998888675
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153853.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FAA865BD198CC3C610EC726E3BDB397B4E7C9F74
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153982.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Italo Disco Megahits (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154065.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154103.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154109.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Just Dance 2017 - The Playlist Compilation (2016) [MP3|320 Kbps] <Euro Danc
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154124.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - 80s Disco Forever (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154188.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154351.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154538.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154654.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154721.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:F7C3FAE67723BC99A15796A31F30CAA92A64097A
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154935.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Shaman - Сделано в России (2023) 2CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155037.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:EFED9A7A2FADE54C76201D77DAAE1BD86DA22A6E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155104.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Best Of 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155227.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Grease - 70s Party Songs (2018) [MP3|320 Kbps] <Pop, Funk, Hard Rock, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155321.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155359.jpg" />
 </div>
 
 

@@ -1,3 +1,183 @@
+###  Публикация: 1346648   (157121) от 20.12.2019
+
+Алина Немирова, Григорий Панченко | Потерянная принцесса (2019) [FB2]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыцарь-крестоносец Лютгер фон Варен когда-то ввязался в опасную историю. Выполняя поручение Тевтонского ордена, он неминуемо погиб, если бы не вмешательство благородного предводителя тюркского племени, мудрого Эртургула. Тогда он не только спас рыцаря и его отряд, но и выкупил из рабства красавицу Сюрлетту. Загадочная девушка пришлась по сердцу крестоносцу. Но судьба (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133F18443AB201E4D2C29CDF36BCA01EFAC2E8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676489   (157124) от 13.11.2023
+
+Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eisbrecher (с нем. — «Ледокол») — немецкий NDH-коллектив, основанный Александром «Alexx» Вессельски и Йохеном «Noel Pix» Зайбертом. Ранее они участвовали в группе Megaherz: Александр в качестве вокалиста и автора текстов, Йохен — сессионный гитарист. Девиз группы — «…Es wird Kalt» («Холодает»).01. Intro Maschine
+02. Volle Kraft Voraus
+03. So Oder So
+04. Antikorper(   Читать дальше...   )Производство: ГерманияЖанр: Industrial Gothic MetalУчастники: Александр «Alexx» Вессельски (вокал)
+Йохен «Noel Pix» Зайберт (гитара, программирование)
+Юрген Планггер (ритм-гитара)
+Руперт Кеплингер (бас-гитара)(   Читать дальше...   )Перевод: ОтсутствуетПродолжительность: 02:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855092B9586BE6EA2ED96F65129B55B13C6449E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600444   (157125) от 27.12.2022
+
+Солдаты неудачи: Дождь безумия / Tropic Thunder: Rain of Madness (2008) WEBRip [H.264/720p] [VO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йен Йюрген в своем документальном фильме пытается рассмотреть все грани производства, начиная с 2005 года, когда Дэмиэн купил права на экранизацию рассказа Четырехлистика, и заканчивая пленкой, найденной в джунглях и проливающей свет, что на самом деле случилось с режиссером. Йен достаточно много времени уделяет повествованию о подборе актеров, что, впрочем, совсем (   Читать дальше...   )Производство: США / DreamWorks SKG, Monkey Deux, Red Hour FilmsЖанр: документальный, короткометражный, комедияПеревод: Одноголосый любительский (Киберпанк)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902D080823783B529DCD7B7C799E0283516343CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346712   (157127) от 20.12.2019
+
+VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Alina Eremia - You Light Up The Night (Richard Durand Extended Remix) 8:11
+02. Solarstone - Sky (Club Mix) 9:12
+03. HOLY WATERS - Little White Lies (Club Mix) 5:21
+04. Giuseppe Ottaviani & Driftmoon - Another Dimension (Transmission 2019 Theme) (Extended Mix) 6:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11CA6A81B0772FBF7671E7A184932A5CD2A786E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270536   (157128) от 19.12.2018
+
+Журнал | UPgrade №19 (823) (ноябрь 2018) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157128.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9A9BAB610C67889F5DDCD36BEDB314AE551726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190217   (157129) от 24.12.2017
+
+Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьницы Юри Мията и Мегуми Мегуро живут на малонаселённом островке Мияке в двухстах километрах к югу от Токио и увлекаются гонками на мотоциклах с колясками. Юри — женственная, хладнокровная и стройная девушка-водитель, управляющая тормозом и газом. Мегуми — очаровательная и импульсивная пацанка, занимающая место пассажира и использующая вес тела и акробатические (   Читать дальше...   )Производство: Студия Silver LinkЖанр: спортРежиссер: Тамура МасафумиПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C260799CFCB612A0360720A7B90A6EBDA1C201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967870   (157130) от 23.12.2015
+
+Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Lived (3:55)
+02. I Close My Eyes and Count to Ten (feat. Sarah Cracknell) (4:06)
+03. Bedsitter Images (4:10)
+04. The London Boys (3:27)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3460E13EDF9BEAE67B745E39C2B3713DC62F10C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433603   (157131) от 21.12.2020
 
 Потайная темница / The Oubliette (1914) DVDRip
@@ -6,7 +186,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157131.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:2832A1E86A6277D5DBA256F0018E054F751C0930
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157132.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ Microsoft изменяет подход к тестированию Windows 10
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157133.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157133.jpg" />
 </div>
 
 
@@ -78,7 +258,7 @@ Microsoft изменяет подход к тестированию Windows 10
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157134.jpg" />
 </div>
 
 
@@ -105,7 +285,7 @@ Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157136.jpg" />
 </div>
 
 
@@ -132,7 +312,7 @@ magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157138.jpg" />
 </div>
 
 
@@ -156,7 +336,7 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157140.jpg" />
 </div>
 
 
@@ -180,7 +360,7 @@ magnet:?xt=urn:btih:45CE6C9620171146F54FE84D900F52B104AFB3A4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157141.jpg" />
 </div>
 
 
@@ -204,7 +384,7 @@ magnet:?xt=urn:btih:3BA5E3DDB968C293B4E129F9277688586D6F487A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157144.jpg" />
 </div>
 
 
@@ -228,7 +408,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.60.5900 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157145.jpg" />
 </div>
 
 
@@ -252,7 +432,7 @@ Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157146.jpg" />
 </div>
 
 
@@ -279,7 +459,7 @@ magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157147.jpg" />
 </div>
 
 
@@ -303,7 +483,7 @@ magnet:?xt=urn:btih:4613B2EBE83577A5A493408362AE4728AF1FF74B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157148.jpg" />
 </div>
 
 
@@ -327,7 +507,7 @@ PortableApps.com Platform 26.3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157149.jpg" />
 </div>
 
 
@@ -353,7 +533,7 @@ Stellarium 1.2 (0.22.5.0-1.22.5.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157151.jpg" />
 </div>
 
 
@@ -377,7 +557,7 @@ magnet:?xt=urn:btih:E32C4C2CF56FA51B8B5707F50F6787A3674A9A19
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157152.jpg" />
 </div>
 
 
@@ -401,7 +581,7 @@ Group | Stand Up Сезон 5 (2016) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157153.jpg" />
 </div>
 
 
@@ -425,7 +605,7 @@ magnet:?xt=urn:btih:730345600A7285336CA353F96594EAAC08AB6FC5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157156.jpg" />
 </div>
 
 
@@ -449,7 +629,7 @@ magnet:?xt=urn:btih:E44EA1D7B3ED7D172EAD323E6141ABC948BB4D5B
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157157.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157157.jpg" />
 </div>
 
 
@@ -460,192 +640,6 @@ magnet:?xt=urn:btih:E44EA1D7B3ED7D172EAD323E6141ABC948BB4D5B
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346825   (157158) от 20.12.2019
-
-Повелители мяча: 9009 / Ballmastrz 9009 (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157158.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — некая странная игра с мячом, которой одержима вселенная. Здесь есть свои суперзвезды, среди них — вконец обнаглевшая тусовщица Гэз Дигзи. В какой-то момент ее лишают всех привилегий и отправляют играть за самую лузерскую команду. Теперь у нее есть только один путь назад к вершине — привести свой новый горе-клуб к победе на чемпионате.Производство: США, Rough Draft Studios, Rough House PicturesЖанр: Мультсериал для взрослых, фантастика, боевик, комедия, спортРежиссер: Кристи КаракасПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952BD87ACAAD5732D355D9BBFFBBF2E2C9C887DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433495   (157159) от 21.12.2020
-
-Corlyx - 2 Albums (2019-2020) [MP3|320 Kbps] <Darkwave, post-punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Wolf [00:03:22]
-02. We See Red [00:02:51]
-03. Find The Killer [00:04:11]
-04. Porcelain Skin [00:03:42](   Читать дальше...   )Жанр: Darkwave, post-punkПродолжительность: 2 CD, 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770B0B27F91BECF8C37BE3B61324DD68C9A00BF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346792   (157160) от 20.12.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 20.12.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones And I - Dance Monkey 3:30
-02. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
-03. Zivert - Credo 3:04
-04. Regard - Ride It 2:38(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529241B352F6DFF9125FB94302231480ED411EE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676484   (157161) от 13.11.2023
-
-Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленное издание начинается с основ веб-разработки и переходит к рассмотрению таких концепций Perl и MySQL, как моделирование сценариев и баз данных, взаимодействие с базами данных на основе сценариев, формирование контента из базы данных, доставка информации от сервера к браузеру и обратно. Для того чтобы получить максимальную пользу от этой книги, необходимы (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194281   (157162) от 24.12.2017
-
-Битва экстрасенсов (2017.12.23) HDTV [H.264/1080i-LQ] (сезон 18, выпуск 14 - Финал)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157162.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6704524817E9DFAA23FDD067C53D33AB2B09ED7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600467   (157164) от 27.12.2022
-
-VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Weapons (2:31)
-02. M. Pokora - Déjà volé (2:16)
-03. Ed Sheeran - Celestial (3:29)
-04. Soprano - 3615 Bonheur (3:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588714   (157165) от 13.12.2012
-
-Адам Робертс | Соль [2004] [RTF, FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157165.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Научно-фантастическая классика XXI века...»
-
-"Романы поразительной силы и глубины, не уступающие даже "Дюне".
-
-"От произведений этого автора надолго остается приятное послевкусие..."
-
-Все это – и многое другое – сказано о "Соли" и "Стене" – романах, созданных дебютантом британской фантастики Адамом Робертсом и равно вызвавших восторг и у критиков, и у читателей.
-
-Достаточно упомянуть, что "SFX" сравнивал "Стену" со "Страстями по Лейбовицу", a "Locus" писал о "Соли": "Лучший дебют в научной фантастике за десятилетия".
-(   Читать дальше...   )Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E3627407B623C6CFC89AB3C075CBA556EE4F73
 ```
 
 

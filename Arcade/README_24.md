@@ -1,3 +1,51 @@
+###  Публикация: 1645794   (195826) от 11.07.2023
+
+Battle Axe (2021) [Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195826.jpg" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времен земли Мерсии находятся в деспотичных лапах волшебницы Этельдреды из промозглых пустошей на севере. Каждые семь лет она посылает свою армию на юг, чтобы увести некоторых горожан в рабство. По всей Мерсии звучит призыв к славным воинам с просьбой положить конец тирании Этельдреды. На зов откликаются эльф, волшебник и грабитель. Присоединяйтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Bitmap BureauЖанр: Action, Adventure, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFBD227FF293D734E48AA7665FC40FD0E083C095
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645128   (196038) от 08.07.2023
+
+Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ощутите всю радость сражения с глубокими игровыми механиками и потрясающими анимациями в файтинге Guilty Gear -Strive- - новой части серии Guilty Gear! Яркая эффектная графика выглядит как анимация ручной работы! Благодаря современным технологиям игра выглядит настолько естественно, что её запросто можно спутать с нарисованным вручную мультипликационным фильмом. (   Читать дальше...   )Тип издания: SceneРазработчик: Arc System WorksЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Французский и другиеЯзык интерфейса: Английский, Японский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C81D7F401B1EC03D3478FF21FDB3A8B06982FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634494   (196258) от 01.07.2023
 
 Voodolls (2023) [Multi] (1.0.4) License GOG
@@ -6,7 +54,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196258.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196258.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196534.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196607.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196633.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196785.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196789.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196854.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197001.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197007.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197330.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Batora: Lost Haven (2022) [Ru/Multi] (rc14 shipping 3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197459.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197459.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197555.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197555.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198136.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198136.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Solomon Snow: First Contact (2023) [Multi] (1.1.413) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198838.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198838.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Boom Blaster (2020) [Ru/Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200508.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200508.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ Godstrike (2021) [Ru/Multi] (2023.02.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200536.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200536.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Life of Delta (2023) [Ru/Multi] (2.1.1) License GOG [Support Adventures Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200841.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200841.jpg" />
 </div>
 
 
@@ -414,7 +462,7 @@ LEGO Pirates of the Caribbean: The Video Game (2011) [Ru/Multi] (1.0) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200889.jpg" />
 </div>
 
 
@@ -438,7 +486,7 @@ Super Trunko Go (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200937.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200937.jpg" />
 </div>
 
 
@@ -462,7 +510,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201056.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201056.jpg" />
 </div>
 
 
@@ -486,7 +534,7 @@ Funtasia (2022) [Multi] (0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201063.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201063.jpg" />
 </div>
 
 
@@ -510,7 +558,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202068.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202068.jpg" />
 </div>
 
 
@@ -534,7 +582,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202170.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202170.jpg" />
 </div>
 
 
@@ -558,7 +606,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202291.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202291.jpg" />
 </div>
 
 
@@ -569,54 +617,6 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603115   (202346) от 23.02.2023
-
-Void Scrappers (2022) [Multi] (1.32) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Void Scrappers расскажет об извечном противостоянии между человечеством и агрессивными пришельцами. По традиции жанра научной фантастики события происходят в мире будущего, в котором люди достигли высокого уровня научно-технологического прогресса, что позволило им осваивать далекие рубежи космоса. В скором времени они столкнулись с другими разумными инопланетными (   Читать дальше...   )Тип издания: LicenseРазработчик: 8BitSkullЖанр: Экшны, АркадыЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3380D8B538A0123A0D1A905078EC6D7C8C265090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830358   (202372) от 26.10.2025
-
-Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminus: Zombie Survivors - пошаговая игра на выживание в стиле рогалика на фоне зомби-апокалипсиса. Прошло несколько недель после захвата мира зомби-вирусом; большая часть населения уже заражена. Как один из немногих выживших, ты должен отправиться в Терминус, чтобы объединиться с другими выжившими. Победи голод, холод и прожорливых зомби, чтобы добраться до Терминуса, (   Читать дальше...   )Тип издания: RepackРазработчик: Longplay StudiosЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Корейский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0348FA4CBDD7506D014C93460DCA3065736FEF78
 ```
 
 

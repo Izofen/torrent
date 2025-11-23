@@ -1,3 +1,175 @@
+###  Публикация: 1677782   (148722) от 19.11.2023
+
+Гориллы: разборки в джунглях / Gorilla. Rumble in the Jungle (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гориллы живут сложно организованными семейными группами, в которых главенствует опытный самец. Как правило, это умный и сильный лидер, который не только командует членами своей группы, но и защищает их от опасностей. Гориллы во многом похожи на людей, но сейчас им угрожает опасность исчезновения.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7A8456D325FB394AF5F73DD9A0928E4E4AC4C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086773   (148723) от 26.12.2016
+
+Кётил Бьёрнстад | Река (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148723.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Река» норвежца Кетиля Бьёрнстада — долгожданное продолжение «Пианистов» (КомпасГид, 2011), истории об Акселе Виндинге, подающем надежды музыканте, чье упорство и воля к победе по праву достойны восхищения.
+Ему уже восемнадцать, и он все еще горюет о потере любимой девушки Ани, в то же время он окончательно определился с целью жизни и теперь устремляется по намеченному (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 14:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CE9FAF45BBBA90FBDB6095CB2D2102F7C1F65E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347694   (148724) от 24.12.2019
+
+QuarkXPress 2019 15.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C9C086A0D72AEF4F84A94FC05CEB55A3A5FE4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271476   (148725) от 24.12.2018
+
+Money Pro 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2018Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A71E9658B97812EFC9E5500B460CCDB71AA11E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519591   (148726) от 24.12.2021
+
+Disk Clean Pro 6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Clean Pro - это приложение с высоким рейтингом, которое удаляет ненужные файлы и данные с вашего Mac. Он надежно очищает избыточные файлы и гарантирует, что ваши важные данные никогда не окажутся под угрозой.Тип издания: macOS SoftwareРелиз состоялся: 24.12.2021Разработчик: © 2021 Systweak SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B764FE6E23AD022E2FDBE5B0B33F8188D5E76847
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589701   (148727) от 15.12.2012
+
+Руслан Галеев | Радио Хоспис [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Стас Бекчетов в мире кровососущих упырей. Самая настоящая мясорубка, которую напористым слогом фиксирует таинственный радио-ведущий. Выжившие отгородились от мира жестокости и хищничества высокой Стеной, и ждут чуда. Но когда спадают оковы морали, когда жестокость мира порождает жестокость отдельных индивидуумов, что может спасти человечество от анархии в самом мрачном смысле этого слова?
+Книга изначально позиционировалась как чтиво для любителей зомби хорроров. Цинично, стильно, мозгодробительно. Руслан Галеев создал мрачный мир, и хватит ли у читателя смелости прожить в нём эту книгу?Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629657E2F876DD73BCDCA95B377A9DC50A485745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413906   (148728) от 25.12.2020
+
+Некст / Next (2020) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пионер Кремниевой долины Пол Леблан сделал состояние на технологических инновациях, изменяющих наш мир, но в угоду призванию он отдалился от людей вокруг, включая собственную дочь, Эбби, и недальновидного брата Теда, который теперь управляет компанией Пола. Когда выясняется, что один из созданных Лебланом высокотехнологичных гаджетов на базе искусственного интеллекта (   Читать дальше...   )Производство: США / 20th Century Fox Television, Fox Entertainment, Zaftig FilmsЖанр: Фантастика, драма, криминалРежиссер: Гленн Фикарра, Тим Хантер, Джон РекуаАктеры: Ивэн Уиттен, Джон Слэттери, Фернанда Андраде, Ив Харлоу, Лиззи Каппуччино, Майкл Мосли, Дэнн Финк, Аарон Мотен, Эдриан Беллани, Джейсон Батлер ХарнерПеревод: Многоголосый закадровый (OMSKBIRD)Продолжительность: ~00:46:00 серияРеклама: Релиз содержит рекламные видео, аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5798CCCBED0E4E04F9FE3ACFDE2ADF5EB48E3187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519562   (148729) от 24.12.2021
 
 Луи Фейад. Трест, или Битва  денег / Le trust, ou les batailles de l'argent (1911) DVDRip [H.264]
@@ -6,7 +178,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148729.jpg" />
 </div>
 
 
@@ -30,7 +202,7 @@ magnet:?xt=urn:btih:D82775F59F402C5E0B45ABFEBEFE82FB53E122DA
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148730.jpg" />
 </div>
 
 
@@ -54,7 +226,7 @@ VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148731.jpg" />
 </div>
 
 
@@ -81,7 +253,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -108,7 +280,7 @@ magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148733.jpg" />
 </div>
 
 
@@ -133,7 +305,7 @@ magnet:?xt=urn:btih:4F68958C895AAC78D1D1C0AA430CAFE6732D04C9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148734.jpg" />
 </div>
 
 
@@ -157,7 +329,7 @@ magnet:?xt=urn:btih:8C1CBB4502886A7B3FD9B8BA1F7E84213A0BCA78
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148736.jpg" />
 </div>
 
 
@@ -184,7 +356,7 @@ AnyMP4 Mac Blu-ray Player 6.3.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148737.jpg" />
 </div>
 
 
@@ -208,7 +380,7 @@ VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148738.jpg" />
 </div>
 
 
@@ -235,7 +407,7 @@ magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148739.jpg" />
 </div>
 
 
@@ -259,7 +431,7 @@ magnet:?xt=urn:btih:8A5D9B79A44943B8E315123822C56EE894645D28
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148740.jpg" />
 </div>
 
 
@@ -285,7 +457,7 @@ magnet:?xt=urn:btih:976F9D70A0A915C16CA235EBFDBA8096460C0D6E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148741.jpg" />
 </div>
 
 
@@ -309,7 +481,7 @@ magnet:?xt=urn:btih:976F9D70A0A915C16CA235EBFDBA8096460C0D6E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148742.jpg" />
 </div>
 
 
@@ -333,7 +505,7 @@ Nicky Romero & Laidback Luke - Live @ Avicii Tribute Concert, Friends Arena Stoc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148743.jpg" />
 </div>
 
 
@@ -360,7 +532,7 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148744.jpg" />
 </div>
 
 
@@ -387,7 +559,7 @@ magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148745.jpg" />
 </div>
 
 
@@ -411,7 +583,7 @@ The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148746.jpg" />
 </div>
 
 
@@ -437,7 +609,7 @@ Opera One 105.0.4970.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148747.jpg" />
 </div>
 
 
@@ -461,7 +633,7 @@ magnet:?xt=urn:btih:D9C6A0AD36819A313DA0BFB3E451A577172F287B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148749.jpg" />
 </div>
 
 
@@ -472,189 +644,6 @@ magnet:?xt=urn:btih:D9C6A0AD36819A313DA0BFB3E451A577172F287B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75C89A8F419B9582D4A0DDA5005EA6D68B5FE99C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677843   (148751) от 19.11.2023
-
-Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl You Know It's True [00:03:18]
-02. Baby Don't Forget My Number [00:04:10]
-03. Blame It on the Rain [00:04:08]
-04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087030   (148752) от 26.12.2016
-
-John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rehearsin' For A Nervous Breakdown [02:39]
- 02.Undecided [02:59]
- 03.It Feels Good [02:48]
- 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519471   (148753) от 24.12.2021
-
-Battery Indicator for Mac 2.11.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4115BAD323473865315735B3DE9F9CED51CD18AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271714   (148754) от 24.12.2018
-
-Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Goes My Baby (5:08)
-02. Gypsy Woman (6:12)
-03. Any Day Now (5:18)
-04. Glimmer Twins Medley - Let's Spend The Night Together (4:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EB61F2EF8B6FF6163D13FFAC1887FF354B4E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347560   (148755) от 24.12.2019
-
-VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead-Tones - For The World To Know About (original mix) (7:38)
-02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
-03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
-04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434627   (148757) от 25.12.2020
-
-Татьяна Маричева | Школа Продюсера. Тариф Запуск + дополнительный поток (2020) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы сделаете запуск своей онлайн-школы прямо в процессе обучения под руководством опытных наставников-практиков
-За два месяца вы изучите все аспекты онлайн-школ от поиска эксперта до продаж на вебинарах, внедрите это в свою работу
-
-В результате обучения вы станете профессиональным продюсером онлайн-школ, а это на мой взгляд – самая востребованная профессия в 2020 (   Читать дальше...   )Производство: Школа ПродюсераЖанр: Видео-курсЯзык озвучки: РусскийПродолжительность: 32:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088F29A67E1FE4159A2B52A87AE2311FA9D2CD81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589790   (148758) от 15.12.2012
-
-Большие олимпийские гонки. Выпуск №1-13 (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера игры «Большие гонки» состоялась во Франции в 1962 году. Идея веселого состязания между странами принадлежит бывшему Президенту Франции Шарлю де Голлю, он таким образом хотел объединить молодежь Европы и укрепить дружбу между странами. Россия впервые приняла участие в играх в 2005 году. Традиционно соревнования проходили во Франции. Вот уже много лет изюминкой «Больших гонок» являются быки, поэтому в этом сезоне смельчаки отправились на родину корриды в Испанию. Испания – страна страсти, корриды и страна, где проходили ХХV Олимпийские игры. Барселона впервые принимает у себя Большие Олимпийские гонки. Восемь стран-участниц сойдутся в состязании под испанским небом, чтобы определить триумфатора.Жанр: ТВ-ШоуФормат: AVIПродолжительность: 13х~01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3679DBC689861872A44F42AE0FF313B6B86334
 ```
 
 

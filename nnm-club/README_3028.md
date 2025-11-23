@@ -1,3 +1,93 @@
+###  Публикация: 456422   (94484) от 26.02.2012
+
+Fuge (Венгрия) - Fuge (2010) [MP3|320 кб/с]<Progressive/Math Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diode 03:38
+02. Egg 04:02
+03. Trainwreck 03:38
+04. Synchro 05:43
+05. Paralysis 04:12
+06. Xenon 04:13
+07. Gordius 04:01
+08. Fractals 04:07
+09. ENKON 03:33
+10. Andromeda 03:49(   Читать дальше...   )2010Жанр: Progressive/Math MetalПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A201C94DDB1EC6678937E470305F74F41526EEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458631   (94489) от 26.02.2012
+
+Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Run From Me
+02 - The Lone Green Valley
+03 - Icy Muse
+04 - Love Is A Terrible Thing
+05 - Pleading
+06 - This Meeting
+07 - The Precipice
+08 - Theodora
+09 - Nightbird2007Жанр: Symphonic Gothic MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822013   (94494) от 05.10.2025
+
+День учителя!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_94494.jpg" />
+</div>
+
+
+###  Подробнее
+
+От всей души поздравляем дорогих педагогов с Днём учителя!
+День учителя — праздник, который отмечают по всей России. В этот день принято поздравлять не только школьных педагогов, но и преподавателей вузов, колледжей, наставников дополнительного образования — всех, кто делится знаниями и помогает воспитывать новое поколение.День учителя – один из самых значимых и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821883   (94495) от 05.10.2025
 
 Сколько людей когда-либо жило на Земле? 7% живы прямо сейчас — вы один из них
@@ -6,7 +96,7 @@
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94495.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94495.jpg" />
 </div>
 
 
@@ -30,7 +120,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94496.jpg" />
 </div>
 
 
@@ -56,7 +146,7 @@ magnet:?xt=urn:btih:BFA7759587AEA19D76DF67D0D28AD039D1DD0CF0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94497.jpg" />
 </div>
 
 
@@ -80,7 +170,7 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94498.jpg" />
 </div>
 
 
@@ -107,7 +197,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -131,7 +221,7 @@ magnet:?xt=urn:btih:7E0396BC980C8891E946D0825E09E1563F9B9426
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94500.jpg" />
 </div>
 
 
@@ -155,7 +245,7 @@ magnet:?xt=urn:btih:608B4AFE008848DED0254BD35B8B3723702F439E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94501.jpg" />
 </div>
 
 
@@ -179,7 +269,7 @@ MediaInfo 25.09 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94502.jpg" />
 </div>
 
 
@@ -203,7 +293,7 @@ AI Photo Editor Pro - Polish v1.674.229 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94503.jpg" />
 </div>
 
 
@@ -227,7 +317,7 @@ Lighting calculations / Расчеты освещения v6.1.8 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94504.jpg" />
 </div>
 
 
@@ -251,7 +341,7 @@ magnet:?xt=urn:btih:6B9BDAD881F211D12FF30231FB6F88A613C80F08
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94505.jpg" />
 </div>
 
 
@@ -275,7 +365,7 @@ magnet:?xt=urn:btih:1E398B8C8EBFAADBDCD669A0EA6CC9B278AFB1A3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94506.jpg" />
 </div>
 
 
@@ -299,7 +389,7 @@ magnet:?xt=urn:btih:2CC801CC8F5E9A376456B00AA5D8C4DF26D4DA32
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94507.jpg" />
 </div>
 
 
@@ -323,7 +413,7 @@ magnet:?xt=urn:btih:85175208D0484A8AD351B4F8474165C26075974C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94508.jpg" />
 </div>
 
 
@@ -347,7 +437,7 @@ magnet:?xt=urn:btih:8FDF84A62E0903EFBC6D401C56A2069256F293B7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94509.jpg" />
 </div>
 
 
@@ -371,7 +461,7 @@ magnet:?xt=urn:btih:2020D9E4C0FFDE75EA4650FAE3BF6B0F20E60AA7
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94510.jpg" />
 </div>
 
 
@@ -395,7 +485,7 @@ Launcher for zapret 3.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94511.jpg" />
 </div>
 
 
@@ -421,7 +511,7 @@ magnet:?xt=urn:btih:7F74FA3F5B1156CDC75D972BF9C62EA21B6CA318
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94512.jpg" />
 </div>
 
 
@@ -445,7 +535,7 @@ magnet:?xt=urn:btih:C08928F15207A0663C8FA5F29BE615E878284EA9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94513.jpg" />
 </div>
 
 
@@ -471,7 +561,7 @@ magnet:?xt=urn:btih:4CF0604391DBBA2B682013E23F4F6DCC1B1DC04D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94514.jpg" />
 </div>
 
 
@@ -495,7 +585,7 @@ magnet:?xt=urn:btih:89EAF73B084F31F5FDC27C0D1A716ECC4869880F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94515.jpg" />
 </div>
 
 
@@ -519,7 +609,7 @@ magnet:?xt=urn:btih:5DCE3AFC5AD053F5F689D691E548C5FFEAABB48F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94517.jpg" />
 </div>
 
 
@@ -543,7 +633,7 @@ magnet:?xt=urn:btih:1A133D5A3EF120C783646594BE149A11B9401353
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94524.jpg" />
 </div>
 
 
@@ -554,78 +644,6 @@ magnet:?xt=urn:btih:1A133D5A3EF120C783646594BE149A11B9401353
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A51E429A2ADD6589B5808356F5EE80030DCBD53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822091   (94526) от 05.10.2025
-
-Стивен Р. Кови | 7 навыков высокоэффективных менеджеров (2008) [MP3, Юрий Абросимов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите стать по-настоящему высокоэффективным управленцем, который уверенно шагает по дороге успеха? Тогда вам необходимо овладеть семью навыками эффективности, научиться новому способу мышления и исследовать глубины собственного «я». В этом вам поможет аудиокнига – программа, разработанная специально для менеджеров на основе всемирного бестселлера Стивена Кови (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПаблишерПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27819F377DB1BCF133C67879110FCA4F8A67E441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822109   (94528) от 05.10.2025
-
-Журнал | ТехИнсайдер №17 (сентябрь-октябрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94528.jpg" />
-</div>
-
-
-###  Подробнее
-
-ТехИнсайдер – это расширенная вселенная бренда «Популярная механика», проекта о том, как устроен мир. ТехИнсайдер – это собственные эксклюзивные материалы о новейших достижениях в сфере науки, цифровых технологий, в авиации, вооружении, автомобилестроении и даже в сфере обустройства дома. На всех своих площадках ТехИнсайдер знакомит с инновационными технологиями (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "Фэшн Пресс"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D124AB22898E9875E86D804B9767C0C5555A381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822105   (94529) от 05.10.2025
-
-Журнал | Смена №9 (сентябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB0DF633466639C45E1861E92396156CA43110D
 ```
 
 

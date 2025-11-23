@@ -6,7 +6,7 @@ VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Oscar Peterson - Get Happy (1949 - 1950) 2019, Dreyfus Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71531.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71558.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71563.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71596.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71615.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71623.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Twangtown Paramours - The Wind Will Change Again (2025) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71668.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71675.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71692.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Downhome Kin - Dusty Roads, Rusty Strings (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71698.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jesse James and the Mob - Checkin the Mic (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71701.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Martín Burguez & His Rhythm Combo - I'm Gonna Move (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71702.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tiger Rose feat. B. Chambille - Tiger Rose & B. Chambille (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71704.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Ed Alstrom - Flee Though None Pursue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71710.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71715.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Renovation Blues Band - Nail It! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71720.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Le Garage - Fingernails (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71721.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71724.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71725.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71727.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71734.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71744.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71801.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71826.jpg" />
 </div>
 
 

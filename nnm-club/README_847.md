@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22359.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1E54C55FCBEB9B7E97661A415B2433B7C98275E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22360.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:72E4B2B0EEB48B32D80BD77B58A6CB5C75A8105C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22361.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22361.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Billboard Hot 100 Singles Chart 05.04.2025 (2025) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22362.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:5E2454D68A011EF83CA41013F03A70F170B1BFEB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22363.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22363.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2AAFC5C536A950C0E7FF9EEA3C12699B22C59CEF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22364.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22364.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:DF99D6E85B5C0015D9C0D94F9B8A14BD1771960E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22365.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22365.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Pulsar Modular - P821 MDN Tape 1.0.0 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22366.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:65E4D5FF5B058E62BF70B7E1EB650F47298759B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22367.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22367.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:FFF3AEF2E1F03C60C527EC2252702EC316B3FFD1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22368.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22368.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:1BDCF7505C5623592A9C3BD1B065FE5E934B883B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22369.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22369.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:FED2B34B0D42C2FD8D5331CEAED3466A1DC4F946
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22370.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22370.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3295A680C4CCBE0552D0E5A5FA6259CCA4DAC59B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22371.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22371.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Moon+ Reader Pro v9.9 (b909000) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22372.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22372.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ BikeComputer Pro v9.1.2 GP Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22373.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VRadio - Online Radio App v2.8.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22374.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.99 (0404) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22375.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Balabolka 2.15.0.892 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22376.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22377.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22377.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:E503E7C70EA16AE43B39886125F4CDD4118EBF28
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22378.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:6D8374D26EDC949D1BFCFAF6651741FC231BA6DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22379.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6D8374D26EDC949D1BFCFAF6651741FC231BA6DE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22380.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0404) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22381.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:40A08BD92761B72D490CB2FEB41BCAF0AAA7F088
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22382.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22382.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Youtube Downloader HD 5.9.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22383.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ W10Privacy 5.2.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22384.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22384.jpg" />
 </div>
 
 

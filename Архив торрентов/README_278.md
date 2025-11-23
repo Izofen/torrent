@@ -6,7 +6,7 @@ iTop VPN 5.4.0.5166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61787.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ USB Device Tree Viewer 4.1.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61798.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Waterfox Current G6.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61807.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Text Edit Plus 14.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61814.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Text Editor Pro 28.4.4 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61818.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Office Installer & Office Installer+ 1.09 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61821.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Simple Sticky Notes 6.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61822.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:42E9B6E14BC7A3752452F92A1A145117F80B2873
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61823.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ USB Device Tree Viewer 4.1.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61835.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ HopToDesk 1.41.8.0 Portable +Install [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61836.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Balabolka 2.15.0.865 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61838.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Office Tool Plus 10.9.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61846.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Wirecast Pro 16.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61847.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CrystalMark Retro 1.0 Beta 2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61851.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ qBittorrent 4.6.4 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61854.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Internet Download Manager 6.42 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61895.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:FB866A6C9D18E9DC53A962164DD55F6C00526FE3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61901.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Floorp Browser 11.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61906.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ LibreWolf 124.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61909.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Firefox Browser ESR 115.9.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61910.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ XYplorer 25.80.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61913.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Ungoogled Chromium 123.0.6312.58-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61914.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Firefox Browser ESR 115.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61916.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Draw.io 24.1.0+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61921.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Internet Download Manager 6.42 Build 6 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61925.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ TrustViewer 2.12.0.5189 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61933.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Claudio Oliveira - Take Over (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3710.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jay Willie, Bobby T Torello - Still Raisin' Cane (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3711.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jimi 'Prime Time' Smith - It's My Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3712.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3729.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Walter Trout - Sign of the Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4080.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4274.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4381.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4647.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4928.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5332.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ North Mississippi Allstars - Still Shakin' (2025) [FLAC|Lossless|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5506.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5932.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5949.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Chill Magic Summer (Beach-Wind Down Jazzy & Relaxed House vibes) (2025) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5984.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6416.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Clarence "Gatemouth" Brown - 32 Albums (1973 - 2015) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6867.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gil Evans - The Complete Pacific Jazz Sessions (1958, 1959) 2006, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6894.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Popa Chubby - 30 альбомов (1992 -2025) 37 CD [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6979.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Al Cohn - Broadway (1954) 1992, Original Jazz Classics [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7024.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Scott Fulton - Closet Blues - Scott Fulton - Closet Blues (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7177.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Bakertrain - European Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7180.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Carlos Camilo - Allure (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Africa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7181.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Chillaxonic - Summer Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7192.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ The Homewreckers - 6th & Union (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7193.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Angelique Francis - Not Defeated (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7195.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Rick Habana - The Collaborations II (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7197.jpg" />
 </div>
 
 

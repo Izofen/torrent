@@ -1,3 +1,51 @@
+###  Публикация: 1425959   (218945) от 22.11.2020
+
+Следствие вели... (22.11.2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_218945.jpg" />
+</div>
+
+
+###  Подробнее
+
+1991 год. В Тамбове объявляется маньяк. Он нападает на девушек, действует нагло и жестоко. Никто не знает: этот преступник уже попадался в руки правосудия одиннадцать лет назад. Тогда его задержал молодой оперативник. И вот годы спустя дочь того самого сыщика оказывается на пути маньяка…Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD573D729F58AD9B57831EE1AFE80904A1D25C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966645   (219021) от 18.12.2015
+
+Семья как испытание (2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_219021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда у Олега и Полины, 15-летних  детдомовцев, родилась дочь,  юные папа и мама боялись, что малышку отнимут и отправят в дом ребёнка. Но случилось чудо: всех троих взяли в семью, под опеку. Казалось, все трудности позади. Но это только казалось… Юлия Жемчужникова живёт в деревне. В Калужскую область она переехала из Москвы несколько лет назад вместе со своими детьми. (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Наталья КадыроваПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C132DDD4065FBE2F5B6D16F280B36ED4E94DA650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269533   (219437) от 15.12.2018
 
 Теория заговора. Ошибки, которые совершают мужчины после 40 (15.12.2018) SATRip
@@ -6,7 +54,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219437.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:BE93896459FA5414AA52CD96761FF544B325CE3B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220023.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220023.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:53BF7F807A0733046FAC1131236805DD4176EA67
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220738.jpg" />
 </div>
 
 
@@ -79,7 +127,7 @@ magnet:?xt=urn:btih:41C711D9610440EA52949BB537777E7CFDE40078
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220895.jpg" />
 </div>
 
 
@@ -103,7 +151,7 @@ magnet:?xt=urn:btih:610B3E3FDE2E9E11D6C49DDEF572EED1E632EF25
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220974.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220974.jpg" />
 </div>
 
 
@@ -127,7 +175,7 @@ magnet:?xt=urn:btih:EB4E8B5B7717F4568444B84AC44935C0597B4DB7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221099.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221099.jpg" />
 </div>
 
 
@@ -151,7 +199,7 @@ magnet:?xt=urn:btih:A6DFF4F4F85243E0D0DA9D5AE298D0C7D19B1658
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221107.jpg" />
 </div>
 
 
@@ -175,7 +223,7 @@ magnet:?xt=urn:btih:B4CF1CA4E8AF2B4AC4DF99B01D5216BE00269867
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222534.jpg" />
 </div>
 
 
@@ -199,7 +247,7 @@ magnet:?xt=urn:btih:9A8D68FA1587B6D652A73568D2E9D55469E99817
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223888.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223888.jpg" />
 </div>
 
 
@@ -224,7 +272,7 @@ magnet:?xt=urn:btih:0D75D6754662C10B3B53CE5CC0960717DBB6014B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224420.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_224420.jpg" />
 </div>
 
 
@@ -248,7 +296,7 @@ magnet:?xt=urn:btih:27607E68D270EDC8EAE8CD24C95EA904615DD020
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225489.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225489.jpg" />
 </div>
 
 
@@ -272,7 +320,7 @@ magnet:?xt=urn:btih:C51546FC65235C1A373BD498C36209AAD7EF8FAA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225596.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225596.jpg" />
 </div>
 
 
@@ -296,7 +344,7 @@ magnet:?xt=urn:btih:A4B5928211DCDB907C54D5E5E92FD6F5E450621D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225608.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225608.jpg" />
 </div>
 
 
@@ -320,7 +368,7 @@ magnet:?xt=urn:btih:76999A4A8C1D9197A4B82740B6B8B32C745437CF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225702.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_225702.jpg" />
 </div>
 
 
@@ -344,7 +392,7 @@ magnet:?xt=urn:btih:E64870AB2E601B5DACB3B27EFAE2106CC247FFE2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_226272.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_226272.jpg" />
 </div>
 
 
@@ -368,7 +416,7 @@ magnet:?xt=urn:btih:12582731E9854FC258C50FAA93E508E32BCB5B35
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227383.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227383.jpg" />
 </div>
 
 
@@ -392,7 +440,7 @@ magnet:?xt=urn:btih:E5D965CE3A50D4E4C429A3DBCCABBC178754A08F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227433.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227433.jpg" />
 </div>
 
 
@@ -418,7 +466,7 @@ magnet:?xt=urn:btih:9F77729D88A5428224A61C108D861F141465E2C7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_227755.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_227755.jpg" />
 </div>
 
 
@@ -442,7 +490,7 @@ magnet:?xt=urn:btih:E5C5EDBFD2F906957295F94213F4A09A0D1D798D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228185.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228185.jpg" />
 </div>
 
 
@@ -466,7 +514,7 @@ magnet:?xt=urn:btih:EE6C370ED37259DCA8655EBB3C5A2F888A9B124B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228239.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228239.jpg" />
 </div>
 
 
@@ -490,7 +538,7 @@ magnet:?xt=urn:btih:1D45422C97DC250D568762D5653344CE149D6FCE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228505.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228505.jpg" />
 </div>
 
 
@@ -514,7 +562,7 @@ magnet:?xt=urn:btih:B3391FA3CFA1680604B797EDF56FEE4812087F33
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228713.jpg" />
 </div>
 
 
@@ -539,7 +587,7 @@ magnet:?xt=urn:btih:E2152B10A03DEDC28D76B8F81BEBCED7F3994849
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228728.jpg" />
 </div>
 
 
@@ -563,7 +611,7 @@ magnet:?xt=urn:btih:A03AB93204A393A7733012991B8F390704FCA8DC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228734.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_228734.jpg" />
 </div>
 
 
@@ -575,54 +623,6 @@ magnet:?xt=urn:btih:A03AB93204A393A7733012991B8F390704FCA8DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3CC8B6694AA0457C18069F2E96F03CB8E6158E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424310   (229099) от 16.11.2020
-
-Станция смерть. Дело московского отравителя (2020) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московский маньяк-отравитель. С 2006 по 2008 год — 17 смертей. Чем он угощал своих жертв и почему так долго ему все сходило с рук? — реальная история серийного убийцы.Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33FA156F4CC1F7806E4A33D758330FBAA7021B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424170   (229393) от 16.11.2020
-
-Следствие вели... (15.11.2020) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год, Москва. Вернувшись домой с работы, женщина обнаруживает сына в шкафу без сознания. Приехавшие врачи определили: мальчик в глубокой коме. Тогда никто не догадывался, что произошло жестокое и продуманное преступление — первое, но не последнее в этом необычном деле…Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9589FC9B7D144A3202DF2A7C55BCA2A13FB8FF
 ```
 
 

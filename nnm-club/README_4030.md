@@ -1,3 +1,78 @@
+###  Публикация: 1823349   (124462) от 11.10.2025
+
+Девушка из каюты №10 / The Woman in Cabin 10 (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешная журналистка Лора Блэклок для работы над новой статьёй отправляется в плавание на роскошной яхте вместе с группой влиятельных людей. Однажды ночью она слышит шум и крики, которые раздаются из соседней каюты. Лора выглядывает наружу и успевает увидеть, как за борт выбрасывают тело. Журналистка сообщает о произошедшем, но команда и другие пассажиры не верят (   Читать дальше...   )Производство: США, Великобритания | CBS Films, Gotham Group, The, Sister PicturesЖанр: триллер, драма, детективРежиссер: Саймон СтоунАктеры: Кира Найтли, Ханна Уэддингхэм, Гай Пирс, Кая Скоделарио, Гугу Мбата-Роу, Дэвид Моррисси, Пол Кэй, Дэниэл Ингс, Арт МаликПеревод: Многоголосый (заКАДРЫ, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C4C3ABB10EE3880B16125AEFB9C36B234A7C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689856   (124463) от 04.01.2024
+
+Windows 11 (v23h2) x64 PRO by KulHunter v2 (esd) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: en-us_windows_11_consumer_editions_version_23h2_updated_dec_2023_x64_dvd_7cd2c9a8.iso.
+Использован установщик от Windows 10 23h2 (SecureBoot и TPM 2.0 не требуется).
+Отключено несколько компонентов, задействован протокол SMB.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335FDAC0277E6270FFE02C708A1EAA5F88C7E2AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823348   (124464) от 11.10.2025
+
+Это море переполнится / Tasacak Bu Deniz (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124464.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Это море переполнится» – это бесконечная борьба двух враждующих семей на фоне бурных вод Чёрного моря. В фильме показана давняя вражда между Адилем и Эсме, межсемейные конфликты и напряжение, которое обостряется неожиданными событиями. В фильме показаны эмоциональные дилеммы, с которыми сталкиваются герои, оказавшиеся в эпицентре этих конфликтов и вражды, а также (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драмаРежиссер: Чагры БайракАктеры: Улаш Туна Астепе, Серкан Тынмаз, Серен Шириндже, Гёзде Седа Алтунер, Эслем Акар, Онур Бююктопчу, Бурч Кюмбетлиоглу, Ризакан Дурмуш, Гёзде Тюркер и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164EF48CE341B82A81B2F8C67B9C513D01A999B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400198   (124465) от 04.01.2024
 
 Константин Паустовский | Созвездие Гончих Псов (2003) [MP3, Вячеслав Герасимов]
@@ -6,7 +81,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124465.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124466.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ magnet:?xt=urn:btih:CBD020C2B40CBC561A75F681CFE2D3464B97DB84
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124467.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124468.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:B4E73096502C2E4C0F07919636FE047CAC20C681
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124469.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:5A6820E48CA33E7FF42704C171A8AECA2A58A0F5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124470.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:BCCF620FCC0BE5FD96C96E8BB6BD93B50802A642
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124471.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ magnet:?xt=urn:btih:D47C1DC3CD518E360A5786D7EC1BB40882361780
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124472.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:C994535AED2FC9865BA1DF9DF66781DFCB8A59CA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124473.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ magnet:?xt=urn:btih:E98FFCAC41E01974CEFEAB46AC06C95ECC7E135F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124474.jpg" />
 </div>
 
 
@@ -247,7 +322,7 @@ magnet:?xt=urn:btih:4832AF5C12C3AC869BD2F83A83BC121B96A675ED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124475.jpg" />
 </div>
 
 
@@ -272,7 +347,7 @@ magnet:?xt=urn:btih:8FBAE0835971DC7D7A0DBF8A44D70C5E6CFB9C68
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124476.jpg" />
 </div>
 
 
@@ -296,7 +371,7 @@ magnet:?xt=urn:btih:82A6B960AA88067C43491FEA29A190EEE6FAC425
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124477.jpg" />
 </div>
 
 
@@ -320,7 +395,7 @@ magnet:?xt=urn:btih:14D96DCC5B62B20541ED9C25A42641F4775C4899
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124478.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ magnet:?xt=urn:btih:010DD5ED692069091E25702C8FF70A70BBCBD8D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124479.jpg" />
 </div>
 
 
@@ -368,7 +443,7 @@ magnet:?xt=urn:btih:C9FBE47F9639357E2880BDB517031E15D93AFBD0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124480.jpg" />
 </div>
 
 
@@ -392,7 +467,7 @@ magnet:?xt=urn:btih:967C105FC2D6368EA960F46E128A09C1D827ED01
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124481.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ magnet:?xt=urn:btih:6C05EE72EC25F679977618D783328A4E84C210D6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124482.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ magnet:?xt=urn:btih:345C86BAC5D9E507B644B9A3F2466471CC8629B9
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124483.jpg" />
 </div>
 
 
@@ -464,7 +539,7 @@ magnet:?xt=urn:btih:64B3FFCB0F8848F0C44309DBD1E5E709DA45675A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124484.jpg" />
 </div>
 
 
@@ -488,7 +563,7 @@ magnet:?xt=urn:btih:3B5A379B5AAB5F9E677092963B5A20D3BDA99D67
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124485.jpg" />
 </div>
 
 
@@ -512,7 +587,7 @@ magnet:?xt=urn:btih:3B5A379B5AAB5F9E677092963B5A20D3BDA99D67
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124486.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124487.jpg" />
 </div>
 
 
@@ -547,81 +622,6 @@ Lumion Pro 2023.4.2.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2634E699505A0D6B6BDE0E9A6332943C7F8AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823326   (124488) от 11.10.2025
-
-Пятеро на одного (11.10.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B39B16A868944F19611DA25E3C1B5BA6E1E220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689780   (124489) от 04.01.2024
-
-Последнее дело Мистера Монка / Mr. Monk's Last Case: A Monk Movie (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124489.jpg" />
-</div>
-
-
-###  Подробнее
-
-детектив Эдриан Монк, страдающий обсессивно-компульсивным расстройством и широким спектром фобий, возвращается, чтобы раскрыть свое последние дело, связанное с его падчерицей Молли. Последнее дело Мистера Монка – полнометражное продолжение детективного сериала «Детектив Монк» с Тони Шэлубом в роли очаровательного полицейского, который был вынужден оставить работу (   Читать дальше...   )Производство: США / Universal Content Productions (UCP), PeacockЖанр: комедия, криминалРежиссер: Рэндолл ЗискАктеры: Тони Шэлуб, Трейлор Ховард, Джейсон Грей-Стенфорд, Гектор Элизондо, Тед Левайн, Джеймс Пьюрфой, Кэйтлин МакГи, Остин Скотт, Эмма Ишта, Паулину НунешПеревод: Многоголосый профессиональный (TVShows, NewStudio), двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196539BD883DB9357AC6713A27CB0D2360B06BEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823325   (124490) от 11.10.2025
-
-Wucan - Axioms (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Spectres Of Fear (4:01)
-02.  Irons In The Fire (4:05)
-03.  Wicked, Sick And Twisted (5:39)
-04.  KTNSAX (3:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71DE9D81686002424C532B91779A814E81036EA
 ```
 
 

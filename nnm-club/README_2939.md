@@ -1,3 +1,78 @@
+###  Публикация: 479303   (86904) от 07.04.2012
+
+Три Панька (1989-1991) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал повествует о жизни и приключениях троих чудаковатых братьев Паньков из села Паньковка.Жанр: Детский, Рисованная анимация, КомедияРежиссер: Ефрем ПружанскийПерсонажи: три ПанькаПродолжительность: 00:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52259F42EFC0F0A79D0884478A4EC187F342C3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479292   (86906) от 07.04.2012
+
+Без вины виноватые (1945) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-спектакль по одноименному произведению А.Н. Островского.
+
+Россия середины ХIХ века.
+В провинциальный город приезжает знаменитая актриса Елена Кручинина. Когда-то она здесь жила и осталась одна с младенцем на руках. Она пережила тяжелое нервное потрясение, а, выздоровев, узнала о смерти ребенка. Став актрисой, Кручинина прославилась. В родном городе она дает несколько спектаклей и принимает горячее участие в судьбе молодого актера Григория Незнамова. Неожиданно Кручинина узнает, что ее сын жив...Жанр: мелодрама, спектакльРежиссер: Владимир ПетровПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68398080C2A6D2E350D28AAFD155B454930D7DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479630   (86911) от 07.04.2012
+
+Звезды YouTube / Зірки YouTube. Выпуск №1 (2012) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479027   (86915) от 07.04.2012
 
 Паутина (2-й сезон, серии 1-12(12)) (2008) 2 х DVD 9
@@ -6,7 +81,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86915.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86917.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86918.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86922.jpg" />
 </div>
 
 
@@ -115,7 +190,7 @@ magnet:?xt=urn:btih:F023D01587937688F49F700AF5A8D4B19C3775D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86924.jpg" />
 </div>
 
 
@@ -139,7 +214,7 @@ magnet:?xt=urn:btih:F023D01587937688F49F700AF5A8D4B19C3775D9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86926.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ magnet:?xt=urn:btih:256A977999903A6CDF38A73FD39562F76AFBA847
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86928.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ magnet:?xt=urn:btih:C11BB6638A2F549F1B9F7966B2F3F08218AB0F4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86929.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ magnet:?xt=urn:btih:C11BB6638A2F549F1B9F7966B2F3F08218AB0F4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86930.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:C11BB6638A2F549F1B9F7966B2F3F08218AB0F4F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86934.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86938.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ magnet:?xt=urn:btih:F3AAF855BAE57FA35D3C873AB3850C142CD86D79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86939.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ magnet:?xt=urn:btih:F3AAF855BAE57FA35D3C873AB3850C142CD86D79
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86940.jpg" />
 </div>
 
 
@@ -339,7 +414,7 @@ Halestorm - Live In Philly 2010 (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86941.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Halestorm - Live In Philly 2010 (2010) DVD5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86942.jpg" />
 </div>
 
 
@@ -398,7 +473,7 @@ magnet:?xt=urn:btih:BA7E28D22A8B9017AF7BA96EC15E5DAB854DCBEA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86946.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86948.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ MKVToolnix 5.5.0 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86950.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86951.jpg" />
 </div>
 
 
@@ -527,7 +602,7 @@ magnet:?xt=urn:btih:679C7B7F856CB8C03153089126FD1AF1CF7FD5C9
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86953.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ magnet:?xt=urn:btih:EEE982320296D43BBD76ACEC4B5B50082919C2B7
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86954.jpg" />
 </div>
 
 
@@ -577,7 +652,7 @@ magnet:?xt=urn:btih:8DC429106426D32C7F1D32D5BB51508366F9FE70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86955.jpg" />
 </div>
 
 
@@ -590,83 +665,6 @@ magnet:?xt=urn:btih:8DC429106426D32C7F1D32D5BB51508366F9FE70
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E6A3F0CF080D8FB2AC44D863F3C87AAE9EC780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479252   (86957) от 07.04.2012
-
-Американский пирог 3: Свадьба / American Wedding [UNRATED] (2003) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим и Мишель решили пожениться! Ведь свадьба — штука важная, и готовиться к ней надо основательно и серьёзно, тем более, если шафером у жениха собирается стать сам Стифлер! В обширную предсвадебную программу включены: холостяцкая вечеринка со стриптизёршами; соблазнение женщин преклонного возраста в кромешной тьме; украшение свадебного торта лобковыми волосами; очередное сексуальное родео Финча с мамашей Стифлера, как, впрочем, и сам Стифлер — новоявленная гей-икона, прирождённый танцор-диско, тестостероновый титан и главная звезда торжества! Джим и Мишель приглашают Вас на свою свадьбу, скучать на которой Вам точно не придётся!Жанр: мелодрама, комедияРежиссер: Джесси ДиланВ ролях: Джейсон Биггз, Шонн Уильям Скотт, Элисон Хэннигэн, Эдди Кэй Томас, Томас Иэн Николас, Дженьюэри Джонс, Юджин Леви, Молли Чик, Дебора Раш, Фред УиллардПеревод: дублированныйПродолжительность: 01:43:23
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479349   (86958) от 07.04.2012
-
-[Программа] (Андроид 2.2+) Lovely Snowfall - Красивый реалистичный снегопад .
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lovely Snowfall это Живые Обои для Вашего телефона, отображающие красивый реалистичный снегопад
-Главные особенности:
-Использование акселерометра для изменения направления снега
-Выбор произвольного фонового изображения
-Встроено хранение галереи последних загруженных изображений
-Фоновое изображение может быстро быть заменено двойным касанием экрана2012
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478752   (86960) от 07.04.2012
-
-Новая Земля (2008) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Фантастика, Боевик, ДрамаРежиссер: Александр МельникАктеры: Константин Лавроненко, Андрей Феськов, Марат Башаров, Ингеборга Дапкунайте, Павел Сборщиков, Сергей Жигунов, Александр Самойленко, Евгений ТитовСубтитры: отсутствуютПродолжительность: 01:54:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 

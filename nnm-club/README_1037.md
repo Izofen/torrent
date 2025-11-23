@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Trautner & Becker - The Tunes & Blues Art Band (Dark Is the Night) (2025) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27311.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:F75874DEAA3378F530E26EBC4C1B6ED525C11641
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27312.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:F3D18421EA60478238E3BD058CEBF877722A3C9D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27313.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:A771B7EA11912CA7DA6D37DBF4C96646795C2688
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27314.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ UB40 - Compilation (2025) [MP3|320 Kbps] <Reggae, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27315.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27316.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27317.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:63B8DA646E26136F77B374031009C84E717288ED
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27318.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Secrets of Salem: Shadow of the Witch (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27319.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:5F76A8109AB705B90D6149A02B374802B734683B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27320.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:53D5647EA0057FA828B943403BB6EB6DAC0D9E49
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27321.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27321.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:B7B7F63DF4525E2A100A396DF3FE21367D740DE8
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27322.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27322.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:EDA33DBDF64FC984BF93EA121ED1D91E34AE4125
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27323.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27323.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:3F7383A6A34FC8E45B21114CA2E73C30134C8300
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27324.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27324.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27325.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27325.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27326.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27326.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:A1150A262907B3B7557E01261845BD3B91BC079E
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27327.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27327.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:E22C4354B4249121E88B37F6B305FD009507D702
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27328.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27328.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:69C5F2000E9139054DD2A01B2E41CBDF78C14402
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27329.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27329.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:F00EA0A2BA122B25BC07BB7FD3B032C85D3ACCBF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27330.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27330.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ XYplorer 26.80.0900 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27331.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27331.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1AC14BA339ED0E15217DB2AE7CE8AE169B0EEF02
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27332.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27332.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27333.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27333.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:45B470AEAA16A9C4C795228BA61DF748BEB49458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27334.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27334.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:E867A152D337B2306514D315A07A5619D33C4974
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27335.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27335.jpg" />
 </div>
 
 

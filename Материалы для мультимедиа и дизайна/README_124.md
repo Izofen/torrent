@@ -1,3 +1,150 @@
+###  Публикация: 1832396   (213535) от 30.10.2025
+
+Шрифты - Envato - Milday - Handwritten Font - QY8VEMK [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Milday создан специально для тех, кто ищет рукописный шрифт без маркеров. Он вдохновлён абстрактным стилем дудл, но некоторые его сочетания создают игривый и выразительный дудл-стиль. Раскройте свой творческий потенциал с помощью шрифта Milday. Он идеально подходит для любых проектов благодаря лёгкому для чтения, игривому и смелому шрифту!Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8309DD13CB8FEB9574F260AD6F61EF4C5E8E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832309   (213544) от 30.10.2025
+
+Пресеты - Felix Rachor - Travel Presets - Rhodos [COSTYLE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я хотел добавить немного таинственности в репортаж. С помощью этих 7 различных настроек вы можете улучшить свой репортаж, чтобы он в итоге получился гармоничным.Формат: COSTYLE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD3F9BC0C5EB95852FB0F10A00EDE07F0B26A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832288   (213552) от 30.10.2025
+
+Шрифты - Creative Market - Mikado - Modern Serif Font - 291785469 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mikado — смелый и уверенный современный шрифт с засечками, сочетающий в себе классическое очарование и современную выразительность. Благодаря контрастным штрихам и геометрическим пропорциям Mikado идеально подходит для редакционных заголовков, брендинга и упаковки, которые привлекают внимание и обладают вневременной привлекательностью. Его выразительный стиль придаёт (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD6532B397668D328F03B01745F0F1FD1A846F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832281   (213566) от 30.10.2025
+
+Звуковые библиотеки - Moonboy - Ultimate House Collection [WAV, ALS, FLP, AIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213566.jpg" />
+</div>
+
+
+###  Подробнее
+
+MOONBOY — всемирно известный EDM-продюсер, известный своим энергичным саунд-дизайном и невероятной способностью создавать композиции в самых разных жанрах.
+
+MOONBOY выделяется среди типичных создателей сэмплов, будучи успешным гастролирующим артистом с миллионами прослушиваний и контрактами на запись. Проверенные методики MOONBOY позволили создать самые востребованные (   Читать дальше...   )Формат: WAV, ALS, FLP, AIF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ADE5DA91C58FD2C2E5B19BE8F504BED573C573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344088   (213598) от 09.12.2019
+
+8Dio - Claire Alto Flute Virtuoso - RePack Андрей650071 [Kontakt, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в нашу серию Claire Virtuoso Woodwind, созданную номинированным на премию Эмми композитором Колином О’Мэлли. Серия Claire Woodwind - это глубокая коллекция лучших виртуозных сольных деревянных духовых инструментов. Это очень играемые инструменты, наполненные искренними эмоциями, легким и уравновешенным поведением.
+Наш Alto Flute Virtuoso - самый (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKR, NCW, NKI; WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9DC0E461305C5AE507FD3BEA112862047C672E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514931   (213619) от 05.12.2021
+
+Шаблоны - Календарная сетка на 2022 год от White1965 [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон календарной сетки на 2022 год.Формат: PNG, PSDРазрешение файлов: 700х700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77FB113EACEE86F14179DA47FEA38C4BC1C4011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193917   (213812) от 23.12.2017
 
 Векторный клипарт - Vintage Calligraphic Dividers 34 [AI]
@@ -6,7 +153,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213812.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213812.jpg" />
 </div>
 
 
@@ -32,7 +179,7 @@ magnet:?xt=urn:btih:D92604EF88F5368A937AE2407C1F5131AA5BAFCB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213932.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213932.jpg" />
 </div>
 
 
@@ -57,7 +204,7 @@ magnet:?xt=urn:btih:F4E5A54A73A7B32E5981DF7CF7DBBC4159789E3E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214142.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214142.jpg" />
 </div>
 
 
@@ -81,7 +228,7 @@ magnet:?xt=urn:btih:128C036677A5AEEFFBD8193398439678566DE042
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215047.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215047.jpg" />
 </div>
 
 
@@ -105,7 +252,7 @@ magnet:?xt=urn:btih:6700B8DD3BE6C70C725642881CE769A0C2F3B869
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215094.jpg" />
 </div>
 
 
@@ -129,7 +276,7 @@ magnet:?xt=urn:btih:45D6791129CE4A9473C8FE74E89C1923468CAA28
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215198.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215198.jpg" />
 </div>
 
 
@@ -154,7 +301,7 @@ magnet:?xt=urn:btih:A5397025A9ADEE64A8AC09264CF1754C7DFBBC7A
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215210.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215210.jpg" />
 </div>
 
 
@@ -178,7 +325,7 @@ magnet:?xt=urn:btih:F4D3022FDF9929724ED7EBEB979E744298BF30CD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215379.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215379.jpg" />
 </div>
 
 
@@ -202,7 +349,7 @@ magnet:?xt=urn:btih:8632AC4488899F185EFBD65A2A1D8F1F5D9144C2
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215438.jpg" />
 </div>
 
 
@@ -226,7 +373,7 @@ magnet:?xt=urn:btih:E51E475B2BD0DEC44BC5B75F09A02424A234495A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217205.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217205.jpg" />
 </div>
 
 
@@ -250,7 +397,7 @@ magnet:?xt=urn:btih:9069445E81718E2436A4E079679315D75A02F866
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217287.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217287.jpg" />
 </div>
 
 
@@ -274,7 +421,7 @@ magnet:?xt=urn:btih:1EB1E367E007930B80E7C41285B411B5952CC1F4
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217506.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217506.jpg" />
 </div>
 
 
@@ -298,7 +445,7 @@ magnet:?xt=urn:btih:4E57F31125C2CCFE4B44516701138A362ED3D15A
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217512.jpg" />
 </div>
 
 
@@ -322,7 +469,7 @@ magnet:?xt=urn:btih:F6408673791BF77B26BD4E0FE2D736AF4A62C41B
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218782.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218782.jpg" />
 </div>
 
 
@@ -346,7 +493,7 @@ magnet:?xt=urn:btih:8DADA5B16D512559285FBC6C7E6E7C2D644B5D4A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219054.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219054.jpg" />
 </div>
 
 
@@ -370,7 +517,7 @@ magnet:?xt=urn:btih:04E9265C8BD37FFBE0260477B04E465505578EAF
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219398.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219398.jpg" />
 </div>
 
 
@@ -394,7 +541,7 @@ magnet:?xt=urn:btih:492C4E35686B9ED6B650718BDCDFB4881A467A4C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219763.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219763.jpg" />
 </div>
 
 
@@ -418,7 +565,7 @@ magnet:?xt=urn:btih:7A92A40A06A96FE7762904BDE8F945B8B210AEBE
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219775.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219775.jpg" />
 </div>
 
 
@@ -443,7 +590,7 @@ magnet:?xt=urn:btih:CD5825FDBDBFB56D7E56FA5FD0C6CB4DD20F2BBF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219827.jpg" />
 </div>
 
 
@@ -468,7 +615,7 @@ magnet:?xt=urn:btih:6C0401CC11119024C47E47FCF3C9750CB9999494
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219962.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219962.jpg" />
 </div>
 
 
@@ -479,153 +626,6 @@ magnet:?xt=urn:btih:6C0401CC11119024C47E47FCF3C9750CB9999494
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E5716A87AC8860F4C9440D55A3C373930A837E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425518   (219985) от 21.11.2020
-
-Сборник - WD-Free-Deals [JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный сборник стоковых изображений и дополнений для photoshop.Формат: JPG, PNG, PSD, AI, EPS, PAT, ABR, CSH, GRD, ASL, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3CBA966727C4F020011E33AFAD547FF1CCC6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425506   (220034) от 21.11.2020
-
-Векторный клипарт - Vector Floral Ornaments [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные орнаменты. Независимо от того, что было средой творчества, цветочный дизайн всегда занимал особое положение в мире искусства. Лучшая коллекция качественной цветочной векторной графики.Формат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95B04457AD9535A5D156AF5A3AC4D5C1A8F3103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425496   (220192) от 21.11.2020
-
-Паттерны - 1000+ Pixel Patterns [PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам нужны фоны? Используйте этот пакет, и вы сможете создавать бесшовные шаблоны, которые можно использовать для создания потрясающих фонов веб-сайтов. Создавайте потрясающие фоны в Photoshop с помощью этого набора.Формат: PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E139E0B04B6BB39D30DAD575E0A0AEA1C20FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425491   (220371) от 21.11.2020
-
-Растровый клипарт - 1000 Stock Photos [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете подходящее изображение для подходящей работы? Увеличьте свой набор графических инструментов с помощью этой удивительной коллекции стоковых изображений. В этом наборе много категорий.Формат: JPGРазрешение файлов: 1728x2672-4288x2848
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2146854E662DAA3777D8726FD1452430F6BC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084389   (220487) от 18.12.2016
-
-Шрифты - Phantom Regular [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество: 2 шт.
-Разработчик: Identikal
-Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)
-(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2A3567F64820BF6FCAFBEB9360A78FDFE69AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737198   (220881) от 21.12.2013
-
-Растровый клипарт - Новогодняя распродажа / Christmas Sale [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодняя распродажаФормат: JPEGРазрешение файлов: 4800х3700-6400х6700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C280E6B2DDC2B7E2DDB15358707F92A05F35FF6D
 ```
 
 

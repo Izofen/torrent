@@ -6,7 +6,7 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158441.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158453.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158721.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158732.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158754.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159062.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159066.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159070.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159100.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Project Lazarus (2023) [Ru/Multi] (7.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159118.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159146.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Space Tail: Every Journey Leads Home (2022) [Multi] (1.0.2r9/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159149.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Alluna and Brie (2019) [En] (1.0) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159186.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159201.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159233.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159422.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ GUNHEAD (2023) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159428.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159487.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159515.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159530.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159709.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159735.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Frozen Cortex (2015) [En] (2.0.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159758.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159915.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159941.jpg" />
 </div>
 
 

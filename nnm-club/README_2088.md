@@ -6,7 +6,7 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 125.0.6422.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54654.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FE27A7E7C27B1D154870FAB14E193DD25FEB70C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54655.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Zомбилэнд  / Zombieland (2009, 2019) BDRemux [H.264/1080p] [Дилоги
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54656.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:75A14BAE648EF0C372BA30AA22E81D2BAADC9FA9
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54657.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54658.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54659.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:452BAD12B29F4F8AD1B479329C2D0D2FC0CC936E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54660.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9A5A1AC2A45BE35C224FD1A1F319D644366E65CC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54661.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Raven Wundis - In Shadows Summons Divinity (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54662.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9B25768EA3EEF90B99703A9B2D83ADB05E45D350
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54664.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aberrant DSP - Lair 1.0.0 VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54665.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2373B75D9C87D236ACA20BE7FF6773BBC0AF25BD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54666.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Duolingo: изучай языки 5.152.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54667.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Brave Browser 1.66.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54668.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54669.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sumatra PDF 3.6.16318 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54670.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:A83D566EAA77D43C20B26CC4EFA01FA520849CEF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54671.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:717D32CA8C6D4393AAA3DD3B5E12F8E7DB0F951E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54672.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:8DE443FE8B0B86128982BFDFBF46B82C943B030C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54673.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Mark Lester | English Verb Tenses Up Close (2012) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54674.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Blues Dudes - Organ Blues (2013) [MP3|320 Kbps] <Blues, Organ, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54675.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:CE959F4F520B6B30ADD16499FD8F8081E07A6D10
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54676.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventur
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54677.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:F1645B2E97CA227D0539B37B20E53A8217B41E86
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54678.jpg" />
 </div>
 
 

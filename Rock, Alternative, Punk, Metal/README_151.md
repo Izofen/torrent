@@ -6,7 +6,7 @@ Saracen - Heroes, Saints & Fools (1981) Reissue, 1992, TRC Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111782.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Red Dragon Cartel - Patina (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111786.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Papriks - Хиты на лопате (2020) [MP3|320 Kbps] <Ska, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111792.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ St.Vagina Dentata - Скотобаза (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111795.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gentle Giant - Three Friends (1972) Reissue, 1989, Columbia [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111808.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vandor - In the Land of Vandor (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111859.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Twisted Tower Dire - Netherworlds (2007) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111862.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Vandor - On a Moonlit Night (2021) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111863.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111864.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Grave Forsaken - Moment in Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111865.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Validor - Full Triumphed (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111866.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Twisted Tower Dire - Crest of the Martyrs (2003) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111868.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Twisted Tower Dire - Crest of the martyrs (2003) [APE|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111870.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Circle Of Friends - Cherokee Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111875.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:58DFF4F8DF4B8B7456D59FE8FA1207AA0C5D72BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111884.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:ADF6FA104E636DB79B27F6EDBA0C12236B7496B0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111885.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D64CE8CB8B91CAFE7883D0B97F0D2F43563AEB52
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111886.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Митьковская тишина (1995) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111913.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Dreamcarnation - Dreamcarnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111920.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8C8BFBB4010487BAF7A89853E45A9C21C072E7A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111923.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Electrolize - Феникс (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111924.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Martiria - The Eternal Soul (2004) Remastered, 2013, My Graveyard Productions [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111925.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:36EC54B9B9D8C0909E082562547AD162C5984C0E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111930.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:5EC1DC751A317C89D20D39637A7C090D4ADA1761
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111973.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Smokie - 8 Albums (1975-1982) Reissue, 2007-2008, 7T's GLAM [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111989.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:089B8C1FF503830DC7D95079575A48B28014623F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111996.jpg" />
 </div>
 
 

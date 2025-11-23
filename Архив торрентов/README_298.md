@@ -6,7 +6,7 @@ Vivaldi 7.3.3635.7 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lighting calculations / Расчеты освещения v6.1.2 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68386.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TuneIn Radio Pro v37.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68387.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sandboxie plus 1.15.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68394.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VideoShow VIP v10.3.0.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68397.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Duplicate File Detective 7.3.73.0 (x64) Professional / Enterprise / Server Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68399.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Firefox Browser 137.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68440.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Firefox Browser ESR 128.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68443.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ HiPER Calc Pro v11.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68493.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ QOwnNotes 25.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68502.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TuneIn Radio Pro v37.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68551.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PowerDirector – Video Editor v15.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68600.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68602.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ant Download Manager Pro 2.15.2 Build 8951 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68605.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ PrivaZer Pro 4.0.104 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68607.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ StaxRip 2.46.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68647.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Firefox Browser ESR 128.8.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68653.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Firefox Browser ESR 128.8.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68658.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Firefox Browser 136.0.4 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68660.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Firefox Browser ESR 115.21.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68668.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Firefox Browser ESR 115.21.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68670.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ QOwnNotes 25.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68708.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vivaldi 7.3.3635.2 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68710.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ GeoGebra 6.0.879 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68750.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Vivaldi 7.2.3621.71 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68753.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Firefox Browser 136.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68757.jpg" />
 </div>
 
 

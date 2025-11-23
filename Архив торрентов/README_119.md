@@ -6,7 +6,7 @@ CCleaner 6.32.11432 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30184.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30184.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Magic Eraser / Магический ластик v2.17.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Tablacus Explorer 25.1.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30199.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30199.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ISO Workshop Pro 13.2  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30205.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30205.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PowerDirector – Video Editor v14.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30217.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30217.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Autorun Organizer 6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30221.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30221.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.1  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30225.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30225.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ HopToDesk 1.42.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30231.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30231.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Firefox Browser 134.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30232.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30232.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Opera One 116.0.5366.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30234.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30234.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ RustDesk 1.3.7 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30244.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Genius Art: Image AI Generator v1.1.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30253.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30253.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ RegCool 2.021 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30308.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 132.0.6834.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30341.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30341.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TechSmith Snagit 2024.3.1 build 5417 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30351.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30351.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Moon+ Reader Pro v9.8 (build 908000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30358.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30358.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Pepakura Designer 6.0.6 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30360.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30360.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ v2rayN 7.7.0 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30365.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30365.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:37BA0A3874B2F37DB4A925FDB9B3180F04D8271C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30378.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Reg Organizer 9.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30381.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Winxvideo AI 3.9 (x64) RePack (& Portable) by elchupacabra (DC 16.01.2025) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30383.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Reg Organizer 9.61 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30394.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Free Download Manager 6.25.2.6046 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30404.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30404.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Advanced Renamer 4.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30405.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ R-Wipe & Clean 20.0.2491 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30408.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Reg Organizer 9.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30433.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30433.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1699280   (117962) от 12.02.2024
+
+Л. Нерсисян, С. Нерсисян | Изобразительное искусство 4 класс (2009) [PDF] [AM]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Կերպարվեստի 4 դասարանի դասագրքի մեջ ներառված են նկար գրեու դասեր, (   Читать дальше...   )Жанр: УчебникЯзык: АрмянскийИздательство: «Зангак» / «Զանգակ»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B703A3BD0E24DD21FC13DFBEF39DF3712797452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699320   (117963) от 12.02.2024
+
+Журнал | Историк №9 (105) (сентябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117963.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E838D048D4DF792FF104DA4852BB8F7915854D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699175   (117964) от 12.02.2024
+
+Роджер Желязны и др. | Сборник «Глубина» (выпуск 51) (2023) [MP3, Роман Панков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живёт под горой и охраняет несметные сокровища? Конечно же, это дракон! Они известны с глубокой древности и столько историй им посвящено! Змей Горыныч, Смауг Золотой, Фалькор, Бармоглот… Огромные и крошечные, коварные и уставшие, забавные и величественные, вызывающие страх и уважение...
+В этом выпуске мы собрали несколько историй про огнедышащих героев фэнтези. Погружайтесь, (   Читать дальше...   )Жанр: ФантастикаИздательство: Творческое объединение Независимых чтецовПродолжительность: 07:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BCF9CEB54600DEB56C32BF77A2BD1D0D4D86ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699105   (117965) от 12.02.2024
 
 August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -6,7 +79,7 @@ August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117965.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117966.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ Sandboxie plus 1.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117967.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117968.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ Wirecast 16.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117969.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ magnet:?xt=urn:btih:EC949F319036F91C465DE3DA61C12871B78641EA
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117970.jpg" />
 </div>
 
 
@@ -159,7 +232,7 @@ Barcode 2.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117971.jpg" />
 </div>
 
 
@@ -185,7 +258,7 @@ Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117972.jpg" />
 </div>
 
 
@@ -212,7 +285,7 @@ VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117973.jpg" />
 </div>
 
 
@@ -239,7 +312,7 @@ Strava: бег, велоезда, хайкинг v346.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117974.jpg" />
 </div>
 
 
@@ -263,7 +336,7 @@ magnet:?xt=urn:btih:2CCBC240B5EA7E76628F87BBDB3D80ABC116EBBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117975.jpg" />
 </div>
 
 
@@ -287,7 +360,7 @@ VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117976.jpg" />
 </div>
 
 
@@ -314,7 +387,7 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117977.jpg" />
 </div>
 
 
@@ -341,7 +414,7 @@ magnet:?xt=urn:btih:5A4C4EDE77402AA120831B770C2BE3C17DA57B4D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117978.jpg" />
 </div>
 
 
@@ -365,7 +438,7 @@ magnet:?xt=urn:btih:71910C10CE8752C7E880B8C543F86A5D0FFB81A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117979.jpg" />
 </div>
 
 
@@ -389,7 +462,7 @@ Malwarebytes Windows Firewall Control 6.9.9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117980.jpg" />
 </div>
 
 
@@ -413,7 +486,7 @@ magnet:?xt=urn:btih:3112BDAB2F544C67E2B7EC4BC9A03876F0E5EED5
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117981.jpg" />
 </div>
 
 
@@ -437,7 +510,7 @@ VA - Low Road Blues Rock Country (2024) [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117982.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ magnet:?xt=urn:btih:093F9708336F3C2F3085492F3A25808681988EBF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117983.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117984.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117985.jpg" />
 </div>
 
 
@@ -541,7 +614,7 @@ CareUEyes 2.2.12.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117986.jpg" />
 </div>
 
 
@@ -566,7 +639,7 @@ magnet:?xt=urn:btih:193D52ADCD9F1A7CC8D4D77F817B75BE18F1C17D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117987.jpg" />
 </div>
 
 
@@ -577,78 +650,6 @@ magnet:?xt=urn:btih:193D52ADCD9F1A7CC8D4D77F817B75BE18F1C17D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B4614FC860CF5A2D64ACC56D37B9AFBE0DA976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699091   (117988) от 12.02.2024
-
-Михаил Зощенко |  Рассказы о Ленине (1986) [PDF] [AM]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Այս գիրքը գրված է երեխաների համար, Միխայիլ Զոշչենկոյի կողմից։ (   Читать дальше...   )Жанр: Рассказы (Պատմվածք)Перевод: Геворг Айрян (Գևորգ Հայրյան)Язык: Армянский (հայերեն)Издательство: «Советакан Грох» («Սովետական գրող»)Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DFA5372E0391E8CD4EF7A9D24E99511AC8CF7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699336   (117989) от 12.02.2024
-
-Revo Uninstaller Pro 5.2.5 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D31FA1940CA8966B646459C48AA3B57ACD15702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699324   (117990) от 12.02.2024
-
-PicPick Free+Pro 7.2.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117990.jpg" />
-</div>
-
-
-###  Подробнее
-
-PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E591453603339A0DB7304D9745374763B74DC22
 ```
 
 

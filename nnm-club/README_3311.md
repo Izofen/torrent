@@ -1,3 +1,75 @@
+###  Публикация: 1740732   (105768) от 04.08.2024
+
+Мать в ловушке / Matka v trapu / Runaway Mum (2024) WEB-DLRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замученная работой и бытом молодая женщина Сильвия понимает, что надо как-то менять свою жизнь и сбегает от семьи. Она снимает комнату у незнакомой женщины, а муж и двое детей - бытовые инвалиды - остаются сами по себе. Пока Сильвия отдыхает и думает как быть дальше, семейство выживает как может и надеется на скорое возвращение мамы, а отцу приходится решать проблемы (   Читать дальше...   )Производство: ЧехияЖанр: драма, комедияРежиссер: Хана ХендричоваАктеры: Петра Гржебичкова, Ленка Власакова, Ярослав Плесл, Яна Швандова, Valerie Vachkova, Matyás Svoboda, Марек Немец, Богумил Клепл, Мартин Пехлат, Елизавета Швачко и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:09Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB3C36629E35DFBD0EFC8E2752FE5FBA17A7B35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740948   (105769) от 04.08.2024
+
+AirBrush: ИИ Фоторедактор v7.0.0 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактируйте снимки в нашем фоторедакторе и получайте совершенные результаты! AirBrush предоставляет вам самые естественные, простые в использовании инструменты для редактирования фотографий, разработанные, чтобы придать вашим снимкам идеальный стиль.Тип издания: ProРелиз состоялся: 04.08.2024Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1EB39C413398E4E3D3AFF9C09D9245AD5F372F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740956   (105770) от 04.08.2024
+
+Мост / Die Brucke (1959) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе журналиста и писателя Грегора Дорфмайстера (под псевдонимом Манфред Грегор) (1958)... События происходят в маленьком немецком городке в последние дни Второй мировой войны. Гитлеровская армия терпит поражение за поражением и скоро в городе могут оказаться американские войска. В такой ситуации нацисты идут на крайние меры, пополняя (   Читать дальше...   )Производство: Германия (ФРГ) / Fono FilmЖанр: драма, военныйРежиссер: Бернхард ВиккиАктеры: Фолькер Лехтенбринк, Фриц Веппер, Михаэль Хинц, Франк Глаубрехт, Карл-Михаэль Бальцер, Фолькер Бонет, Гюнтер Гоффманн, Кордула Трантов, Вольфганг Штумпф, Гюнтер Пфитцманн, Ева Файтль, Эдит Шульце-Веструм, Ганс Эльвеншпёк, Эдельтраут Эльснер, Йоханнес БузалскиПеревод: авторскийЯзык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437AAA9BA7F5A43921C91178E869B7F129E31124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740852   (105771) от 03.08.2024
 
 Минтранс / Тест-драйв Opel Astra H3 GTC 2008 (03.08.2024) WEBRip [H.264/720p]
@@ -6,7 +78,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105771.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105772.jpg" />
 </div>
 
 
@@ -60,7 +132,7 @@ magnet:?xt=urn:btih:B41A6571DAE65ECBF2AE95F8017F9A5A09FF800E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105773.jpg" />
 </div>
 
 
@@ -86,7 +158,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105774.jpg" />
 </div>
 
 
@@ -110,7 +182,7 @@ magnet:?xt=urn:btih:9CD5EBA943AB81376C99729B21416379AB431756
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105775.jpg" />
 </div>
 
 
@@ -134,7 +206,7 @@ magnet:?xt=urn:btih:86AF745C9E7170D4137ABC62E4F64D2985B141AE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105776.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105777.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ Hidrommel - We Are The Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105778.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ magnet:?xt=urn:btih:E51F6141290B09101C96043EE6A89E069F263731
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105779.jpg" />
 </div>
 
 
@@ -234,7 +306,7 @@ magnet:?xt=urn:btih:690BCCAB7756E39E6584A6C1BDE597A4FD1F1D1F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105780.jpg" />
 </div>
 
 
@@ -258,7 +330,7 @@ magnet:?xt=urn:btih:96E37B9930FF59F84381328700195A0C76D4C995
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105781.jpg" />
 </div>
 
 
@@ -282,7 +354,7 @@ VA - compilation  part 110 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105782.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ magnet:?xt=urn:btih:F6A14A61016195BC0263092529C4350190A8BD6D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105783.jpg" />
 </div>
 
 
@@ -333,7 +405,7 @@ magnet:?xt=urn:btih:C8E8F9EB3FEE408F950A35A64C3DF6326E64797F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105784.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ VA - Electronica Confessions, Vol. 16 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105785.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105786.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Marilyn Manson - As Sick As The Secrets Within (2024) Single [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105787.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Fred Guillemet Band - Hard N’Roll Stories (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105788.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:4A76C0BD2E244536990040E671558583513D4986
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105789.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ VA - Electronica Confessions, Vol. 15 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105790.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ Metonic - Ghostly Ship (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105791.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ VA - Open Seas (Ibiza Island Mood), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105792.jpg" />
 </div>
 
 
@@ -570,7 +642,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105793.jpg" />
 </div>
 
 
@@ -584,87 +656,6 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D15BBF7E7A81A966BDA55BF61B3C28331A65E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740797   (105794) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antony Well - Lua Solidaria (6:27)
-02. Diogo Salvador & Walker G. - London City (4:35)
-03. Dr.H - Love (5:21)
-04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740796   (105795) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faksikas & D'layna - Take Me There (The Squeeze Soul Shift Instrumental) (6:40)
-02. Or'l - Love Etc. (8:47)
-03. Heather Walker - Freedom (Peacey P Moody Dub Mix) (8:35)
-04. DJ Wings - Give It to Me (Wings & Accidental Notes Island Mix) (4:24)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97035700E0BF9A9EE5FAA2E141A28EA245F3EB80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740799   (105796) от 03.08.2024
-
-VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Empower - Flowing Outwards (9:16)
-02. ANTONI POLIKIZO - It's Time to Go Back (5:17)
-03. Dr.Rex - Less Is More (5:59)
-04. Dave Qri - Los Suros (6:57)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3F5757EC52B5313631D9DF6F40AA2840781C76
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CC7B7C0C8F235CEA2EE1D509033C3B2661B1FBB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49210.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Video AI 5.2.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49211.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2F0590C339D44F09F96343697120211C7E4856B8
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49212.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Icecream Screen Recorder PRO 7.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49213.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:50C01BF61F4203182A55C715BC0567AF03F1E88A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49214.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:26B137D3FEB7472B12E5C5858421AF5883D0C98F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49215.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:98414104772D922C122C001790E4B434F5F78553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49216.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:98414104772D922C122C001790E4B434F5F78553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49217.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7FAD3DB1B6AED58F47A74993C65FBC5C866BC21B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49218.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:592FB51E4D30D06A9C55F5BCFE8EA9DDB8ADB73D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49219.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Guns Demons (2024) [En] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49220.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:179F467E45D9DE68541F2329D321F20929645D9D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49221.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:473BA11229A1B50BAD96D66B3DCA5644D3BC735E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49222.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:114C80D0E8B11C1895DBA2B1CC3ED7673697D0B0
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49223.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A82E32FA29BE0E4D55D937624A5E0388902E5B91
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49224.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Spotify 1.2.42.288 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49225.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ George Thorogood And The Destroyers / 30th Anniversary Tour: Live (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49226.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D114AD6E060D70B8240B7B01E427C4F19FB0E74C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49227.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5BE2A560EDE538F935E2254CB62FEA28B62FCDB3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49228.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Foxit PDF Editor 2024.5.2.0531.0820 Mod by AppModz [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49229.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ nthLink 6.4.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49230.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:04C44ED6492D74298885D845D10329486AE6EFDA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49231.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49232.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49233.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5A397AF2C34EC49E4719362E87FB85D56AB21047
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49234.jpg" />
 </div>
 
 

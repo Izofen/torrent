@@ -1,3 +1,78 @@
+###  Публикация: 1679456   (138345) от 25.11.2023
+
+MenubarX for Mac 1.6.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138345.jpg" />
+</div>
+
+
+###  Подробнее
+
+MenubarX — мощный утилита, которая живёт в строке меню. Закрепите любые веб-сайты в строке меню, как в собственных приложениях. Оно прекрасно поддерживает различные веб-сайты, WPA и PWA. Наслаждайтесь всеми услугами WebApps по одной ссылке. Вы мгновенно получите различные симуляторы, такие как iPhone, iPad, Android или даже Kindle. Это отличный инструмент для повышения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2023Разработчик: © 2023 6X StudioПоддерживаемая ОС: macOS 14.6+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB78CE85E7FAC55E2D74485BA3EAC091AF62A933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970804   (138346) от 31.12.2015
+
+VA - Rock Collection 1987 (2015) [MP3|320 кб/с] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+01. Bruce Springsteen - Ain't Got You
+02. Warlock - All We Are
+03. Anthrax - Among the Living(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 22:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7260F8632E3D31970D49576E5D70326290D1645B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436002   (138347) от 30.12.2020
+
+Тереза Жилевска | Построение базовой выкройки по индивидуальным меркам. Лифы, рукава, юбки, брюки (2020) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках первую книгу нового практического курса знаменитого французского дизайнера и преподавателя моделирования и шитья Терезы Жилевской! Курс предназначен не только для студентов-дизайнеров, которых вот уже более 30 лет обучает автор, но и для всех, кто хочет как можно быстрее и без лишних затрат и усилий освоить мастерство построения идеальной выкройки (   Читать дальше...   )Жанр: Домашние ремесла, РукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77DDBDDFFD1A3F7C38A7238DF7D584C1787EDF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590668   (138348) от 18.12.2012
 
 Четверг, 12-е (2012) SATRip
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138348.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:C86454E2F5A1B8C58CF5A5456E8205BB821DF140
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138349.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:837A3393E94A47B8DD73E175E37284CF558C64E4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138350.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Stangala - Klañv (Klanv) (2016) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138351.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:6869A30CF37FE928F741EB0D4BC4B61FACD0D3DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138352.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138353.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:D486B921691C1FC665E661EBECF201786EB52207
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138355.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ magnet:?xt=urn:btih:71CB909D6FF1BE2C10BECF6EB6821928B2C4EFAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138356.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ Process Lasso Pro 8.9.1.6 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138357.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:F2BFEC6E85C02F03C8C3DACAD67F5B1D76EE75E4
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138358.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ Panzar: Forged by Chaos (2012) [Ru/En] (46.4) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138359.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:BF17D16523013800E68567E189A03DA9DDE15DBA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138360.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138361.jpg" />
 </div>
 
 
@@ -327,7 +402,7 @@ magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138362.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:E1E6EFB7E66482A8F9A3B54BBA2D7A694D9FF3BD
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138363.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ VA - Корпоратив 2022 (mixed by Dj V) (2021) [MP3|320 Kbps] <Dance, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138364.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:E4FBBDAF85304797D8469200AF327C4EF43DDCFB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138365.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ magnet:?xt=urn:btih:61BBB6A9DDFF0E61DA351E472AC840DCEFD3D25F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138366.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ Skype 7.17.32.106 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138368.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138370.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138371.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ magnet:?xt=urn:btih:1FF45B9C114D77A8367361939385338BD29A39E3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138372.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138373.jpg" />
 </div>
 
 
@@ -564,78 +639,6 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9FAA1810CDEDC4D14CE5725F686E740688117C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202770   (138374) от 30.12.2018
-
-Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPHET
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Tactics: Blades of the Shogun, основанная на скрытности игра, в которой вам предстоит выполнять нелегкие поручения во главе отряда наемных убийц. Shadow Tactics – изометрическая тактическая стратегия, в которой вам предстоит провести свой отряд по Японии начала XVII века, выискивая самые изощренные способы убийства высокопоставленных жертв.Тип издания: LicenseРазработчик: Mimimi ProductionsЖанр: Strategy (Real-time, Tactical), 3D, Isometric, StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740316   (138375) от 31.12.2013
-
-Поговори с ней / Hable con ella / Talk to Her (2002) BDRip [720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138375.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках интересного персонажа для статьи журналист Марко встречается со знаменитой женщиной-тореро Лидией. Их знакомство перерастает в страстную любовь, но все надежды рушит трагедия на корриде: удар разъяренного быка повергает Лидию в кому. Проводя дни и ночи в больнице, Марко знакомится с медбратом Бениньо. Он не первый год заботится о впавшей так же в кому Алисии, (   Читать дальше...   )Производство: ИспанияЖанр: Драма, МелодрамаРежиссер: Педро АльмодоварАктеры: Паз Вега, Росарио Флорес, Дарио Грандинетти, Мариола Фуэнтес, Феле Мартинес, Хавьер Камара, Джеральдин Чаплин, Фернандо Гильен Куэрво, Чус Лампреаве, Леонор УотлингПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084E0C3CEE7FBDD7F78D1ADE062DDAFD4452E973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436057   (138376) от 30.12.2020
-
-Афоня (1975) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весело и беззаботно жил слесарь-сантехник Афанасий. Не гнушался левыми заработками, любил выпить, поволочиться за девушками. Так проходил день за днем, но однажды... О том, что случилось с Афоней, рассказывает фильм признанного мастера комедии Георгия Данелии.Производство: СССР / МосфильмЖанр: Драма, Мелодрама, КомедияРежиссер: Георгий ДанелияАктеры: Леонид Куравлёв, Евгения Симонова, Евгений Леонов, Борислав Брондуков, Валентина Талызина, Владимир Басов, Николай Парфёнов, Готлиб Ронинсон, Нина Русланова, Раиса КуркинаСубтитры: Русские, английскиеПродолжительность: 01:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA29F6B7ED8FAB119D87F6B2007A8D127BE8EC27
 ```
 
 

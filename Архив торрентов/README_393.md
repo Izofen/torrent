@@ -6,7 +6,7 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93604.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Blacklite Tubes (2011) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93624.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ Astartica - Error Sapiens (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93635.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Armin van Buuren - A State of Trance 548 (16.02.2012) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93661.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:4E061A853AD1016A338737AAED0F8C610B3AFCFC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93663.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Simon Kirke - Filling the Void (2011) [APE|Lossless]<Classic rock / Soft rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93687.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Headlock - The Lasting Eternity EP (2012) [MP3|320 kbps]<moshcore, hardcore, dea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93694.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - The Dance Cube XXXII 2CD (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93697.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Ultimate Drum & Bass Vol 3 (09/02/2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93704.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:02400C0E06486C05B96A58AC53DA847410D9E9E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93724.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93729.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93740.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93741.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93767.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93780.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93793.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93794.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Ful
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93797.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93810.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93815.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93817.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93832.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93848.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93872.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93873.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93892.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_93892.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76350.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sony Vegas Movie Studio HD 11.0.42 ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76355.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vegas Movie Studio HD – видеоредактор, включающий в с
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76363.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CD425B9ACE05243BDE07AC694BA04AE11F1483D7
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76393.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Terraria [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76398.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:FEF4CC30B757213E2AD087AB0E52455FD68B2EF0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76412.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ From Dust - новый проект Эрика Чани. Проект, неск�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76428.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:2B8456D659D1673319DD330D8F5BD0DFF0873EF3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76450.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2B8456D659D1673319DD330D8F5BD0DFF0873EF3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76457.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:9E86E609639A6E3D8F805E3CF42F4D41E905DD8E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76459.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:84D309DB9F5F917C3765F5AAD7310B8265E60390
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76479.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:84D309DB9F5F917C3765F5AAD7310B8265E60390
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76485.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76508.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Tindersticks - The Something Rain (2012) [FLAC|Lossless]<Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76515.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Wild Cherry - 6 Альбомов [1970-2002] [MP3|192-320 kbps]<Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76519.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Super Hits (2002)Жанр: Funk  |Продолжительность: 03:45:24
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76523.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AD0D7CD661236D5DDEA234AF170B81C4A3600998
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76530.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7B48130439900CE658FA9457DBEDA33C260F491B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76540.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FDA0F4A2DEA54F2515785F19D75DBE4C6D9FA6E3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76555.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:8B4847663ECFDDEA727695BA511D5E28899D7536
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76582.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Deep Purple - Deep Purple (1969) Remastered /2000, EMI Records/ [FLAC|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76642.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Scientific Linux 6.2 (DVD&NetInstall) [i386 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76655.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76659.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Volbeat - Live From Beyond Hell - About Heaven (2011) [FLAC|Lossless]<Heavy / Gr
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76663.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Kubuntu 10.04.4 LTS [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76669.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:6712D98B0782A760AC12BDDCB926D15A49C540DD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76670.jpg" />
 </div>
 
 

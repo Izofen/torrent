@@ -1,3 +1,81 @@
+###  Публикация: 1693460   (121290) от 23.01.2024
+
+Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cozy Inn (4:40)
+02. Morning Brunch (2:59)
+03. Jazz for Boutique Hotels (2:57)
+04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693961   (121291) от 23.01.2024
+
+Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
+1992 - Get Used To It
+1994 - Pain
+2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693978   (121292) от 23.01.2024
+
+Чингиз Абдуллаев | Дронго (Книга 64). Время нашего страха (2024) [MP3, Наталья Дымочко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задушен сторож санатория. Выброшен из окна фармацевт. Застрелен ученый. Перед этим все они получили от таинственного убийцы конверты с номерами 1, 2, 3… Конверт с номером 4 получил крупный бизнесмен. Похоже, он следующая жертва. А есть еще и другие конверты. Связывает этих людей только одно – все они друзья детства. Значит, мотивы убийства надо искать в их прошлом? (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 08:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654A1073D1D52A36E603333A40F30F24EE2D1069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693997   (121293) от 23.01.2024
 
 Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +84,7 @@ Dawn Of The Rising - Win Lose or Draw (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121293.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Abysmal Grief - Strange Rites of Evil (2015) [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121294.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:38046D1006827C701618AC7CF4C540982AC19933
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121295.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ SecuritySpy 5.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121296.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ HiBit Uninstaller 3.1.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121297.jpg" />
 </div>
 
 
@@ -133,7 +211,7 @@ Waterfox Current G6.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121298.jpg" />
 </div>
 
 
@@ -157,7 +235,7 @@ magnet:?xt=urn:btih:F2809FE0B1AA8DB77A50F73876206C53191C2797
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121299.jpg" />
 </div>
 
 
@@ -181,7 +259,7 @@ magnet:?xt=urn:btih:152DE943E682364830BE69BA1403353102844644
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121300.jpg" />
 </div>
 
 
@@ -205,7 +283,7 @@ Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121301.jpg" />
 </div>
 
 
@@ -232,7 +310,7 @@ magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121302.jpg" />
 </div>
 
 
@@ -256,7 +334,7 @@ Ungoogled Chromium 120.0.6099.224-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121303.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ magnet:?xt=urn:btih:FF176E26563A352E4ED10F1C44E35EB5D9DF70BB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121304.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ magnet:?xt=urn:btih:4A20356C35AA29B95D56CF916613CEF26D029A54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121305.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121306.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ DevUtils 1.17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121307.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Broke on Payday - Switching Colors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121308.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ WizTree 4.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121309.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ Smart Disk Image Utilities 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121310.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ magnet:?xt=urn:btih:A9FF41407169FAE4F07D452A4A6C296038CE4547
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121311.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Glary Tracks Eraser 6.0.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121312.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121313.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Armin van Buuren - Breathe In - Extended Versions (2024) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121314.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Slimjet 42.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121315.jpg" />
 </div>
 
 
@@ -567,78 +645,6 @@ Slimjet 42.0.2.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B784027CEB08875B597C68DE1DC02144E41BED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694108   (121316) от 23.01.2024
-
-Юлия Лапина | Тело, еда, секс и тревога. Что беспокоит современную женщину (2018) [MP3, Татьяна Оверченко]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный клинический психолог Юлия Лапина написала эту книгу после многих лет работы с людьми, страдающими расстройствами пищевого поведения. Автор отвечает на вопрос, который волнует сегодня большинство женщин: «Что со мной не так?». Почему накопилось столько претензий к своей и чужой внешности, почему так трудно похудеть, почему не работают советы из глянцевых (   Читать дальше...   )Жанр: возрастная психология, саморазвитие, личностный ростИздательство: Альпина ДиджиталПродолжительность: 06:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37831B153428F253A595EBD32AC57F2EDF223D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694066   (121317) от 23.01.2024
-
-ForkLift 4 v.4.0.6 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121317.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D441683B03A6E8907DF5B62DC9191BE3A4D8DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694002   (121318) от 23.01.2024
-
-История Аси Клячиной, которая любила, да не вышла замуж (1967) DVDRip [H.264/1080p] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горожанин Чиркунов приезжает в родной колхоз и делает предложение хромой поварихе Асе, в которую давно влюблён. Она отказывается, потому что не любит Чиркунова, а любит шофёра Степана и ждёт от него ребёнка. Но сам Степан к ней почти равнодушен.Производство: СССР, МосфильмЖанр: драма, мелодрамаРежиссер: Андрей КончаловскийАктеры: Ия Саввина, Александр Сурин, Геннадий Егорычев, Любовь Соколова, Иван Петров, Михаил Кислов, Борис Парфенов, Сергей Парфенов, Наталья Серова, Федор РодионычевПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F617542773D44DB9FF2950795E9B33204640DD2
 ```
 
 

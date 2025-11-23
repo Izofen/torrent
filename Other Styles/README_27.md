@@ -1,3 +1,111 @@
+###  Публикация: 1639005   (238475) от 12.06.2023
+
+Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive Rock, Neo-Classical, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_238475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saattue [00:11:09]
+02. Kesävihanta [00:04:51]
+03. Valkama [00:07:20]
+04. Rintamaan [00:03:34](   Читать дальше...   )Жанр: Nordic Folk, Progressive Rock, Neo-Classical, NeofolkПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627910   (238916) от 23.04.2023
+
+Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_238916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andino [04:24]
+02. Cultivos [05:16]
+03. La Furia y el Condor [06:15]
+04. Pio Pio [04:38](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634611   (239253) от 26.04.2022
+
+Мужской хор ИПК Валаам - Распевы Валаамского монастыря. Часть 2 (2002) [MP3|320 кб/с]<Церковные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свете тихий
+02. Преобразуя Воскресение Твое Христе Боже
+03. Хвалите имя Господне
+04. Уст Твоих(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5FD8349106D24D05B539BCF7BF5454946ABBE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640315   (239264) от 26.04.2022
+
+Мужской хор ИПК Валаам - Распевы Кирилло-Белозерского монастыря (1995) [FLAC|Lossless]<Церковные песнопения>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блажен муж
+02. Свете тихий
+03. Преподобне отче наш Кирилле
+04. Ныне отпущаеши(   Читать дальше...   )Жанр: Церковные песнопенияПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87194FB1425837043BD46B2794AEE7DA6BD2146B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 641607   (239286) от 25.04.2022
 
 ХОР "ДРАГОСЛАВ - Музыка старой Сербии (Песнопения XIV-XVIII веков) (1997) [MP3|192 кб/с]<Сербские Песнопения XIV-XVIII веков>
@@ -6,7 +114,7 @@
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239286.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239286.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239401.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239401.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Tanya Tucker - Sweet Western Sound (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239421.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239421.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239826.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239826.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ Tinariwen - Amatssou (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240169.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240169.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240274.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240274.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ ZVENTA SVENTANA - Звента Свентана (2023) [MP3|320 Kbps] <Folk, Ele
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240728.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240728.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Blick Bassy - Madiba (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Africa>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240755.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240755.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <F
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240763.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240763.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film So
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240860.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240860.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241061.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241061.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241208.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241208.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241449.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241449.jpg" />
 </div>
 
 
@@ -356,7 +464,7 @@ John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242016.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossles
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242049.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242049.jpg" />
 </div>
 
 
@@ -410,7 +518,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242186.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242186.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242214.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242214.jpg" />
 </div>
 
 
@@ -464,7 +572,7 @@ magnet:?xt=urn:btih:8ABA5CAC3F9E4E1627223D4756A759C4CCF8745B
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242233.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242233.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Countr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242316.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242316.jpg" />
 </div>
 
 
@@ -518,7 +626,7 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242458.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242474.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242474.jpg" />
 </div>
 
 
@@ -572,7 +680,7 @@ Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242694.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242694.jpg" />
 </div>
 
 
@@ -586,114 +694,6 @@ Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615159   (242782) от 25.02.2023
-
-Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche Harte, Folk Metal, Industrial Metal>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinth (04:36)
-02. Ihr wolltet Spass (03:41)
-03. Meer (05:02)
-04. Was soll der Teufel im Paradies (04:21)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk Metal, Industrial MetalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359955   (242786) от 15.02.2020
-
-VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clannad - Theme From Harry's Game (2:30)
-02. Enigma - Return To Innocence (4:09)
-03. Mike Oldfield - Tubular Bells (4:16)
-04. Ennio Morricone & His Orchestra - Chi Mai (5:07)(   Читать дальше...   )Жанр: New Age, Modern Classical, InstrumentalПродолжительность: 02:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623777   (242996) от 04.04.2023
-
-Restless Heart - Greatest Hits (1998) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No End To This Road  [03:23]
-02. Let the Heartache Ride  [03:38]
-03. (Back to the) Heartbreak Kid  [03:51]
-04. That Rock Won't Roll  [03:30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE71D2DB856B6799E8A75F5B9DB5F411DCAA3880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352284   (243121) от 15.01.2020
-
-Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Presence of Angels (6:46)
-02. A Caress of Love (7:56)
-03. Infinite Light (4:24)
-04. Music of Silence (1:13)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
 ```
 
 

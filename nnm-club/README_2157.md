@@ -6,7 +6,7 @@ Capture One 23 Enterprise 16.4.0.2112 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pipette 24.5.15 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56449.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56450.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ LosslessCut 3.61.0 Standalone (x64) Pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56451.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:BFF2652C4833EFF1BA81D9F0CF55CFCB5F59C27D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56452.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Microsoft .NET 7.0.19 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56453.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:C175CE5741613C8EEBFCCBE30C0556ABAE393DFA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56454.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ KMPlayer 4.2.3.12 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56455.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:766998ECA88A4226550A5448F244FA9FF2F5468B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56456.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Joe Satriani - Onomatopoeia (2024) Live [MP3|320 Kbps] <Hard Rock, Instrumental 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56457.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7128B35D72045481F4DFF3EB7F49D8CEA0283D9F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56458.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:A4358CEB43470603A9D6CC50CB3815303340DBC9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56459.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ doPDF 11.9.453 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56460.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:7D5BA79F96FF10853E6515201E1C3EDE849A29CC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56461.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Nightfall: Piano in the Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56462.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:A07EEA6ED0845B8DAFE6D04EC5DEA161FAE4D82B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56463.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:5C6ED85C29853C01011EBB126E612AAD26BD78B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56464.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:8C353AFA792F551134193AFA99F879A6D474E07B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56465.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:1C8CB24A56689C0FC5123E3F752B61E88CA8B352
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56466.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:46D390CC96C79616505F71E15BE98ACEE814239D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56467.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Photoshop Express 13.5.31 (ARM64) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56468.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ LDPlayer 9.0.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56469.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:3E46A8138FDD3B67DFBE3926BF2C4DFF07CF33DD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56470.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Astro Pig (2024) [Multi] (1.1.5) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56471.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56472.jpg" />
 </div>
 
 

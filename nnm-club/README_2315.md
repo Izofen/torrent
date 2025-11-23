@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F8AE94B6E631553F85AC720E404814CB6CB987CB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60556.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5ECADF14236B362FA8C746622CA5A99C44FDB3A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60557.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5ECADF14236B362FA8C746622CA5A99C44FDB3A6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60558.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:80ABEDAFB2EC4DDE3963B62E361C0D90AFE1B2EB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60559.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:64EA59467641ECD3336914D2FF0E5452F5D05440
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60560.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5DA5E7F3FCD0CD3D8457BFF0686D18AA7660F2C5
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60561.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60562.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:86D9EE2A74D69F317AF75933725E7E40A5795E79
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60563.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:68B192BE3849C38D47C3639A05390A337D0272F7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60564.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Weather app - eWeather HDF v8.8.4 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60565.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AI Translate Voice Translator (Talkao) v389.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60566.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4346953BDF81E3642417BE90C303D122F3342CB2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60567.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F60E3600CA948BE49130FA027B768E48ED3DB7F1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60568.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:2756BB10C66BADAC6521555E419F8849EC32D34F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60569.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:145E842B8427B5118C7E8FDF694D73846B4AC939
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60570.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:145E842B8427B5118C7E8FDF694D73846B4AC939
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60571.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:256426A14B4C8A0B62119711CAAF8427887746E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60572.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:C6B10F9D37FD5DEFC5D7BF410BEF7051660ED5D0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60573.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60574.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:762794A6ECD81393B514C305865248C3542C5C00
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60575.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:0012B07C7EE639B8C03C1442E65FA60ECB3184E3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60576.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3790C027347E54B7AAE0E4E5A092E04FEAB3F1FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60577.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2D34BCC2DA9E8A27DB91F18321F59E5D38A48E69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60578.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Project Hunt (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60579.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:BF8BA9EF34283A830AD553CCB4D327EFE599C532
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60580.jpg" />
 </div>
 
 

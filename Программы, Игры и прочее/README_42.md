@@ -6,7 +6,7 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62535.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62554.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62580.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Easy Notes 1.2.24.0309 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62656.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.8.7 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62741.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Psiphon Pro 393 Mod by AzadNet [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62768.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62771.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ WPS Office + PDF v18.7.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62782.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Melon VPN - Secure Proxy VPN 8.0.002 Mod By FreeApkexe [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62821.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Plus Messenger (Telegram+) v10.9.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62956.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:FF3BC0917BBA776B807814E5895C7C21DF207E07
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63011.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ OsmAnd - озвучка альтернативными голосами TTS [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63012.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:473FE783F855FCC45B4AB51A8AFCA774FCF5D67E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63028.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C4D89AC046B9BEC7D8394FC6563B49C5F3CB8453
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63030.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63422.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PlayerPro Music Player 5.35 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63505.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PictureThis - Plant Identification v3.79 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63509.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63536.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lighting calculations / Расчеты освещения v6.0.0 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63611.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.08 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63645.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63906.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ NokoPrint v5.24.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63933.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63983.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63984.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ TapScanner v3.0.84 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63985.jpg" />
 </div>
 
 

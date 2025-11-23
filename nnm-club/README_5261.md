@@ -1,3 +1,176 @@
+###  Публикация: 1426136   (162226) от 19.12.2022
+
+English LinDuo HD v5.29.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего 10-15 минут в день Уделив нашему приложению 10-15 минут каждый день вы с легкостью запомните все важные слова. В изучении иностранного языка важна не длительность урока, а регулярность. 10 минут урока в день в течении недели продуктивней, чем занятия в течении часа один раз в неделю.Тип издания: ModРелиз состоялся: 18.12.2022Разработчик: LinDuoПоддерживаемая ОС: Android 4.1+Жанр: ОбучающиеЯзык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674129   (162227) от 04.11.2023
+
+Nevercenter CameraBag Pro 2024.0.1 x64 Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162227.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag Pro позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag Pro к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97767D3D5638C12BF0B71D6A6CEAA77F9C13BDA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598623   (162228) от 19.12.2022
+
+Skillbox, Андрей Котельников, Никита Акулич | Покер и логическое мышление (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь применять математику в игре, прокачаете логику, аналитические навыки, будете здраво оценивать риски и управлять эмоциями.
+Новые знания пригодятся не только за игровым столом, но и в жизни.
+Чему вы научитесь:Готовиться к игре. Узнаете, как выбрать комнату с подходящими соперниками, правильно настроиться на игру и подойти к столу с преимуществом перед (   Читать дальше...   )Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:16:39Реклама: Присутствуют сторонние наложения и вставки в видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C011B5F98213C2F4726CFF2829086DDD6C944C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529593   (162229) от 18.10.2025
+
+A Short Hike (2019) [Multi] (1.9_v3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись на живописном острове "Соколиный Пик" - важное место для всех пернатых. Вам предстоит забраться на самую высокую гору, но вот не задача: Вы играете за птицу по имени Клэр, которая толком не умеет летать. Вам предстоит собирать особые перья, которые помогут взлететь Вам чуть выше. Но этим дело не ограничится. На острове обитают разнообразные зверушки, (   Читать дальше...   )Тип издания: LicenseРазработчик: adamgryuЖанр: Приключение, ExplorationЯзык субтитров: Английский, Французский, Испанский, ЯпонскийЯзык интерфейса: Английский, Французский, Испанский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432704   (162230) от 19.12.2020
+
+VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Taylor - You've Got a Friend (04:28)
+02. Tones and I - Dance Monkey (Stripped Back) (02:51)
+03. Dua Lipa - Be the One (Acoustic) (03:12)
+04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399296   (162231) от 18.10.2025
+
+SUPERHOT (2016) [Ru/Multi] (1.0.21b_plus_l1.1.36) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162231.jpg" />
+</div>
+
+
+###  Подробнее
+
+SUPERHOT - это шутер от первого лица, где время движется только вместе с тобой. Здесь не будет восполняемой полоски здоровья. Не будет стратегически разбросанных боеприпасов. Только ты - один против всех, с голыми руками. Выхватывай оружие у падающих врагов, стреляй, руби и уворачивайся от пуль, как Нео.Тип издания: LicenseРазработчик: SUPERHOT TeamЖанр: Action (Shooter), 1st PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674108   (162232) от 04.11.2023
+
+Формула 1. Сезон 2023. Этап 21. Гран-при Бразилии. Квалификация (03.11.2023) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162232.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 ноября 2023, пятница. 21:15 МСК. Этап 21, Сан-Паулу. Гран-при Бразилии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674305   (162233) от 04.11.2023
 
 МузЛофт-подкаст / МузLoft. Марина Кравец (2023) WEBRip [H.264/1080p]
@@ -6,7 +179,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162233.jpg" />
 </div>
 
 
@@ -31,7 +204,7 @@ magnet:?xt=urn:btih:070A81E3A47A81BB2AD0CB993E52C9A7D68D2DCF
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162234.jpg" />
 </div>
 
 
@@ -58,7 +231,7 @@ Tropico 6 v.19_907_a7f0e5a (2019) [Ru/En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162235.jpg" />
 </div>
 
 
@@ -85,7 +258,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162236.jpg" />
 </div>
 
 
@@ -109,7 +282,7 @@ Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162237.jpg" />
 </div>
 
 
@@ -136,7 +309,7 @@ Steinberg Nuendo 12.0.70.464 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162238.jpg" />
 </div>
 
 
@@ -160,7 +333,7 @@ magnet:?xt=urn:btih:04E7CBEA6BFB5147F93FA886C991A2E771E6A411
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162239.jpg" />
 </div>
 
 
@@ -184,7 +357,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162240.jpg" />
 </div>
 
 
@@ -208,7 +381,7 @@ magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162241.jpg" />
 </div>
 
 
@@ -232,7 +405,7 @@ magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162242.jpg" />
 </div>
 
 
@@ -259,7 +432,7 @@ magnet:?xt=urn:btih:98CA22AC9144956FD24D9A81DC83997FE8D4CDD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162243.jpg" />
 </div>
 
 
@@ -283,7 +456,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162244.jpg" />
 </div>
 
 
@@ -307,7 +480,7 @@ magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162245.jpg" />
 </div>
 
 
@@ -331,7 +504,7 @@ magnet:?xt=urn:btih:17BBCC06956200D85F321E755ADED17DFC3FFADC
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162246.jpg" />
 </div>
 
 
@@ -356,7 +529,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162247.jpg" />
 </div>
 
 
@@ -380,7 +553,7 @@ magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162248.jpg" />
 </div>
 
 
@@ -404,7 +577,7 @@ Opera GX 82.0.4227.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162249.jpg" />
 </div>
 
 
@@ -430,7 +603,7 @@ magnet:?xt=urn:btih:F97A95B46FC9AB995C189530867BE34ECC5CCF9F
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162250.jpg" />
 </div>
 
 
@@ -455,7 +628,7 @@ magnet:?xt=urn:btih:EA82038EB5DEA4D0EF218BE0883F658A16A277BA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162251.jpg" />
 </div>
 
 
@@ -466,181 +639,6 @@ magnet:?xt=urn:btih:EA82038EB5DEA4D0EF218BE0883F658A16A277BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:318F0C5341F54AF88149CA7B31D808D88AB3C891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517598   (162252) от 16.12.2021
-
-Генри Чарльз Ли (Henry Charles Lea) | Сборник произведений [5 книг] (1994-2001) [FB2, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги американского ученого Генри Чарльза Ли признаны одними из лучших, полных и обстоятельных изданий, посвященных такому интересному и противоречивому периоду в истории Церкви, как инквизиция. Эти труды, некогда вызвавший настоящую сенсацию в Европе, - глубокое и беспристрастное изучение причин зарождения инквизиции, биографий ее служителей, архивных документов (   Читать дальше...   )Жанр: История, КультурологияПеревод: А. В. БашкировФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1DED25076EAACAAACD0A569272A55424E342A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674256   (162253) от 04.11.2023
-
-Рэй Гартон | Ночная жизнь (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло восемнадцать лет с тех пор, как Дэйви Оуэн взорвал принадлежащий вампирам секс-клуб "Шоу Девочек" на Таймс-сквер в Нью-Йорке. В огне погибло множество вампиров, но не все. Уцелевшие вынашивают планы мести, пытаясь разыскать виновников пожара. И вот, наконец, им становится известно местоположение Дэйви...
-В увлекательнейшем продолжении романаЖанр: ХоррорПеревод: ЛюбительскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA89B42F160703253B8C903D1EF25372B67CCECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577828   (162254) от 19.12.2022
-
-Рик и Морти / Rick and Morty (2022) WEB-DL [H.264/1080p] (сезон 6, серии 10 из 10) HDrezka, Audiodrome
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационное шоу для взрослых, в лучших традициях интеллектуального абсурда. Морти – самый обычный 14-летний подросток, который ссорится с учителями, мечтает о девочках и страдает от школьных хулиганов. Единственное, что делает его особенным, это его дед Рик – гениальный изобретатель и постоянно рыгающий алкоголик. В их мире все по фен-шую: инопланетяне в гараже, (   Читать дальше...   )Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, приключенияРежиссер: Уэсли Арчер, Пит Мишелс, Johnny TesoroПеревод: Профессиональный многоголосый (HDrezka) Ненормативная лексика, Одноголосый (Audiodrome)Язык озвучки: русский, украинский, английскийСубтитры: русские (Forced, Full), Украинские (Forced), английские (Full, SDH)Продолжительность: ~ 00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB3C586A0D7CE437BBAC2E6997A99B6893B3A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433082   (162255) от 19.12.2020
-
-Wildness - Ultimate Demise (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Wild
-02. Die Young
-03. Nowhere Land
-04. Cold Words(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E80AA6E64A59A83424DE68AFC034A873E14298
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826336   (162256) от 18.10.2025
-
-StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
-</div>
-
-
-###  Подробнее
-
-StarCraft - легендарная стратегия в реальном времени в научно-фантастическом сеттинге от создателей серии Warcraft. В игре вам предстоит присоединиться к одной из трех враждующих сторон — высокотехнологичных терранов, протоссов с мощными псионными возможностями и насекомоподобными зергами...Тип издания: RepackРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433152   (162257) от 19.12.2020
-
-Samsara Joyride - Samsara Joyride (2020) [MP3|192 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16th District Blues (8:52)
-02. Shadow of a Man (5:36)
-03. Why I play the Blues (6:54)
-04. Stranger (9:06)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DBE45695FC873E4CFF31BF7B996061D90F7971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674234   (162258) от 04.11.2023
-
-Журнал | Диабет. Образ жизни №2 (2023) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный медицинский журнал, предназначенный в первую очередь для людей с сахарным диабетом, их родственников, врачей-специалистов, а также для всех тех, кто привержен здоровому образу жизни. Цель журнала – повышение качества жизни при сахарном диабете, распространение знаний о заболевании, практические рекомендации по питанию, физической нагрузке, самоконтролю, (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: МОО "Международная программа "Диабет"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97DABB5622077952A56B8569C0340FD401DD0FE
 ```
 
 

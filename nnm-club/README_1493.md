@@ -6,7 +6,7 @@ SnapEdit - AI photo editor v7.2.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39171.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8AEC40EB96B88DF20AB0E5A623A56058837FBFBB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39172.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E34B1A2BFE73422398BCEAEA1B7C9AA116981717
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39173.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39174.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39175.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Autumn Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39176.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E437474E9CBABF73D1228BCE42AA25808A0C7395
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39177.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:FC9F579694C7431BD6B72EEFFEEF1B5E4026544F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39178.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39179.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:B6285C537ED9BB9519792E1285FABB1DD75A1D52
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39180.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ SnapEdit - AI photo editor v7.2.2 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39181.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:740C6D3AA8FB0D92836D559B9F17C616DFE4E835
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39182.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39183.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lay Of The Autumn - Of Love And Sorrow (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39184.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:9101412CBE5D264A68FC3FF206AF79C9FF4BCA0B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39185.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:02B823074AFE9DFE52C9CC6542C35D061F07432E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39186.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:FD0D6EB824BF53B025FEA23C57D459FB00A0607B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39187.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DFCA7203D1CE8251802499AA8BC1BCB695CC5596
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39188.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D723528215BE568421260D07BEEB2C17124C5719
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39189.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:3E083E244F6F4E11A005458A38516E442B75C5C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39190.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39191.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:07B8E746FF4B05FE6D741F7708C00A2D618F5BA2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39192.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9A04641F28ED54CF065B18E0AAFC66C759040763
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39193.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:D851067AD475A3A1C76EAAE87BFF9DE976049E8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39194.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Moon+ Reader Pro v9.7 (b907002) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39195.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Chaos Vantage 2.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39196.jpg" />
 </div>
 
 

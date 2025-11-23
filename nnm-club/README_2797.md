@@ -1,3 +1,77 @@
+###  Публикация: 460924   (79692) от 02.03.2012
+
+S.T.A.L.K.E.R.: Call of Pripyat / Зов Припяти. PostScript Anarchy [Ru] {0.4.5 Beta} [Mod] 2012 | New Arabic Team
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79692.jpg" />
+</div>
+
+
+###  Подробнее
+
+PostScript Anarchy одна из модификаций разрабатываемых командой NATeam.
+Мод вносит ряд визуальных и аудио изменений, а так же добавляет новые элементы в игровой процесс.
+PostScript Anarchy в отличии от своих "родственников" не является фриплейной модификацией.(   Читать дальше...   )Тип издания: Модификация (неофициальная)Жанр: Action (Shooter) / 3D / 1st Person / ModЯзык озвучки: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0067CA4A350C390BA764DCB8C6F106E275441DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461139   (79694) от 02.03.2012
+
+Мариам Петросян | Дом, в котором… (2009) [RTF, FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79694.jpg" />
+</div>
+
+
+###  Подробнее
+
+На окраине города, среди стандартных новостроек, стоит Серый Дом, в котором живут Сфинкс, Слепой, Лорд, Табаки, Македонский, Черный и многие другие. Неизвестно, действительно ли Лорд происходит из благородного рода драконов, но вот Слепой действительно слеп, а Сфинкс - мудр. Табаки, конечно, не шакал, хотя и любит поживиться чужим добром. Для каждого в Доме есть (   Читать дальше...   )Жанр: Современная проза, романИздательство: Гаятри/LivebookФормат: RTF, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A49352834B7C6DAF3D8ED45D9073048CB7E27DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442548   (79695) от 02.03.2012
+
+Костоправ (1-12 серии из 12) (2011) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Кинокомпания "RUmedia", Кинокомпания "Даниан-фильм", Группа компаний "Аврора"Жанр: Иронический медицинский сериалРежиссер: Владимир МельниченкоАктеры: Алексей Горбунов, Юлия Ауг, Георгий Делиев, Виталий Линецкий, Александр Лыков, Евгений Паперный, Александр Семчев, Ирина Апексимова, Ирина Мельник, Валерия Ходос, Евгений Плиско-Куприн, Янина Соколова, Михаил Пшеничный, Виктор Андриенко, Сергей Сипливый, Оксана Борбат, Любава Грешнова, Михаил ГоревойПродолжительность: ~ 00:51:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460966   (79696) от 02.03.2012
 
 Alkid Live CD&USB 29-02-2012 [русский]
@@ -6,7 +80,7 @@ Alkid Live CD&USB 29-02-2012 [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79696.jpg" />
 </div>
 
 
@@ -32,7 +106,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ Windows 7 PE x86 by Morphius71rus  [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79700.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79703.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ magnet:?xt=urn:btih:F432DB591B184431041E136FF27EC4EC7531B8FF
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79707.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ Edius. Эта программа популярна как среди нович
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79708.jpg" />
 </div>
 
 
@@ -161,7 +235,7 @@ Edius. Эта программа популярна как среди нович
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79726.jpg" />
 </div>
 
 
@@ -185,7 +259,7 @@ Edius. Эта программа популярна как среди нович
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79728.jpg" />
 </div>
 
 
@@ -210,7 +284,7 @@ magnet:?xt=urn:btih:C527179184BF2CAB2ADB1185EEB6AD32AEB325BF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79734.jpg" />
 </div>
 
 
@@ -234,7 +308,7 @@ magnet:?xt=urn:btih:5D5A8432CE14E26182B248AB6EEE0DC81FDB0854
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79743.jpg" />
 </div>
 
 
@@ -262,7 +336,7 @@ magnet:?xt=urn:btih:88C8C31C16C8A605C4153BC368D676BFD079DC8E
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79751.jpg" />
 </div>
 
 
@@ -287,7 +361,7 @@ magnet:?xt=urn:btih:132778AB70C4E613F4861A5DF2D9C51692CAAB78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79756.jpg" />
 </div>
 
 
@@ -311,7 +385,7 @@ magnet:?xt=urn:btih:85A0D2B872FC426ECE28992A0C6CC5286938BB4E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79757.jpg" />
 </div>
 
 
@@ -335,7 +409,7 @@ magnet:?xt=urn:btih:A62964DFC3A0306C4A95F7EF64FCB557F12526E1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79759.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ magnet:?xt=urn:btih:1F394333DF2B167E46BAA4A6785FF33BFE0F8194
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79762.jpg" />
 </div>
 
 
@@ -383,7 +457,7 @@ magnet:?xt=urn:btih:F2D0DB77CEAB1036AC55A3F1D29ACC3D42BF9CD2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79767.jpg" />
 </div>
 
 
@@ -407,7 +481,7 @@ magnet:?xt=urn:btih:6545BC53366D850C33407F9C1C86735C02DD72BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79771.jpg" />
 </div>
 
 
@@ -431,7 +505,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79776.jpg" />
 </div>
 
 
@@ -457,7 +531,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79778.jpg" />
 </div>
 
 
@@ -482,7 +556,7 @@ magnet:?xt=urn:btih:82331A186908B7D1B60EC8D41F791A265480977D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79780.jpg" />
 </div>
 
 
@@ -508,7 +582,7 @@ Kill Win Locker by Core-2 6.2.12 6.2.12 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79781.jpg" />
 </div>
 
 
@@ -533,7 +607,7 @@ Kill Win Locker by Core-2 6.2.12 6.2.12 [Английский + Русский]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79782.jpg" />
 </div>
 
 
@@ -559,7 +633,7 @@ magnet:?xt=urn:btih:7B5152D6196464C6E2D204DF390B46EDA3EB5FB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79783.jpg" />
 </div>
 
 
@@ -570,79 +644,6 @@ magnet:?xt=urn:btih:7B5152D6196464C6E2D204DF390B46EDA3EB5FB0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E255745A590522A6A039BAC3D23A001467E916E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461834   (79785) от 03.03.2012
-
-Лиза Джейн Смит | Сборник произведений [1991-2011] [PDF, RTF, FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиза Джейн Смит (Lisa Jane Smith, LJane Smith, L.J. Smith) — американская писательница, автор юношеской литературы, сочетающая в своих книгах такие жанры как фэнтези, научную фантастику, мистику, ужасы и элементы любовных романов.
-Персонажи книг Лизы Джейн Смит — сверхъестественные или человеческие, все как на подбор красивы и молоды. Чаще всего сюжет в её книгах является вариацией на тему конфликта добра со злом, в центре которого находится персонаж, перерождающийся за время этого конфликта и превращающийся в героя. Её книги наивно идеалистичны, но всё-таки обладают определённым шармом.1991-2011Формат: PDF, RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985A6B9A4D31BEF13EC956234397EA44E202DEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461634   (79786) от 03.03.2012
-
-RERemix Linux Desktop 6.2 Live [i686 + x86_64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем финальный выпуск RERemix Linux Desktop 6.2 с долгосрочной поддержкой EL дистрибутива. RERemix Linux Desktop - это ремикс, основанный на Scientific Linux и репозиториях EPEL, PUIAS, ELRepo и Russian Fedora. Дистрибутив представляет собой десктопное решение на базе GNOME и KDE (доступна также урезанная версия XFCE). Пользователю сразу из коробки предоставляется возможность использования различных "плохих" кодеков (mp3 и т. п.), проигрывание DVD, Adobe Flash, различные драйвера к видео и сетевым картам. Доступны обновлённые версии Firefox, Thunderbird, вместо OpenOffice.org используется LibreOffice 3.4.5. В репозитории доступны vlc, mplayer2, psi-plus, skype, evince-djvu-backend, deadbeef, chromium и др. пакеты.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461911   (79789) от 03.03.2012
-
-[EN] Спартак: Месть / Spartacus: Vengeance [Season 2, Episode 6] (2012)
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вслед за кровавым побегом из дома Батиата, восстание гладиаторов начинает вселять страх в сердце Римской республики. Гай Клавдий Глабр и его римские войска направляются в Капую разбить, с каждым днём растущую группу освобожденных рабов, под предводительством лучшего римского гладиатора Спартака. Спартаку выпадает шанс отомстить человеку обрекшего его на рабство, (   Читать дальше...   )Жанр: Исторический,Боевик, ДрамаРежиссер: Майкл ХерстАктеры: Лиам МакИнтайр, Ману Беннет, Питер Менса, Люси Лоулесс, Вива Бьянка, Ник Тарабэй, Дастин Клер, Дэниэл Фьюрриджел, Крэйг Паркер и другиеПеревод: ОтсутствуетПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 

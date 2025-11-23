@@ -6,7 +6,7 @@
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:93D5AC3AFD66DB24091033BCEEBF3ED9583557DF
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nagi no Asukara | Nagi-Asu: A Lull in the Sea | Безоблачное завт�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60263.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64766.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64948.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65278.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65713.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65821.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65853.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66033.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66035.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66040.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Ever
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66098.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66100.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66140.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66151.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] Blu-ray 1080p 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66152.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:9EBB964B46F165995FFE5BF2C2CD27F5450100A2
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66784.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Ар
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66787.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Byousoku 5 Centimeter | 5 Centimeters per Second | Пять Cантиметро�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66983.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67183.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69320.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MIKUNOPOLIS in LOS ANGELES (02.07.2011) BDrip TrueHD 5.1 1080p Hi10p
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83747.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Tsutsu Yume Gunnm / Gunnm / Сны оружия / Боевой Ангел Али
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85443.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Hatsune Miku Live Party 2011 (Mikupa) / Хацунэ Мику живой кон�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85567.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98553.jpg" />
 </div>
 
 

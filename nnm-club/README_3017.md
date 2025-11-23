@@ -1,3 +1,81 @@
+###  Публикация: 1821674   (91299) от 03.10.2025
+
+Сборник мультфильмов: В гостях у сказки. Выпуск  3 (1971-1990) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: В зоопарке ремонт; Пугало; Когда растаял снег; Крошка Енот; Последний заяц; Шиворот-навыворот; Самолетик; Слоно-дило-сенок; Соломенный бычок.Производство: СССР / ТО Экран, СоюзтелефильмЖанр: Мультфильм, короткометражка, детский, русская сказка, экранизацияРежиссер: Натан Лернер, Розалия Зельма, Анатолий Солин, Олег Чуркин, Борис Бутаков, Владимир Самсонов, Борис Ардов, Анатолий РезниковАктеры: Клара Румянова, Мария Виноградова, Зоя Зелинская, Владимир Басов, Светлана Харлап, Станислав Чекан, Зинаида Нарышкина, Борис Ардов, Алексей Баталов, Екатерина Райкина и другиеСубтитры: отсутствуютПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6977EEC6EFD2F273BEE2DA40446D19999B23B964
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821773   (91300) от 03.10.2025
+
+ЧайФ - Вот так (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кораблик бумажный
+2. Мотя и Лука
+3. Там, где со мною будешь ты
+4. Дедушкина песня(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821771   (91301) от 03.10.2025
+
+ЧайФ - Вот так (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кораблик бумажный
+2. Мотя и Лука
+3. Там, где со мною будешь ты
+4. Дедушкина песня(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7520BBEB1FB030148E0186B09DD7AE7848A541A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821750   (91302) от 03.10.2025
 
 Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
@@ -6,7 +84,7 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91302.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91303.jpg" />
 </div>
 
 
@@ -54,7 +132,7 @@ magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91304.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ magnet:?xt=urn:btih:5CCB597A0E2AB04CB9459C1943260BF068BD44EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91305.jpg" />
 </div>
 
 
@@ -105,7 +183,7 @@ magnet:?xt=urn:btih:5AFC78D7394A61B5CCB6431779C95DEEFC481BF9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91306.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91307.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ magnet:?xt=urn:btih:51DED3886B0FE3E346D46ED2BAC6287C1A49878D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91308.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91309.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ magnet:?xt=urn:btih:2542E5876A307B78ADDDC29A4D6013AC25B03B44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91310.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91311.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91312.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91313.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91315.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91349.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ magnet:?xt=urn:btih:FABCE3216CC4A1D2D7CB2A7C77EBE7F24C73687B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91363.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ magnet:?xt=urn:btih:0DAB90208ACE0353BE9206163158607F7917241B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91374.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ magnet:?xt=urn:btih:B5FF3290F6642D640BC8573CAE452904DFD8896A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91384.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91421.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91469.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91472.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ VA - Sky Trance #2 - Distant Horizon (2010) [MP3|320 kbps]<Uplifting, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91485.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91501.jpg" />
 </div>
 
 
@@ -593,78 +671,6 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441484   (91505) от 26.01.2012
-
-[EN] Холм Харлея / Harley's Hill (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харлей, чистокровный скакун, найден владельцем ранчо и его дочерью. Не найдя владельца,  девочка берет Харлея как партнера на соревнованиях.Жанр: СемейныйРежиссер: Дон МостАктеры: Кристофер Аткинс, Кристин Дорн,  Дебора Дуда-ТомпсонПеревод: ОтсутствуетПродолжительность: 01:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442642   (91556) от 27.01.2012
-
-Подшивка журналов | Computer Graphics World (2004-2011) [EN] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подшивка журнала "Computer Graphics World", посвященного компьютерной графике. CGW исследует, как передовые графические методы, включая трехмерное моделирование, мультипликацию и визуализацию используются в таких приложениях как CAD/CAM/CAE, архитектура, научная визуализация, специальные эффекты, цифровое видео, фильмы и интерактивные развлечения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442654   (91569) от 27.01.2012
-
-Наш добрый мастер (1977) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Стелла АристакесоваПродолжительность: 00:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA239DA4421FEF49F854A2832E32606A07072DE2
 ```
 
 

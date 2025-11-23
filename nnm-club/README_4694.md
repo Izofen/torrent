@@ -1,3 +1,180 @@
+###  Публикация: 969718   (145498) от 28.12.2015
+
+Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening Thoughts - 1:36
+02. Touch And Go - 4:34
+03. One Chance - 3:34
+04. Cloud Watching - 5:29(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34824419F94730AF1CC10E1617E55BD5D4EAC1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083264   (145499) от 27.12.2016
+
+Девочки Гилмор: Времена года / Девочки Гилмор: Год из жизни / Gilmore Girls: A Year in the Life (2016) WEBRip (сезон 1, серии 4 из 4) NewStudio
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрождение сериала о матери и дочери, живущих в провинции, где ничего толком и не происходит.Производство: СШАЖанр: драма, комедияРежиссер: Дэниэл Палладино, Эми Шерман-ПалладиноАктеры: Лорен Грэм, Алексис Бледел, Мелисса МакКарти, Кейко Агена, Скотт Паттерсон, Яник Трусдэйл, Джаред Падалеки, Лайза Уайл, Майло Вентимилья, Шон Ганн, Крис Айгеман, Келли Бишоп, Эдвард Херрманн, Лиз Торрес и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~01:30:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAC028126630926B6723FDE36CD5FE1BB1296DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272102   (145500) от 26.12.2018
+
+BELLATRIX - I Love KOTO - Covers and Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acknowledge
+02. Chinese Revenge
+03. Dragon's Legend
+04. Jabdah(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E8B5DF77B75A198DA0F26DFC816596B412F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519951   (145502) от 26.12.2021
+
+База мертвых людей / Baza ludzi umarlych / The Depot of the Dead (1959) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Польша. 1945-1946 годы. Страна нуждается в сырье, острая нехватка древесины и человеческого ресурса. Далеко в глуши, одинокая база на которой живут несколько водителей грузовиков, занимающихся перевозкой леса. Бывшие заключенные и пьяницы, то и дело разбивающиеся на дряхлых машинах. Дирекция посылает своего механика — Забаву, чтобы он удержал коллектив неблагонадежных (   Читать дальше...   )Производство: Польша, Zespól Filmowy "Studio"Жанр: ДрамаРежиссер: Чеслав ПетельскийАктеры: Жигмунт Кенстович, Эмиль Каревич, Тереза Ижевска, Леон Немчик, Александр Фогель, Тадеуш Ломницкий, Роман Клосовски, Адам Квятковский, Юлиуш Грабовски, Роман ГубченкоПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B250F0CFE371637C3EBF0073E16393E1AB9AF49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087299   (145504) от 27.12.2016
+
+Кубо. Легенда о самурае | Kubo and the Two Strings (2016) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубо - наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение - найти магические доспехи отца, легендарного самурая.Производство: США | Focus Features, Laika EntertainmentЖанр: Фентези, ПриключенияРежиссер: Трэвис НайтПеревод: ДублированныйЯзык субтитров: Русский (полные), Английский (полные, SDH)Продолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EB2FF821D43EB9B53653819B23137384067920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969391   (145505) от 28.12.2015
+
+Александр Сержан | Сборник фантастических юмористических рассказов (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький сборник рассказов из жанра  юмористическая фантастика:
+1. Титаники. Их ничто не остановит.
+2. Вездесущий
+3. День не задался(   Читать дальше...   )Жанр: Юмористическая фантастикаПродолжительность: 02:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89376CC4D54E280E5CC786B65306D37165B59F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272178   (145506) от 26.12.2018
+
+Колетт / Colette (2018) BDRip [H.264/720p-LQ] [Line] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркая и талантливая Колетт пишет гениальные произведения, которые ее муж Вилли, посредственный писатель, выдает за свои. Книги становятся бестселлерами, а богемная пара превращается в сенсацию высшего света Парижа. Но когда Вилли пытается заставить Колетт написать еще один роман, она начинает борьбу за творческую свободу, бросая вызов общественным понятиям о литературе, (   Читать дальше...   )Производство: Великобритания, США / Number 9 Films, Killer Films, Bold FilmsЖанр: ДрамаРежиссер: Уош УэстмолендАктеры: Кира Найтли, Доминик Уэст, Элинор Томлинсон, Фиона Шоу, Денис Гоф, Аийша Харт, Ребекка Рут, Аль Уивер, Кэролайн Болтон, Роберт ПьюПеревод: Дублированный (чистый звук)Субтитры: отсутствуютПродолжительность: 01:54:46Реклама: Присутствуют вставки голосовой, аудио, текстовой рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348213   (145507) от 26.12.2019
 
 Корпоративные животные / Corporate Animals (2019) WEB-DLRip
@@ -6,7 +183,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145507.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ Sandboxie 5.55.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145508.jpg" />
 </div>
 
 
@@ -54,7 +231,7 @@ VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145509.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145511.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ magnet:?xt=urn:btih:6DC4D57CB1C9930F8198BFE4B0284E7202953622
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145512.jpg" />
 </div>
 
 
@@ -130,7 +307,7 @@ magnet:?xt=urn:btih:8F8A3FCA54E9FE27FBF8992A870236C4746905CA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145513.jpg" />
 </div>
 
 
@@ -154,7 +331,7 @@ magnet:?xt=urn:btih:BB388E10A197DF6BF8B89D8EF9142FEAEEEB6F3D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145514.jpg" />
 </div>
 
 
@@ -178,7 +355,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145516.jpg" />
 </div>
 
 
@@ -202,7 +379,7 @@ Movavi Video Editor 15 Business 15.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145517.jpg" />
 </div>
 
 
@@ -226,7 +403,7 @@ New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145518.jpg" />
 </div>
 
 
@@ -251,7 +428,7 @@ DxO OpticsPro for Photos 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145520.jpg" />
 </div>
 
 
@@ -277,7 +454,7 @@ magnet:?xt=urn:btih:3CC4980023AC23283DD136B77044679E3C1A02F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145521.jpg" />
 </div>
 
 
@@ -301,7 +478,7 @@ magnet:?xt=urn:btih:160D65B170C120A545858F6E3B05D75F065A68A7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145522.jpg" />
 </div>
 
 
@@ -325,7 +502,7 @@ magnet:?xt=urn:btih:A1E24F385FD81CAA3AA2962AA46C26B16B358EAC
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145523.jpg" />
 </div>
 
 
@@ -349,7 +526,7 @@ magnet:?xt=urn:btih:359CACDEED0E4388E393DC8B5B1FB948E28964E5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145526.jpg" />
 </div>
 
 
@@ -373,7 +550,7 @@ magnet:?xt=urn:btih:D824A7997C0FCF1C561210C7EC91AA366E4AAD6E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145527.jpg" />
 </div>
 
 
@@ -397,7 +574,7 @@ magnet:?xt=urn:btih:0EB81880EFE2483845D21B2B4350135CA4B8314B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145528.jpg" />
 </div>
 
 
@@ -421,7 +598,7 @@ VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145529.jpg" />
 </div>
 
 
@@ -448,7 +625,7 @@ magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145530.jpg" />
 </div>
 
 
@@ -462,186 +639,6 @@ magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7AAEB3BC82A28B13CD4F360DF101E18E6887A1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435344   (145531) от 27.12.2020
-
-Не хочу жениться! (1993) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принципиальный холостяк, мастер пластических операций при довольно странных обстоятельствах знакомится с длинноносой милиционершей. Сделав ей операцию, он подобно Пигмалиону, сотворившему Галатею, влюбляется в прекрасное творение рук своих и заявляет: «Я хочу на тебе жениться!»...Производство: Россия / ОФРРоскомкиноЖанр: КомедияРежиссер: Сергей НиконенкоАктеры: Светлана Рябова, Евгений Леонов-Гладышев, Татьяна Догилева, Михаил Евдокимов, Сергей Никоненко, Светлана Суховей, Виктор Ильичев, Татьяна Кравченко, Ольга ВолковаСубтитры: ОтсутствуютПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD568947053BA216485929310356C9FD3415C8A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347938   (145534) от 26.12.2019
-
-Боевик / Action (2019) WEBRip [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается вокруг офицера индийской армии Субаша, который оказался вовлечён в расследование, пожалуй, самой громкой террористической атаки в истории страны. Некая подпольная организация подорвала бомбу прямо во время крупного политического выступления. В результате этого теракта погиб лидер нации и ещё один уважаемый политик, которому многие (   Читать дальше...   )Производство: Индия, Trident ArtsЖанр: боевикРежиссер: Сундар С.Актеры: Вишал, Таманна Бхатия, Айшварья Лекшми, Рамки, Йоги Бабу, Аканкша Пури, Шайя Сингх, Кабир, Sha Ra, Арав ЧоудхарриПеревод: Многоголосый любительскийСубтитры: отсутствуютПродолжительность: 02:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDED640FDD411D66D1A2B9F082FE9708F554FB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520027   (145535) от 26.12.2021
-
-VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo – drivers license (04:02)
-02. Olivia Rodrigo – good 4 u (02:58)
-03. Yuuri – Dried Flower (04:45)
-04. BTS – Dynamite (03:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9F4032A41F41A67AD1EA2FA90A21A948A53487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087349   (145536) от 27.12.2016
-
-Поезд в Пусан / Busanhaeng (2016) BDRip [H.264] [PR]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145536.jpg" />
-</div>
-
-
-###  Подробнее
-
-У маленькой Су-ан день рождения. Девочка живет с отцом в Сеуле и очень хочет отправиться к маме в Пусан. По дороге случается непредвиденное, и на страну обрушивается загадочный вирус. Пассажирам поезда в Пусан — единственного города, отразившего атаки вируса- придется бороться за выживание. 442 километра в пути. Добро пожаловать на борт и помните — в этой гонке недостаточно (   Читать дальше...   )Производство: Корея Южная / Next Entertainment WorldЖанр: боевик, триллер, ужасыРежиссер: Ён Сан-хоАктеры: Кон Ю, Ма Дон-сок, Чон Ю-ми, Ким Су-ан, Ким И-сон, Чхве У-щик, Ан Со-хи, Ким Чхан-хван, Чан Хёк-чин, Чон Сок-ёнПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7600E65413B481089779671211F279F0FFEE708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272107   (145537) от 26.12.2018
-
-VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NM - Interstellar Discovery (4:06)
-02. SynthOne - Electric Legend (5:39)
-03. Rama - Organix (5:13)
-04. Galaxy Hunter - Space Ship Two (One) (Instrumental) (5:35)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31774A27BFDC81338726C5686647AF06A4169C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664347   (145538) от 28.12.2015
-
-Before Their Eyes - 5 Альбомов (2007-2015) [FLAC|Lossless|tracks + .cue|WEB-DL|tracks]<Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s Dark Inside With You
-02. The Positive And The Negative Of Being Alone
-03. We Won’t Make The Same Mistake Again
-04. How It Feels To Be Defeated(   Читать дальше...   )Тип издания: ДискографияЖанр: Post-HardcoreПродолжительность: 02:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A73BF95B9FF9A1882905B3ECAA4A1B0769AC0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722209   (145539) от 27.12.2020
-
-Haruka Nakamura - 6 Albums (2007-2013) [OGG|~320 kbps]<Ambient, Acoustic, Electronic, Folktronica>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamp feat. Nujabes 06:40
-02. AURORA 03:31
-03. soar feat. Substantial 04:37
-04. days 01:53(   Читать дальше...   )Жанр: Modern Classic, AcousticПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA764556F3F059C348FF2B89B69E8AAC9EE7229
 ```
 
 

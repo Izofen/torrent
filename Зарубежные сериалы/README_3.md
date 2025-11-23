@@ -6,7 +6,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AFE9DFD84A1E57EE2097ADBD58E8C7A15C2FA2EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:816C1BBA4CC595F318D9E735DB47B2631DF3F795
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6FF3A813C19F9637050ACE039BB959D5E8AE9368
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2245.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:02E7A9B403CBBCE8451C595A6C55AD468C21AACA
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2251.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3E1345B536F42676C91689CA9B087FDC48C591E5
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2278.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3AA6C6F06CA52C2F208A73E2CA7434F40CDF0130
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2285.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BAD2C4D884FB075C4005B70C5BD01FE54AFE61BC
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2293.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:08A49343B3502B03F13A4B09276526041E20A690
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2312.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0A030AE9CF24BB570AEF9D826B713633B4001C74
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2316.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:211B69D6491CBC5C53C2AAD747D6446D493E11A4
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2333.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:0445DFC07A242580C7BAA192C1FBAADB9B0DD6AD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2339.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:732D8B0B492892FB65D039635F07A562796C5CA3
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2360.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:F654ADB0B32351FE4A34BB9970D3D1A51BFCC587
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2365.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:56CAE8FC72C8461D4966AB34867C702AC568FB4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2421.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:EBB123803997E33D7D5A31EC6C3CF1B7191636DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2442.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:D9913BB4848130AB9FABA4F9696197ABCEAFEE10
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2450.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D70E19156C1228BAD74FF227730FFC28928B8D24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2488.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:9BD538F9438614ACE0B0A8E7835CDC9B34F7389F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2542.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:15A30D78DF9A3596CEBDA1FCBF9DAB9922B558F5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2570.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:6D915AB44EC774837A243F507738EBDB01610727
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2575.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6E81168D96D87222600BDD7DEFC8A9F81484B52D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2661.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:558E3A351C955EA4E86F2703340FBE8559AA620A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2665.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:AA402F2CD3DFED7721374C87E427A5EB90A69E67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2670.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:C87168ABA022F85EEAAE25C21AA09AF923A6692E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2693.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:2400EA84000E8C0D02881546E37977A1E12B51DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2814.jpg" />
 </div>
 
 

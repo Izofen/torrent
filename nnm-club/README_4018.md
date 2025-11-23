@@ -1,3 +1,78 @@
+###  Публикация: 1690143   (124150) от 06.01.2024
+
+Побег из курятника 2 / Chicken Run: Dawn of the Nugget (2023) WEB-DL [H.265/2160p] [HDR10, Dolby Vision, Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, Франция / Aardman Animations, Netflix Animation, PatheЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллАктеры: Тандиве Ньютон, Закари Ливай, Белла Рэмзи, Имелда Стонтон, Линн Фергюсон, Дэвид Брэдли, Джейн Хоррокс, Рамеш Ранганатхан, Дэниэл Мейс, Джози Седжвик-ДэвисПеревод: Дублированный (Le Doyen / Netflix)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEEA2779D895588071237463D6350D58A4EB7F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690359   (124151) от 06.01.2024
+
+Ломая бесконечность / Breaking Infinity (2023) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиам — научный исследователь, который застрял во времени. По мере того, как его прыжки во времени становятся все более экстремальными, его направляет в будущее таинственный старик, где он становится свидетелем конца света, который он, возможно, вызвал.Производство: Великобритания / Elli Films, Mind Engagement Productions, Unfolding EntertainmentЖанр: Фантастика, триллерРежиссер: Марианна ДинАктеры: Джонни Филлипс, Нил Бишоп, Мартин Бишоп, Зед Джозеф, Симона Макинтайр, Зои Каннингэм, Марсия Лекки, Reece Culver, Tope Laguda, Alexis CaneПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:30Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4537DD2DFAF6E76524F91C55F179E96550AF6EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689917   (124152) от 05.01.2024
+
+Militia - Fiend of Misery (2010) Compilation [FLAC|Lossless|image + .cue] <Thrash, Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Awakening
+02.Fiend of Misery
+03.Blind Breeding the Blind
+04.Suspended Animation(   Читать дальше...   )Жанр: Thrash, Heavy, Power MetalПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69004F4D11C8DA9C57857D8192947ADC9F1361B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689871   (124153) от 05.01.2024
 
 Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +81,7 @@ Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124153.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Morning Dead - Desde el otro Lado (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124154.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Sun Of The Endless Night - Symbols Of Hate And Deceitful Faith (2019) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124155.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Enforced - War Remains (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crosso
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124156.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Whorehouse - Execution Of Humanity (2009) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124157.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Necrophthysis - Diminution of Flesh (2023) [FLAC|Lossless|WEB-DL|tracks] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124158.jpg" />
 </div>
 
 
@@ -168,7 +243,7 @@ Krabathor - Only Our Death Is Welcome (1992) [APE|Lossless|image + .cue] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124159.jpg" />
 </div>
 
 
@@ -195,7 +270,7 @@ Krabathor - Cool Mortification (1993) [FLAC|Lossless|image + .cue] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124160.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:EAC1B9210E8E805DA217070A683E98B82C772AA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124161.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:8D6BE33AA8E9045737CAEC6B14D383B715DF1F2E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124162.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:FA68BE2E681540303560631E00E5038E70B8568B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124163.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Markus Schulz - Global DJ Broadcast New Year's Rehab (2024-01-04) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124164.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:550E7C0309C4EF9E9C526C3B03F9809FB55F5DE2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124165.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ VA - Redux Selection Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124166.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:59B4F7FC4435DC4C64C9EC78A38D6AC04A3FDEE2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124167.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ VA - Silent Shore Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124168.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:D7901A99D5751B5C7D36B7B8DD9ED870F3B4E650
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124169.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ VA - Armin van Buuren - A State Of Trance 1154 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124170.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:A167BB9887651A7F03AF0C5AD4F269EDC0B7D308
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124171.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ VA - Levitated Trance - Highlights 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124172.jpg" />
 </div>
 
 
@@ -525,7 +600,7 @@ Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124173.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ magnet:?xt=urn:btih:230F31EEA653B6C7E057635B89412BB6317D51C3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124174.jpg" />
 </div>
 
 
@@ -577,7 +652,7 @@ magnet:?xt=urn:btih:625EF06785E6B9DDD807E7B6F17C2048D7001302
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124175.jpg" />
 </div>
 
 
@@ -591,82 +666,6 @@ magnet:?xt=urn:btih:625EF06785E6B9DDD807E7B6F17C2048D7001302
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:497474E30B24357498D0CA387ABBDE3509C6BB76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690047   (124176) от 05.01.2024
-
-Клементина Бове | Королевишны #3колбаски (2021) [MP3, Полина Айрапетова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирей два года подряд выигрывает в своём лицее титул королевы-страхолюдины — «Золотой Колбасы». А на третий год получает лишь бронзу — приятное поражение! Кто же победительницы? Это Хакима и Астрид — Серебряная и Золотая Колбасы соответственно. Но выясняется, что их объединяет нечто большее, чем лишний вес. Нечто такое, ради чего нужно непременно оказаться в Париже (   Читать дальше...   )Жанр: книги для подростков, юмористическая прозаПеревод: Тимофей ПетуховИздательство: СамокатПродолжительность: 06:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B5EC7F4BBDAC647044316EFDF8580767FED44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689869   (124177) от 05.01.2024
-
-Центр Православного просвещения | Пагубное единомыслие (1997) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй выпуск серии “О Духовном рассуждении” посвящен современным попыткам заключения уний между Православной Церковью и латинской (католической), а также между Православной Церковью и монофизитскими (ориентальными) церквями. Подготовка этих уний ведется уже много лет в рамках общего экуменического процесса.
-В состав выпуска включены конкретные документы — проекты (   Читать дальше...   )Жанр: ПравославиеИздательство: Центр Православного просвещенияФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB33D359857B7ABC07FCBEACC767B3D3829F028F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690152   (124178) от 05.01.2024
-
-Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Through Fire and Flame
-02 - Catharsis
-03 - Ghost
-04 - Beyond(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
 ```
 
 

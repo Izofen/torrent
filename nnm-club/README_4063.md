@@ -1,3 +1,78 @@
+###  Публикация: 1688139   (125320) от 28.12.2023
+
+Хильда / Hilda (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) BTI Studios
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители планеты даже не догадываются, кто живет рядом с ними. Любознательная девочка Хильда умеет находить себе приключения. Каждый день для нее наполнен интересными и загадочными событиями. Её можно назвать смелой, ведь Хильда не боится встретиться со странными созданиями - такими как тролли, древесные люди и великаны.Производство: Великобритания, Канада, США / Mercury Filmworks, Silvergate MediaЖанр: рисованная анимация, приключения, комедия, фэнтезиРежиссер: Энди КойлАктеры: Белла Рэмзи, Амира Фалзон-Оджо, Оливер Нельсон, Дэйзи Хаггард, Расмус Хардайкер, Нина Сосанья, Клер Скиннер, Дэвид Менкин, Каиса Хаммарлунд, Саймон ГриноллПеревод: Дублированный (BTI Studios)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), Английские, Голандские, etc.Продолжительность: серии по ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C04CC1CE0B1ACF5A6573E4533CE96C2C6089AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688162   (125321) от 28.12.2023
+
+Юлия Яковлева | Вдруг охотник выбегает (2023) [MP3, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленинград, 1930 год. Следствие ведет Василий Зайцев. Сотрудник ЛенУгРо Василий Зайцев молод, хорош собой и имеет самое пролетарское происхождение. Бывший беспризорник, воспитанный в детском доме, он считает, что всем в своей жизни обязан советской власти. А между тем в городе вовсю раскручивается маховик террора — уже строится новый штаб для ОГПУ-НКВД, повсюду идут (   Читать дальше...   )Жанр: детектив, триллерИздательство: ВИМБОПродолжительность: 09:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812F17A0A24BDDA608FA35265A5380764D6E17F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687950   (125322) от 28.12.2023
+
+Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeless Light
+02. Sunlight Rain River
+03. Circle Within
+04. The Dance of Rain Declares the Sun(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88278A7544925CC7D710C16A620C3B515F89748B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562480   (125323) от 28.12.2023
 
 Александр Борисович Раскин | Как папа был маленьким (2016) [MP3, Юрий Стоянов]
@@ -6,7 +81,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125323.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:FAF043FDB5837622EEE2C0EDD1A4DFA92A69A2C9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125324.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:73AAD8B6504526D4CC0D28A1942DC7DADC54AAC0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125325.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:D5D30C3C90E7F0C3EB139E5C13546F7010A84001
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125326.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ VA - Monster Tunes Year Mix 2023 (Mixed by Madwave) (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125327.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ magnet:?xt=urn:btih:6D80E19A05DAFEA6EEA2811029AF4BA666F6A1EF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125328.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:67EB7FAD7F379404619BEAA85EBCD65CCD307F57
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125329.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ Comodo Dragon 120.0.6099.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125330.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125331.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:01ECE1E23F89B7E06AC7030A4F58B9F1BFF66B81
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125332.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ HopToDesk 1.41.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125333.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ magnet:?xt=urn:btih:657782F12B5B691465F77E6A783F4DEC4C45C096
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125334.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:EE06272EED5D69189E29D1A48A4EDE3F442288B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125335.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:CD3888699AF0DFD3E821B928519416C6CEEDF471
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125336.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ magnet:?xt=urn:btih:B31E98602BBCC56BFDEBC60605DB1444FCDE7AF9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125337.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ magnet:?xt=urn:btih:7A052AD65502AEF6EFC82A8229C25B9A406BBE86
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125338.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ magnet:?xt=urn:btih:EDB86501A6E462BEB2194B4BEAD5AC463BA879DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125339.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ VA - 101 80s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125340.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ SRWare Iron 120.0.6100.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125341.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:0C27557825219F1E725291BD036B010D44AE7DF1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125342.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ magnet:?xt=urn:btih:D9232AAC99A4604DC3E096223ABB6004F7270853
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125343.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125344.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125345.jpg" />
 </div>
 
 
@@ -556,81 +631,6 @@ magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25ADBE2E444EB062023633B8B8539412B0818E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570038   (125346) от 28.12.2023
-
-Антон Нелихов, Алексей Иванов | История Земли. От звёздной пыли к звёздной пыли (2020) [MP3, Владимир Левашев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательная книга о жизни и приключениях нашей планеты. Сейчас Земля прожила больше половины своей жизни, за этот период происходили невероятные события: на неё сыпался метеорный дождь, она замерзала, а, самое главное, на ней зародилась жизнь.Жанр: астрономия, детская познавательная и развивающая литература, естествознание, научно-популярная литератураПродолжительность: 02:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708C299932ADD5FCEECE173A9F6C8C9CEC31B8F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688261   (125347) от 28.12.2023
-
-Dara - Berezhno (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Breaks, Ambient, IDM, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Sun (feat. AYAPACHA, Masha Anisimova)
-02. Nad Goroy (feat. Polotentse)
-03. Volnami (feat. Polotentse, Masha Anisimova)
-04. Vo Lesochku (feat. Masha Anisimova)(   Читать дальше...   )Жанр: Drum & Bass, Breaks, Ambient, IDM, ElectronicПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1C872D3460246DD7BEDE8C9BB5DD5C6B8614E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683660   (125348) от 28.12.2023
-
-Сумерки / Nightfall (1956) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрые дела часто наказуемы. Отдыхали в Вайоминге врач Эдвард Герстон (Фрэнк Албертсон) и художник Арт Рэйберн (Альдо Рей), помогли двоим незнакомцам. Их машина слетела в кювет. Один добрый человек убит, второго преследуют бандиты, полиция, страховая компания. На кону – жизнь и 350 тысяч долларов. Помогает случайная знакомая, манекенщица Мари (Энн Бэнкрофт) и кое-кто (   Читать дальше...   )Производство: США / Copa ProductionsЖанр: фильм-нуар, триллер, драма, мелодрама, криминалРежиссер: Жак ТурнёрАктеры: Альдо Рэй, Брайан Кит, Энн Бэнкрофт, Жослин Брандо, Джеймс Грегори, Фрэнк Альбертсон, Руди Бонд, Арлин Андерсон, Монти Эш, Мария БельмарПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6402E2881BD21AC60B7F3664D1301D5E4E9C356
 ```
 
 

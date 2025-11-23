@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2952.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B2FF7EFCBB0D539142A902853D33E426817B8499
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2953.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:213D7977A9D18DF9567339FC6920C5D4E35F262F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2954.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C4CEF209B375F5118D6D2ABC7D9A1EC744DB2482
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2955.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F750F2F820BB78DFAAC83EE288EB61B5F37C4EC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2956.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DFCE9F0A67AFBA078F201CF8EB44F1E22818CC12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2957.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:38CE4CE360D7313470F3B7EF1727710DA983F7BD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2958.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:53BDF9762A4640739DBC64E1B454B306D6913457
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2959.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:63590260223CB1393D6250C681A62FB11C65272D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2960.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:1DF9E3389942D7616A7352E7D8D35DF0F78FCBF2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2961.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:2AFCE6BA0178403E4F04B3DF02F5CEA40A9C28FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2962.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1A56AA5C2BF031173396E6919565E9F46658C7CC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2963.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Gorillaz - The Happy Dictator (feat. Sparks) (2025) Single [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2964.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:89564048FF5DD8A4BC49582C9B592FA432097EBC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2965.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:AF54023A8E661A339A8C424AF3928FA68A8264EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2966.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:3C9F3F30983F5D546E6168A8FCA6BA3279B7EFE4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2967.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:4D84B0C1A98C8052D42BD394AEED96958778B7CF
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2968.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:FB5E4E8DCBD16B94684B635EE687C342EBF18698
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2969.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:0DEE313F55C43F7C2CD5D07F111A7559A526D67F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2970.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Whispered Secrets 17: Poisoner's Masquerade (2025) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2971.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:3AFEDB4D0EF71A40EE5432D9CBCC1658E1BDD31F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2972.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ AndroVid Pro Video Editor v7.0.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2973.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B818E3F26505445DAD399257193C32962FCD3492
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2974.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:713A9D80F7793F1836A6ACA7F3B373BDB3120837
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2975.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C6BC84400866B7779330965787C58289162B76FA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2976.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Heavy Metal Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2977.jpg" />
 </div>
 
 

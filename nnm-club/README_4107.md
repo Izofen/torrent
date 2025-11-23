@@ -1,3 +1,81 @@
+###  Публикация: 1686690   (126469) от 23.12.2023
+
+Джером К. Джером | Наброски синим, зелёным и серым (2014) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Другие названия: Наброски в трёх цветах; Очерки синим, серым и зелёным; Этюды в холодных тонах. В своем сборнике рассказов «Наброски синим, зелёным и серым» писатель, как и во всех своих произведениях, блистательно и интеллигентно поднимет Ваше настроение, заставив от души посмеяться.
+Переводчик (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, рассказИздательство: МедиаКнигаПродолжительность: 06:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76460BD0E48BFD5F6153A53F6FFD91D83D808D3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686633   (126470) от 23.12.2023
+
+Живая еда с Сергеем Малозёмовым (23.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магия топленых продуктов: что придает им кремовый цвет и карамельный вкус, есть ли в них чудо-польза, можно ли приготовить топленое молоко дома — в мультиварке и термосе, где готовят сырники из топленого молока, что такое костромской варенец и чем индийское масло гхи отличается от обычного топленого.
+ Витаминизированная еда: зачем в нее добавляют витамины, и что это (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2892950D8F433B91D8EC5C01EB8CFACF636C6B69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686541   (126471) от 23.12.2023
+
+Elysian Fields - Femmes, Family and Mars (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Onward to Mars (00:03:47)
+02 - Angie (00:03:25)
+03 - Thoughts of Mom a Memory Transformed (00:03:01)
+04 - Lea (00:04:07)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F21EB069911E968781A957B86EE519C8644679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686524   (126472) от 23.12.2023
 
 Blank & Jones - Chilltronica EP 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
@@ -6,7 +84,7 @@ Blank & Jones - Chilltronica EP 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126472.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:DD47A3A2534AFBDFAACF7B71DC026D538925BFDC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126473.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:DE9E8AD28801AAE14C8350DD8DB6172EE81ED2EB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126474.jpg" />
 </div>
 
 
@@ -82,7 +160,7 @@ magnet:?xt=urn:btih:DFF65EE110FB54066202859668EE09E17B29B5FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126475.jpg" />
 </div>
 
 
@@ -106,7 +184,7 @@ Opera Crypto Browser 106.0.4998.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126476.jpg" />
 </div>
 
 
@@ -131,7 +209,7 @@ Infected Mushroom - Dream Theater REBORN (2023) Single [FLAC|Lossless|WEB-DL|tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126477.jpg" />
 </div>
 
 
@@ -155,7 +233,7 @@ magnet:?xt=urn:btih:43696CB31DED71BF786734263F188561DC71A010
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126478.jpg" />
 </div>
 
 
@@ -179,7 +257,7 @@ Duolingo: изучай языки 5.132.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126479.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ Opera One 106.0.4998.19 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126480.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ magnet:?xt=urn:btih:5333DB0B3FD49FAB9A2ACEE31562B7D6C3EF2532
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126481.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ Reface v4.1.0 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126482.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ magnet:?xt=urn:btih:7864B694DE49BB6E884DA5908D2E6B6C099C11C1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126483.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ magnet:?xt=urn:btih:F61936FDBEC8E70C7F51473F3B420893BB9F861E
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126484.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ Smart Launcher 6.4 build 004 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126485.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ magnet:?xt=urn:btih:E1EBAB5167F9250E75BEFDED03E08417ED523BEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126486.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ magnet:?xt=urn:btih:F49B1CC841E3B316D623B52547101F908D306FF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126487.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126488.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ magnet:?xt=urn:btih:BC7966991B2BF2891E9F71BC407E711EB1CE8CB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126489.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ magnet:?xt=urn:btih:AEF27FD4A24334404A9A2C411F7EF8EA8D6D3571
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126490.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.6.8 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126491.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ magnet:?xt=urn:btih:466E3DB519F008261CCF96F45658706E05AF45F1
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126492.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ magnet:?xt=urn:btih:8CB83B7B22B4120F09C4668ADA8755489BB43C37
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126493.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ Berzerker Legion - Chaos will Reign (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126494.jpg" />
 </div>
 
 
@@ -562,79 +640,6 @@ Berzerker Legion - Chaos will Reign (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE4270320B7DB0F5354419DAF378A7B73C84C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686483   (126495) от 23.12.2023
-
-Год, когда мои родители уехали в отпуск / O ano em que meus pais sairam de ferias / The Year My Parents Went on Vacation (2006) DVD9 [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта ядовитая и забавная история взросления, действие которое происходит в 1970-м году, бросает двенадцатилетнего Мауро в водоворот политического и личного бунта. Когда его родители, левые активисты, вынуждены уйти в подполье, Мауро остается на попечении соседки и еврейского дедушки в Сан-Паоло.
-Вдруг оказавшись в ссылке в собственной стране, он вынужден создавать (   Читать дальше...   )Производство: Бразилия / Caos Produções Cinematográficas, Globo Filmes, Gullane FilmesЖанр: драмаРежиссер: Као ГамбургерАктеры: Мишель Жуэлсаш, Германо Хают, Паулу Аутран, Симоне Споладоре, Эдуардо Морейра, Кайу Блат, Даниэла Пепшик, Лилиана Кастро, Родриго дос Сантос, Фелипе Ханна БраунПеревод: многоголосый профессиональныйЯзык озвучки: русский, португальскийСубтитры: португальские, английские, испанскиеПродолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1BCF0297B57B69ED94A461D0A44EE205D79B59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686529   (126496) от 23.12.2023
-
-DiskDigger 1.103.167.3571 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126496.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D32FD3118A621A748D7C27C709A2566CC99B2A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686645   (126497) от 23.12.2023
-
-Меч короля / Bastarden / The Promised Land (2023) HDRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датский король отправляет своего лучшего рыцаря обуздать дикие земли, покуда простирается его длань. Но здесь, за стенами высоких замков, свои законы. Местные князья не спешат подчиняться королевскому наместнику. Они сами решают, кто будет возделывать их земли, а кто упокоится в них навсегда. Конфликт усугубляет прекрасная дева, обещанная отцом местному феодалу. (   Читать дальше...   )Производство: Дания, Швеция, Норвегия, Германия / Zentropa Entertainments, Zentropa International Berlin, Zentropa International SwedenЖанр: драма, биография, историяРежиссер: Николай АрсельАктеры: Мадс Миккельсен, Аманда Коллин, Густав Линд, Кристин Куят Торп, Якоб Ульрик Ломанн, Мортен Хи Андерсен, Сёрен Маллинг, Магнус Креппер, Томас В. Габриэльссон, Феликс Крамер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:13Реклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-нет
 ```
 
 

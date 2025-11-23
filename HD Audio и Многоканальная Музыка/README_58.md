@@ -6,7 +6,7 @@ Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65980.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65981.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65982.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65984.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66006.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66008.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66018.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66027.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brewer's Droop - The Booze Brothers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66029.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66045.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Neil Young - Talkin to the Trees (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66057.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:44F0E8F95140B65D35A7B3202BE7947AEA5598B7
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66062.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Deadcode - Nothing And Nowhere (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66063.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Greye - VII (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66064.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ North Mississippi Allstars - Still Shakin' (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66065.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ SM Society - Conster(nation) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66068.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66069.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66071.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66072.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66078.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66084.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66085.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66088.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Inglorious - V (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66089.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Gasoline Lollipops - Kill The Architect (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66090.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Dustin Douglas & the Electric Gentlemen - IV (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66092.jpg" />
 </div>
 
 

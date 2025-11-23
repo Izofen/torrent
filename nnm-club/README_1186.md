@@ -6,7 +6,7 @@ YT Downloader 9.11.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B27B3042F3523FCB2880B757F2A604ECAD42C657
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31190.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31190.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1C1F685A830501ECCF48212737A6B7D46999D95E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31191.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31191.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31192.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31192.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31193.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31193.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31194.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31194.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:ADA9D972DB79E4A0CC445251B6B37ED6A4D11C67
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31195.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31195.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PrivaZer Pro 4.0.97 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31196.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:07DC3F3E3F3AAF7A243ED721D72C151167257700
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31197.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31197.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31198.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31198.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Tremonti (Creed, Alter Bridge) - Studio Albums (6 releases) (2012-2025) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31199.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AFF115C64D6E8BE7803DF7B4F9AE91766861C727
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31200.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rosetta Stone: Изучение языков 8.30.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31201.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:84714F452B6C8AFCC405E58DA351C73D08127983
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31202.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5AAD1025E5E15CC445575786DF71C6281A36F3AE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31203.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31203.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:DEF61F3C47F119CA3DE029DCCA37383769349C24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31204.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31205.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31205.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31206.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:08B0679E2931A556BD08099E8F7CFDEAB0A05892
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31207.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31207.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31208.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31208.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31209.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31209.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ v2rayN 7.5.6 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31210.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:CEB1EAA8242861C00DDFB835353FBD9E639E7237
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31211.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31212.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31213.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31213.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31214.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31214.jpg" />
 </div>
 
 

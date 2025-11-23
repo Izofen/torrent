@@ -1,3 +1,148 @@
+###  Публикация: 1678862   (141237) от 23.11.2023
+
+JUG Ru Group | PiterPy 2023. Конференция для тех, кто пишет на Python и использует его в работе (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики, дата-инженеры, дата-аналитики, ML-инженеры, тестировщики и тимлиды обсуждали новые подходы в работе на Python и экосистему вокруг него. Участники конференции дискутировали о производительности, управлении зависимостями, новых инструментах и фреймворках. Кроме технических докладов в программе были дискуссии, интервью и воркшопы.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 32:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03790CA8ADB7C5CB9ECAD41AF6958DA12F0FB261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970513   (141238) от 30.12.2015
+
+Светлана Шумовская | Невеста на три дня (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать девушке, когда у нее проснулась магия, в мире, где таких, как она, уничтожают? Конечно же любыми способами прятать ото всех свои способности. А если о них узнал тот, чья задача состоит как раз в том, чтобы находить таких, как она? Бежать без оглядки — скажете вы. Но если, вместо того чтобы взять ее под стражу, он предлагает свою помощь? Но не просто так, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899614B171EF153F048CCC0504E3D875D20089A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520426   (141239) от 28.12.2021
+
+Подводный дом / The Deep House (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141239.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой и современной пары, которая отправляется во Францию, чтобы исследовать подводный дом и поделиться своими находками в социальных сетях, серьезно меняются планы, когда они попадают внутрь странного дома, расположенного на дне моря. Их присутствие пробуждает темный дух, который преследует дом.Производство: Франция, Бельгия / Radar Films, Logical Pictures, Apollo FilmsЖанр: Ужасы, триллерРежиссер: Александр Бустильо, Жюльен МориАктеры: Камилль Роу, Джеймс Джаггер, Эрик Савен, Каролина МассеПеревод: Дублированный  (iTunes) SDI MediaЯзык озвучки: Русский, АнглийскийСубтитры: Русские (full, SDH), Английские (hardsub, full, SDH) все отдельными файламиПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73C2A806CE04A0DC91B6B5C19862551061B7891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376972   (141240) от 23.11.2023
+
+Мигель де Сервантес Сааведра | Дон Кихот (2006) [MP3, Ростислав Плятт и Александр Калягин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141240.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дон Кихот» – величайший роман эпохи Возрождения, переведенный почти на сотню языков и волнующий умы вот уже более четырех веков. Трагикомическая эпопея Мигеля де Сервантеса о безумном рыцаре, не боявшемся показаться смешным в своем утопическом стремлении сделать мир лучше, о надежде и отчаянии, мудрости и сумасбродстве, величии и убожестве.
+В этой аудиокниге ветряные (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПродолжительность: 02:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3980A40A82696BC316DB6190CECF9E79DF0BFE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435890   (141241) от 29.12.2020
+
+Растровый клипарт - Adorable girls in sexy lingerie stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательные девушки в сексуальном нижнем белье, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-6912x5184
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E712592B8B701624E0843CC7D7DD5EE58A06B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088355   (141242) от 30.12.2016
+
+Нина Павлова | Щепочка и камешек (1961) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для детей дошкольного возраста Павловой Нины Михайловны с иллюстрациями Нецкой Елены Иосифовны.Жанр: Детская проза, СказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35580ADC5366E08329E9023B608FB7F05EC4F5C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590539   (141243) от 17.12.2012
 
 Агент 117 / OSS 117: Le Caire nid d'espions (2006) BDRip
@@ -6,7 +151,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141243.jpg" />
 </div>
 
 
@@ -31,7 +176,7 @@ magnet:?xt=urn:btih:E14F81749EB8DECFA472908FF93F58D3C89A1E4D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141244.jpg" />
 </div>
 
 
@@ -55,7 +200,7 @@ magnet:?xt=urn:btih:048BDE20EA386400CAD566B59506C14B40D91816
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141247.jpg" />
 </div>
 
 
@@ -79,7 +224,7 @@ Alexis Opsokopolos | В шоке (2019) [MP3]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141248.jpg" />
 </div>
 
 
@@ -103,7 +248,7 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141251.jpg" />
 </div>
 
 
@@ -130,7 +275,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141252.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ OCCT 7.2.3 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141253.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ PDF-XChange Editor Plus 10.1.3.383 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141254.jpg" />
 </div>
 
 
@@ -202,7 +347,7 @@ Playboy. Девушка с обложки (2012.12.16) SATRip
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141255.jpg" />
 </div>
 
 
@@ -226,7 +371,7 @@ VA - Clubbing Culture Mixed Compilation (DJ WAD) (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141256.jpg" />
 </div>
 
 
@@ -253,7 +398,7 @@ magnet:?xt=urn:btih:0E41A56700EE3790368E8DFFBBBCB94EC95F75C6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141257.jpg" />
 </div>
 
 
@@ -278,7 +423,7 @@ magnet:?xt=urn:btih:2BD5F5FD2FB02170660B42EB79E709F3660F891A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141258.jpg" />
 </div>
 
 
@@ -303,7 +448,7 @@ magnet:?xt=urn:btih:8937AE94C80E148F947794652C5CB4BC4438CFEC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141259.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ magnet:?xt=urn:btih:F1716A856DA0FE302BB0EA17EFEA833BC225A975
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141260.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ magnet:?xt=urn:btih:F1716A856DA0FE302BB0EA17EFEA833BC225A975
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141262.jpg" />
 </div>
 
 
@@ -375,7 +520,7 @@ magnet:?xt=urn:btih:C1FFE53110EECE9336DAC0242F689324620230A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141264.jpg" />
 </div>
 
 
@@ -399,7 +544,7 @@ Kim Salmon & Spencer P. Jones - Runaways (2013) [FLAC|Lossless|tracks] <Rock, Sw
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141266.jpg" />
 </div>
 
 
@@ -426,7 +571,7 @@ magnet:?xt=urn:btih:0705BCB55967ACE4802F9E47FBBF6AAEB00F7E5F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141267.jpg" />
 </div>
 
 
@@ -450,7 +595,7 @@ magnet:?xt=urn:btih:6E769092C8FA1862E498912A92B1FE54327ADABF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141268.jpg" />
 </div>
 
 
@@ -477,7 +622,7 @@ magnet:?xt=urn:btih:F38C630B2D20F16558422FDFD8FF5B90E2FA1F3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141269.jpg" />
 </div>
 
 
@@ -488,153 +633,6 @@ magnet:?xt=urn:btih:F38C630B2D20F16558422FDFD8FF5B90E2FA1F3B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88700591B5F544C6583A577E645F9EA7F2680A66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348803   (141270) от 29.12.2019
-
-VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
-002. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-003. Billie Eilish - bad guy 3:14
-004. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F3027EB2E022334ADFEA4FB75EDC41092190DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520158   (141271) от 28.12.2021
-
-Нули и единицы / Zeros and Ones (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский солдат, дислоцированный в Риме во время взрыва Ватикана, отправляется в героическое путешествие, чтобы найти неизвестного врага, угрожающего всему миру.Производство: Германия, США, Великобритания, Италия / Maze Pictures, Hammerstone Studios, Rimsky ProductionsЖанр: Триллер, боевикРежиссер: Абель ФеррараАктеры: Итан Хоук, Кристина Кириак, Фил Нилсон, Валерио Мастандреа, Валерия Корреале, Дуня Сычева, Бабак Карими, Корлан Мади, Сальваторе Руокко, Анна ФеррараПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6285412A638CDCE6F1E2D3E4E50502063136BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970404   (141273) от 30.12.2015
-
-Карл Густав Юнг | Символы трансформации (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основополагающий труд швейцарского психолога и мыслителя К.Г. Юнга «Символы трансформации», написанный на этапе расхождения с Фрейдом, знаменует собой перелом в психоанализе и появление принципиально новой позиции в глубинной психологии, получившей впоследствии название аналитической психологии.Жанр: ПсихологияПеревод: В. В. ЗеленскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF174EFEA9C776775D5F44D07581CB774414569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195521   (141275) от 29.12.2017
-
-AIMP 4.50 Build 2058 Final RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141275.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8AA8B2BBF64816486BA2EFACE4C3C6AA2A2FC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272729   (141276) от 29.12.2018
-
-Журнал | InfoCity №12 (134) декабрь 2018) [PDF] [Ru,Az]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141276.jpg" />
-</div>
-
-
-###  Подробнее
-
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438E5CBBC6CE73F8BFFA51108CE44C7E39B95EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678975   (141277) от 23.11.2023
-
-Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.0) Repack dixen18
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Knights of Honor 2: Sovereign – стратегия в реальном времени про Европу средних веков. Политические интриги, влияние веры, масштабные войны и многое другое. Здесь игрок должен стать королем одного из доступных народов. Каждая нация обладает своими особенностями, одновременно упрощающими игру и дающими новые испытания.Тип издания: RepackРазработчик: Black Sea GamesЖанр: Симулятор, Стратегия, ИсторическаяЯзык озвучки: Английский, Немецкий, Французский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2013CB94011E497A73044E0E74D7C13B67C2AFD
 ```
 
 

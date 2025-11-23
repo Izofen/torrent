@@ -1,3 +1,78 @@
+###  Публикация: 1689195   (124930) от 31.12.2023
+
+Дон Жуан де Марко / Don Juan DeMarco (1995) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая мелодрама о взаимоотношениях стареющего врача-психиатра и его молодого пациента, который искренне считает себя Дон Жуаном. Дружба, возникшая между героями фильма помогает вернуть врачу утраченную молодость духа, свежесть чувств и способность мечтать.
+
+Помешательство его подопечного окажется не чем иным, как исключительным отношением к женщинам, удивительной (   Читать дальше...   )Производство: США / American Zoetrope, Juno Pix, New Line Cinema, Outlaw ProductionsЖанр: драма, мелодрама, комедияРежиссер: Джереми ЛевенАктеры: Марлон Брандо, Джонни Депп, Фэй Данауэй, Жеральдин Пайя, Боб Диши, Рэйчел Тикотин, Талиса Сото, Марита Герати, Ричард С. Сарафьян, Тереза ХьюзПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB125F4D86DAC379B082B293478AFFFA780230F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689105   (124931) от 31.12.2023
+
+Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини кафе-террасы [ТВ-1] [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поссорившись с бабушкой, Хаято Кусакабэ покинул дом и уехал учиться. Прошло три года. Бабушка умерла и оставила ему в наследство своё кафе. По возвращении он находит в родном доме пятерых незнакомок.
+© crunchyrollПроизводство: студия Tezuka Productions / 手塚プロダクションЖанр: комедия, романтика, повседневность, эттиРежиссер: Кувабара СатосиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll, RikuSempai)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688974   (124932) от 31.12.2023
+
+Герой / Ying xiong / Hero (2002) BDRip [Director's Cut] [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124932.jpg" />
+</div>
+
+
+###  Подробнее
+
+III в. до н. э. Ван (царь) Цинь Шихуан завоевывает соседние царства, «собирая земли» Поднебесной воедино. Опасаясь убийц, подосланных враждебными царствами, Шихуан не подпускает к себе никого ближе 20 шагов. Но вот во дворце появляется герой без имени, и ему оказана честь подойти ближе прочих. Он ее заслужил, устранив трех самых опасных убийц, поклявшихся добыть (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New Picture Film, China Film Co-Production, EDKO Film Ltd.Жанр: фэнтези, боевик, драма, детективРежиссер: Чжан ИмоуАктеры: Джет Ли, Тони Люн Чу-вай, Мэгги Чун, Чжан Цзыи, Донни Йен, Чэнь Даомин, Лю Чжунъюань, Чжэн Тяньюн, Цинь ЯньПеревод: Авторский (Евгений Солодухин (Solod))Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C3F50D275B081F05B2BBF863ABFF1B76DD1921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646461   (124933) от 31.12.2023
 
 Расследование сестры Бонифации / Sister Boniface Mysteries (2023) WEBRip (сезон 2, серии 1-10 из 10) ViruseProject
@@ -6,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124933.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:2DD66C66D781156EB5267E8A4E50CD13F606ADB6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124935.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ magnet:?xt=urn:btih:5675C37B144C59418C452865D0EE5F65C0843C97
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124936.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ Oriental Dynasty - Silk Road defense war (2023) [Ru/Multi] (2.6.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124937.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Udemy, Norbert B. Menyhart | 30+ React Projects, Learn React JS by Building 30+ 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124938.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:533AA610137E3BEA239D9BC321C08CF6C6C37BD6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124939.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:06F83BA302EE0FD462E0E52EE8179C592DFCCF3F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124940.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Ashampoo WinOptimizer 26.00.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124941.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:B5F80FA66CA265D8A9994EF9CCD4E8D9E6A1EEE7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124942.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:FE7AA51DAC71A7EEBE8FF4249D94251C6E042E64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124943.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:93CEFEC7B24611C9B1EEE2A929395A068362F208
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124944.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ SMD pro, Андрей Нифедов | Пишем трек с нуля. Виде
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124945.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124946.jpg" />
 </div>
 
 
@@ -350,7 +425,7 @@ Udemy, Marat Zhman | React Animation Project SCSS (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124947.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ Stellar Warfare (2021) [En] (29112023) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124948.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:35C3B9635B21B016A2E9DCE2C9B69C2D9D4E1BA4
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124949.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Udemy, Manik (Cloudaffle) | TypeScript Design Patterns And SOLID Principles (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124950.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ Tiny Scan: PDF Document Scanner 6.1.2 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124951.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ Udemy, Neil Cummings | Build a Microservices app with .Net and NextJS from scrat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124952.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124953.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124953.jpg" />
 </div>
 
 
@@ -522,7 +597,7 @@ magnet:?xt=urn:btih:50B1F8945FA794AC8B3F5F92FE9AB530E6634D1D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124954.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124954.jpg" />
 </div>
 
 
@@ -546,7 +621,7 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124955.jpg" />
 </div>
 
 
@@ -557,78 +632,6 @@ BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F11C5BB2BEA292CF544C01A6E1464EDA21A7872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689247   (124956) от 31.12.2023
-
-Довбуш / Dovbush (2023) HDRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о народном повстанце Олексе Довбуше, его жизненном пути, любви и борьбе за свободу на Карпатах.Производство: Украина / Pronto film, Film.uaЖанр: Приключения, историческийРежиссер: Олесь СанинАктеры: Сергей Стрельников, Алексей Гнатковский, Дарья Плахтий, Матеуш Косьцюкевич, Агата Бузек, Роман Ясиновский, Ростислав ДержипильскийПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689235   (124957) от 31.12.2023
-
-Довбуш / Dovbush (2023) BDRip [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о народном повстанце Олексе Довбуше, его жизненном пути, любви и борьбе за свободу на Карпатах.Производство: Украина / Pronto film, Film.uaЖанр: Приключения, историческийРежиссер: Олесь СанинАктеры: Сергей Стрельников, Алексей Гнатковский, Дарья Плахтий, Матеуш Косьцюкевич, Агата Бузек, Роман Ясиновский, Ростислав ДержипильскийПеревод: Многоголосый любительский (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689160   (124958) от 31.12.2023
-
-Уральские пельмени. Запасной мандарин (2023.12.31) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB62C90AA9D1F08CE30A8FAE0DB335E68351C4E4
 ```
 
 

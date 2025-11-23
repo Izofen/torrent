@@ -6,7 +6,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19202.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0.171) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19207.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19476.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wartales (2021) [Ru/Multi] (1.0.41212/dlc) Repack FitGirl [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19486.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19593.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19616.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19645.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19675.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19719.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19721.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6805605/dlc) Repack Let'sРlay [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19740.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19741.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19812.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19812.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19827.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19889.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19907.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19907.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_19984.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Travelers Refrain (2025) [En] (04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20002.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20005.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.b314.r63560/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20009.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20014.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hero's Hour (2022) [Ru/Multi] (2.8.1b/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20030.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20031.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20139.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20139.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20178.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20178.jpg" />
 </div>
 
 

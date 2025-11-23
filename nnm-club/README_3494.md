@@ -1,3 +1,77 @@
+###  Публикация: 1719774   (110526) от 30.04.2024
+
+Журнал | Квантик №2 (февраль 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110526.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF7EA43B0E751ABD96C836F1094D43F05C4AA35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719776   (110527) от 30.04.2024
+
+Журнал | Квантик №3 (март 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110527.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0468220E3C85EFC2BB933CEB3E8BD44E235E7796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719649   (110528) от 30.04.2024
+
+О. Ф. Кабардин | Физика. Учебник для 7 класса (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый учебник — один из основных элементов предметной линии УМК «Архимед» по физике. Материал учебника предполагает изучение всех тем курса физики на уровне ознакомления с физическими явлениями, формирования основных физических понятий, определения физических величин, приобретения умения измерять физические величины, применения полученных знаний на практике. (   Читать дальше...   )Жанр: Учебная литература по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA2F0F58A075CBD7AEE2ACC4E21C8B835527809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719631   (110529) от 30.04.2024
 
 PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
@@ -6,7 +80,7 @@ PSPaudioware - PSP stompDelay 1.1.4 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110529.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:BFE393BF2173A0B6D03CE8D78B4EA6C70674DA05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110530.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:D46E6ED10A8EDD8C10EB1933407EE28BBD6FE080
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110531.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ magnet:?xt=urn:btih:B76B647EF7B49A3DACDF4271B34C5A82FB33EC0C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110532.jpg" />
 </div>
 
 
@@ -104,7 +178,7 @@ magnet:?xt=urn:btih:5CD395DCE2BD3D0581E03650FBAAF2327AAEA303
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110533.jpg" />
 </div>
 
 
@@ -128,7 +202,7 @@ magnet:?xt=urn:btih:77E71C64A9C2C334CC2050BD1A0529382CC9AF22
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110534.jpg" />
 </div>
 
 
@@ -152,7 +226,7 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110535.jpg" />
 </div>
 
 
@@ -176,7 +250,7 @@ Registry Finder 2.59.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110536.jpg" />
 </div>
 
 
@@ -200,7 +274,7 @@ magnet:?xt=urn:btih:95E78BEA0D81C8E032D6F450120549E5D346C9BB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110537.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:39BA843D14003B84D17C520BAE6EADB0E60F68F4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110538.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ magnet:?xt=urn:btih:DFBB3BB4698FB3F6A898834CE21BA82D70C5071E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110539.jpg" />
 </div>
 
 
@@ -274,7 +348,7 @@ Ant Download Manager Pro 2.11.4 Build 87517 (x32) / Build 87518 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110540.jpg" />
 </div>
 
 
@@ -298,7 +372,7 @@ magnet:?xt=urn:btih:A7AD0684233F6E7C36D4F8D2A80708A670489BAE
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110541.jpg" />
 </div>
 
 
@@ -322,7 +396,7 @@ magnet:?xt=urn:btih:568F6E800E2383FB720560383710827573E763DA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110542.jpg" />
 </div>
 
 
@@ -346,7 +420,7 @@ magnet:?xt=urn:btih:A458954727C2324D574421470498AB1B63502937
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110543.jpg" />
 </div>
 
 
@@ -370,7 +444,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110544.jpg" />
 </div>
 
 
@@ -394,7 +468,7 @@ Deep Purple - Portable Door (2024) Single [FLAC 24/48|Lossless|WEB-DL|track] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110545.jpg" />
 </div>
 
 
@@ -418,7 +492,7 @@ magnet:?xt=urn:btih:644FD8011FC789180A5C6B8C4BAFB75E876C56FB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110546.jpg" />
 </div>
 
 
@@ -443,7 +517,7 @@ magnet:?xt=urn:btih:B664B631D6D726D7436975F38EEBF20E0F5990BA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110547.jpg" />
 </div>
 
 
@@ -467,7 +541,7 @@ magnet:?xt=urn:btih:05BB7F754055E88BDDC11F7F595E8150D8A2473F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110548.jpg" />
 </div>
 
 
@@ -491,7 +565,7 @@ magnet:?xt=urn:btih:F2DA2BEC4BB16D8684EEB2F0BB8B3DB298EECEB1
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110549.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ Shotcut 24.04.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110550.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110551.jpg" />
 </div>
 
 
@@ -553,87 +627,6 @@ Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9BE6D0160BD9614BB74C5025A48342C28D2948
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719441   (110552) от 29.04.2024
-
-Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Jazz, Cinematic, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light [00:02:51]
-02. Closer [00:03:23]
-03. Grow [00:02:45]
-04. September [00:03:37](   Читать дальше...   )Жанр: Electronic, Jazz, Cinematic, IndieПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375AF16A4B80D944E465EADA5AE052AEA22F74BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719336   (110553) от 29.04.2024
-
-Ultimate - One Step Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – One Step Ahead
-02 – Forbidden
-03 – Nervous Breakdown
-04 – The Blood Is on My Way(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0634F5487B760A574D9019DEAA396CED9DE7836
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719417   (110554) от 29.04.2024
-
-Cos - Viva Boma (1976) Japanese Edition, SHM-CD, Reissue, Remastered, 2010, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perhaps Next Record
-02. Viva Boma
-03. Nog Verder
-04. Boehme(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D213C04D78F4A9C0A70F5D72577CE14CC76E0536
 ```
 
 

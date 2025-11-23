@@ -6,7 +6,7 @@ VA - Ablazing Autumn Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ori Uplift - Uplifting Only Episode 660 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91276.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92879.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electr
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93829.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93843.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94634.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94976.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95316.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95955.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96043.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DJ Ger - Man / The Nonexistent World (tracks + mix) (2012) [MP3|320 кб/с]<Psy
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96479.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97244.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Kinack - Ondas WEB (2012) [FLAC|Lossless]<Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97835.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97835.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Nothing But... Trancetopia, Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98545.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Lane 8 - Fall 2025 Mixtape (2025-09-24) [MP3|320 Kbps] <Progressive House, Melod
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98547.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Markus Schulz - Global DJ Broadcast World Tour: In Search Of Sunrise, Eden Ibiza
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98549.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Morgan Page - In The Air (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99023.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99223.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99306.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Spa Sounds Premium (2012) [MP3|320 кб/с]<Chillout, Relax>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99661.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99867.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100464.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100530.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100531.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100533.jpg" />
 </div>
 
 
@@ -768,7 +768,7 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100534.jpg" />
 </div>
 
 

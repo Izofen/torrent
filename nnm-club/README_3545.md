@@ -1,3 +1,75 @@
+###  Публикация: 1713839   (111852) от 07.04.2024
+
+OfficeSuite Pro + PDF v14.4.51651 Extra Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111852.jpg" />
+</div>
+
+
+###  Подробнее
+
+OfficeSuite Pro + PDF - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи OfficeSuite Professional Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 04.04.2024Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3B31EE7BAACE13C840D78078989ECD057F122A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713706   (111853) от 07.04.2024
+
+Поездка в Милан / La mia ombra e tua / My Shadow Is Your Shadow (2022) WEB-DLRip [H.264] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Эмилиано сопровождает шестидесятилетнего писателя Витторио на выставку в Милан, где Витторио после двадцатилетнего творческого перерыва расскажет о своем новом романе.Производство: Италия / Rai CinemaЖанр: драмаРежиссер: Эудженио КаппуччиоАктеры: Марко Джаллини, Джузеппе Маджио, Анна Мануэлли, Изабелла Феррари, Сиди Диоп, Клаудио Бигальи, Леопольдо Мастеллони, Miriam Previati, Алессандра Аччаи, Desirè De LucaПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:58Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713857   (111854) от 07.04.2024
+
+Наруто: Ниндзя в стране снега / Gekijouban Naruto: Dai Katsugeki! Yuki Hime Ninpouchou Dattebayo! / Naruto the Movie - Ninja Clash in the Land of Snow (2004) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bi ...
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда №7 вместе с Какаши должны сопровождать актрису Фудзиказе Юкие в Страну Снега. Прибыв на место, они сталкиваются с сильнейшими шиноби, которые пытаются любыми способами завладеть предметом, принадлежащим актрисе.Производство: Япония / Studio PierrotЖанр: аниме, мультфильм, боевик, комедия, приключенияРежиссер: Тэнсаи ОкамураПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC54011E4BE37C42CC262BEBA46E488037D5211E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713959   (111855) от 07.04.2024
 
 Chromium 123.0.6312.107 + Portable (x64) [Multi/Ru]
@@ -6,7 +78,7 @@ Chromium 123.0.6312.107 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111855.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:C97BD7C73F62CF10E9B4B246A6D3A20AD7BD9160
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111856.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ The KVB - Tremors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <New Wave, Synthw
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111857.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:8FF5EB2774D006D6635D19E4D4920DABBCBE3A41
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111858.jpg" />
 </div>
 
 
@@ -108,7 +180,7 @@ Vandor - In the Land of Vandor (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111859.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ magnet:?xt=urn:btih:8C82C666879462D29EB7D736A8EB741C083A1EDC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111860.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Tadaaki Misago & Tokyo Cuban Boys - Holiday in Tsugaru / Memories of Japan (1966
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111861.jpg" />
 </div>
 
 
@@ -186,7 +258,7 @@ Twisted Tower Dire - Netherworlds (2007) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111862.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ Vandor - On a Moonlit Night (2021) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111863.jpg" />
 </div>
 
 
@@ -240,7 +312,7 @@ Clownopocalypsis - Клоунский крестовый поход (2024) [FLAC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111864.jpg" />
 </div>
 
 
@@ -267,7 +339,7 @@ Grave Forsaken - Moment in Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111865.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Validor - Full Triumphed (2022) [FLAC|Lossless|image + .cue] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111866.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111867.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ Twisted Tower Dire - Crest of the Martyrs (2003) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111868.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Gene Krupa - 1940, Vol. 2 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111869.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ Twisted Tower Dire - Crest of the martyrs (2003) [APE|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111870.jpg" />
 </div>
 
 
@@ -428,7 +500,7 @@ magnet:?xt=urn:btih:936EF0A80F37B41A1CA47FD50965BF66F847B8A4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111871.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ magnet:?xt=urn:btih:4E266D42691C270E8DE2C126CD35231BF4648802
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111872.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ Strava: бег, велоезда, хайкинг v354.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111873.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111874.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ Circle Of Friends - Cherokee Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111875.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Rob Van Bavel Trio - The Ghost, The King And I (2010) 2CD, 2023, Apollon & Evter
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111876.jpg" />
 </div>
 
 
@@ -580,7 +652,7 @@ magnet:?xt=urn:btih:ABA150BB2D0F8A509D839C1FBEB273FC37CFE68C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111877.jpg" />
 </div>
 
 
@@ -593,81 +665,6 @@ magnet:?xt=urn:btih:ABA150BB2D0F8A509D839C1FBEB273FC37CFE68C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E0C6795368BAA9BACCF2328A361F0CB1BC71475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713504   (111878) от 06.04.2024
-
-Дон Аврора Хант | Волшебство на кухне (2024) [MP3, Ирина Ефросинина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебство на кухне. Гайд по рецептам для любви и романтики» расскажет о самом простом виде волшебства – кулинарии. В этой книге Аврора Дон Хант делится рецептами самых любимых блюд – жареный сыр, суп из запеченного картофеля, киш для воскресного бранча, печеные персики со сливками, – и магическими практиками, которые помогут вам изменить жизнь и привлечь любовь.Жанр: КулинарияИздательство: ЭксмоПродолжительность: 04:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F10A04746F9083FC76B2D3EFBF27493DC33E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713555   (111879) от 06.04.2024
-
-Поедем, поедим! Круиз в Турцию: самый странный ресторан Стамбула и тальята с пастой орзо (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди снова отправился в круиз! Путешественник осмотрел самую красивую турецкую мечеть, пообедал в самом странном стамбульском ресторане, прогулялся по древнему городу Эфес, попробовал рыбу святого Петра, а еще — поднялся на измирском лифте, приготовил тальяту с пастой орзо и сотэ из мидий соусом бешамель.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4485DA796727DDAD16E4FC90BBB89F9E68C126E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713438   (111880) от 06.04.2024
-
-Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Music Week) (2024-04-04) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz (Recorded Live from MAD Club in Wynwood, Miami - March 23 2024)
-01. Anyma - Chordial
-02. Pryda - The Hiidden
-03. Frenckel & Ton TB - Dark Cloud(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50300C86DACD2115121212CB2D53C7221CEB16
 ```
 
 

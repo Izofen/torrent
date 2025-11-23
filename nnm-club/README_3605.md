@@ -1,3 +1,78 @@
+###  Публикация: 1707175   (113412) от 15.03.2024
+
+Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:51)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F0FF903D78C38CAD0AEB20B0D3215ACCCE6319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707223   (113413) от 15.03.2024
+
+Телепат / Stir (1980) BDRemux [H.264/1080p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о восстании заключенных, произошедшем в тюрьме Батерст в 1974 году. Сценарист этого фильма был заключенным в тюрьме Батерста, когда бунтующие заключенные разорили тюрьму и при написании сценария он опирался на свой собственный тюремный опыт и результаты расследований беспорядков в Аттике и Батерсте.Производство: Австралия / New South Wales Film Corp., Smiley ProductionsЖанр: Боевик, триллер, драмаРежиссер: Стивен УоллесАктеры: Брайан Браун, Макс Фиппс, Дэннис Миллер, Гарри Уоддэлл, Фил Мазервелл, Майкл Гоу, Edward Robshaw, Текс Мортон, Рэй Маршалл, Сид ХейленПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72899473F4B1DC3E5E40C2EBEBFD589A5B033CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707230   (113414) от 15.03.2024
+
+Белый город | О любви, о браке, о детях. Священное Писание и церковный опыт (2016) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113414.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны цитаты из Священного Писания и высказывания святых отцов и священников о любви к Богу, к ближнему, о любви между мужчиной и женщиной, о сути брака, о семье, детях – то, из чего во многом складывается жизнь обычного человека.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A753DE8994A79E5E9C9B7AAF35D846124057F9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707062   (113415) от 15.03.2024
 
 VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive House>
@@ -6,7 +81,7 @@ VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113415.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:EE4B358D9966F48A6C9228F7EADA4BB4E1E45973
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113416.jpg" />
 </div>
 
 
@@ -58,7 +133,7 @@ LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113417.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113418.jpg" />
 </div>
 
 
@@ -112,7 +187,7 @@ QOwnNotes 24.3.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113419.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ OmniGraffle Pro 7.22.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113420.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ PortableApps.com Platform 29.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113421.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ Speedtest от Ookla 5.3.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113422.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Opera One 108.0.5067.29 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113423.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ magnet:?xt=urn:btih:2228016D345A9758629FEC7A60F4689EA343845D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113424.jpg" />
 </div>
 
 
@@ -258,7 +333,7 @@ magnet:?xt=urn:btih:A18844298886D5238160099F03BB67363BB484D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113425.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ Persher - Sleep Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113426.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ magnet:?xt=urn:btih:7716807BFC768D800F0FD1E4CDA980BA078BAE6E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113427.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ Armin van Buuren - Tomorrowland Friendship Mix (2024-03-14) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113428.jpg" />
 </div>
 
 
@@ -362,7 +437,7 @@ Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113429.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ RSS Guard 4.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113430.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ magnet:?xt=urn:btih:06D80D5BB03777835824E68EC800574668FD501D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113431.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Synthia - VI (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113432.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ VA - Black Hole Trance Music 03-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113433.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ magnet:?xt=urn:btih:B67564F65CF1824D60CD7D4100F64625D8EA7667
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113434.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ XYplorer 25.70.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113437.jpg" />
 </div>
 
 
@@ -575,78 +650,6 @@ XYplorer – удобный многовкладочный файловый ме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DF8E55F862609566EE9C83F474FAB68562222C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707192   (113438) от 15.03.2024
-
-Speedtest от Ookla 5.3.3 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.02.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF63AA46F18BF19743850DFD9AAC85342957BD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707227   (113439) от 15.03.2024
-
-Телепат / Stir (1980) BDRip [H.265/1080p] [10-Bit] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о восстании заключенных, произошедшем в тюрьме Батерст в 1974 году. Сценарист этого фильма был заключенным в тюрьме Батерста, когда бунтующие заключенные разорили тюрьму и при написании сценария он опирался на свой собственный тюремный опыт и результаты расследований беспорядков в Аттике и Батерсте.Производство: Австралия / New South Wales Film Corp., Smiley ProductionsЖанр: Боевик, триллер, драмаРежиссер: Стивен УоллесАктеры: Брайан Браун, Макс Фиппс, Дэннис Миллер, Гарри Уоддэлл, Фил Мазервелл, Майкл Гоу, Edward Robshaw, Текс Мортон, Рэй Маршалл, Сид ХейленПеревод: Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF83A5A274B30F5836833D01CDE99E5067DE9068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707228   (113440) от 15.03.2024
-
-PDF Shaper Premium / Ultimate 14.0 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D17BD46C7B84EC7D1C1761404046E934F10985
 ```
 
 

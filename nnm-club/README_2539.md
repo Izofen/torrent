@@ -6,7 +6,7 @@ Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66762.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66763.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5B9361EAADE4FA5EED87D42E97B6A05170AA0BF0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66764.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:52E6F458CFAE092EE9FE91FDBE22A64B2A3AB35E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66765.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Jazzetz Zukovsky - Время (2025) [MP3|320 Kbps] <Gothic-Rock, Post-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66766.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:58BF98F408C1BDC6FADB8EF93BB30DAD335C6103
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66767.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:7E5E17163593025A56D8CF046E62E8440A7EE1C9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66768.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Karfagen - Omni (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66769.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:1275BB0C13A5D0F861CAD7B02146B2D00C10A4C5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66770.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:447933EFA088589F27270B4915E9D248A9AC6621
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66771.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66772.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:87C05F0DF27A1CAC4C9CCF4874BCF02D228A5379
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66773.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Opia - I Welcome Thee, Eternal Sleep (2025) [MP3|320 Kbps] <Gothic / Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66774.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66775.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Snoop Dogg - Iz It a Crime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66776.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Xzibit - Kingmaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66777.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Twink - Think Pink (1970) Japanese Edition, Reissue, 2000, Akarma [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66778.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8419DA595DFAE23E1D512E33B7C4B32D77FEBDF6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66779.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Nytt Land - Songs of the Shaman (2025) [MP3|320 Kbps] <Darkfolk, Ethnic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66780.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Slow Danse With The Dead - Eternl Mourning (2025) Remastered [FLAC|Lossless|WEB-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66781.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:10A7AA4E9E767E077D7A8D8372F8CC2AB4E542C0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66782.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D0846286F15BC4CB31A5D641666E40925CA6B953
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66783.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:D0846286F15BC4CB31A5D641666E40925CA6B953
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66784.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ PhotoDirector v20.1.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66785.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:9735BB096D1DA5DAC8DA95E7824EA7AF6C1E71DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66786.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Karigurashi no Arrietty | The Secret World of Arrietty | Добывайка Ар
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66787.jpg" />
 </div>
 
 

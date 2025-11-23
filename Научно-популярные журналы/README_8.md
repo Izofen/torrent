@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7418517F3524AAF18E3E78EB25AFEE97DAC0E5E4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70114.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:22996E25ADD4D5012689351FC7D67FFAEAB1D75C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70121.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7EC55EA9C4AB999C0491B5FEB5C23881575D90F6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70200.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:63B12F827E447E5998D3D0DACFCAAF28D70799A2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71041.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A0481EB3524DFF254783F1ED589217475F1A1CD0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71117.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D1DC700BF2987C6067032607BE9B45EAAB3572BD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71118.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5803E480ECE0495E664C2BAEF8A8FC96B3CEB333
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71293.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6742B2ACA59AF4279810C3033C435E4EB498086C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78954.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:15BE9BD5E117DAAA6674E549E0DAB8D49253A889
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84675.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F5C47642CA72DD366135D24B7DABA36A34760BC7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85215.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:F5C47642CA72DD366135D24B7DABA36A34760BC7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85661.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:8C59D34C64CE45C67FDBEFBC727B5333F8E68ECE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86701.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:4A7934A91A4C128F4B1A79602F32D86442BDF503
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87713.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:8B30A677D6BE68FC6AF9956EC284E0558B178D74
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89344.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94528.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_94528.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:8D124AB22898E9875E86D804B9767C0C5555A381
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99233.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100574.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F1E034F1E049A07B556AADD30D7E6C073E6D07C1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100576.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:CC54C596219CF05322C79C213C181602900AA70B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100627.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:3315BEE34357D57D6D9C566348B999AFF141DA74
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101261.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:7BD9E826FF895E8C7CBA81626F7173586030E14A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101263.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:D85DF7FBD564893D4CCB378DFF92C8B832C76DB0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101266.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:5BFD7E70DFBC6DAC5E7CDDC1785644794F7D84EA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101702.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:E2928AA2FB1ADAC7768B49C47FAC374A775B9F76
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103419.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:4B670FAE4668476733AC3D447562A4C0C1CD6F97
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103566.jpg" />
 </div>
 
 

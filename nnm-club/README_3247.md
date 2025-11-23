@@ -1,3 +1,84 @@
+###  Публикация: 1750798   (104103) от 22.09.2024
+
+Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey Intro (1:12)
+02. Whiskey And Women (3:45)
+03. Gypsy Woman (3:37)
+04. That Old Blues Again (6:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B39E60AEDDB812C10FF86A9D0713430036E84A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750972   (104104) от 22.09.2024
+
+The Mothercrow - Foraneo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Rock, Psych Blues Rock, 70's>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing My Ground (4:33)
+02. Howling (3:55)
+03. Danger Rules (3:49)
+04. Tumbling Down (5:47)(   Читать дальше...   )Жанр: Heavy Rock, Psych Blues Rock, 70'sПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287392B1A535E486CE1125434C3D1B3F926F30EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750800   (104105) от 22.09.2024
+
+Asha Parkinson - Possession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban Fantasy (4:14)
+02. Distant Devotion (4:38)
+03. Mirror Image (4:40)
+04. Possession (4:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F7A31A725413924922E65ECF165DDBBFC471C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750977   (104106) от 22.09.2024
 
 Somewhereout - Providence (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
@@ -6,7 +87,7 @@ Somewhereout - Providence (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104106.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:C603D5CE4C92ECADDC277676FCEE016FF3B79B54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104107.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ magnet:?xt=urn:btih:939B43F56EC4688FAC8DE6D186151058F3ED70E3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104108.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ magnet:?xt=urn:btih:5D2DE85CAE0D709C05143AC3A760BBB67606087C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104109.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ magnet:?xt=urn:btih:3862D19C70937A910F445D6959BA22F7A7F58872
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104110.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Kat Von D - My Side of the Mountain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104111.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Airstrike - S*x Sells (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104112.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Fighter V - Heart Of The Young (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104113.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Wizard - Studio Albums (12 releases) (1995-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104114.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Massacration - Metal Is My Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104115.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ magnet:?xt=urn:btih:328482B0D5317A400E06DB253E787C21BE6FA530
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104116.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ magnet:?xt=urn:btih:32606776CE2AF4158AD059A4FD5134D9BF9EAA3F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104117.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104118.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104119.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104120.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Bloodest Saxophone feat. Crystal Thomas - Extreme Heat (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104121.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ Dreadsight - Conspiracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104122.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ Stryper - When We Were Kings (2024) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104123.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ magnet:?xt=urn:btih:BD5B1D659E009A30D9EE95B9C36F464ABA3F4718
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104124.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Спр
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104125.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ Joan As Police Woman - Lemons, Limes and Orchids (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104126.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ Asia Monet Ray - Asia Monet (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104127.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ Atlas Genius - End Of The Tunnel (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104128.jpg" />
 </div>
 
 
@@ -598,84 +679,6 @@ Atlas Genius - End Of The Tunnel (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42B1BE1BECE19F6576A78C1814B0A360516693E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750849   (104129) от 22.09.2024
-
-Nicky Elisabeth - The Way Of Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, House, Dance, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shape Of Me [00:01:26]
-02 - The Way Of Love [00:03:15]
-03 - The Lights [00:03:45]
-04 - Dreams Of Reality [00:03:01](   Читать дальше...   )Жанр: Downtempo, House, Dance, ElectronicПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2178DB475EB4DADA643B44DAC70525170213BD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750803   (104130) от 22.09.2024
-
-Big Mel - Blue Rose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Rose (1:14)
-02. When The Smoke Clears (3:32)
-03. Leave You Alone (3:30)
-04. Nothing But You (4:03)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D848556B02718361C4EB44CA694FAB8214B59C17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750939   (104131) от 22.09.2024
-
-Астрал. Шёпот мёртвых 2 / Yeogo goedam yeoseotbeonjjae iyagi: mogyo / Whispering Corridors 6 The Humming (2021) WEB-DLRip [Line] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104131.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Ын-хи нет воспоминаний о школьных годах, но когда она устраивается работать в школу, где когда-то училась, и там начинают происходить странные события, память постепенно возвращается.Производство: Корея Южная / Cine2000Жанр: ужасыРежиссер: Ли Ми-ёнАктеры: Ким Со-хён, Ким Хён-су, Чхве Ри, Квон Хэ-хё, Чан Вон-хён, Пак Сэ-хён, Чхэ Вон-бин, Ха Мин, Ли Джи-вон, Ли Джу-щильПеревод: Дублированный (Moygolos) LineЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:55Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
 ```
 
 

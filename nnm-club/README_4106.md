@@ -1,3 +1,84 @@
+###  Публикация: 1686601   (126443) от 23.12.2023
+
+Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Adina Butar - Waves of High
+02. Anske - Confidence
+03. Estiva - Via Infinita
+04. Artche - Weightless(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 04:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5417F19A850BDB723CAF544795859B82072DB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686661   (126444) от 23.12.2023
+
+VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Walid - Crystal Eyes (Original Mix) [6:17]
+02. Artifi - Exhausted (Original Mix) [5:36]
+03. Asier - Discover (Original Mix) [7:03]
+04. Atmospherika - Dark Matter (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B80C29004E80B1C3EDD21A3AFC5FEAE4117D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686555   (126445) от 23.12.2023
+
+Vlad Inside - Ferrum City (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amalgam (00:01:58)
+02 - Drakkar (00:01:47)
+03 - Steel Symphony (00:02:08)
+04 - Factory (00:02:49)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A92A9335245B2D8C6724324DC57688CA2970EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686316   (126446) от 23.12.2023
 
 A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Rock>
@@ -6,7 +87,7 @@ A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126446.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:1970B3364B286E8BDF70C896D55326E344F06179
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126447.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ magnet:?xt=urn:btih:988C7EDB8512EF502459CE39EDD37AA86567AFB0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126448.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ VA - A Very Metal Christmas II (2023) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126449.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ magnet:?xt=urn:btih:2DD91E271401270930D8AC05412E43DD99BBF7F8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126450.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ magnet:?xt=urn:btih:674F1101FFA15E38D63B6154B488AC183C67588E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126451.jpg" />
 </div>
 
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:24E5DC344D5C12BD818EAD17DA1F214761998005
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126452.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ Lane 8 - Winter 2023 Mixtape (2023-12-20) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126453.jpg" />
 </div>
 
 
@@ -211,7 +292,7 @@ Kalamity Kills - Kalamity Kills (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126454.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ Chromium 120.0.6099.130 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126455.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ magnet:?xt=urn:btih:D45CE0BD1F2B7492579E62E740566F2D565E93C6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126456.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ magnet:?xt=urn:btih:D7259213EFC8B902BD101F41ABB9FED9F0E664CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126457.jpg" />
 </div>
 
 
@@ -310,7 +391,7 @@ JetBrains RubyMine 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126458.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ Xodo PDF - Ридер и Редактор 8.9.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126459.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ magnet:?xt=urn:btih:D0F7A70B9012A3FE264BE749B4CE38ECF0B717F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126460.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126461.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126462.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126463.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ magnet:?xt=urn:btih:17CC7073532BCCE625A12A9F186C3E405142B077
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126464.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ magnet:?xt=urn:btih:F602CEDB98E3E1B6A143829FCD764A572303F441
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126465.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126466.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ Opera GX 105.0.4970.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126467.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126468.jpg" />
 </div>
 
 
@@ -578,84 +659,6 @@ VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:483918EBE2537287F14FEA80478DDF57A5F556D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686690   (126469) от 23.12.2023
-
-Джером К. Джером | Наброски синим, зелёным и серым (2014) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-Другие названия: Наброски в трёх цветах; Очерки синим, серым и зелёным; Этюды в холодных тонах. В своем сборнике рассказов «Наброски синим, зелёным и серым» писатель, как и во всех своих произведениях, блистательно и интеллигентно поднимет Ваше настроение, заставив от души посмеяться.
-Переводчик (   Читать дальше...   )Жанр: Зарубежная литература, классика, юмор, рассказИздательство: МедиаКнигаПродолжительность: 06:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76460BD0E48BFD5F6153A53F6FFD91D83D808D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686633   (126470) от 23.12.2023
-
-Живая еда с Сергеем Малозёмовым (23.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магия топленых продуктов: что придает им кремовый цвет и карамельный вкус, есть ли в них чудо-польза, можно ли приготовить топленое молоко дома — в мультиварке и термосе, где готовят сырники из топленого молока, что такое костромской варенец и чем индийское масло гхи отличается от обычного топленого.
- Витаминизированная еда: зачем в нее добавляют витамины, и что это (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2892950D8F433B91D8EC5C01EB8CFACF636C6B69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686541   (126471) от 23.12.2023
-
-Elysian Fields - Femmes, Family and Mars (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Onward to Mars (00:03:47)
-02 - Angie (00:03:25)
-03 - Thoughts of Mom a Memory Transformed (00:03:01)
-04 - Lea (00:04:07)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F21EB069911E968781A957B86EE519C8644679
 ```
 
 

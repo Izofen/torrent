@@ -1,3 +1,111 @@
+###  Публикация: 1638614   (211934) от 09.06.2023
+
+Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Hear You Calling Me
+02. Nasty Reputation
+03. Dreams Of Passion(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638374   (212054) от 08.06.2023
+
+Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_212054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Set Me Free
+02. Keep It In
+03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042660   (213384) от 13.06.2022
+
+Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213384.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Берегись • Watch Out
+А2 Руки Прочь • Hands Off
+А3 Щит И Меч • Shield And Sword
+А4 Еще Раз Ночь • It's Night Once Again(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042647   (213390) от 13.06.2022
+
+Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213390.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орел
+A2 Ответный Удар
+A3 Гонка
+A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832287   (213540) от 30.10.2025
 
 Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
@@ -6,7 +114,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213540.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213660.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213660.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213843.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213969.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213969.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213980.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214043.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214264.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214374.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214597.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214597.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214672.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214672.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214753.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216114.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216793.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216910.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217708.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217891.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Supermax - Full LPs Discography (1977-1992) 11LP [FLAC 2.0 24/192|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218363.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218363.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Slaughter - Studio Albums (7 releases) (1990 - 2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218906.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218906.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ Scorpions - 11 альбомов (1979-1993, 2004, 2007) [FLAC 2.0 24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219213.jpg" />
 </div>
 
 
@@ -588,111 +696,6 @@ A4. The Future Never Dies 4:06(   Читать дальше...   )Жанр: Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9FED0FD723DB627313ACDA098D448025FFD28E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103675   (219309) от 09.08.2023
-
-Rammstein - XXI (1995-2015) 7 x Double LP, The Vinyl Box Set, Remastered, 2015  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Industrial Metal>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Празднование 21-летней годовщины создания Rammstein и формальное «совершеннолетие» легендарных немецких рокеров. Уже более двух десятков лет Rammstein штурмует чарты и собирает многотысячные стадионы, издавая одни из самых коммерчески успешных альбомов в истории тяжелой музыки. Специальный бокс-сет охватывает всю музыкальную карьеру группы, начиная с самых первых (   Читать дальше...   )1995 - Herzeleid
-1997 - Sehnsucht
-2001 - Mutter
-2004 - Reise, ReiseЖанр: IndustrialПродолжительность: 05:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD734A0ECE8555FBB02F704089D36A51D544CD36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617610   (219319) от 09.08.2023
-
-Rainbow - 7 альбомов (1975-1983) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219319.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Stranded 4:31
-A2. Can't Let You Go 4:22
-A3. Fool For The Night 4:04
-A4. Fire Dance 4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678C1E76A64F21449B32FE44894297827A3BABE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658105   (219328) от 09.08.2023
-
-Alice Cooper – 20 Альбомов (1972-2011) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Shock Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Made Of You [5:31]
-02. Caffeine [3:23]
-03. The Nightmare Returns [1:14]
-04. A Runaway Train [3:51](   Читать дальше...   )Жанр: Hard Rock, Shock Rock |Продолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B74910E7212F482E95BBBCF1D017F23A84101E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385952   (219366) от 09.08.2023
-
-Elvis Presley - Collection 11 Альбомов 13 LP (1956-2007) [FLAC/APE 2.0 24/96|tracks/image (Vinyl-Rip)]<Rock & Roll/Rockabilly/Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элвис Пресли остаётся одной из самых известных личностей мировой поп-культуры. В Америке он давно вошёл в повседневную жизнь обывателей, наравне с президентами и спортсменами. Снято множество кино- и телефильмов, как биографических, так и имеющих лишь косвенное отношение к самой жизни Пресли, издано ещё большее количество книг. Процветает обширная индустрия имитаторов (   Читать дальше...   )Жанр: Rock & Roll/Rockabilly/PopПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89756A37564880E170C3DA038AA4750728566609
 ```
 
 

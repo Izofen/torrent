@@ -1,3 +1,78 @@
+###  Публикация: 1723110   (107276) от 30.06.2024
+
+DailyArt - Daily Dose of Art v3.2.7 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.06.2024Разработчик: MoiseumПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C50494BA14B3BD695BBCF402F0A7044708C446
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733860   (107277) от 30.06.2024
+
+VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-1981) (2018) [FLAC 24/192|Lossless|WEB-DL|tracks] <Electronic, Indie Dance, Disco,>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Players Association - Turn The Music Up! (12" Disco) (06:51)
+02. Sylvester - Over And Over (Special 12" Disco Mix) (09:31)
+03. The Blackbyrds - Don't Know What To Say (04:07)
+04. Poussez! - Boogie With Me (12" Disco Mix) (07:53)(   Читать дальше...   )Жанр: Electronic, Indie Dance, Disco,Продолжительность: 03:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A44D9F3CC0F5E2571F38AFC10970591938CB44A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733818   (107278) от 30.06.2024
+
+HandBrake 1.8.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107278.jpg" />
+</div>
+
+
+###  Подробнее
+
+HandBrake - бесплатный видео конвертер с открытым исходным кодом, который позволяет кодировать видеофайлы из DVD или любого видео формата в MPEG-4 или H.264. Содержит широкий набор пресетов, при помощи которых можно быстро преобразовать видео для дальнейшего просмотра на различных мобильных устройствах, как например Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2545D115CF4946D949CAA9CD1FB641CF11E508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733125   (107279) от 30.06.2024
 
 Александр Тафинцев - Коллекция Блюз (2024) [MP3|320 Kbps] <Blues>
@@ -6,7 +81,7 @@
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107279.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:A4F8AC4C54E5EBC7B1D6496A28F95DD2026BD127
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107280.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ NetLimiter 5.3.16.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107281.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Paper Trail (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107282.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107283.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:943AE12846AD3BE7BD2647D05333E5FA227E987E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107284.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107285.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107286.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Hourglass - Voids and Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107287.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ Anita O'Day - Live In Tokyo (1975) 1994, Venus Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107288.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107289.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Sla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107290.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ Pryne - Gargantuan (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107291.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107292.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107293.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107294.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107295.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ Matador - Сквозь тень времен (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107296.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 04 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107297.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107298.jpg" />
 </div>
 
 
@@ -532,7 +607,7 @@ VA - Trance Fusion Vol. 04 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107299.jpg" />
 </div>
 
 
@@ -559,7 +634,7 @@ VA - Armin van Buuren - A State Of Trance 1179 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107300.jpg" />
 </div>
 
 
@@ -586,7 +661,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107301.jpg" />
 </div>
 
 
@@ -600,87 +675,6 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E30DF5D5F101802532187EA77A428C8F365116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733002   (107302) от 28.06.2024
-
-Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LOST (3:32)
-02. Restored (4:41)
-03. Live Without (4:21)
-04. Lifeline (feat. McRocklin) (4:00)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C03EEE2794D08E9B7311D3B308A88B0D7EDC58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733165   (107303) от 28.06.2024
-
-VA - Redux Selection Vol. 7 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryn Whiting - We Are Home (Extended Mix) (07:35)
-02. James Kitcher & Adam Taylor - Starlight (Extended Mix) (05:51)
-03. Matthew Dreamer - Back To Me (Escea Extended Remix) (06:19)
-04. NickXTG - Karma (Extended Mix) (07:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C45E3EE587053199A6F386E125370152CAAD628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733407   (107304) от 28.06.2024
-
-MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (2024-06-21) [MP3|320 Kbps] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. HELLMATE & Santiago & Carlitos & Chantal Lewis-Brown - Show Me Love
-03. Marshall Jefferson & Solardo - Move Your Body
-04. Jerry Ropero & Denis The Menace ft. Jaqueline - Coraçao(   Читать дальше...   )Жанр: HouseПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6379562532FFB0BCB7D5B5E10089C408A2C33917
 ```
 
 

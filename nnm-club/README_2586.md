@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67984.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67985.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67986.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67987.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AC21DD4A56F4FB244FED79852DE63CE925676305
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67988.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C014D79A9F094B2250276C246991DCAA468A2CC1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67989.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F3EC6AD478A866A72D42E73FD69D19B3598A7257
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67990.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D4E20DB2D43AD9AA154DA7F387CC26D06C83A367
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67991.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:60A120221AD0EC54BF784D6B86D395F919A619B5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67992.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8FF087CE22F4C0CDECA893FA75A2C80D34E96B64
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67993.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Empire Of The Sun - Ask That God (2024) Remixes, 2025, EMI Recorded[FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67994.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E2B03E7B98F68C53E9E2B9E110FD142B66CA6EE6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67995.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:B8E0DAC2FAAD80351DA4ED912068DC79125B2EAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67996.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F55296D47808B5F0044C5B5F3E5B51D0465C38F5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67997.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67998.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Vincent Ryder - Way Too Quiet (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67999.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Blue Stalk - Roller Coaster (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68000.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:692CCBB3803B13CE908AAC011EC7DC795008FD4A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68001.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Sewing Jar - Classic Hoots (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68002.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Daniel Meade - Hip Hip Hooray!! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68003.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Zephyr Pilots - Zephyr Pilots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68004.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:F9610C7697329AA01DBC9E99C868E7651347075F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68005.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Donatas Petreikis - Northern Dream (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68006.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Liam Harter Leao - Settle in Chaos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68007.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Marvin J. Galaxy - Mild Revelation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68008.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68009.jpg" />
 </div>
 
 

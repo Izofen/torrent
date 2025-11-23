@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12324.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:17397415619C640289D041285770AB404BEFB873
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12328.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:265B8ACE4854F65A8AE2ABEB3CFC631262F02F11
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12344.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A865EF5467BEC6F0D644D9020D3805DE3291EEE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12345.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E64348CEEFB9B3AC4FEDC4022B8DF2C83B3BF6DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12346.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BED46CBA83FBC8553ADDDA82FC3056D4CF287C88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12347.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E459CC05FCA4F2112C1BAB14C80069B10B53EEB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12350.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:155541367AE7C90B14DE4F1B8BA37B15D191FDB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12352.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C4F5848BD65B3D504836669E365215C084494E81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12424.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4EF4D7A7737D595DD363B8B93E86909AC9CAEF7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12434.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:86BBE9CF459324622FE2565C0EDD17272CD4FF8E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12456.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Lanpirot | Товарищ "Чума" (Книга 6). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12558.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D9FD4406F2ED1EB5AAD32291226D3DAD8EB9DBF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12582.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:33D51317FD7324BF4150E61109CA354C4E77214F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12732.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:ABF264658283BC4BAA1F0BC6B01757F84896E9AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12864.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:94D7068418193DD9ACC4E9C720321A28CE3C107A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12912.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:2ABBBE37DE17E30CDFCC5A06711F2B9B29CA925A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12957.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:289739876C4FA6C70AA9D06FA6B7F3606693C25F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12964.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:593E6E8990BBD763A588AD7F176D6347DF8A0BDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13038.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:0CE7402E17228DCA7B688E7140081A96FF81290F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13051.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:CBEA2C0BA2CF2342A23138AD3AB9D7CABA3BA588
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13138.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:DD0DF39C448EDFF7F5982A45E7197B4B898E5999
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13145.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:50FFD458D82951014C8103DAA38C98BA2E5022F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13146.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:AB0E1E28E442E6EA4A89B3D6DE2CD4BEE56B70FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13163.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:46B337A9A5B0434462636C946A653632CCB22A56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13177.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:E10E4D2A9BC134428C8A29A3044E6F9D2838706A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13192.jpg" />
 </div>
 
 

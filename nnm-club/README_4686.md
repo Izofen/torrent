@@ -1,3 +1,177 @@
+###  Публикация: 968125   (145245) от 28.12.2015
+
+Сергей Казиник | Миры Анархии (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантаскоп представляет!
+Сборник повестей и рассказов Сергея Казиника “Миры Анархии”.Жанр: ФантастикаПродолжительность: 08:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACD78FAA9D1280CBC0A99641BE71CC1A5BFDE2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348415   (145246) от 27.12.2019
+
+Анастасия Орлова | Грузовик, прицеп и новогодняя елка (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая чудесная и добрая история о неразлучных друзьях - Грузовике и Прицепе, которых ждет удивительное новогоднее приключение. Автор книги - Анастасия Орлова, одна из самых известных и талантливых современных писательниц, чьи книги пользуются неизменным успехом у малышей.Жанр: Сказки для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED287D350EB565CA6C9EDCB0C78AF8D8EE3FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087268   (145247) от 28.12.2016
+
+VA - Музыкальные новинки mp3. Сборник № 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Галина Боб - Только С Тобой 3:48
+002.Breathe Carolina & Inukshuk - Nights 4:00
+003.Xana - Красивыи Мужчина 4:00
+004.Jojo - Mad Love 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C199099F92D032D4D6B1A7FDF6BA122864850142
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678449   (145248) от 21.11.2023
+
+Aimp v4.05.1382 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145248.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP - это легковесный мобильный аудиоплеер построенный на основе плейлистов для ОС Android.
+
+Программа может некорректно работать на устройствах под управлением оболочки MIUI.Тип издания: FreeРелиз состоялся: 13.11.2023Разработчик: AIMP DevTeamПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425146   (145249) от 27.12.2020
+
+Золото джунглей / Oro (Gold) (2017) BDRip [H.264/1080p] [MVO] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145249.jpg" />
+</div>
+
+
+###  Подробнее
+
+1538 год. Король Испании и император священной Римской Империи Карл V посылает экспедицию на поиски Эльдорадо – мифического города, в котором все сделано из золота. Соперничество и жажда сокровищ среди конкистадоров могут оказаться куда опасней, чем джунгли и туземцы.Производство: Испания / Aralan Films S.L.Жанр: Драма, приключения, историяРежиссер: Агустин Диас ЯнесАктеры: Рауль Аревало, Барбара Ленни, Оскар Хаенада, Хосе Коронадо, Хосе Мануэль Сервино, Антонио Дечент, Хуан Хосе Бальеста, Луис Кальехо, Анна Кастильо, Андрес ГертрудиксПеревод: Профессиональный многоголосый (IVI )Субтитры: АнглийскиеПродолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0173D996701EF8FEFDD3C4F86653AB9528D256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589780   (145250) от 16.12.2012
+
+Роджер Желязны | Мастер снов [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман посвящён вопросам исследования человеческой психики и так называемого «внутреннего космоса». Чарлз Рендер – практикующий врач-нейросоучастник, он же Творец, он же Мастер снов. Он избавляет людей от нервозов путём «искусственного сна», виртуальной реальности, в которой доктор – активный участник. Разбирая ассоциации, врач определяет причину болезни. Одним из его пациентов был член сената Эриксон, жутко страдающий от одиночества. Рендеру удалось его вылечить. Но вот однажды его пациенткой становится Эйлин Шалот, слепая от рождения психолог. Она попросила Рендера научить ее стать Творцом. Рендер наконец согласился, после долгих уговоров и принимая во внимание её привлекательную внешность. Несмотря на огромный риск. Профессия нейросоучастника очень рискованная, в случае ошибки Творец может сойти с ума. В ходе цикла обучения Эйлин Шалот фактически использовала глаза Рендера, чтобы научиться воспринимать визуальные образы. Но во время одного из уроков что-то пошло не так, и всё погрузилось во тьму…Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D0AC80613262E658AE4B04A1C5092FA9514A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348434   (145252) от 27.12.2019
+
+Газета | Великие открытия №1 (2020) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная газета для широкого круга читателей.Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212C0BC96C01AE283F93E352AF645CBC4D065600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425228   (145253) от 27.12.2020
 
 Монстры 2: Тёмный континент / Monsters: Dark Continent (2014) BDRip [H.264/1080p]
@@ -6,7 +180,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145253.jpg" />
 </div>
 
 
@@ -30,7 +204,7 @@ magnet:?xt=urn:btih:3081648DD0339AE5D325872A02410F30594A5180
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145254.jpg" />
 </div>
 
 
@@ -54,7 +228,7 @@ magnet:?xt=urn:btih:FD23297513E62F803D12DF6B7933FADCFC94A288
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145255.jpg" />
 </div>
 
 
@@ -78,7 +252,7 @@ magnet:?xt=urn:btih:868B8F2719E1EA7671A313ECE1CCF2AFB5077783
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145257.jpg" />
 </div>
 
 
@@ -102,7 +276,7 @@ magnet:?xt=urn:btih:20894159A87C70A7C4004044FD039363D284E9B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145258.jpg" />
 </div>
 
 
@@ -128,7 +302,7 @@ magnet:?xt=urn:btih:20894159A87C70A7C4004044FD039363D284E9B4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145259.jpg" />
 </div>
 
 
@@ -152,7 +326,7 @@ magnet:?xt=urn:btih:4FA34139FF32E09932D4B277A82FE6999E1B618B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145260.jpg" />
 </div>
 
 
@@ -176,7 +350,7 @@ magnet:?xt=urn:btih:F8F8049C6DB77EA971C1160B3415EF1DF39DB96E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145262.jpg" />
 </div>
 
 
@@ -200,7 +374,7 @@ Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145263.jpg" />
 </div>
 
 
@@ -227,7 +401,7 @@ magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145266.jpg" />
 </div>
 
 
@@ -253,7 +427,7 @@ Topaz Video AI 4.0.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145267.jpg" />
 </div>
 
 
@@ -277,7 +451,7 @@ VA - Зимние мега хиты. Русская версия (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145268.jpg" />
 </div>
 
 
@@ -304,7 +478,7 @@ Vezér 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145269.jpg" />
 </div>
 
 
@@ -328,7 +502,7 @@ magnet:?xt=urn:btih:E5D2E4534691979FF88C0F5E795924B399D2A525
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145270.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Wolf Hoffmann - Compilation (2021) [MP3|320 Kbps] <Rock, Instrumental>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145272.jpg" />
 </div>
 
 
@@ -381,7 +555,7 @@ magnet:?xt=urn:btih:47EF96CF65F2E0A21D89010E78A4B3C0BED3FFBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145273.jpg" />
 </div>
 
 
@@ -406,7 +580,7 @@ FlashPeak SlimBoat 1.1.15 + Portable by Noby.uCoz.Ru [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145274.jpg" />
 </div>
 
 
@@ -430,7 +604,7 @@ SlimBoat - веб-браузер на легком движке WebKit. Рабо
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145275.jpg" />
 </div>
 
 
@@ -455,7 +629,7 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145276.jpg" />
 </div>
 
 
@@ -469,185 +643,6 @@ Vision Mastermixers - Seventies Mixes (1995) [FLAC|Lossless|image + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46EACA5618E362DF5308BB1B038B24A03E6B9E6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559199   (145277) от 28.12.2013
-
-Need For Speed: The Run (2011) [En/Ru] (1.1) Repack R.G. Games [Limited Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed The Run — гоночные состязания, ставка в которых невероятно высока. Единственный способ выжить — первым завершить опаснейшее путешествие из Сан-Франциско в Нью-Йорк. Никаких ограничений скорости. Никаких правил. Никаких друзей. В противостоянии сотням отчаянных гонщиков на самых опасных трассах придется рассчитывать лишь на собственное водительское (   Читать дальше...   )Тип издания: RePackРазработчик: EA Black BoxЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Aнглийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AC40E3AF4B715CF143D6F8BA4E3E98F3940A72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435074   (145278) от 27.12.2020
-
-Day R Premium v1.677 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day R Survival – интересная игра в которой вам предлагают вернуться в то время когда СССР еще существует. Но жизнь на земле изменилась. Война всегда была беспощадной. В 1985 году СССР потерпело поражение от неизвестного врага. Буквально вся страна превратилась в радиоактивную пустыню за несколько дней и теперь ужасные чудовища, которые подверглись мутации от колоссальной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25 декабря 2020 г.Разработчик: tltGamesПоддерживаемая ОС: Android 4.0+Жанр: СтратегииЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087410   (145279) от 28.12.2016
-
-VA - Масть крестовая от радио Шансон. Часть №7 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145279.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Альберт Салтыков & Виталий Котиц - Огонек 4:30
-002.Андрей Орельский - Вованчик 3:59
-003.Александр Закшевский - За Тобой 3:27
-004.Александр Альтергот - Одесская 3:25(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18981803C3C23532425673879E16987DB128BC0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087486   (145280) от 28.12.2016
-
-VA - Trance Collection Vol.55 (2016) [MP3|96-320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145280.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Above & Beyond - Can't Sleep (We Are All Astronauts Progressive Mix) 7:04
-002.Above & Beyond feat. Alex Vargas - Sink the Lighthouse (Maor Levi Extended Remix) 6:52
-003.Abstract Vision, DRYM - Shark (Original Mix) 5:07
-004.Adam Ellis & Michele C - Don’t Disappear (Extended Mix) 8:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD630E8AF9D2CE922F274CD0B998790EFDAA34C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519972   (145281) от 26.12.2021
-
-Через край / Over the Edge (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой городок Нью-Гранада. В поисках адреналина подростки забросили учёбу, курят траву, принимают наркотики, тусуются на домашних вечеринках, палят из ружья по полицейским машинам и рвутся за рамки закона и приличий под девизом «sех, drugs & rock`n`roll». Полиция, в лице копа Добермана, пытается бороться с подростковым беспределом. Среди школьников зреет (   Читать дальше...   )Производство: США, Orion PicturesЖанр: драма, криминалРежиссер: Джонатан КапланАктеры: Майкл Эрик Крамер, Мэтт Диллон, Памела Людвиг, Винсент Спано, Том Фергус, Гарри Нортап, Энди Романо, Эллен Гир, Ричард Джеймисон, Джулия ПомеройПеревод: профессиональный двухголосый (R5)Субтитры: русские, английскиеПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D9D363D8E2F2DA2E752CC5CE6229C17150DF69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348352   (145283) от 27.12.2019
-
-Downie 3 v3.9.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F249301A34F78C4D4289D882C920457D7F18244D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678522   (145284) от 21.11.2023
-
-Dire Straits - Live 1978-1992 (2023) Box Set, Compilation, Reissue, Remastered, 2023, Vertigo [FLAC|Lossless|tracks + .cue] <Pop Rock, Blues Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alchemy
-On The Night
-Encores
-Live At The BBC(   Читать дальше...   )Жанр: Pop Rock, Blues Rock, Rock & RollПродолжительность: 06:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680664EBA6BFE686B55AA2EA49903DD8D3CF425
 ```
 
 

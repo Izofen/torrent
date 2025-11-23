@@ -1,3 +1,51 @@
+###  Публикация: 1649477   (194901) от 02.08.2023
+
+Ходячие мертвецы: Мёртвый город / The Walking Dead: Dead City (2023) WEB-DLRip [H.264/720p] (сезон 1, серии 1-6 из 6) LostFilm
+
+>>Зарубежные сериалы
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит через несколько лет после событий финала оригинального сериала «Ходячие мертвецы». Таинственный лидер группы выживших по имени Хорват нападает на Мэгги и похищает ее сына Хершела. Женщине удается выследить похитителя до Манхэттена, который теперь представляет собой изолированный остров, наполненный множеством непреодолимых смертельных опасностей. (   Читать дальше...   )Производство: США, AMC Networks, AMC StudiosЖанр: ужасы, триллер, приключенияРежиссер: Кевин Даулинг, Лорен С. Яконелли, Ганджа МонтейруАктеры: Джеффри Дин Морган, Лорен Кохэн, Гай Чарльз, Mahina Napoleon, Желько Иванек, Логан Ким, Джонатан Хиггинботэм, Карина Ортиз, Паллави Састри, Лиза ЭмериПеревод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии по ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8E585611696AC9F7D77FFAE1F004F9AA910B76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640513   (195254) от 23.07.2023
+
+Ходячие мертвецы: Мертвый город / The Walking Dead: Dead City (2023) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) LostFilm, HDRezka, NewComers
+
+>>Зарубежные сериалы
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195254.jpg" />
+</div>
+
+
+###  Подробнее
+
+В постапокалиптическом мире прошли годы с тех пор, как зрители в последний раз видели Мэгги (Лорен Коэн) и ее заклятого врага Нигана (Джеффри Дин Морган). Жизнь сложилась таким образом, что теперь эти двое должны сформировать хрупкий союз, чтобы выполнить опасную миссию. Мэгги и Ниган отправляются на остров Манхэттен, который, будучи изолированным от всего мира с (   Читать дальше...   )Производство: США, AMC Networks, AMC StudiosЖанр: Ужасы, триллер, приключенияРежиссер: Кевин Даулинг, Гянджа Монтейру, Лорен С. ЯконеллиАктеры: Джеффри Дин Морган, Майкл Энтони, Лорен Кохэн, Дэвид Чен, Джонатан Хиггинботэм, Карина Ортиз, Паллави Састри, Рэнди Гонзалез, Джесси РейдПеревод: Многоголосый профессиональный (LostFilm, HDRezka Studio, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936A0A808136930ECBD2F52D2F117D71FD666AB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640293   (195303) от 22.07.2023
 
 Ходячие мертвецы: Мертвый город / The Walking Dead: Dead City (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) HDRezka
@@ -6,7 +54,7 @@
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195303.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195303.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ magnet:?xt=urn:btih:9E2BAF922F2D695A9516DD3C46493976130F719C
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195344.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:305917BACA6F1310FFE4ECA6EB5EAC55BEBC607E
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196272.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196272.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ magnet:?xt=urn:btih:4547431CA663FFE3BEF68EA4343FA30D70D9C476
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208107.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ magnet:?xt=urn:btih:CBC6C2699B27E50A25041549E41AFCC0BC22D4A5
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208115.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208115.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ magnet:?xt=urn:btih:CD64F01D28CEAB10D74E1DE2EDFDBAB56F855C09
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_230129.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_230129.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ magnet:?xt=urn:btih:CD64F01D28CEAB10D74E1DE2EDFDBAB56F855C09
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243339.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243339.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ magnet:?xt=urn:btih:4471C7D8ED70AEB1CCB915129CF554B077165B7B
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246812.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246812.jpg" />
 </div>
 
 

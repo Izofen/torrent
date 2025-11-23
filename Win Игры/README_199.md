@@ -6,7 +6,7 @@ SteamWorld Build (2023) [Ru/Multi] (13541592/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60590.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60609.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60617.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60632.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60644.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60683.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60692.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ancient Cities (2023) [Multi] (1.0.2.36) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60704.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60715.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60721.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60722.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60772.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60774.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60837.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (0.2.0.5.202403281756/dlc) Repack F
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60880.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Real Estate Simulator: From Bum to Millionaire (2024) [Ru/Multi] (3815219) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60902.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60904.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tempus Rail (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60910.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60932.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Gore Doctor (2024) [En] (1.05) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60952.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Between Horizons (2024) [Multi] (1.0.4+s) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60957.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tactic Boxing (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60981.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60982.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Distant Bloom (2024) [Multi] (41064.3120) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60997.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61001.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Necrosmith 2 (2024) [Ru/Multi] (1.0.0.262) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61034.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65099.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65100.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Burzum - Draugen - Rarities (2005) Compilation [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65101.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Entrails - Grip Of Ancient Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65108.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Calling All Astronauts - Noise Against Tyranny (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65129.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Motorhead - The Manticore Tapes (2025) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65140.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Manowar - Gods Of War (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65141.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ As the Sea Parts - Psychosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65145.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ashes Of Ares - New Messiahs (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65154.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Net-Ruiner - Prototype (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65157.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Relligary - Hearts and Minds (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65161.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Paul Bartolome - Fake Hollywood (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65163.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Crystal Skull - Arcane Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65166.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Manejando con Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65171.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - If I Don't Care_ Rock Hits Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65174.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gods Of Tomorrow - Gods Of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65186.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:69627E3F9494BAEA44342789F953933E27556901
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65194.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Feliz dia do Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65203.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9192BDC11ADA404D8082124A9866CBC2F68F15B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65207.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Chase the Moon (Rock Hits) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65209.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Eagles - Hotel California (1976) Reissue, 2017, Asylum 2CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65218.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65225.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65229.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Rock Rarities - Cover Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65244.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ As the Sea Parts - Psychosis (2025) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65270.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Asphodelus - Stygian Dreams (2019) [FLAC|Lossless|image + .cue] <Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65271.jpg" />
 </div>
 
 

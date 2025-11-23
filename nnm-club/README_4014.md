@@ -1,3 +1,80 @@
+###  Публикация: 1690231   (124046) от 06.01.2024
+
+Георгий Берёзко | Знамя на холме (Командир дивизии) (1946) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало литературной деятельности Георгия Березко — военные и первые послевоенные годы. Творческой самобытностью писателя-баталиста отмечены его повести «Знамя на холме» («Командир дивизии») и «Ночь полководца». Они рассказывают о мужестве и железной стойкости советских людей, творивших во время Великой Отечественной войны бессмертные подвиги.
+
+Для детей старшего (   Читать дальше...   )Жанр: ПовестьИздательство: ДетгизФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7766440F0BBF6452DBA45BF7DD60B6E71A84B002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690332   (124047) от 06.01.2024
+
+Расплата за флирт / Fixing a Flirt (1912) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я опять на своем коньке, то есть расплетаю на тему того, что ничто не ново, и все что есть, уже было. О чем фильм? О том как молодой человек пригласил в кафе девушку, объект своих обожаний. Она принимает приглашение, а уж там в кафе, простите за современный слэнг, разводит молодого человека на денежки и "динамит". А фильму, между тем, больше ста лет. Не (   Читать дальше...   )Производство: США, Lubin Manufacturing CompanyЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: George Reehm, Фрэнсис Не Мойер, Споттисвуд Аиткен, Бобби Барнс, Уолтер СталлПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6CE3BD5BEC5627187FD9241176F0F45B4DB475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690307   (124048) от 06.01.2024
+
+Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ominous Terror (4:52)
+02. Unbreakable (3:05)
+03. Muse (3:44)
+04. The Chase (4:26)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15B625C823EA9A2733C70503A4D67A78597905D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690182   (124049) от 06.01.2024
 
 Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Power Metal, Progressive Metal>
@@ -6,7 +83,7 @@ Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124049.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124050.jpg" />
 </div>
 
 
@@ -60,7 +137,7 @@ Krabathor - Orthodox & Mortal Memories (2014) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124051.jpg" />
 </div>
 
 
@@ -87,7 +164,7 @@ magnet:?xt=urn:btih:1D8C13BA693C2A2669CDE466C7747DA1FB6CF724
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124052.jpg" />
 </div>
 
 
@@ -111,7 +188,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124053.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124054.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ VA - Music News vol.329 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124055.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ magnet:?xt=urn:btih:68428B8FB55A15F2B4442138E37316649FCE0609
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124056.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124056.jpg" />
 </div>
 
 
@@ -210,7 +287,7 @@ magnet:?xt=urn:btih:68428B8FB55A15F2B4442138E37316649FCE0609
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124057.jpg" />
 </div>
 
 
@@ -234,7 +311,7 @@ Privacy Eraser Free 6.2.2 Build 4820 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124058.jpg" />
 </div>
 
 
@@ -259,7 +336,7 @@ magnet:?xt=urn:btih:5D4C4F9BF0910824AAD2096CF025F4C82E8FEF27
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124059.jpg" />
 </div>
 
 
@@ -283,7 +360,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124060.jpg" />
 </div>
 
 
@@ -310,7 +387,7 @@ magnet:?xt=urn:btih:F3FB7358713027306E9D28F493D79901AB2D4CE9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124061.jpg" />
 </div>
 
 
@@ -334,7 +411,7 @@ magnet:?xt=urn:btih:09AF545AA4C0FEA58FF718D443318075375520BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124062.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_124062.jpg" />
 </div>
 
 
@@ -358,7 +435,7 @@ magnet:?xt=urn:btih:09AF545AA4C0FEA58FF718D443318075375520BB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124063.jpg" />
 </div>
 
 
@@ -383,7 +460,7 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124064.jpg" />
 </div>
 
 
@@ -407,7 +484,7 @@ Text Editor Pro 28.3.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124065.jpg" />
 </div>
 
 
@@ -431,7 +508,7 @@ magnet:?xt=urn:btih:B9D535340BAB1123F7C15FF8EDDB37B534D361A0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124066.jpg" />
 </div>
 
 
@@ -455,7 +532,7 @@ L'ame Immortelle (L'Âme Immortelle) - Ungelebte Leben (2024) [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124067.jpg" />
 </div>
 
 
@@ -482,7 +559,7 @@ magnet:?xt=urn:btih:129787F8746EF00EEFD384E23DC73329AE41E5D4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124068.jpg" />
 </div>
 
 
@@ -506,7 +583,7 @@ magnet:?xt=urn:btih:24E6332FD3AB93E6AB0A935A96D3A75CCBD31CA8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124069.jpg" />
 </div>
 
 
@@ -530,7 +607,7 @@ Perfect365 Video Makeup Editor v1.6.20 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124070.jpg" />
 </div>
 
 
@@ -554,7 +631,7 @@ magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124071.jpg" />
 </div>
 
 
@@ -565,79 +642,6 @@ magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2815C372753444E824EFD99EDB0CEAC44081151B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690227   (124072) от 06.01.2024
-
-Алиса в стране чудес / Алиса в Зазеркалье / Alice in Wonderland / Alice Through the Looking Glass (2010 - 2016) BDRip 3D [H.264/1080p] [Дилогия] [Вертикальная анаморфная стереопара]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь 19-летней Алисы Кингсли принимает неожиданный оборот. На викторианской вечеринке, устроенной в её честь, Алисе делает предложение Хэмиш, богатый, но глупый сын лорда и леди Эскот. Не дав ответа, девушка убегает и идёт за кроликом, замеченным ею на лужайке. Кролик как кролик, вот только он одет в камзол и всё время смотрит на карманные часы.
-Алиса гонится за (   Читать дальше...   )Производство: США / Walt Disney Pictures, Roth Films, Team ToddЖанр: фэнтези, приключения, семейныйРежиссер: Тим Бёртон, Джеймс БобинАктеры: Джонни Депп, Миа Васиковска, Хелена Бонем Картер, Энн Хэтэуэй, Криспин Гловер, Мэтт Лукас, Майкл Шин, Стивен Фрай, Алан Рикман, Барбара Уиндсор, Саша Барон Коэн, Рис Иванс, Линдси Дункан, Лео Билл, Джеральдин ДжеймсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:34 / 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7589799822BCB8FE429DE1C1D9C594BB64DCE4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690238   (124073) от 06.01.2024
-
-В.Н.Цуканов, М.Я.Яковлев | Волоконно-оптическая техника. Практическое руководство 4-е изд., испр. и доп. (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена отечественная волоконно-оптическая компонентная база, предназначенная для жестких условий эксплуатации. Приведены основные технические характеристики волоконно-оптических компонентов и методы их измерения. Предложены методы контроля параметров безотказности с учетом принципиальных отличий волоконно-оптических компонентов от электронных. Даны практические (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690199   (124074) от 06.01.2024
-
-Каменщик / The Bricklayer (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Уэйл по прозвищу Каменщик — один из лучших агентов ЦРУ, оставивший службу в прошлом. Но когда его старый знакомый организовывает серию убийств с целью подставить Управление, властям приходится вернуть Стива в игру. Теперь вместе с заносчивой напарницей Кейт они должны остановить опаснейшего противника, пока под угрозой не оказался весь мировой порядок.Производство: Греция, Болгария, США | Millennium MediaЖанр: боевик, триллерРежиссер: Ренни ХарлинАктеры: Аарон Экхарт, Нина Добрев, Клифтон Коллинз мл., Тим Блейк Нельсон, Ильфенеш Хадера, Оливер Тревена, Акис Сакеллариу, Ори Феффер, Лили Рич, Константин АдаевПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:00Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
 ```
 
 

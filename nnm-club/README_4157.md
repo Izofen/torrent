@@ -1,3 +1,81 @@
+###  Публикация: 1684391   (127769) от 15.12.2023
+
+Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Does That Magic Like You (3:25)
+02. Ain't Got Nothing But My Sorrow (Bad Gambler) (5:15)
+03. Mysterious Love (5:08)
+04. Riding On My Mind (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A8E068C5BDEF4A22E337FD54B44F8FB2F82822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684388   (127770) от 15.12.2023
+
+Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Permanent Vacation (3:34)
+02. The Scandinavian Way (3:52)
+03. Regrets (3:49)
+04. Grov (6:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684452   (127771) от 15.12.2023
+
+Искупление рыжего Руба / The Redemption of Red Rube (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная др-р-р-раматическая история про шерифа и беглого преступника. История в которой выясняется. что у рыжего Руба, конокрада и убийцы, еще сохранилось в душе что-то человеческое. А еще там есть индеец, злой индеец. Уже не в первом фильме той эпохи я вижу злого индейца. И у меня закрадывается страшное подозрение, что в американском кинематографе начала прошлого (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Эгил ЭйПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F298A76A79A2828712F6024C44A927741A67EBEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684429   (127772) от 15.12.2023
 
 Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +84,7 @@ Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127772.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127773.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127774.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127775.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ magnet:?xt=urn:btih:7386BE25F02DF2B373515A1D937C51873A5FEAED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127776.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127777.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Grafvitnir - Venenum Scorpionis (2019) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127778.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ magnet:?xt=urn:btih:934444BE3464DE0477896905F69F7FFD51502085
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127779.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ magnet:?xt=urn:btih:934444BE3464DE0477896905F69F7FFD51502085
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127780.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Noage - From Darkness To Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127781.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127782.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ magnet:?xt=urn:btih:E1CBB802208FE532F0931B5F1BB3BA956219D174
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127783.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ Opera GX 105.0.4970.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127784.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ magnet:?xt=urn:btih:9F034DF1F83D4B2EC6B45DB07EB525DD28475F5F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127785.jpg" />
 </div>
 
 
@@ -365,7 +443,7 @@ Sinisa Petric - Please Come Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127786.jpg" />
 </div>
 
 
@@ -392,7 +470,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Op
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127787.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:F1B8735A905C8F5BBC21B61DD52AA32C55AAA022
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127788.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ magnet:?xt=urn:btih:B5491B35682AA6B3C5A20E8DDEE9120E3A331129
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127789.jpg" />
 </div>
 
 
@@ -468,7 +546,7 @@ magnet:?xt=urn:btih:3C665C3F1300005670545F934C1F41562E102F97
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127790.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ magnet:?xt=urn:btih:5E1FBA460C192363FC3A52B1FFEABA382D272492
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127791.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ magnet:?xt=urn:btih:391C698175B4C25EB339F1192C2883EB12133600
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127792.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127793.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ Astral Experience - Clepsidra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127794.jpg" />
 </div>
 
 
@@ -583,86 +661,6 @@ Astral Experience - Clepsidra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0ADA15FA0A6D5785B0D9C6F32E510F5A9316869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684163   (127795) от 15.12.2023
-
-Men Eater - Men Eater (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grail [00:07:05]
-02. Hermit [00:05:36]
-03. Multitude [00:07:50]
-04. Worshipers [00:05:13](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E52619D4B9D3315AA8836A1BA55558539AE4FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684445   (127796) от 15.12.2023
-
-Джейн Остин | Эмма (2020) [MP3, Наталия Казначеева]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотая классика мировой литературы.
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-«Эмма» (1816) – четвёртый большой роман Джейн (Остен) Остин, последний, опубликованный при её жизни. Самое едкое, точное и саркастичное (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук» , StorySide ABПродолжительность: 17:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452F334855FBE77A47855B6A337C637A637B473C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684524   (127797) от 15.12.2023
-
-Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silent Force - немецкая группа Heavy Metal/Power Metal, образованная в 1999 году.2000 - The Empire Of Future
-2001 - Infatuator
-2004 - Worlds Apart
-2007 - Walk The Earth(   Читать дальше...   )Жанр: Power MetalПродолжительность: 05:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484BF8716C7638A6204B931744B24745E4C67367
 ```
 
 

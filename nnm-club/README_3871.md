@@ -1,3 +1,77 @@
+###  Публикация: 1695480   (120328) от 29.01.2024
+
+Часовня / Chapel (2024) WEB-DLRip [H.264/720p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_120328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В американской глуши из озера достают едва не утонувшего молодого человека. Откачать его удаётся, но незнакомец никак не может вспомнить ничего из прошлой жизни, даже собственного имени. Жители местного городка с подозрением, но принимают его в своё сообщество, и вот уже Коэн (такое имя дали несостоявшемуся утопленнику за его любовь к песням Леонарда Коэн) обустраивается (   Читать дальше...   )Производство: США / Yeehaw Films, 2111 PicturesЖанр: триллер, детективРежиссер: Кортни ПейджАктеры: Тэрин Мэннинг, Локлин Манро, Джереми Самптер, Шоун Стивенс, Тилки Джонс, Кортни Пейдж, Роб Даймонд, Мэдисон Бонтемпо, Мэтью Фэйхи, Эмили ЭшбиПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:55Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683818   (120329) от 29.01.2024
+
+Дневник Глумова (1923) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот коротенький фильм был частью авангардного спектакля. Примечателен тем, что это самый-самый первый фильм Эйзенштейна. Он сам появляется в кадре - удивительно молодой и задорный. Не пытайтесь найти в фильме какой-то смысл и тем более сюжет. Это советский киноавангард в стиле буфф. И этим все сказано.Производство: СССР, ГоскиноЖанр: короткометражный, немое киноРежиссер: Сергей ЭйзенштейнАктеры: Григорий Александров, Александр Антонов, Сергей Эйзенштейн, Михаил Гоморов, Джуниор Инкижинов, Вера Музыкант, Иван Пырьев, Максим Штраух, Вера Янукова, Иван ЯзыкановСубтитры: русские (интертитры)Продолжительность: 00:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D973A5283CFD4BC35C64F363980B5CDDACB5CBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695585   (120330) от 29.01.2024
+
+Алекс Кош | Кулак Полуденной Звезды (Книга 4). Медиум на полставки (2023) [MP3, Олег Кейнз]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120330.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Медиум на полставки» – роман Алекса Коша, четвертая книга цикла «Кулак Полуденной Звезды», жанр боевое фэнтези, городское фэнтези, темное фэнтези.
+
+Я смог избавиться от проклятия Садако, и теперь пришло время платить по счетам: спасти тех, кто пострадал из-за меня, и убить Погонщика Трупов. Но чтобы справиться с ним, мне нужно стать сильнее, гораздо сильнее, и набраться (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиИздательство: ИДДКПродолжительность: 07:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746CAC5FC74C9DE2EF1884DFEC3F460DB7684681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695488   (120331) от 29.01.2024
 
 Тор: Рагнарёк / Thor: Ragnarok (2017) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +80,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120331.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Canvas X Draw 7.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120332.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120333.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:14EA086FFB3EAFC4466625452EEE1F95C34A87E4
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120334.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:62D05B185371555B08F6876D04079B883E123710
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120335.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120335.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:62D05B185371555B08F6876D04079B883E123710
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120336.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:93787FC9E41956EF94E9F320D0C408F476B559DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120337.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120337.jpg" />
 </div>
 
 
@@ -174,7 +248,7 @@ TweakPower 2.050 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120338.jpg" />
 </div>
 
 
@@ -198,7 +272,7 @@ magnet:?xt=urn:btih:6B981FE2C8793EC752F981A9E1D78FFEA8611BED
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120339.jpg" />
 </div>
 
 
@@ -222,7 +296,7 @@ magnet:?xt=urn:btih:54D2C1A99B5335CA6A4AB7B85C434A99B9E50AA4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120340.jpg" />
 </div>
 
 
@@ -247,7 +321,7 @@ Malwarebytes Windows Firewall Control 6.9.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120341.jpg" />
 </div>
 
 
@@ -271,7 +345,7 @@ magnet:?xt=urn:btih:7E2FF42A9D4992B4C494487ED9D1AF4DC0C77C75
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120342.jpg" />
 </div>
 
 
@@ -295,7 +369,7 @@ Adobe Photoshop 2024 25.4.0.319 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120343.jpg" />
 </div>
 
 
@@ -319,7 +393,7 @@ magnet:?xt=urn:btih:1CC3AB130598259CDAF3A9B76E659168B4F72379
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120344.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:5188D6934D28FEB7FA8AFBF4B93BC68AF8BF693C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120345.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120345.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ magnet:?xt=urn:btih:5188D6934D28FEB7FA8AFBF4B93BC68AF8BF693C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120346.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120347.jpg" />
 </div>
 
 
@@ -415,7 +489,7 @@ magnet:?xt=urn:btih:844A1AA039CD4A94C57F76104187BB232C4E651A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120348.jpg" />
 </div>
 
 
@@ -439,7 +513,7 @@ magnet:?xt=urn:btih:6E15DB2DC2140B389E11C0EB23E66F0DC54FA353
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120349.jpg" />
 </div>
 
 
@@ -463,7 +537,7 @@ magnet:?xt=urn:btih:AFEF3F4D935A5CB9205A986AA1AB5675D95D788B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120350.jpg" />
 </div>
 
 
@@ -487,7 +561,7 @@ magnet:?xt=urn:btih:CD5ED38F61FAA7B2233759B991E1F7FA2738698F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120351.jpg" />
 </div>
 
 
@@ -511,7 +585,7 @@ magnet:?xt=urn:btih:B46201FBB31A083072EFEA9356C28D1BC1ECA9AB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120352.jpg" />
 </div>
 
 
@@ -535,7 +609,7 @@ magnet:?xt=urn:btih:B12EAD80D0E510A30144CE1576AA0B36BAEF96E8
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120353.jpg" />
 </div>
 
 
@@ -546,78 +620,6 @@ magnet:?xt=urn:btih:B12EAD80D0E510A30144CE1576AA0B36BAEF96E8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB9DD5BF317407F412677EB367EEC2E97E1249D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695471   (120354) от 29.01.2024
-
-Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.5 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120354.jpg" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC70703BFB6039DC98D3410EC621EAFBB42CDE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695569   (120355) от 29.01.2024
-
-Ascold Flow | Божественность вызывает привыкание (Книга 1). Абсолют. Том 1 (2024) [MP3, Юрий Мироненко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я достиг вершины своего развития, уничтожив рассадник зла на Земле. Дал ей надежду на светлое будущее и был готов построить его своими же руками, вот только Система решила, что таким как я не место на планете и вырвала меня из родного мира в Новый. Она забрала у меня практически всё, лишив и легендарных артефактов и десятков способностей, оставив лишь немногое, что (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 10:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903F5090058B5B7B857C7D09B16AB3C097FC3F62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695514   (120356) от 29.01.2024
-
-DNS Changer 2.1.12 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120356.jpg" />
-</div>
-
-
-###  Подробнее
-
-DNS Changer - это простой и эффективный инструмент для пользователей, которым требуется программа для удобной смены DNS-серверов. Основная цель программы - предложить удобный способ изменения DNS без лишних усилий со стороны пользователя. DNS Changer - это интуитивно понятное и удобное приложение с современным дизайном интерфейса. Его использование не вызывает трудностей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9349662B9012431C832AD4D6655FB3F08AA4F107
 ```
 
 

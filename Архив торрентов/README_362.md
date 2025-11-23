@@ -6,7 +6,7 @@ CyberLink MediaShow Ultra 6 0 3914 [Multi без русского]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86206.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86223.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86229.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kuba Windows 7 themepack + Rocketdock by kubines 1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86233.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Defenders of Ardania [En] (RePack/1.2) 2012 | Daytone
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86234.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6AEDCCA4E8BC83FA7AE501E5109D53D04D6430B2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86242.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:6AEDCCA4E8BC83FA7AE501E5109D53D04D6430B2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86254.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86264.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86278.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86279.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:E50ABBDA2B8CF35B5210069F0B160F1C6A3DA9C6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86283.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86287.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86289.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86294.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Halloween - Terrortory (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86296.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ C-Bo - Cali Connection (2012) [MP3|320 кб/с]<Rap / Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86312.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ BitTorrent 7.6.1 Build 26993 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86314.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BitTorrent 7.6.1 Build 26993 + Portable [Multi(Rus)]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86316.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:42E23CD624503FC16057D51FA8858130FC6B3525
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86323.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:42E23CD624503FC16057D51FA8858130FC6B3525
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86328.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:42E23CD624503FC16057D51FA8858130FC6B3525
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86330.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:A4AE42077E7E42ED9D3BB2F909359E236088DC06
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86336.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:161ABAF91552A579A326BF005BFAD50BE61DFDD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86339.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Warp [Ru] (RePack) 2012 | Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86345.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:5AE912B76442A1454C7FB5952FC3F2EAFFEE47B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86349.jpg" />
 </div>
 
 

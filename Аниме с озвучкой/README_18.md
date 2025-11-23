@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146080.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6DDCE1438DED51B0B0C77F0E896D0B5D55D43C87
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147716.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147762.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150184.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150857.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151271.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151923.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:4DCE888027C86D39B31D7E9291DF58241DD0A9CF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152093.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152141.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152651.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152818.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:89E1A9349AADF9256845795A37543E4D760C9DD2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:EFA32CA65CDC14FC37EF8279E83138B14715A5B6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156161.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1702983   (115414) от 27.02.2024
+
+78RePack 1.9.5 New (WimLib 1.14.4) Portable by conty9 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115414.jpg" />
+</div>
+
+
+###  Подробнее
+
+78RePack (утилита для конвертации архивов Wim/Esd/Swm/Rwm) это GUI для WimLib (альтернативный @MS набор библиотек для работы с wim-архивами). GUI сделан с помощью скрипта PECMD2012. Возможности утилиты: преобразование архивов Wim/Esd/Swm/Rwm, просмотр информации выбранного архива, проверка архива на целостность, распаковка архива в выбранную папку. Работает независимо (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0BFFF1BDB61318C16108AEE9D44239D7E1F474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702934   (115415) от 27.02.2024
+
+StartAllBack 3.7.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115415.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48999FD9A3A2B93FACA4BAB37FD0AE0993C414F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703106   (115416) от 27.02.2024
+
+Udemy, Alexey Belov | Как пройти Junior Python собеседование (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подготовьтесь к успешному старту в мир Python-разработки с нашим уникальным курсом "Python Junior: Мастер-класс по Прохождению Собеседований". Этот курс предоставляет вам все необходимые инструменты и знания для уверенного прохождения собеседований и получения первой работы в качестве Junior Python Developer.
+
+Получите ключи к своему будущему в Python-разработке. (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 02:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B7B609514F5F19596DBB7C1ECFF39286F6E604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703003   (115417) от 27.02.2024
 
 Adobe Audition 2024 24.2.0.83 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +80,7 @@ Adobe Audition 2024 24.2.0.83 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115417.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:500B8FF9F0B60DA48F8A797F1BF8C9ACA9B13F35
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115418.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Product University, Сергей Туманов, Алексей Шаграев, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115419.jpg" />
 </div>
 
 
@@ -81,7 +155,7 @@ magnet:?xt=urn:btih:333A002FBFC6813181099660BA21A6CC4DD220A1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115420.jpg" />
 </div>
 
 
@@ -108,7 +182,7 @@ magnet:?xt=urn:btih:3CDE2C433EC80CFD3D6C44A56EA92CD830E0BD19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115421.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ magnet:?xt=urn:btih:D241ACA32CF91EB4E8766797A8FCDA08BE607743
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115422.jpg" />
 </div>
 
 
@@ -157,7 +231,7 @@ magnet:?xt=urn:btih:4F67F6319204D31AD2B0FC074ADE0AB875A6193C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115423.jpg" />
 </div>
 
 
@@ -181,7 +255,7 @@ magnet:?xt=urn:btih:FB12B5EAE49ED600ACFA0239CE2FB48D509C89B6
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115424.jpg" />
 </div>
 
 
@@ -205,7 +279,7 @@ magnet:?xt=urn:btih:A9CEF802DEEC525957F848C7DAA94BA5FD9FF45C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115425.jpg" />
 </div>
 
 
@@ -229,7 +303,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115426.jpg" />
 </div>
 
 
@@ -253,7 +327,7 @@ magnet:?xt=urn:btih:88B5543DC813A7534E448AE8DAF4A680BDB7BD99
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115427.jpg" />
 </div>
 
 
@@ -277,7 +351,7 @@ magnet:?xt=urn:btih:A36830A1DC9AEAF499F66A72521520A44FFA7B50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115428.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ magnet:?xt=urn:btih:C3A9905B5D0857D72436CDC7008AC851D60B1DC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115429.jpg" />
 </div>
 
 
@@ -326,7 +400,7 @@ magnet:?xt=urn:btih:283A28DD4224D41FFCF84EBA11456CA391E4FFD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115430.jpg" />
 </div>
 
 
@@ -350,7 +424,7 @@ magnet:?xt=urn:btih:84907BD2151EA058A14E8B20F3B98D80472DE6E2
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115431.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ Hiren’s BootCD PE x64 v1.0.7 (26 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115432.jpg" />
 </div>
 
 
@@ -401,7 +475,7 @@ magnet:?xt=urn:btih:0027C05C48D95EDD68F670D93D4309EEA4EAE3AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115433.jpg" />
 </div>
 
 
@@ -425,7 +499,7 @@ magnet:?xt=urn:btih:0027C05C48D95EDD68F670D93D4309EEA4EAE3AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115434.jpg" />
 </div>
 
 
@@ -449,7 +523,7 @@ magnet:?xt=urn:btih:11A8F6A342795D40AC8CBC852F9A432796EE8530
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115435.jpg" />
 </div>
 
 
@@ -473,7 +547,7 @@ magnet:?xt=urn:btih:ADB056562B4976F3F285EBEBF94ECE7E01BE0C60
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115436.jpg" />
 </div>
 
 
@@ -497,7 +571,7 @@ magnet:?xt=urn:btih:F915620D96CCD94871F2DFF904153B688D69E104
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115437.jpg" />
 </div>
 
 
@@ -521,7 +595,7 @@ Mafia Anthology / Мафия - Антология (2002-2010) [Ru/En] Repack R.G
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115438.jpg" />
 </div>
 
 
@@ -547,7 +621,7 @@ magnet:?xt=urn:btih:A28163CFDDDED1F6CAE5D03D31D3BA55D4B5339D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115439.jpg" />
 </div>
 
 
@@ -558,80 +632,6 @@ magnet:?xt=urn:btih:A28163CFDDDED1F6CAE5D03D31D3BA55D4B5339D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7CDE9F94CFEFEA8830215C07002B01CF8FCBC29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358320   (115440) от 27.02.2024
-
-В бой идут одни «старики» (1973/2009) BDRip [H.264] [Цветной]
-
->>След.
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
-Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Продолжительность: 01:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27FD1A0BB830BB056B8FBD1947BDE1AD2B8C606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695952   (115441) от 27.02.2024
-
-Большая игра / Независимый / The Independent (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная политика похожа не на карточный домик, а на бассейн с голодными акулами. Накануне президентских выборов журналистка ведущего медиа ныряет туда с головой.
-Ее внимание привлекает независимый кандидат. Он молод, красиво говорит и обещает избавить страну от коррупции. Но чем глубже она погружается на дно бассейна, тем сильнее льется кровь. Столь приятный глазу (   Читать дальше...   )Производство: США / Anonymous Content, NEXT Productions, Park Pictures, The ExchangeЖанр: триллерРежиссер: Эми РайсАктеры: Джоди Тёрнер-Смит, Брайан Кокс, Энн Дауд, Джон Сина, Люк Кирби, Стивен Лэнг, Маргарет Одетт, Майкл Гандольфини, Алисия Райнер, Имани ЛавПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BD1E3B6447FD6A922EB4119EC59892B716F7E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694469   (115442) от 27.02.2024
-
-Хрупкость / Хлюпик / Petite nature / Softie (2021) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о 10-летнем Джонни Юнге, развитом не по годам мальчике, интересующемся самыми разными вещами. Он проживает в тихом городке Форбак на северо-востоке Франции вместе со старшим братом Диланом, младшей сестрой Мелиссой и проблемной матерью-одиночкой Соней, которая работает в табачном киоске. Когда новый учитель замечает потенциал мальчика и помогает (   Читать дальше...   )Производство: Франция / Avenue B Productions, France 3 CinemaЖанр: драмаРежиссер: Сэмюэл ТейсАктеры: Алёша Рейнерт, Мелисса Олекса, Антуан Райнарц, Изиа Ижлен, Джейд Шварц, Иларио Галло, Абдель Бенчендих, Роман Эш, Джонатан Зито, Тьерри ЛюддекеПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Lisok), английскиеПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC86E14CDEEA2BAE6467704A27A53E0352C7AFFD
 ```
 
 

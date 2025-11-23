@@ -6,7 +6,7 @@ VA - Southern Blues Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138854.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138949.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138992.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139022.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Apollo Motel - Greytown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139059.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139083.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Tony Joe White - The Path Of A Decent Groove (1993) [APE|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139148.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Billie Holiday - The Ben Webster & Harry Edison Sessions (1956-1957) 2CD, 2009, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139204.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Take 6 - We Wish You a Merry Christmas (1999) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139211.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Erotica - Love Me Deeper : Sexy Saxophone (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139231.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ John Jenkins, Cliff Jordan and - Bobby Timmons (1957) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139350.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tony Darren - Sun Song (1998) [APE|Lossless|image + .cue] <Contemporary Jazz, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139373.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bobby Previte & Bump - Counterclockwise (2003) Palmetto Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139397.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lee Morgan - The Rajah (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139407.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Miles Davis All-Stars featuring John Coltrane - Broadcast Sessions (1958-59)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139433.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Joseph Jarman & Anthony Braxton - Together Alone (1971) 1994, Delmark[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139434.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Brothers Candoli Sextet - 2 For The Money (1959) Remaster, 2002, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139444.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Herbie Hancock - Dedication (1974) Remaster, 2014, Sony Music[FLAC|tracks+.cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139452.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Joe Henderson - Lush Life: The Music Of Billy Strayhorn (1992) 2004, Verve Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139486.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Johnny Letman Quartet & Quintet - The Four Faces Of Johnny (1959 - 1960) 2020, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139510.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aldo Romano' New Blood - Plays "The Connection" (2013) Dreyfus Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139517.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Artie Shaw - 1950 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139544.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Doctor Lonnie Smith - Too Damn Hot! (2004) Palmetto Records[FLAC|tracks+.cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139546.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cannonball Adderley - Live! (1964) Remaster, 2011, EMI Music[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139601.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Joe Henderson - Big Band (1997) Verve Records[FLAC|tracks+.cue] <Post-Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139674.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139712.jpg" />
 </div>
 
 

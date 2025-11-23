@@ -1,3 +1,75 @@
+###  Публикация: 1701281   (116558) от 20.02.2024
+
+Николай Зайцев, Вадим Ревин, Евгений Колобов | Пластуны (Книга 3). Золото плавней (2024) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотник Билый возвращается в родную станицу после тяжелого военного похода и не намерен отдыхать… Надо защищать границу! Издревле казаки стояли на защите рубежей Отечества. Пограничные станицы участвовали в стычках с воинственными горскими племенами: отражали натиски и сами хомыляли по плавням. В постоянной борьбе закалялось казачье братство. Здесь все были друг за (   Читать дальше...   )Жанр: Исторические приключенияИздательство: Аудиокнига (АСТ)Продолжительность: 17:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF2C4DD69EF7204B855D6AEC724BA84C2B78361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701290   (116559) от 20.02.2024
+
+RogueKiller Anti-Malware 15.15.2.0 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116559.jpg" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FBC04F5CC10ED548F6B4DF47D855C15D64AC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701232   (116560) от 20.02.2024
+
+NewFileTime 7.16 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла в свет новая версия очень маленькой портативной утилиты, цель которой дать вам возможность очень легко вести редактирование даты создания любого файла или целой директории находящийся на пользовательском компьютере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BE35C56964F4587C47F62BE7A59E2F0CA602BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701206   (116561) от 20.02.2024
 
 Я.П. Понарин | Аффинная и проективная геометрия (2009) [PDF]
@@ -6,7 +78,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116561.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ GPU Shark II 2.1.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116562.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Kdenlive 23.08.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116563.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:5F9C5B983901349ADE14BAB24CDA653285F48F6D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116564.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:05FC29EFDB3F76828395487C9A8CFFE461B80BF0
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116565.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ ISO Workshop Pro 12.7  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116566.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:1F3F4754BEA40DBC7A0361AB0B48C01B8CEC7477
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116567.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:020434018F9A4402A07B84BF19F56DEC863809B8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116568.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:37451C5F4028F8DDF24D211B1C93CF0358C856FD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116569.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:97EA8BB4B0219957FBD49ABD835F30EF6F747771
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116570.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:3A8FAFF86C69EC1CA80C2D49EFBAFCD315FFE054
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116571.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:83D45BF680473A85E1DE167033125660757DAF13
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116572.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:0F0C3BEF63794AA8248F1319BCEEC8296F123829
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116573.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Notepad++ 8.6.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116574.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:A5E95FB22FA426DD9FC727FE2A32A1CA925AB333
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116575.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:0CC4DD1AB1B439F120EF992372D99B6039530CF4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116576.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ magnet:?xt=urn:btih:E54382025235D558AD99F6F044A4FB12D66EEB11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116577.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:E54382025235D558AD99F6F044A4FB12D66EEB11
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116578.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:4CC8BED37222F5EF4D383D719D10EE02F8CC6757
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116579.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ Topaz Video AI 4.1.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116580.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:8E30047AE94FAA926D4A28F6E1C75290ABE6E434
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116581.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ PilotEdit Lite & Pro 18.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116582.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0220) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116583.jpg" />
 </div>
 
 
@@ -550,78 +622,6 @@ MediaHuman YouTube Downloader 3.9.9.88 (0220) RePack (& Portable) by elchupacabr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66413780AF56F62DCA8607600E52B4A3E89176C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701297   (116584) от 20.02.2024
-
-Native Instruments Guitar Rig 8 Pro for Mac 8.1.11 beta [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116584.jpg" />
-</div>
-
-
-###  Подробнее
-
-GUITAR RIG 6 PRO — это совершенный симулятор стойки и усилителя с несколькими эффектами, созданный для быстрого и непосредственного создания и экспериментирования со звуком. Думайте об этом как о своей собственной студии, только с большим пространством, менее тяжелыми усилителями и большей гибкостью.Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3912E8AEF4040864BE02C0996AAB65BB5C2F93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701381   (116585) от 20.02.2024
-
-O&O DiskImage Professional 19.0 Build 110 RePack by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116585.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7638F7E94FA7C94CDD2F1005B0769E22FD25DD8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701403   (116586) от 20.02.2024
-
-Microsoft Windows 11 [10.0.22621.3155], Version 22H2 (Updated February 2024) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630C33C0FE059512654A6FBA93929E0634C7C9E4
 ```
 
 

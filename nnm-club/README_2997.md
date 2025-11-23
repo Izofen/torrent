@@ -1,3 +1,88 @@
+###  Публикация: 486316   (89999) от 22.04.2012
+
+Galaxy Hunter - Sleeping Child (2009) [MP3|320 кб/с]<Spacesynth>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - I'm A Hunter (1:52)
+02. Sleeping Child (5:14)
+03. We Create The Future (4:21)
+04. Eyes On Mars (5:02)
+05. Silver Moon (5:22)
+06. Thy Kingdom Come (5:35)
+07. Alchemy Of Time (4:37)
+08. Centro (1:09)
+09. Apollo 1969 (4:08)
+10. Children Of The World (4:09)(   Читать дальше...   )2009Жанр: SpacesynthПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486452   (90003) от 22.04.2012
+
+Гонщики / Roadracers (1994) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутой парень Дьюд, поклонник рок-н-ролла и безумный гонщик, влюбляется в красавицу Донну. Их преследует банда местных хулиганов на крутых автомобилях во главе с жестоким Тэдом.
+Постоянные гонки по улицам города и разборки в ресторанах вызывают недовольство шерифа полиции. Соперничество между Тэдом и Дьюдом перерастает в открытую вражду и приводит к кровавой бойне.Жанр: Боевик, ДрамаРежиссер: Роберт РодригесАктеры: Дэвид Аркетт, Джон Хоукс, Сальма Хайек, Джейсон Уайлз, Уильям Сэдлер, О’Нил Комптон, Кристиан Клемаш, Аарон Вон, Тэмми Брэйди Конрад, Марк ЛовентальПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:33:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486411   (90004) от 22.04.2012
+
+[Ukr/Ru] Украина имеет талант - 4 / Україна має талант - 4 (2012) SATRip (вып.-7) (1-й прямой эфир)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90004.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кастингах шоу телеканала СТБ «Україна має талант!-4», которое начнется 10 марта, участвовало около 30 тысяч человек.
+«В первых трех сезонах мы проводили отборочные туры в городах-миллионниках, а нынешние кастинги записывались в Киеве, - говорит руководитель проекта «Україна має талант!-4» Тала Онищук.
+
+- Причина в том, что в этом году у нас сложная сцена. Если артист показывает экстремальный номер, она трансформируется специально для этого выступления, а затем снова принимает традиционный вид. Эти метаморфозы сложно описать словами. Зрители увидят их уже в субботу, 10 марта, в 19 часов. Первым покажем кастинг, в котором участвовали таланты с Донбасса. Многие зрители помнят выступление в первом сезоне знаменитого силача Дмитрия Халаджи из Донецкой области. После этого у нас не было яркого силового шоу. И вот на наш проект пришли несколько блестящих атлетов. В субботу вы увидите один из силовых номеров. Это будет попытка установить рекорд Украины».Количество представленных в нынешнем сезоне жанров потрясающе: (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 03:34:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486755   (90005) от 22.04.2012
 
 Ритуал / Ride Of Passage (2012) WEBRip [H.264/720p-LQ]
@@ -6,7 +91,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90005.jpg" />
 </div>
 
 
@@ -31,7 +116,7 @@ VA - Memories are Made of This (1999) 10CD [MP3|320 кб/с]<Oldies>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90007.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90010.jpg" />
 </div>
 
 
@@ -97,7 +182,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90016.jpg" />
 </div>
 
 
@@ -130,7 +215,7 @@ Yoshida Kiyoshi - Warriors (2011) [MP3|320 кб/с]<New age, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90017.jpg" />
 </div>
 
 
@@ -163,7 +248,7 @@ Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Ind
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90021.jpg" />
 </div>
 
 
@@ -196,7 +281,7 @@ VA - Лучшие Хиты Радио DFm Часть 8 (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90023.jpg" />
 </div>
 
 
@@ -229,7 +314,7 @@ Various Artists - The Hearts Of Shadow Gods (1996) [mp3|320 kbps] <Dark Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90024.jpg" />
 </div>
 
 
@@ -260,7 +345,7 @@ magnet:?xt=urn:btih:24C3E2030C6D8D7744F92BB210F29832DCB23D27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90027.jpg" />
 </div>
 
 
@@ -284,7 +369,7 @@ Synthaurion - Distant Frontier (2010) [MP3| ~189-221 кб/с ]<Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90029.jpg" />
 </div>
 
 
@@ -317,7 +402,7 @@ magnet:?xt=urn:btih:C6917FAAA5825DA620357718438DC0C11C80B33D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90032.jpg" />
 </div>
 
 
@@ -342,7 +427,7 @@ magnet:?xt=urn:btih:927EAF2B5E548A5472DE6B7C3B48F697C93BFAA4
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90257.jpg" />
 </div>
 
 
@@ -369,7 +454,7 @@ Offline Explorer Enterprise 6.2.3734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90258.jpg" />
 </div>
 
 
@@ -399,7 +484,7 @@ Offline Explorer Enterprise объединяет лёгкость использ
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90261.jpg" />
 </div>
 
 
@@ -423,7 +508,7 @@ magnet:?xt=urn:btih:1C61A6187534BC49CB4C22C6ECD8E9761B4DB071
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90262.jpg" />
 </div>
 
 
@@ -447,7 +532,7 @@ magnet:?xt=urn:btih:D9EE0250A82A4F607853AB43DCE8B00D6D6E94FA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90263.jpg" />
 </div>
 
 
@@ -480,7 +565,7 @@ magnet:?xt=urn:btih:7253DF8520BD94124C0199753DAB51313ED3EC14
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90266.jpg" />
 </div>
 
 
@@ -504,7 +589,7 @@ magnet:?xt=urn:btih:797269BEFD3DD56C8C21FFC540C06A39C61BE9A8
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90268.jpg" />
 </div>
 
 
@@ -528,7 +613,7 @@ magnet:?xt=urn:btih:F61C2AEFFDC2AFF717A16C0F46553EA6B42B7FCA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_90269.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_90269.jpg" />
 </div>
 
 
@@ -554,7 +639,7 @@ magnet:?xt=urn:btih:F61C2AEFFDC2AFF717A16C0F46553EA6B42B7FCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90272.jpg" />
 </div>
 
 
@@ -578,7 +663,7 @@ magnet:?xt=urn:btih:F61C2AEFFDC2AFF717A16C0F46553EA6B42B7FCA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90275.jpg" />
 </div>
 
 
@@ -604,7 +689,7 @@ magnet:?xt=urn:btih:D085D2FA95039E3E8A793E3A904D7B52DF9ADE98
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90276.jpg" />
 </div>
 
 
@@ -629,7 +714,7 @@ magnet:?xt=urn:btih:D085D2FA95039E3E8A793E3A904D7B52DF9ADE98
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90280.jpg" />
 </div>
 
 
@@ -641,84 +726,6 @@ magnet:?xt=urn:btih:D085D2FA95039E3E8A793E3A904D7B52DF9ADE98
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486074   (90283) от 23.04.2012
-
-Ромео и Джульетта / Romeo And Juliet (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепная, классическая экранизация одноименной трагедии Шекспира.
-Чудесная музыка Нино Рота.Жанр: ДрамаРежиссер: Франко ДзеффиреллиАктеры: Леонард Уайтинг, Оливия Хасси, Джон МакЭнери, Майло О'Ши, Пэт Хейвуд, Роберт Стивенс, Майкл Йорк, Брюс Робинсон, Пол Хардуик, Наташа Парри, Антонио Пьерфедеричи, Эсмеральда Русполи, Роберто Бисакко, Рой Холдер, Кит Скиннер, Дайсон Ловелл, Ричард Уорвик, Роберто Антонелли, Карло Палмуччи.Перевод: ДублированныйЯзык субтитров: РусскийПродолжительность: 02:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D0C00982A916E7B338D002E277D11777A0FA29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486814   (90290) от 23.04.2012
-
-Материк / Terraferma (2011) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители живописного сицилийского острова Лампедуза испокон веков зарабатывали себе на жизнь рыболовным промыслом. Но времена изменились. Выросшие дети понимают, что море не будет кормить их вечно. В центре конфликта оказывается юный сын погибшего рыбака: родной дядя пытается вовлечь племянника в туристический бизнес, в то время как дед требует хранить верность рыбацким традициям. Отношения внутри семьи накаляются до предела, когда на остров прибывает целая партия нелегальных беженцев из Африки.
-
-По закону рыбаки обязаны сообщить о происшествии властям, после чего эмигранты будут экстрадированы обратно в Африку. Привыкшие оказывать помощь всем попавшим в беду, сицилийские рыбаки не могут допустить, чтобы по их вине пострадали женщины и дети. Члены семьи оказываются перед непростым выбором.Жанр: ДрамаРежиссер: Эмануэле КриалезеАктеры: Филиппо Пучилло, Донателла Финокьяро, Беппе Фиорелло, Миммо Кутиккьо, Тициана Лодато, Клаудио Сантамария, ТиттиПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: русскийПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486601   (90291) от 23.04.2012
-
-Серия книг  «Тамплиеры» [2012] [rtf, fb2, epub]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предоставляется интересная подборка историко- приключенческих романов о рыцарях средневековья,
- об ордене Тамплиеров - хранителях тайн и защитников Веры.
-Серия «Тамплиеры» - это серия книг о рыцарях храма, тамплиерах, о вере, предательстве, и любви,
- о взятии Иерусалима крестоносцами, и о многом другом...Формат: rtf, fb2, epub
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F63E53D9254326FF7AC060F8BB00115236A0302
 ```
 
 

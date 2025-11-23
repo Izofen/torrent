@@ -1,3 +1,149 @@
+###  Публикация: 1088413   (140173) от 30.12.2016
+
+Валерий Шамбаров | Солдаты шутят. Энциклопедия армейского юмора (2017) [PDF]
+
+>>Художественная литература
+>>Сатира, Юмор
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые веселые и жизнерадостные люди на свете – это не юмористы, не студенты, не одесситы. Это русские военные.
+Они шутят всегда и везде, в любой ситуации, даже когда совсем худо, и остается только позубоскалить над своим положением.
+Известный писатель Валерий Шамбаров, долгое время прослуживший в армии и до сих пор сотрудничающий с военными структурами, представляет (   Читать дальше...   )Жанр: Юмор, АнекдотыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3226579C1208F122B081C2415C764639D6D72D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970184   (140177) от 30.12.2015
+
+Волна / Bolgen (2015) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сигнал тревоги разносится над спящим городом. То, чего так боялись сейсмологи, сбылось — сильнейший тектонический сдвиг вызывает обрушение горного массива. Теперь гигантское смертоносное цунами движется прямо на людей. Опытный геолог Кристиан Айкорд оказывается в эпицентре самого страшного кошмара своей жизни.Производство: НорвегияЖанр: Боевик, триллер, драмаРежиссер: Роар УтхаугАктеры: Томас Бо Ларсен, Кристоффер Йонер, Эни Даль Торп, Фридтьов Сохейм, Йонас Хофф Офтебро, Ладо Хаджик, Артур Бернинг, Эдит Хогенруд-Сэнд, Элли Харбоа, Метта Агнета ХорнПеревод: Дублированный (iTunes)Субтитры: Английские, норвежские, датские, шведскиеПродолжительность: 01:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC89F61BA1D784060C948C60017191E21D23E922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520694   (140178) от 29.12.2021
+
+Шаблоны - NNM-Club - Шаблон календаря на 2022 от Warrior 123 - 1520694 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон созданный нашим одноклубником Warrior 123Формат: PSDРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08A16228EEB8D4FFABA0C71C6F45987E434A262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272740   (140179) от 29.12.2018
+
+Проекты - VideoHive - Christmas and New Year Greeting Cards - 22749899 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте с этим шаблонам свою красивую Новогоднюю или Рождественскую открытку, для поздравления родных и близких.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD60989A19F5C9DFF45AA7AEE9CD996DAC270C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088280   (140180) от 30.12.2016
+
+Шпионы по соседству / Keeping Up with the Joneses (2016) WEB-DLRip [H.264][MP4|1024x428]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супружеская пара из пригорода оказывается втянутой в международный шпионский заговор, когда обнаруживает, что их, казалось бы, идеальные новые соседи являются правительственными агентами.Производство: США / Fox 2000 Pictures, Parkes+MacDonald Image NationЖанр: Боевик, КомедияРежиссер: Грег МоттолаАктеры: Зак Галифианакис, Айла Фишер, Джон Хэмм, Галь Гадот, Пэттон Освальт, Минг Жао, Мэтт Уолш, Мэрибет Монро, Майкл Лью, Кевин ДаннПеревод: Дублированный - (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C28B3196E64E5B85D314C7E86614152F6615963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195856   (140181) от 30.12.2017
+
+Anvir Task Manager 9.1.7 Final RePack (& Portable) by KpoJIuK  [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140181.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E058FE74CE43E8A3CBD8AD7E7F0BE21E86F7AF22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195829   (140184) от 30.12.2017
 
 А.В. Барковская, Е.В. Хомич | Философия: ответы на экзаменационные вопросы (2009) [PDF]
@@ -6,7 +152,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140184.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ Liar - Strange Love (2012) [MP3|320 кб/с]<Electronic, Future Garage, UK Garag
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140185.jpg" />
 </div>
 
 
@@ -62,7 +208,7 @@ magnet:?xt=urn:btih:A2F4A1692BEC258D89E037F9EA553E9105F05DAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140186.jpg" />
 </div>
 
 
@@ -87,7 +233,7 @@ magnet:?xt=urn:btih:EA70DB3DBABBAF548DBF36C5138A796BA859E847
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140187.jpg" />
 </div>
 
 
@@ -111,7 +257,7 @@ magnet:?xt=urn:btih:DD4C80E4EDBF64AFFBC09A7ACACB811510E3D378
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140188.jpg" />
 </div>
 
 
@@ -135,7 +281,7 @@ magnet:?xt=urn:btih:58C0A2A4B52AEC53BE5C07C1BF52DA5962098D7B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140191.jpg" />
 </div>
 
 
@@ -159,7 +305,7 @@ New year wallpapers 2013 (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140192.jpg" />
 </div>
 
 
@@ -183,7 +329,7 @@ magnet:?xt=urn:btih:28ECB51CE7BFC6588A94D00516387FF446DA8797
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140193.jpg" />
 </div>
 
 
@@ -207,7 +353,7 @@ magnet:?xt=urn:btih:AFB21BA702B1B2D63C966CA98742F023FD7BD25A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140194.jpg" />
 </div>
 
 
@@ -231,7 +377,7 @@ Neon Genesis Evangelion: Angelic Days / Shin Seiki Evangelion: Girlfriend of Ste
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140195.jpg" />
 </div>
 
 
@@ -255,7 +401,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140196.jpg" />
 </div>
 
 
@@ -281,7 +427,7 @@ magnet:?xt=urn:btih:F444C495A4B34A515DAA8182A641B14012A48275
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140197.jpg" />
 </div>
 
 
@@ -305,7 +451,7 @@ magnet:?xt=urn:btih:21D044DC16A7DE9392A3BEA8286A65CE601B2EDB
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140198.jpg" />
 </div>
 
 
@@ -329,7 +475,7 @@ magnet:?xt=urn:btih:F7BF71E2B3FDC2BFC8E6BF11AB515BAAF6A5051A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140199.jpg" />
 </div>
 
 
@@ -354,7 +500,7 @@ magnet:?xt=urn:btih:13CCCBE6CE8F576EBFAB32937D015257164E8A2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140200.jpg" />
 </div>
 
 
@@ -378,7 +524,7 @@ VideoSolo BD-DVD Ripper 2.0.12 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140202.jpg" />
 </div>
 
 
@@ -402,7 +548,7 @@ magnet:?xt=urn:btih:28C9A704A872286990D77F13B2A44EA4D7D9E53E
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140203.jpg" />
 </div>
 
 
@@ -426,7 +572,7 @@ magnet:?xt=urn:btih:D722ED7185155BCC0C4BC88179F7B630A2033E9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140204.jpg" />
 </div>
 
 
@@ -450,7 +596,7 @@ magnet:?xt=urn:btih:874BEE2297FEC64875CEAE3D3600B47FA21367CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140206.jpg" />
 </div>
 
 
@@ -474,7 +620,7 @@ IsMyLcdOK 4.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140207.jpg" />
 </div>
 
 
@@ -485,163 +631,6 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4448A8A9F9A0259F3A05B267AE15ABD803D47D39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590645   (140208) от 18.12.2012
-
-VA - Mystical Lounge - The Best Mystical Tunes (2012) [MP3|320 кб/с]<ChillOut, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existence & Margot Reisinger - Contemplating Maitreya
-02. La Caina - Do Tara Alap
-03. DJ Ravin & Carlos Campos - I Must Confess
-04. Eddie Silverton - Asato Maa
-05. Czech Philarmonic Chamber Orchestra feat. Sophie Solomon - Love Theme from Ben Hur (Bombay Dub Orchestra Remix)
-06. Green Empathy - Kamasutra
-07. Red Buddha - White Bamboo
-08. La Caina - Mysterious
-09. Percusion - Percusion (Part 1)
-10. Ozgtir Sakar A.K.A. Misda Oz vs. Mercan Dede - Ab-i Beka(   Читать дальше...   )Жанр: ChillOut, Lounge, DowntempoПродолжительность: 04:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920AB01694FE255217717586892C7737CB9E30C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970405   (140210) от 30.12.2015
-
-Джеймс Кори | Пожар Сиболы (2015) [FB2]
-
->>След.
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый роман цикла «Пространство».
-
-Открытие порталов, так называемых врат, повлекло за собой массовую колонизацию новых миров. Тысячи людей устремились на поиски лучшей жизни. Однако независимым переселенцам пришлось столкнуться мощной корпорацией, получившей лицензию на изучение неизведанных территорий. На далекой планете Илос разгорелась настоящая война, грозящая (   Читать дальше...   )Жанр: Космическая фантастикаПеревод: Г.В. СоловьёвойФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BD3BCA56BE2E815C96CAE68AA1BAB3B5745B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272708   (140211) от 29.12.2018
-
-Б.А. Новиков, E.A. Горшкова | Основы технологий баз данных (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основы теории баз данных, методы и алгоритмы, применяемые при реализации систем управления базами данных, а также особенности этих методов и алгоритмов, реализованные в СУБД PostgreSQL.
-
-Материал книги составляет основу для базового учебного курса и содержит краткий обзор требований и критериев оценки СУБД и баз данных, теоретическую реляционную модель (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB386DB656D70D353FA32F077292FDC5CF27885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195815   (140213) от 30.12.2017
-
-Уральские пельмени. Новогодние песни (2017) WEB-DLRip (Часть 1)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье. У юмора «Уральских пельменей» нет возрастных ограничений, они избегают «шуток ниже пояса» и на их концертах пятилетние дети смеются рядом с 50-ти летними взрослыми. Новое комедийное шоу включает в себя как самостоятельные сценические истории, так и импровизации с (   Читать дальше...   )Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FED13847D3239B72B939279482E2DE7772B54B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435814   (140214) от 29.12.2020
-
-Мы можем стать героями / We Can Be Heroes (2020) WEB-DLRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа детей пытается спасти своих родителей-супергероев, похищенных инопланетянами. Для этого они сбегают из правительственного убежища.Производство: США / Quick Draw Productions, Troublemaker StudiosЖанр: Фэнтези, боевик, семейныйРежиссер: Роберт РодригесАктеры: Педро Паскаль, Приянка Чопра Джонас, Кристиан Слэйтер, Бойд Холбрук, Тэйлор Дули, Кристофер Макдональд, Сон Ган, YaYa Gosselin, Хейли Рейнхарт, Акира АкбарПеревод: Дублированный (Netflix)Субтитры: Русские (Forced), АнглийскиеПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643595735C74321576318A26E04167C5C9960EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520622   (140215) от 29.12.2021
-
-Конь (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конь - фильм о том, что не все деньги приносят радость и счастье, а некоторые даже могут убить.Производство: РоссияЖанр: Короткометражный, триллерРежиссер: Алексей НебоженкоАктеры: Майя Вознесенская, Алексей Небоженко, Дмитрий Коптев, Олег Морозов и др.Субтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3922120DBBD6EFA6775B5145CEC06DBAD4FA2BE6
 ```
 
 

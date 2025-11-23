@@ -1,3 +1,84 @@
+###  Публикация: 1680073   (134789) от 27.11.2023
+
+Wise Registry Cleaner Pro 11.1.2.717 RePack (& portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C625F6B5F3A252B0FC02FC35961321F2820B07A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679907   (134791) от 27.11.2023
+
+Ю.Н. Калачёв, Д.В. Самохвалов | SimInTech. Основы регулируемого электропривода. Антиучебник (2023) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные среды компьютерного моделирования позволяют создать цифровую модель проектируемого устройства и в цифровом пространстве проанализировать его поведение. По результатам этих виртуальных испытании? можно исследовать различные режимы работы элементов системы, искать ошибки в предлагаемой к реализации структуре, оптимизировать алгоритмы управления и даже автоматически (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A26DBD07F15237BBC3F5EF7063BDA7F1D70147D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593413   (134792) от 24.12.2012
+
+VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руслан Березовский - Ромашка
+02. Сергей Артемьев - Одной тебе
+03. Андрей Рубежов - Красотки-бортпроводницы
+04. Кабриолет - Не ревнуешь
+05. Бумер - Она одна
+06. Алексей Свешников - По снегу
+07. Сергей Сухачев - Первые цветы
+08. Жека - Кони
+09. Михаил Штукин - Любовницы, любовники
+10. Денис Мафик - Миллион разлук(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680032   (134793) от 27.11.2023
 
 Дарья Донцова | Виола Тараканова. В мире преступных страстей (Книга 52) Лобстер для Емели (2023) [FB2]
@@ -6,7 +87,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134793.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134794.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134795.jpg" />
 </div>
 
 
@@ -78,7 +159,7 @@ New year wallpapers 2013 (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134796.jpg" />
 </div>
 
 
@@ -102,7 +183,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -126,7 +207,7 @@ magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134799.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ magnet:?xt=urn:btih:543306FD38DAD0A536738A1E5FFD777D4EE3C42F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134801.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134802.jpg" />
 </div>
 
 
@@ -203,7 +284,7 @@ magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134803.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134804.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134805.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ magnet:?xt=urn:btih:C664D57E996A2E13FEC499362C7C85AFD8752535
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134806.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ Smart Launcher 6.3 build 036 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134807.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ Glary Utilities Pro 6.2.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134808.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ magnet:?xt=urn:btih:E3D05E9FC0BB48396870A9A71FC56F573B49A0FF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134809.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ CareUEyes 2.2.10.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134810.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ Big cats wallpaper (24.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134811.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134812.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134813.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ FX Player Pro 3.7.2 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134814.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134815.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134816.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134818.jpg" />
 </div>
 
 
@@ -586,81 +667,6 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B8F600B7648C2C6A0B834FFC6EDBEFE0CCDCF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679899   (134823) от 27.11.2023
-
-VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omer Bukulmezoglu - ROE (4:33)
-02. Oliver Koletzki Felix Lorusso - Bones (Deep Control MashUp) (4:29)
-03. Mzade - Come On Over (4:18)
-04. JAVAD - I am alone (7:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 07:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592814   (134824) от 24.12.2012
-
-Коровёнка / La vaquilla (1985) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в конце гражданской войны в Испании. Несмотря на военное присутствие, конфликт окончен, и солдаты в основном занимаются тем, что пишут письма домой. Однако шаткий мир и покой нарушен в тот момент, когда пятеро солдат со стороны Республики воруют телку (в буквальном смысле, с рогами) с тем чтобы съесть ее на грядущем общенациональном празднике.Жанр: Комедия, ВоенныйРежиссер: Луис Гарсия Берланга / Luis García BerlangaАктеры: Альфредо Ланда, Гильермо Монтесинос, Сантьяго Рамос, Хосе Сакристан, Карлес Велат, Эдуардо Кальво, Виолета Села, Агустин Гонсалес, Мария Луиза Понте, Хуанхо ПуигкорбеПеревод: Одноголосый закадровыйПродолжительность: 1:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBFE182B646F398F8A950FAC7023A72BEB85D3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679991   (134825) от 27.11.2023
-
-Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134825.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом практическом руководстве авторы показывают инженерам по обработке данных, инженерам по надежности сайтов и разработчикам приложений, как создавать конвейеры данных между кластерами Kafka и различными источниками и поглотителями данных. Kafka Connect позволяет быстро внедрить Kafka, используя существующие данные и обеспечивая множество расширенных вариантов (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 ```
 
 

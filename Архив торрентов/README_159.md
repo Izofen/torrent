@@ -6,7 +6,7 @@ WinMerge 2.16.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39080.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Balabolka 2.15.0.880 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39085.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Display Driver Uninstaller 18.0.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39103.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Auto Blur: Авторазмытие v2.6.11 Mod by 0x7d, oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39107.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Moon+ Reader Pro v9.7 (b907002) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39108.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Revo Uninstaller Pro 5.3.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39156.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ PeaZip 10.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39166.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ SnapEdit - AI photo editor v7.2.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39171.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Chaos Vantage 2.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39196.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Cat Scanner / Сканер породы кошек v17.2.6-G Mod by PieMods [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39202.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:EE07F2F4AFABC3DB055FEE97E1F3F30903FEFBF2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39211.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ChrisPC Win Experience Index 7.24.1023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39216.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ XtraTools Professional 24.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39223.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Smart Tools v2.1.14 mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39228.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Desktop Calendar 3.18.208.6728 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39293.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Joplin 3.1.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39299.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ JetBrains RustRover 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39302.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ ISO Workshop Pro 13.1  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39303.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:89AD25BE46BB8B62FE790283B04C41D04DDDCF62
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39311.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Capture One 23 Enterprise 16.5.0.2494 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39312.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39313.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ CPU-Z 2.11.2 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39320.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ JetBrains PhpStorm 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39322.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Jetbrains WebStorm 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39324.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.40.7100 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39331.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ JetBrains PyCharm Professional 2024.2.4 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39343.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147192.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2FCF4DA99D3D524376FA4A410E2488EFB64365AF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147219.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ David Coverdale - Whitesnake and Northwinds (1988) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147406.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147430.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:79B4F73D0FC3C6845AB76B7ACDF5D32A620E58F1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147479.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:91A927327213FBF35E78BED5FCC9D998FC257788
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147502.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Shy Tiger - Feed The Kitty/Tails Out (2018) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147591.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147634.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Johan Kihlberg's Impera - Spirit Of Alchemy (2021) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147735.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Embryo - Embryo (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147743.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147761.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147800.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147810.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Garden of Grief - Novembernebel (2010) [FLAC|Lossless|image + .cue] <Ambient Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147818.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Steam Slicer - Devenir (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147834.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Heavenqueen - Heavenqueen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147839.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Hasard - Malivore (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147981.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hyperdontia - Nexus of Teeth (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148026.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Corroded - Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard-Rock, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148030.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Papa Roach - 20/20 (2020) [MP3|320 Kbps] <Alternative Rock, Nu Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148046.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Herjan - Nightfall of Humanity (2017) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148050.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A7856C655D6893231A8FEAA25E482955529978E0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148259.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lumuroze - What`s the Point of Falling Down If We Are Already in Hell (2020) [MP
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148271.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148278.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:413E43EDEBE0695EBCDB1EC64374D687FBC00FA1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148295.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148342.jpg" />
 </div>
 
 

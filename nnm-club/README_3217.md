@@ -1,3 +1,82 @@
+###  Публикация: 1759143   (103323) от 06.11.2024
+
+Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dizzy
+ 02.  Osaka
+ 03.  We Live We Die
+ 04.  Part Time Psycho(   Читать дальше...   )Жанр: Electropop, indie popПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758935   (103324) от 06.11.2024
+
+Avarice In Audio - Tear Heaven in Half (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start The Show [00:04:18]
+02. Wicked Die Alone [00:03:43]
+03. You Are The Carbon [00:04:09]
+04. Drowning One [00:03:42](   Читать дальше...   )Жанр: EBM, Synthpop, ElectroПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D07E1B1BA6B7174243EBF48E016DBC2F53B38D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759060   (103325) от 06.11.2024
+
+Журнал | Квантик №7 (июль 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103325.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F203134370A576858964FE41821EFF771C6360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759113   (103326) от 06.11.2024
 
 Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 4-й. Обзор матчей (05.11.2024) HDTVRip [H.264/1080p]
@@ -6,7 +85,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103326.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ Dare - Blood From Stone (1991) Remastered, 2024, Legend Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103327.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ magnet:?xt=urn:btih:0C0D02B4120148E74D89EF62A18975EF32ED23E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103328.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Rimbacher - High Hopes On The Rocks (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103329.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ magnet:?xt=urn:btih:E71A4475889A2F2822A34950BA2A990553468ACD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103330.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ magnet:?xt=urn:btih:4A21CB5A31CF58FD10F4125521B96997E60F350E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103331.jpg" />
 </div>
 
 
@@ -161,7 +240,7 @@ magnet:?xt=urn:btih:0AF7E5554BBDA722D9348DFD2543591A79959EF1
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103332.jpg" />
 </div>
 
 
@@ -185,7 +264,7 @@ Suidakra - Darkanakrad (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103333.jpg" />
 </div>
 
 
@@ -212,7 +291,7 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103334.jpg" />
 </div>
 
 
@@ -239,7 +318,7 @@ Viperwitch - Witch Hunt: Road to Vengeance (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103335.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103336.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103337.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ MotoGP. Этап 19 из 20. Гран-при Малайзии. Гонка (03.11
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103338.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103339.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ magnet:?xt=urn:btih:1FD688184A250D65D5C93B4D971E4893D13B0255
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103340.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ Brad Smith - Broken Bones & Bullet Holes (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103341.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ magnet:?xt=urn:btih:CD9484D9693E2B67A3E989ADBF0BE474BE64F408
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103342.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ magnet:?xt=urn:btih:97738DC86294B872ED1D79C211D7D4A25F3C9A7B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103343.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ Molly Miller Trio - Last Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103344.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ magnet:?xt=urn:btih:2E2A059FDB149A0F922AF3B218B918EA9F74010A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103345.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Pink Magic Orchestra - Pink Magic Orchestra (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103346.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ magnet:?xt=urn:btih:FB18FD4570B4678E44389DED22BE0B609E795730
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103347.jpg" />
 </div>
 
 
@@ -583,7 +662,7 @@ Odrysian - Third Eye Blind (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103348.jpg" />
 </div>
 
 
@@ -597,85 +676,6 @@ Odrysian - Third Eye Blind (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEFE9599A301F4C3CDAACF2CD541DF1552EAD5E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758687   (103349) от 03.11.2024
-
-Michael Mayo - Fly (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bag of Bones (5:08)
-02. Just Friends (5:15)
-03. I Wish (3:28)
-04. Silence (3:38)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF914B8AE5A09ADDCD20B32F6F904B541412A85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758693   (103350) от 03.11.2024
-
-Randy Hoexter - Tomorrowsville (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosetta Stone (5:41)
-02. Mike Stern - The Dragonfly (6:45)
-03. Argentum (For Horace) (5:39)
-04. Roberta Setzu - The Wine-Dark Sea (6:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AD40454D48C9289AC968B3BBF5C4907125A56F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758644   (103351) от 03.11.2024
-
-НХЛ 2024-2025. Монреаль Канадиенс - Питтсбург Пингвинз (02.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103351.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 ноября 2024, воскресенье. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 362 зрителя (93% при вместимости 18 673)
-Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Жан Эбер (Монктон, Канада); Линейный: Эндрю Смит (Китченер, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8480166AF4DEC05A4E89912E29FBF30C8CA8926F
 ```
 
 

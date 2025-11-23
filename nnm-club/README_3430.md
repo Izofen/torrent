@@ -1,3 +1,78 @@
+###  Публикация: 1725912   (108862) от 26.05.2024
+
+Человек-зверь / La Bete humaine (1938) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм частично основан на романе "Жизнь человека " 1890 года Эмиля Золя... Машинист локомотива Жак Лантье страдает приступами немотивированной агрессии, особенно во взаимоотношениях с женщинами. Только работа может отвлечь его мысли от желаемого убийства... Однажды Жак в выходной день отправляется навестить свою крёстную мать. В вагоне поезда он становится (   Читать дальше...   )Производство: Франция / Paris FilmЖанр: драмаРежиссер: Жан РенуарАктеры: Жан Габен, Симона Симон, Фернан Леду, Бланшетт Брюнуа, Жерар Ландри, Женни Хелья, Колетт Режис, Клер Жерар, Жан РенуарПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D150BCCF6637565539E809F8B5004C2B949C92DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725961   (108863) от 26.05.2024
+
+Нил Барретт | Милые домашние зверюшки (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108863.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гостиница "Интергалактика" вмещает в себя десятки тысяч постояльцев из сотен миров, каждому из которых необходимы особые условия обитания. Нередки случаи, когда одни приезжие смотрят на других как на деликатес." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C0D8978AFB785BB5509A0D249559B46AED7AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726006   (108864) от 26.05.2024
+
+VA - Calming Moments, Vol 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gushi, Raffunk - The Way To You (Intro) (1:48)
+02. Svendaq - World Contact (5:11)
+03. L.M.F. - Raghupati (Traditional Song) (4:13)
+04. Aiko Katana - Basic Wishes (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D9D9B76AFDA7A141329568F4C0B516F09565A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725954   (108865) от 26.05.2024
 
 Opera GX 109.0.5097.100 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ Opera GX 109.0.5097.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108865.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ Reegonetti Band - Songs From The Ravens Nest (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108866.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ magnet:?xt=urn:btih:7250D0CCB94D4F7DED89B5C4223E42D085920019
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108867.jpg" />
 </div>
 
 
@@ -85,7 +160,7 @@ magnet:?xt=urn:btih:2353733CB6A649CD13EECDA291871F52E023DA54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108868.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ magnet:?xt=urn:btih:071162A8E8324A48CBE2CF6CFA8961236B797240
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108869.jpg" />
 </div>
 
 
@@ -136,7 +211,7 @@ magnet:?xt=urn:btih:1B02098F8F687C105F32310FC89C9BAEC7A67D4F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108870.jpg" />
 </div>
 
 
@@ -160,7 +235,7 @@ magnet:?xt=urn:btih:4152D9689E7F85D9D51643BE2BF1860C40F8128F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108871.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:D7394126A1C21BCC7D81367CA9457AA9E2659201
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108872.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Гонка (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108873.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ magnet:?xt=urn:btih:5C8B256FE277AF3E341BC1C428F9A7963FB5F7A5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108874.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108875.jpg" />
 </div>
 
 
@@ -290,7 +365,7 @@ magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108876.jpg" />
 </div>
 
 
@@ -314,7 +389,7 @@ magnet:?xt=urn:btih:7ADD3C1C50F5B51B8436A7B1DC3120D140E86983
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108877.jpg" />
 </div>
 
 
@@ -338,7 +413,7 @@ magnet:?xt=urn:btih:6679AD32A735C57B8A1D3798D0C46235F32AB39E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108878.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ Process Lasso Pro 14.1.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108879.jpg" />
 </div>
 
 
@@ -387,7 +462,7 @@ VA - Best Of Zara Taylor (2024) [FLAC|Lossless|tracks] <Trance, Vocal Trance, El
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108880.jpg" />
 </div>
 
 
@@ -414,7 +489,7 @@ magnet:?xt=urn:btih:8825FABEB325698F417C89C211929C6A8F7F7D88
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108881.jpg" />
 </div>
 
 
@@ -438,7 +513,7 @@ Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108882.jpg" />
 </div>
 
 
@@ -465,7 +540,7 @@ magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108883.jpg" />
 </div>
 
 
@@ -489,7 +564,7 @@ magnet:?xt=urn:btih:979FD02EB747716760F5393F0C67EEE8189172E2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108884.jpg" />
 </div>
 
 
@@ -513,7 +588,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 2 (2022) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108885.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ magnet:?xt=urn:btih:B7CAAD3A4F07506526530C1D07D3C9D8A8EC9B9A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108886.jpg" />
 </div>
 
 
@@ -564,7 +639,7 @@ magnet:?xt=urn:btih:281F6E6B6181F4106A3A263F5AA04D6E7D545148
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108887.jpg" />
 </div>
 
 
@@ -575,84 +650,6 @@ magnet:?xt=urn:btih:281F6E6B6181F4106A3A263F5AA04D6E7D545148
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726007   (108888) от 26.05.2024
-
-Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Punk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wrote On The Wall! Take That Society! [00:03:04]
-02. It's Okay... Probably [00:03:01]
-03. What I Do When I Blackout Is None Of My Business [00:03:06]
-04. You Can Paint Over Me But I'll Still Be Here [00:02:46](   Читать дальше...   )Жанр: Pop-Punk-RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49DE1AB03AC60D015B4340743EE19E8A5B979D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725974   (108889) от 26.05.2024
-
-Страна Наири (1930) WEBRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наири — ассирийское название «группы племён» на территории государства Урарту, на части которого теперь расположена Армения. Фильм посвящен 10-летию установления Советской власти в Армении. Фильм явился заметным явлением в армянском "немом" кино. В фильме использованы разнообразные средства: документальная съёмка, фрагменты из игровых картин, инсценировки (   Читать дальше...   )Производство: СССР / АрменкиноЖанр: документальный, история, немое киноРежиссер: Амо Бек-НазаровСубтитры: русские (интертитры)Продолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A40B9094C638D1BD2167A9CC6F6CE9FE984BD46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725622   (108890) от 25.05.2024
-
-The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Правда (3:38)
-02. Голод (2:24)
-03. Культ (3:17)
-04. Не забывай дышать (2:39)(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C2D6E678985052FF82348B606A2DA10D08FE95
 ```
 
 

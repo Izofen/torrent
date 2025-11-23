@@ -6,7 +6,7 @@ Windows 11 Manager 1.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62063.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62064.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:20418B2117FF46ACE6E93531CC4BC649EC72D992
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62065.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62066.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8F397CBC268A6A028F82A1A12F87054F750002B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62067.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62068.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PotPlayer 240315 (1.7.22129) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62069.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2D163682E6673E2A91A9CD419C76506C13896DB3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62070.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.1 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62071.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D5200A08ED74187F27B553D727898539B7868FA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62072.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:CCDBBA43861E0F5A4A3CA23F8D1FAE85E716ACEA
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62073.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Saikyou Tank no Meikyuu Kouryaku / The Strongest Tank's Labyrinth Raids / Сил
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62074.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62075.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E7D44DD8857570EFEB9E10EB524323ECF6B219A0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62076.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:D24A51E002389F9926CA74C5DFC8F73078B9FDC5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62077.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:269F0BDC611BB8F2838A282ECBC8CB55ED781F41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62078.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:E447630E3B40590AA50B47859C283B9435584928
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62079.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:E447630E3B40590AA50B47859C283B9435584928
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62080.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62081.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3D72FE6CD795B4B3CD3614DEEC3B852D9D17354F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62082.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3047AD128CCAA5519BDBA125DDCCC99B56B930D5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62083.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:64DF8C8800EBDBE24436EA2BB10BFAB419D234AE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62084.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D2E007F5900C60677902E245B8942E085435BC4F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62085.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:00A62B8BD62451646D574C097EDE8B0639DC85C9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62086.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:6F059E6CC545B44378CC934026D24B2580F5DB6B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62087.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tor Browser Bundle 13.0.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62088.jpg" />
 </div>
 
 

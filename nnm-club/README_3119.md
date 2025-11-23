@@ -1,3 +1,88 @@
+###  Публикация: 483294   (99723) от 15.04.2012
+
+VA - Chaos Machine Vol.2 (Compiled By Urban Freaks) (2012) [MP3|320 кб/с]<Trance, Psychedelic Trance, Dark Psytrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fryquenciezz & Seven Dark - PsykaDelika
+02. Darkologik - Distortion
+03. Kozvox - A Few Of These
+04. Urban Freaks - Freakin’ Show
+05. MetaNoize - Sponge Of The Forest
+06. Nammah Ohm & Cerebellum Withdrawal - Expect The Unexpect
+07. Micozatka - Critical Sequence
+08. Viatoxik - Reason To Dream
+09. Irrsin - Solium Kaya
+10. Mentalecho - Anonymous2012Жанр: Trance, Psychedelic Trance, Dark PsytranceПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810F0A85457C36B5286E1D62A0177EF06CD40C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483690   (99724) от 16.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (15.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483945   (99725) от 16.04.2012
+
+[Wallpapers] Desktop Wallpapers №18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99725.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №18
+Название: Desktop Wallpapers №18
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483939   (99728) от 16.04.2012
 
 [Wallpapers] Best Wallpapers Pack 14
@@ -6,7 +91,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99728.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99729.jpg" />
 </div>
 
 
@@ -62,7 +147,7 @@ Fomento - To Persevere Is Diabolical (2012) [MP3|~245 кб/с (V0)]<Thrash Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99730.jpg" />
 </div>
 
 
@@ -95,7 +180,7 @@ magnet:?xt=urn:btih:C915C478D180620073DC31BE57EF29FB5F3C2A9B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99733.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ VA - Фестиваль лучших хитов 50/50 (2012) [MP3|256 kbps]<Pop 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99735.jpg" />
 </div>
 
 
@@ -152,7 +237,7 @@ magnet:?xt=urn:btih:547ACA1E955CE5258C9ABF92033A304126DC1946
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99740.jpg" />
 </div>
 
 
@@ -176,7 +261,7 @@ magnet:?xt=urn:btih:80D3F87F4FEA88CA90E60831AB514EC09CEFE5FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99742.jpg" />
 </div>
 
 
@@ -200,7 +285,7 @@ magnet:?xt=urn:btih:493DA62E5A8C48CA357E7E7B5F31DC253F47F442
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99744.jpg" />
 </div>
 
 
@@ -224,7 +309,7 @@ magnet:?xt=urn:btih:B9F8B3A04BA2114C883DD296F9F5CA0D47F65571
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99747.jpg" />
 </div>
 
 
@@ -248,7 +333,7 @@ magnet:?xt=urn:btih:FAB62AE471ED1E224FD1FEE1F8B09C2079C7E33F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99752.jpg" />
 </div>
 
 
@@ -276,7 +361,7 @@ magnet:?xt=urn:btih:6A2A674B0881C3DF01D555F9BAB90EA99B182011
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99757.jpg" />
 </div>
 
 
@@ -300,7 +385,7 @@ magnet:?xt=urn:btih:CFE4BE29C69A7EBFE86DCC7B5C4728FDC5427DEC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99758.jpg" />
 </div>
 
 
@@ -324,7 +409,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99760.jpg" />
 </div>
 
 
@@ -357,7 +442,7 @@ magnet:?xt=urn:btih:5D085FF29DB166C14ACCD02C60A57D07FF985F6A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99763.jpg" />
 </div>
 
 
@@ -381,7 +466,7 @@ VA - A Psychedelic Journey Vol.1 (2012) [MP3|320 кб/с]<psychedelic, full on>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99765.jpg" />
 </div>
 
 
@@ -414,7 +499,7 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99769.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99769.jpg" />
 </div>
 
 
@@ -447,7 +532,7 @@ Ben Azar - Organized Memories (2011) [FLAC|Lossless]<Jazz-Rock, Contemporary Jaz
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99772.jpg" />
 </div>
 
 
@@ -471,7 +556,7 @@ VA - Dance Explosion  (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99773.jpg" />
 </div>
 
 
@@ -504,7 +589,7 @@ DJ Kocmoc - Electro Sensation vol.24 (6.04.2012) [MP3|320 кб/с]<Electro House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99774.jpg" />
 </div>
 
 
@@ -537,7 +622,7 @@ magnet:?xt=urn:btih:2A583B4D6F87A6B5BE944F42EE910495E880E098
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99775.jpg" />
 </div>
 
 
@@ -561,7 +646,7 @@ magnet:?xt=urn:btih:58BDFAC662AC5F05512ABCBFBAD15B126C1C12E9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99780.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ magnet:?xt=urn:btih:EFBC1A3B28EBD3D8D166E05E3EED3059C4AE21A6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99781.jpg" />
 </div>
 
 
@@ -609,7 +694,7 @@ VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99783.jpg" />
 </div>
 
 
@@ -629,100 +714,6 @@ VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484093   (99788) от 16.04.2012
-
-Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baby D - Deliverance (1996)
-Год: 1996
-Жанр: Breakbeat, Hardcore, D'n'B
-Продолжительность: 01:28:06
-Лейбл: Systematic
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481428   (99796) от 16.04.2012
-
-VA - Kiss FM - Top-40 (10.04.2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten feat. Armin Van Buuren - Brute (Original Extended Mix)
-02. Super8 Tab - Awakenings (Original Mix)
-03. Swedish House Mafia - Greyhound (Original Mix)
-04. Mark Knight - Together (Original Club Mix)
-05. Kyau Albert - This Love (Original Mix)
-06. Laidback Luke, Arno Cost, Norman Doray - Trilogy (Original Mix)
-07. Jackwob - Electrify (Seamus Haji Club Mix)
-08. Betsie Larkin Sied Van Riel - The Offering (Extended Mix)
-09. Emma Hewitt - Colours (Armin Van Buuren Rmx)
-10. Kirsty - Twilight (Armin Van Buuren Rmx)(   Читать дальше...   )10.04.2012Жанр: DanceПродолжительность: 03:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA02FE3E1DCE4E0854740FB120BD3AC29234C1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483055   (99799) от 16.04.2012
-
-Chano Dominguez - Flamenco Sketches (2012) [FLAC|Lossless]<Latin Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flamenco Sketches 16:04
-02. Freddie Freeloader 9:33
-03. Blue in Green 8:08
-04. So What 7:45
-05. All Blues 6:53
-06. Nardis 9:05
-07. Serpent's Tooth 3:382012Жанр: Latin Jazz, Piano JazzПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 

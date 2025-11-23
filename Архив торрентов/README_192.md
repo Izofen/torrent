@@ -6,7 +6,7 @@ R-Studio Network 9.4 Build 191349 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DP Animation Maker 3.5.31 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45660.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ KMPlayer 4.2.3.16 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45687.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StartAllBack 3.8.6 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ qBittorrent 4.6.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45693.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Far Manager  3.0.6364 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45700.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45708.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ MetaProducts Offline Explorer Enterprise 8.6.4984 RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45722.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Start11 Version 2.1.0.0 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45726.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v20 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45748.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NetLimiter 5.3.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45754.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera One 113.0.5230.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45755.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Any Video Downloader Pro 9.0.5 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45799.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Tixati 3.29 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45813.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.0 Build 69 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45822.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Topaz Photo AI 3.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45830.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:1C2D9CAB502F65B3365FCB244A4F98408EE9F444
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45858.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Alfa eBooks Manager 8.6.36.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45861.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Listen Audiobook Player v5.2.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45879.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ StartAllBack 3.8.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45893.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34226.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45901.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.0 Build 69 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45906.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Topaz Photo AI 3.2.1 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45911.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Abelssoft SSD Fresh Plus 2024 13.03.56155 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45925.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lossless Scaling 2.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45957.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Opera One 113.0.5230.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45960.jpg" />
 </div>
 
 

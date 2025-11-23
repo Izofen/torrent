@@ -1,3 +1,84 @@
+###  Публикация: 1751851   (103973) от 28.09.2024
+
+Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All God's Chillun Got Rhythm [3:50]
+02. Answering Service [4:44]
+03. Tangerine [5:30]
+04. Night Crawler [5:54](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB38E871F9FE8ECBC6BE168A526759633DB625D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751920   (103974) от 28.09.2024
+
+Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star-Crossed Lovers [3:58]
+02. Night Tide Light [3:28]
+03. Akrasia [4:15]
+04. Silent, Listening [3:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F492CF8479E7DE9772C71BB57726728C4AEABE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752011   (103975) от 28.09.2024
+
+El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclesiástica (0:54)
+02. Lluvia en Atacama (7:37)
+03. Buscaminas (3:51)
+04. Agente Libre (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA3B9E6DCFB5182ACBF535EE1D10E871DA2DA88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752009   (103976) от 28.09.2024
 
 Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +87,7 @@ Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103976.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103977.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103978.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:89BB830422E05A31750BAD841892AC562B79E3E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103979.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ magnet:?xt=urn:btih:EC664D873B2FA3347856AEAD162C9856A88E5C1C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103980.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:D749E40D8AA3F5D104F18DF3B6CFA5A1EE41597E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103981.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ magnet:?xt=urn:btih:115C047DC03CC33E33B85D7459763DC326B302A9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103982.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ magnet:?xt=urn:btih:A9BED9AD2F455222899B709142DB4396648C2225
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103983.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103984.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103985.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ magnet:?xt=urn:btih:EAC65747DD98023FA3CCF7B1A7079466E875BBC1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103986.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103987.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103988.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103989.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3003 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103990.jpg" />
 </div>
 
 
@@ -393,7 +474,7 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103991.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103992.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ VA - Free To Dance, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103993.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103994.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103995.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103996.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ magnet:?xt=urn:btih:876395213A83F03DB862241E79B0BAE85A0DD21A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103997.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103998.jpg" />
 </div>
 
 
@@ -593,83 +674,6 @@ Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6D3FDEE5531D70E772FE0A8C3F9F6E51A84360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752095   (103999) от 28.09.2024
-
-VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryn Whiting - See The Sign (Extended Mix) [7:33]
-02. Andre Wildenhues - Oceans Symphony (Extended Mix) [7:11]
-03. STNX - Destruction (Extended Mix) [6:35]
-04. Vapour Trail - The Furthest Sense (Extended Mix) [7:05](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FE00A47D621803B6C4694EEE252AA7568875FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752102   (104000) от 28.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104000.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2024, суббота. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752076   (104001) от 28.09.2024
-
-Живая еда с Сергеем Малозёмовым (28.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арбузы: чего в них больше — пользы или вреда, как быстро они портятся, правда ли мякоть арбуза — идеальная среда для бактерий, почему случаются отравления и что будет, если есть эту ягоду без ограничений?
- Можно ли псиллиумом заменять муку, что из него готовят диетологи и повара, а тажке — почему его обязательно нужно запивать водой?
- Овсяный отвар: чудо-средство из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78DE2B2516F170D86803F5EDA809BD7A7F136F4
 ```
 
 

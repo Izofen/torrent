@@ -6,7 +6,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13392.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13478.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13486.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13512.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sorry We're Closed (2024) [Multi] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13529.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13598.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13605.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13611.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13654.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13704.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13783.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13818.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pools (2024) [Ru/Multi] (17.06.2025) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13844.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13907.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13955.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13958.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13961.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13964.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13967.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14084.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14091.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14101.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14108.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14130.jpg" />
 </div>
 
 

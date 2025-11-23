@@ -6,7 +6,7 @@ Ultravox - Lament (1984) Deluxe Edition, 2024, Chrysalis Records [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44083.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Arabtronica 2024 - The Best Eastern Rhythms (2024) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Hidden Chill out Cafe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44094.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44100.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44181.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Trance 2024, Vol. 6 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44197.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Trance 100 - Best Of Summer 2024 - Extended Versions (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44409.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Oriental Lounge Music (The Finest Selection Arab Ethnic Tribal House Rhythm
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44500.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Spacedance, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44609.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Arab Folk (Arab Vibes of the Middle East) (2023) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44610.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Steve Angello & AN21 - Size Sound System (01-26) (2023-2024) [MP3|192 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44679.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rick Astley - Free (1991) Remaster, 2024,  BMG [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44701.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Freakangel - Serenity To The Stars, Beauty To The Broken (2024) [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44704.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Vocal Trance Collection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44709.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Two Friends - Big Bootie Mix Vol. 25 (2024-08-29) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44710.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Redux Selection Vol. 9 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44722.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44731.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Downtempo Gems 2024: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44742.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44816.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C14D153DA954D08E8C3F3B3CA259F906B5ABE942
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44905.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Best Ethnic Deep House 2024 (Best Oriental Ethnic Deep Chill House Mix) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44920.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Oriental Ethnic Deep House Summer Mix (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44932.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - A State Of Trance, Ibiza 2024 (Mixed by Armin van Buuren) (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44934.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Erotica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45152.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Anjunabeats presents After Dark 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45235.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - 100% Club Hits - 2024.2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45255.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:73AC9719FFE38CC314402A6E62ABD1E0532BEA2E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Zen Zone 4 (2011) [FLAC|Lossless]<New Age, Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97659.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97659.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Zen Zone 4 (2011)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97667.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Лучшие клубные хиты (2012) [MP3|192-256 кб/с]<Dance, Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97669.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97673.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:22A078E44FE3A5BC54AC76EBBC62595CE32E7FCD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97682.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:B0D135AA38CB0C594ADF38D95BA00846AA2144D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97689.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97689.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:B0D135AA38CB0C594ADF38D95BA00846AA2144D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97690.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97690.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:B0D135AA38CB0C594ADF38D95BA00846AA2144D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97691.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:3673751FDFD88AE0621585751DF0B88C6BFE9638
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97702.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:DF134145653034C8C06617668B2E4FF27D61D9E6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97707.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97707.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Unheilig - Lichter Der Stadt (2012) [FLAC|Lossless]<Industrial Gothic Rock / NDH
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97715.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97715.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CD1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97720.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FF00FC00A42E106BE4DC5ECB405CDA763E44FDE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97721.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ LibreOffice 3.5.2 RC1 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97722.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97722.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ LibreOffice - новое имя пакета офисных приложений
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97723.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Zen Zone 4 (2011) [MP3|320 кб/с]<New Age, Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97728.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97730.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ S-O-DA - Не гасить (2011) [MP3|320 кб/с]<acoustic rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97732.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - XXXL Жажда Скорости Весна (2012) [MP3|160-192 kbps]<Club 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97743.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D1067C041567D2324C4749E948E440AF5FC0CD5C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97744.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Ultimate Clubland A Decade In Dance (2012) [MP3|256 kbps]<Pop | Dance | Clu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97746.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Obie Trice - Bottoms Up (2012) [MP3|192 кб/с]<Midwest Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97748.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97749.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:CF6B2FBB9720D2410C5DCC9B9882A4E436B124EF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97753.jpg" />
 </div>
 
 

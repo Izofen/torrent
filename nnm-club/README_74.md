@@ -6,7 +6,7 @@ Evangelion Shin Gekijouban: Ha | Evangelion: 2.0 You Can (Not) Advance | Evangel
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1961.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1962.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1963.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Black Satellite - Aftermath (2025) [MP3|320 Kbps] <Alternative Metal, Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1964.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Paradise Lost - Ascension (2025) [MP3|320 Kbps] <Doom Metal, Death Metal, Gothic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1965.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:56B097A2B0A9E1AC2CEB88341C1FD5A2FEE5FF58
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1966.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Toki o Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, пок�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1967.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Candice Ivory - New Southern Vintage (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1968.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1969.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Grayceon - Then the Darkness (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1970.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:8A1513613AA9F4A411A4F41ADB6D111CB3B91995
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1971.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:0C741D1C383234F1614101264DAABB969A0DBD75
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1972.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1973.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1974.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1975.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:2384005B9FF97E7C96D09CC7D672B56E17BE2CA8
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1976.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:9060BF6E1B1544059679ADFA8B315779C5210CAA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1977.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3A2F029A709A38E661391773B5B2EA2F6520502E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1978.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Byousoku 5 Centimeter | 5 сантиметров в секунду | 5 Centimete
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1979.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ CHristina Crofts - Best Of Bottleneck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1980.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B9BF3892052EAFB42E7CBC2871DFBFC38598FFEE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1981.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1982.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1983.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:8670E0FFE267A0E8B3E777863C293D63B5D9708D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1984.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1985.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:F0657D4092AFA431BC5E76162355842119E38A4C
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1986.jpg" />
 </div>
 
 

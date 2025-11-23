@@ -6,7 +6,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132326.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:109DC7A1E7B19BBEDD28D1877AD30DD206F369D4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132641.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132914.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За сте
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133335.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133772.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134167.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134402.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4BF1B6068B61792980843C040CE383C3256A6BC9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134433.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135167.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hikaru no Go / Хикару и Го (2001, TV, 75 + Special) DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135735.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135735.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136029.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136561.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137085.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренаде�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137099.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137138.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137155.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137158.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137168.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137208.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137314.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137767.jpg" />
 </div>
 
 

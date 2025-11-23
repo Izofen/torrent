@@ -6,7 +6,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mirage Ignis Fatuus (2025) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0.40P/dlc) Repack FitGirl [Gol
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Missing Hearts: Crimson Cruise / Пропавшие Сердца: Багровы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_92.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Deep Rock Galactic: Survivor (2024) [Ru/Multi] (1.0.40P/dlc) Repack Other s [Gol
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Slime Rancher 2 (2022) [Ru/Multi] (1.0.0) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42d/dlc) Repack Other s [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162.jpg" />
 </div>
 
 

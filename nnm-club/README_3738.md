@@ -1,3 +1,82 @@
+###  Публикация: 1700730   (116870) от 18.02.2024
+
+Газета | Невыдуманные истории №6 (410) (февраль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116870.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
+Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F052C45EFD0157719337AA75B93EAADBC6A94F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700779   (116871) от 18.02.2024
+
+Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starwater [00:07:58]
+02. Thinking of M [00:04:45]
+03. Acidalia [00:07:02]
+04. Asterisms [00:11:06](   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFC5C437B3E540D81F686BD95398C1E8F70E830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700508   (116872) от 18.02.2024
+
+VA - Blind Raccoon & Nola Blue Collection, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi MacDonald - Ballad of Pat Hare (feat. The Reverend Shawn Amos) (3:41)
+02. Anthony Geraci - Tidal Wave (4:32)
+03. kip london - My Baby Loves Me Like a Hurricane (2:25)
+04. Douglas Avery - Survival (feat. Franck L. Goldwasser) (5:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD16082B5287BCF20E9D097726D656804EAD500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700683   (116873) от 18.02.2024
 
 Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin, Pop, Dance>
@@ -6,7 +85,7 @@ Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116873.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116874.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ magnet:?xt=urn:btih:F7C95D3CA21764A159C43F84E36A3A3A6A3B4F79
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116875.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:B032E8CE8A23C7A6E6C939AF432B85203BAE259B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116876.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ Rhinoceros 8 v.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116877.jpg" />
 </div>
 
 
@@ -133,7 +212,7 @@ magnet:?xt=urn:btih:00863D02EE80D887BFBD7AF1E5B8A29FC1A7A90A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116878.jpg" />
 </div>
 
 
@@ -157,7 +236,7 @@ magnet:?xt=urn:btih:9F40270D42DB26C754207DE897AC51D0EC6B5C20
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116879.jpg" />
 </div>
 
 
@@ -181,7 +260,7 @@ magnet:?xt=urn:btih:F71869AC79FC36B0678581F7558051141DC3D56E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116880.jpg" />
 </div>
 
 
@@ -205,7 +284,7 @@ VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116881.jpg" />
 </div>
 
 
@@ -232,7 +311,7 @@ magnet:?xt=urn:btih:E221916E26438269FDF7FF8E78D7871A3984DAF4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116882.jpg" />
 </div>
 
 
@@ -256,7 +335,7 @@ VA - Best of Chill out Sexy Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116883.jpg" />
 </div>
 
 
@@ -283,7 +362,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116884.jpg" />
 </div>
 
 
@@ -310,7 +389,7 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116885.jpg" />
 </div>
 
 
@@ -337,7 +416,7 @@ Audio Hijack 4.3.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116886.jpg" />
 </div>
 
 
@@ -362,7 +441,7 @@ Text Editor Pro 28.4.2 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116887.jpg" />
 </div>
 
 
@@ -386,7 +465,7 @@ Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116888.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116889.jpg" />
 </div>
 
 
@@ -440,7 +519,7 @@ Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116890.jpg" />
 </div>
 
 
@@ -467,7 +546,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116891.jpg" />
 </div>
 
 
@@ -494,7 +573,7 @@ Vanir - Epitome (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Heavy Metal, V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116892.jpg" />
 </div>
 
 
@@ -521,7 +600,7 @@ Total Video Player for Mac 3.1.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116893.jpg" />
 </div>
 
 
@@ -545,7 +624,7 @@ magnet:?xt=urn:btih:3C86AC9A2803253F0592D223523FE93FBFE874F7
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116894.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ VA - Ambient Winter Feeling (2024) [MP3|320 Kbps] <Ambient, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116895.jpg" />
 </div>
 
 
@@ -583,81 +662,6 @@ VA - Ambient Winter Feeling (2024) [MP3|320 Kbps] <Ambient, Relax, Meditation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1972D4DEFCEA6BEC557FCA2B9229FD5A3426AC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700711   (116896) от 18.02.2024
-
-Журнал | Linux Format №312 (2024) [PDF][En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6AD79F8942AB2C3FD43D0A90B11D88528544C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700812   (116897) от 18.02.2024
-
-PingPlotter Pro for Mac 5.24.3.7253 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116897.jpg" />
-</div>
-
-
-###  Подробнее
-
-PingPlotter Pro – приложение, которое предоставляет пользователю широкий спектр возможностей в процессе сетевого мониторинга и устранения возникающих неполадок. Программа способна выводить графический отчет об эффективности маршрута, тестирует производительность сети в течение заданного периода времени и уведомляет пользователя при возникновении сбоев в работе. PingPlotter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 1998-2024 Pingman Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4412161750AF9359117C4FD7B2DA5B9D3CDDC66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700506   (116898) от 18.02.2024
-
-VA - Song Keepers: A Music Maker Foundation Anthology (2024) 4CD [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cary Morin - You Were There With Me (3:51)
-02. Spencer Branch - Blown Back with the Breeze (3:25)
-03. Big Ron Hunter - Going for Myself (3:24)
-04. Patrick Sky - Many A Mile (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1C243DB78A33C4C8DB79C100748DDFEB9B8D4A
 ```
 
 

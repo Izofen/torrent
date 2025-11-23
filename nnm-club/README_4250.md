@@ -1,3 +1,76 @@
+###  Публикация: 231928   (130602) от 09.12.2023
+
+Девочка со спичками / The Little Matchgirl (2006) BDRip [H.264/720p]
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130602.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Девочка со спичками» Роджера Аллерса — еще одна мультипликационная экранизация знаменитой одноименной сказки Ганса Христиана Андерсена, написанной им в 1848 году. В ней рассказывается о маленькой бедной девочке, которая в канун Нового года пытается продать безразличным прохожим коробки со спичками. Чтобы хоть как-то согреться, девочка начинает чиркать спичками, (   Читать дальше...   )Производство: США, Walt Disney Feature AnimationЖанр: детский, драмаРежиссер: Роджер АллерсПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F877EBA0E6C61A72A8A02A5EE7A9C1033A87F00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682661   (130603) от 09.12.2023
+
+ИИ-поиск, 3D-обои и новая версия каждый год. Что говорят инсайдеры о Windows 12?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист Windows Central Зак Боуден опубликовал любопытный отчёт о ключевых особенностях будущей ОС Microsoft. Со ссылкой на инсайдерские источники он перечислил главные нововведения Windows 12, которые станут её эксклюзивами за счёт использования возможностей искусственного интеллекта.По данным источника, одним из наиболее заметных нововведений в новой ОС станет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300463   (130604) от 09.12.2023
+
+Весь Незнайка (Приключения Незнайки и его друзей, Незнайка в Солнечном городе, Незнайка на Луне) (1971-1999) DVDRip [H.264] (32 серии)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130604.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Цветочном городе живут коротышки — маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие.
+Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: Кукольная анимация, Компьютерная анимация, Приключения, МинисериалРежиссер: Юрий Трофимов, В. Голиков, Александр Боголюбов и др.Субтитры: отсутствуютПродолжительность: ~ 00:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7F9D4B4D0ACB2D04761CC01ACC08A3BB898549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667093   (130605) от 09.12.2023
 
 Сюрреалистическая недвижимость / Сюрриэлторы / SurrealEstate (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) LostFilm
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130605.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:3565EA29F7579F3CFB1A7C72F15126DEF2EA7DA2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130607.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:3565EA29F7579F3CFB1A7C72F15126DEF2EA7DA2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130608.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:3C63ECCCB1C7C1E7C066255311FD8AAC323B92C0
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130609.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:3C63ECCCB1C7C1E7C066255311FD8AAC323B92C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130610.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:2170C87CA3F2B0196458CBBAA99C1F4D855C4B40
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130611.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130613.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130614.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:B1DFF6087952855CF9EDC8AF3394B830F41547D1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130615.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:791C3220DF2181F7CE3ED983DA178548DAEACB73
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130618.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:14E8B3BC046EB926EB3D06060EDCC29473B1C4E5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130619.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:2F8DDE660D94200C5DC3D7CA6015B3117C17DD79
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130620.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2) Repack dixen18 [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130621.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:5E1C27368D9CF8631226E03AD507533D9CE6C56F
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130622.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ magnet:?xt=urn:btih:B99725539B1E6E68EBDC6883D5E28DE0127F1197
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130623.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:8D5FA9752DB74DD1498A67EE2527395FE68F4A0C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130625.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Autodesk® Building Design Suite Standard 2013
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130627.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ Autodesk® Building Design Suite Standard – это программный ко
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130628.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ HDDlife Pro 4.0.192 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130630.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130631.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130632.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130635.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ magnet:?xt=urn:btih:09D5C24298E87BD8007FE0F2470C44B3350744EB
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130636.jpg" />
 </div>
 
 
@@ -554,78 +627,6 @@ magnet:?xt=urn:btih:09D5C24298E87BD8007FE0F2470C44B3350744EB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6840914C2EBB36B06AA63BD285A082F91ECFAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437001   (130637) от 09.12.2023
-
-Приключения домовенка Кузи (1984-1987) DVB [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130637.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 серийный мультфильм о забавном непоседливом домовёнке по имени Кузя.Производство: СССР, ТО "Экран"Жанр: детский, кукольныйРежиссер: Аида ЗябликоваАктеры: Светлана Травкина, Георгий Вицин, Григорий Большаков, Анатолий Кузнецов и др.Субтитры: ОтсутствуютПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AABE58EF644BE2D8E0FC4C3BFCA091D2E52F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760809   (130639) от 09.12.2023
-
-Фантастические летающие книги Мистера Морриса Лессмора / The Fantastic Flying Books of Mr. Morris Lessmore (2011) WEB-DL [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм рассказывает об удивительной стране, которую населяют живые книги. Маленькие и большие, молодые и старенькие, весёлые и печальные — все они хотят, чтобы кто-нибудь о них заботился. И, разумеется, чтобы кто-нибудь их читал.Производство: США / Moonbot StudiosЖанр: Мультфильм, короткометражный, драма, приключения, семейныйРежиссер: Уильям Джойс, Брэндон ОлденбургПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE45FC16E5D698148B414AB854084818000A291B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679112   (130640) от 09.12.2023
-
-Балабол (2023) WEBRip [H.264/1080p] (сезон 7, серии 1-24 из 24)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саня Балабин уверен, что всё может и умеет сам, но зачастую попадает в безвыходные ситуации, когда спасти его могут только друзья. В отделе появляется новичок — лейтенант Чекашин — Саня найдёт себе новый объект для шуток и подколов. Сам же очутится внутри неожиданного любовного треугольника: в город вернутся Анжелика и Марьям, а вместе с ними и новые приключения. (   Читать дальше...   )Производство: Россия | «TM Production»Жанр: Детектив, комедияРежиссер: Михаил ГалинАктеры: Константин Юшкевич, Вадим Андреев, Инга Оболдина, Илья Шляга, Мария Пирогова, Ирина Низина, Ольга Плешкова, Григорий Сиятвинда, Юлия Такшина, Гоша КуценкоПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EED13C87CAEECD2FDA76E884D5837B8B008C188
 ```
 
 

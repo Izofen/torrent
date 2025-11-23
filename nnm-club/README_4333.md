@@ -1,3 +1,75 @@
+###  Публикация: 1679477   (133432) от 01.12.2023
+
+Большие часы / The Big Clock (1948) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм - адаптация одноимённого романа Кеннета Фиаринга (1946)... Проницательный редактор журнала "Криминальные новости" собирается с женой и сыном в долгожданный отпуск. Но, в результате конфликта с боссом - медиамагнатом, одержимым манией величия, он проводит вечер с таинственной блондинкой. А вскоре спутника этой блондинки ищут по подозрению в убийстве. (   Читать дальше...   )Производство: США, Paramount PictureЖанр: нуар, драма, криминал, детектив, триллерРежиссер: Джон ФэрроуАктеры: Рэй Милланд, Чарльз Лотон, Морин О`Салливан, Джордж Макреди, Рита Джонсон, Эльза Ланчестер, Харольд Вермилея, Дэн Тобин, Гарри Морган, Ричард УэббПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37325477F05AC16D7A906737B36D778B6D13F6C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681011   (133434) от 01.12.2023
+
+Газета | Тайны СССР №14 (140) (июль 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярный журналИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38FBF1F4F3A35D1F9CE64074E4D27C9D96C2D1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681009   (133436) от 01.12.2023
+
+Пустыня Тартари / Il Deserto Dei Tartari (1976) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на романе Дино Буццати "Татарская пустыня" (1940), действие в котором происходит примерно в 1900 году, фильм рассказывает историю молодого офицера неназванной армии, которого отправляют в древнюю крепость, охраняющую границу пустыни с татарами... На этом уединённом форпосте, хотя враг не появляется, гарнизон торжественно проходит все ритуалы (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ), Cinema Due, Corona Filmproduktion, France 3 CinemaЖанр: драма, военный, историяРежиссер: Валерио ДзурлиниАктеры: Джулиано Джемма, Хельмут Грим, Витторио Гассман, Жак Перрен, Джузеппе Памбьери, Филипп Нуаре, Франсиско Рабаль, Фернандо Рей, Лоран Терзиефф, Джованни Аттанасио, Жан-Луи Трентиньян, Макс фон Сюдов, Манфред Фрейбергер, Лилла Бриньоне, Дино МелеПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594763   (133437) от 26.12.2012
 
 Уимблдон / Wimbledon (2004) [1080p] BDRip
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133437.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133438.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:6DB8BCAA288C355F923481F53ADB266B6214F7C3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133440.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ VA - Хозяйка Бара.Сборник Лучшего Шансона - (200
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133441.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133442.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ magnet:?xt=urn:btih:EE4BD0055C9DF2DE122DB8057FAF84E80E96797C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133444.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ magnet:?xt=urn:btih:6D0A84A068D50153250006B450246163FE06C41C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133445.jpg" />
 </div>
 
 
@@ -184,7 +256,7 @@ magnet:?xt=urn:btih:7B5131DB13F4B5241683DDECECD45D00D3460110
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133447.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ magnet:?xt=urn:btih:8670A80D4ABD65AB44127E8757CFA0CA177BB66C
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133449.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:F0E7D82D883B34FD7FB26776A3019A5EF7FA810E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133450.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ Network Security Scanner for Mac 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133451.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133453.jpg" />
 </div>
 
 
@@ -307,7 +379,7 @@ Hekasoft Backup & Restore 0.20 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133454.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ MediaInfo for Mac 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133455.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133456.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133457.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:3698395E033DFAF5A51003DD9D562C945CE749C9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133459.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:8981307560EAF2E649C0D2F822711E0A36D9AF08
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133460.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ Handy Start Menu 1.80 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133461.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ Handy Start Menu 1.80 [Русский]
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133462.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:DEC593C4FD60A510DE66C9C53E9DFFFCE609D094
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133463.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:1249B131A23BAF4D8096CFB0DF273F422A7475B5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133464.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:FF9CB9DC165D539D25A9B16DA32BB42DE699744D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133465.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ magnet:?xt=urn:btih:FF9CB9DC165D539D25A9B16DA32BB42DE699744D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631DC7460546F751CDAE6A0360C2F1FF0C3C52AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681032   (133466) от 01.12.2023
-
-Король леса / King of the Forest (Le roi de la foret) (2019) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благородные олени - одни из самых могущественных и величественных животных, обитающих в глубине европейских лесов. Эти популярные герои классических сказок также могут быть жестокими зверями, занятыми постоянной борьбой за достижение одной цели: право иметь потомство. Фильм снят в одном из диких лесов Беларуси.Производство: Франция, AmpersandЖанр: документальный, природа, флора, фаунаРежиссер: Энтони Кеттал, Роджер ОуэнПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118FA495B712340A059E52CB600AD27CDFE16D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680875   (133467) от 01.12.2023
-
-AnyGo 6.9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133467.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 20.11.2023Разработчик: © 2023 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DE4A24B3958F46A493672E36D4585CE9215F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590508   (133468) от 26.12.2012
-
-Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все очень просто. Шестиугольное поле, разноцветные фишки, элементарные правила: красные приставляются к красным, синие - к синим. Но не надейтесь, что сможете оторваться от этого занятия прежде, чем вас свалит усталость!
-Что это: точный расчет или гениальное озарение? Как бы то ни было, эта игра заставляет мозговые клетки усиленно работать, а нервные окончания - трепетать. Вы легко освоите правила, а вот достигните ли совершенства...(   Читать дальше...   )Тип издания: ЛицензияЖанр: Настольная игра, логическая, Abstract StrategyЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FF833AD7C561E23593AA33A144E9914AED9117
 ```
 
 

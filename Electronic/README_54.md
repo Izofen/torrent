@@ -6,7 +6,7 @@ VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102954.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102985.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103002.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103003.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103036.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Major Lazer - Guns Don't Kill People... Lazers Do (2009) 15th Anniversary Editio
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103092.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Sahaliittoteoria Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103153.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Best of Celestial (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103155.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Marshmello - The Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Riddim Dubstep, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103158.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - D.Trance 108 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Steve Angello - Radio 1's Essential Mix (2024-11-09) [MP3|~245 Kbps (V0)] <House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103194.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - La Isla Del Sol, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103230.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Victor Special - Friendsland (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103240.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Trance: The Vocal Session 2025 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103253.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - It's All About Deep-House, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103261.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - It's All About Deep-House, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103263.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103274.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Techno Club Vol. 73 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103277.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Pretty Little Deep-House Friends, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103287.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Adam Beyer & Vintage Culture - Drumcode Radio 744(OCA Stage, Só Track Boa Festi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103297.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103308.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103309.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Avarice In Audio - Tear Heaven in Half (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103324.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Hayla - Dusk (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103354.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Best of 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103378.jpg" />
 </div>
 
 

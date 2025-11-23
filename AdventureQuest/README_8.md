@@ -6,7 +6,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15256.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15277.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15293.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15302.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15308.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15415.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15420.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15513.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15588.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15612.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15786.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15875.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15882.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15884.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15895.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15988.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16013.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16015.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16018.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16126.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16152.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16187.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16217.jpg" />
 </div>
 
 

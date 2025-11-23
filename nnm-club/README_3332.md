@@ -1,3 +1,78 @@
+###  Публикация: 1738562   (106314) от 23.07.2024
+
+Google Chrome 126.0.6478.183 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6EC65B87819F9B4819DB5A43ED66B1427DF067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738265   (106315) от 22.07.2024
+
+Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
+2005 - Second Life Syndrome
+2007 - Rapid Eye Movement
+2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738349   (106316) от 22.07.2024
+
+И если я умру во сне / Si muero antes de despertar (1952) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому рассказу Уильяма Айриша (он же Корнелл Вулрич)... Школьник Лучо поклялся своей однокласснице хранить тайну о том, что взрослый незнакомец давал ей леденцы и планирует отвести её в свой сказочный домик из конфет в лесу. Когда позже находят её тело, Лучо разрывается между тем, чтобы сдержать слово, данное убитой девочке, или сказать отцу, полицейскому (   Читать дальше...   )Производство: Аргентина / Estudios San MiguelЖанр: триллерРежиссер: Карлос Уго КристенсенАктеры: Нестор Саварсе, Бланка дель Прадо, Флорен Дельбене, Омеро Карпена, Вирджиния Ромэй, Мариса Нуньес, Мария А. Тронкосо, Марта КинтелаПеревод: любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: английские хардсабыПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE66680D627C91372BAA33BDEBDB62E70EDDF235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738258   (106317) от 22.07.2024
 
 VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
@@ -6,7 +81,7 @@ VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106317.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:AE1ECB4B5DB4833E66FB8440778B2D42EDD99927
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106318.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106319.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106320.jpg" />
 </div>
 
 
@@ -110,7 +185,7 @@ Perfectly Clear WorkBench 4.6.1.2678 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106321.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106322.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ magnet:?xt=urn:btih:987C2D2C414964A60E63AB955D79A83862BF0323
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106323.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ magnet:?xt=urn:btih:5BAA335D600E5E58FD178111E50F126E11111F23
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106324.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106325.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106326.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Hard Power - Hard Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106327.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ King Curious - Common Sense For The Animal (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106328.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106329.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106330.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ Krypticy - The Non-Return (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106331.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Mini
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106332.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ magnet:?xt=urn:btih:D37D41DD3CB8F1D4E86FE032216EE68C7AD3299E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106333.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ magnet:?xt=urn:btih:BBE96DF9F8DD8710B24D3523A91605D8A9F30B5E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106334.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ Joplin 3.0.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106335.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ magnet:?xt=urn:btih:C9A6F539B01097B2931550C535EA33E2306CBEAE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106336.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ magnet:?xt=urn:btih:8890D3D613FE50A284C8A47F8B080DD85823A4F6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106337.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ magnet:?xt=urn:btih:AFEB6D3D9F4CACEC56D22F80715A974897313EFB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106338.jpg" />
 </div>
 
 
@@ -569,7 +644,7 @@ PageEdit 2.2.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106339.jpg" />
 </div>
 
 
@@ -582,84 +657,6 @@ PageEdit изначально разрабатывался как замена �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB6AC53C7D2D86F427D4B68A268C21F509D673B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738356   (106340) от 22.07.2024
-
-Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tattoo
-02. Are You Gonna Be My Girl
-03. Even It Up
-04. What Is And What Should Never Be(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33ABA25CED7881C5AA9573ED9B45BAABC8454D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738484   (106341) от 22.07.2024
-
-XYplorer 26.30.0000 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106341.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C05C4A73BED81A3E83E68496A99B7DC056B7993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738421   (106342) от 22.07.2024
-
-Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Gorgon City - 2014 - Sirens (Deluxe)
-Gorgon City - 2018 - Escape
-Gorgon City - 2021 - Olympia (Remixes)(   Читать дальше...   )Жанр: House, Tech House, Melodic House & TechnoПродолжительность: 6 CD, 05:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2734CA99A742A2DCEDEA6054327DBEBB6203BD1E
 ```
 
 

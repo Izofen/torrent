@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KeepBeats 1.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45076.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:406EFB429362B1C52D6AB4621BDF96B632C05C8E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45077.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:74A194CC93FF4AF3C806F85092372C805BEC3DE3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45078.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8780DBFD9E6FB5DFE1BAF2D5E463322C36F7477C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45079.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:334641633F86793AF21A79492B04372E5C7D6EEB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45080.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:32DD88E81ECCDA76D8A25E83644F50B96DE29613
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45081.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5B142A5D23358AF0DD3601F79E301C30A47AE523
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45082.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45083.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45084.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8CD4C3400DB2212300EA694266A5A53E9948D355
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45085.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:8CD4C3400DB2212300EA694266A5A53E9948D355
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45086.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5CAB42521F5D7218EE9BC3A739800877FA6F50D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45087.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:28C7542E83822B5A54FDC806039EF110DAD9DF50
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45088.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Nitro PDF Pro 14.28.5.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45089.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:051E966BC7D0406BD31F92AAA4033BDA762F0F13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45090.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A27395DBBD78E91C1C52748A8A1FE177D2551AA7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45091.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A2287DBDDDE99429970509C33BEFD8A439729F85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45092.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F8E16AFD1CB546284C09A9F0710FC3924DD9EA10
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45093.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:3FADE81225C95FB93714D20123F194F86C794D3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45094.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - ЕвроХит Топ 40 Europa Plus 30.08.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45095.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:138A6830CF16B0C8FF055E209E0D790545E6B8AA
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45096.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:138A6830CF16B0C8FF055E209E0D790545E6B8AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45097.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:4DF00FF617EF1FC7C7115076FA5E6D13D3C55A32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45098.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5531F212559B4B7E0AE84D6B078D604D13C493BB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45099.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.08.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45100.jpg" />
 </div>
 
 

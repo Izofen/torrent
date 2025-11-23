@@ -6,7 +6,7 @@ Wireless Network Watcher 2.41+  Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114888.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115063.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MathType 7.8.0.0 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115122.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MathType 7.8.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115251.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CineBench 2024.1.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115266.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115281.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hibernate Enable or Disable 1.4 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115589.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ ImageUSB 1.5.1006 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115593.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows 10 Debloater 2.6.11 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115636.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115638.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ NetTraffic 1.71.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116251.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Windows 11 Debloater 2.0.6 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116262.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alcohol 120% Free Edition 2.1.1 Build 2201 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116310.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by Padre Pedro [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116404.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CPUID HWMonitor 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116410.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ OneLoupe 5.77 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116414.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ NVIDIA NVFlash 5.821.0 (x64) Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116418.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ CPUID HWMonitor Pro 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116473.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ MiniTool Power Data Recovery 11.8 Technician RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116746.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116951.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117112.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117274.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ MyLanViewer 6.6.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117567.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ LibreOffice 25.8.2.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117647.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VCap Downloader 0.1.37.6739 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117649.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hard Disk Sentinel PRO 6.30.4 Build 13402 Beta RePack (& Portable) by elchupacab
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117651.jpg" />
 </div>
 
 

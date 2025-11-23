@@ -1,3 +1,78 @@
+###  Публикация: 1525287   (129824) от 20.01.2022
+
+GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [Jp]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gran Turismo 5 Prologue - это предисловие к Gran Turismo 5, которая вышла 2010 году, показывает невероятную мощь Sony PlayStation 3. Но, несмотря на то, что это так сказать платная демоверсия - она может предложить покупателям даже больше, чем полные версии игр некоторых конкурентов.Тип издания: LicenseРазработчик: Polyphony DigitalЖанр: АвтосимуляторЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682941   (129825) от 09.12.2023
+
+Газета | Загадки истории №08 (532) (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129825.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C5D63C3A558413639F73701D5B783A94673358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525317   (129827) от 20.01.2022
+
+Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вводный курс в фигуративный рисунок, пропорции, упрощение анатомии, рисование объёмных форм и затенение. Для новичков.
+Темы охватывали:
+Как найти движение тела по жесту
+Как упростить туловище, чтобы быстро найти его положение в пространстве с помощью «боба»(   Читать дальше...   )Производство: ProkoЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 15:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682967   (129828) от 09.12.2023
 
 Журнал | Дачный сезон №12 (декабрь 2023) [PDF]
@@ -6,7 +81,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129828.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129829.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:D4B8034F76BA7D9283E242E80CA549E752FB54E1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129830.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129831.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129832.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129833.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:83628098F15F59F4E149B46406E4B4CD20283953
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129834.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:352A6BA4468E4547C21427A4258FDC066FD60060
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129835.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Isospin - Aftermath Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129836.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ magnet:?xt=urn:btih:CDA6DA64AD528964E3F28A981502A35C030D09F0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129837.jpg" />
 </div>
 
 
@@ -260,7 +335,7 @@ magnet:?xt=urn:btih:8FFE2CB37A5098431DD5031C64EC7272B279A06E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129838.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ magnet:?xt=urn:btih:BE68CA53E84DA8C88610A76A0DF18BBFA48AA3B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129840.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ magnet:?xt=urn:btih:37F0214561BE2128B6291ECBB179F5BCD80C98AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129841.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129844.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ magnet:?xt=urn:btih:A7778F4BA4B99EE1A3A565FE9CE1B91549BCEFE0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129845.jpg" />
 </div>
 
 
@@ -409,7 +484,7 @@ magnet:?xt=urn:btih:6F107D2A0E50B64DAD11001FFFD77A98EC406060
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129846.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ magnet:?xt=urn:btih:184DFD84FA07E448F590F1681903FD9DAB2174DD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129847.jpg" />
 </div>
 
 
@@ -458,7 +533,7 @@ Mozilla SeaMonkey 2.9.1 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_129848.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_129848.jpg" />
 </div>
 
 
@@ -482,7 +557,7 @@ SeaMonkey — проект, основанный на добрых традиц�
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129849.jpg" />
 </div>
 
 
@@ -506,7 +581,7 @@ magnet:?xt=urn:btih:FDCE35F447157EE45DB97955CECEEF5C6205AEAB
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129850.jpg" />
 </div>
 
 
@@ -530,7 +605,7 @@ magnet:?xt=urn:btih:02430B2A42C5B25540D870A276D431B26EF95410
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129852.jpg" />
 </div>
 
 
@@ -554,7 +629,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -565,87 +640,6 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62069EC2707535EFBF316E335808041FBDE05B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525235   (129855) от 20.01.2022
-
-Книжная серия | Детская энциклопедия [12 томов. Издание второе] (1964-1969) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129855.jpg" />
-</div>
-
-
-###  Подробнее
-
-У школьников часто возникают вопросы из разных областей науки, техники и искусства, на которые учебники либо совсем не отвечают, либо дают неполный ответ. Чтобы оказать учащимся помощь в овладении знаниями, Академия педагогических наук РСФСР издает для детей среднего и старшего возраста Детскую энциклопедию. ДЭ состоит из двенадцати томов. В её создании приняли участие (   Читать дальше...   )Жанр: Детская литература, энциклопедии, научно-популярная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F81958AF137EFFC43CB19098BFBD746C2E252BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525496   (129857) от 20.01.2022
-
-3uTools 2.59 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129857.jpg" />
-</div>
-
-
-###  Подробнее
-
-3uTools - это альтернативная программа для Windows, которая позволяет нам управлять или восстанавливать любое мобильное устройство от Apple (iPhone, iPad или iPod) намного проще. Это действительно полная программа, которая предлагает нам возможность управлять всеми нашими файлами, книгами, фото и видео галереями, а также импортировать музыку и организовывать библиотеки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBCB05F9932CB982A3BF13A6F18E5AAF2AEE7EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488270   (129859) от 01.05.2012
-
-Vladimir Bozar 'n' Ze Sheraf Orkestar - Universal Sprache (2010 Re-release) (2008) [MP3|320 кб/с]<Avant-Garde Metal/Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RRS Master
-02. Super Mythoman
-03. Todomak
-04. Panzoni Pasta
-05. Hector ou la Défaite de Martin Shin
-06. Guignette
-07. Le grand Rabbi
-08. Meglio stasera
-09. Rockabiloose
-10. Gonzales(   Читать дальше...   )2008Жанр: Avant-Garde Metal/ExperimentalПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE0FEAEDE406BDA810AB9C4CB28F8EF7C99753C
 ```
 
 

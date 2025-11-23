@@ -6,7 +6,7 @@ Art Blakey - Four Classic Albums: Second Set (1958 - 1961) 2CD, 2017, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66855.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66859.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66860.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66862.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66864.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66865.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66866.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66867.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66868.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ John Primer - Grown in Mississippi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66870.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Catfish John Tisdell - Back to the Dirt (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66871.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Aki Kumar - God Bless The USA (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66872.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Stratcat Willie & the Strays - Don't Slow Down! (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66879.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cottonfield Blues - Rust & Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66883.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dudley Taft - 15 Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66885.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Terry Hanck - Grease to Gravy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66888.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Keiko Lee - Voices (2002) Sony Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66946.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jimmy Scott - Falling In Love Is Wonderful (1962) 2002, Rhino Handmade [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66955.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66971.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roy Eldridge And Dizzy Gillespie - Roy And Diz (1954) 1994, Verve Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67004.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Coleman Hawkins With Billy Byers And His Orchestra - The Hawk In Hi-Fi (1956) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67012.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ella Fitzgerald - Like Someone In Love (1957) 1991, Verve Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67016.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Bennie Green - Soul Stirrin' (1958) 1997, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67030.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67031.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67042.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Eric Bell - Authenticity (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67066.jpg" />
 </div>
 
 

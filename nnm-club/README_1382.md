@@ -6,7 +6,7 @@ Dragon Age: Origins (2010) [Ru/Multi] (1.05/dlc) Repack dixen18 [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36285.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DipTrace 5.1.0 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36286.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36287.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36288.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Umar Keyn - Compilation Part 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36289.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36290.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36291.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36292.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36293.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Golden Ballads. Лучшие Баллады Последних Десяти
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36294.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:DD77480CC8B9599FF7572FBE9010EF646776E743
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36295.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Last Plague: Blight (2024) [Ru/Multi] (0.9.8) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36296.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36297.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1D1DE18FAE3E433423D39BF41A5960CF5716A9D6
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36298.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36300.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9EB4428DE060F94EC85D4CF85D5B82296D12EBCF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36301.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:17EA36875A2DC1FAFE482EC82A31FD58C759B58E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36302.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows 10 Pro 22H2 build 19045.5131 by neyroslixs [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36303.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36304.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:2CFA11E50A93066DDDC91271D0D4AE65BFB3C885
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36305.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5C0A2F632D15C4BDC2EE99864B5D6A2718EDD38D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36306.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:998AE54E1FC6B9B0C142123FF2598EFAA04BC471
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36307.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Adobe Photoshop 2025 26.1.0.121 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36308.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v22 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36309.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:CABDB5666CC769F3256E1323699145AEE134D19B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36310.jpg" />
 </div>
 
 

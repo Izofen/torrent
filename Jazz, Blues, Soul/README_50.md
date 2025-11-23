@@ -6,7 +6,7 @@ Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94860.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94860.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94889.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94889.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94891.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94891.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Sena Ehrhardt Band - Leave The Light On (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94899.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94899.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Jenny Evans - Lunar Tunes (2008) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94927.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94927.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Fl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94950.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94950.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Essential Blues (2012) 2CD [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94962.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94962.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Terry Quiett Band - Just My Luck (2011) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95022.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95022.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Wynton Marsalis - Standards & Ballads (2008) [FLAC|Lossless]<Post-Bop, Trumpet>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95040.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95040.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95084.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95084.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95086.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95086.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Max Schultz - Plays Coltrane (2007) [FLAC|Lossless]<Contemporary Jazz, Guitar>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95177.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95177.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95245.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95257.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95257.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Maysa - Motions of Love (2011) [APE|Lossless]<Smooth Jazz, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95448.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95448.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95560.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95560.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95580.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95588.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95588.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95603.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95613.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95613.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95619.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95628.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96320.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96320.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Mina Agossi - Red Eyes (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96348.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96348.jpg" />
 </div>
 
 
@@ -785,7 +785,7 @@ Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96409.jpg" />
 </div>
 
 
@@ -818,7 +818,7 @@ Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96425.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96425.jpg" />
 </div>
 
 

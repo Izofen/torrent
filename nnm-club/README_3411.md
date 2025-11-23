@@ -1,3 +1,81 @@
+###  Публикация: 1727937   (108368) от 05.06.2024
+
+My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скиталец (Intro) [00:01:34]
+02. Пока все птицы спят [00:05:11]
+03. Дальше жить нельзя [00:06:08]
+04. The Oddball [00:03:48](   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1971CAB0C7523CA4B7568B4FCA88E27F65E277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728064   (108369) от 05.06.2024
+
+Эдуард Качан | Время «безгрешных» (2021) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грешат все, и верующие, и неверующие. Однако разница все же есть. Верующие люди знают об этом и стараются бороться с собой и своими злыми привычками. Неверующие же искренне уверены, что грехов у них нет. Этим людям и посвящена книга, которую вы держите в руках. Что такое грех? Почему грешить плохо? Можно ли быть счастливым, делая зло? Все ли равно, как верить? Есть (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EED179BDB055B6A2B0A5DF28964B2D34DFC0BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727982   (108370) от 05.06.2024
+
+Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (06:42)
+ 02. Barren Land (03:49)
+ 03. Knee Deep In The Dead (05:59)
+ 04. Dead Creature (04:09)(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BCE07C3FDAF3EB9325095DD59F2BC8B3DC5283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728070   (108371) от 05.06.2024
 
 Святитель Иустин (Полянский) | Исповедь кающегося грешника (1998) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108371.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Idol Throne - A Clarion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108372.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Pungent Stench - Been Caught Buttering (1991) Remastered, 2024, Dissonance Produ
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108373.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108374.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Blackwelder - Survival Of The Fittest (2015) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108375.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108376.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Duality - Elektron (2016) [MP3|320 Kbps] <Death Metal, Progressive Metal, Experi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108377.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Ten Ton Slug - Colossal Oppressor (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108378.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ The Crypt - The Crypt (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108379.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108380.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108381.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108382.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ VA - Rockeate (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108383.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108384.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ magnet:?xt=urn:btih:713ECDFE4C7EE3DEB85C645E6BCC8B2726510969
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108385.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ VA - DJ Hits 29 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108386.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ VA - Rock Solid (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108387.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ Alberto Rigoni - Unexpected Lullabies (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108388.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108389.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108390.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ Dreamcarnation - Dreamcarnation (2024) [MP3|320 Kbps] <Progressive, Symphonic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108391.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ Channel Zero - Studio Albums (8 releases) (1992-2017) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108392.jpg" />
 </div>
 
 
@@ -598,7 +676,7 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108393.jpg" />
 </div>
 
 
@@ -612,84 +690,6 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0DDD906BA2A9E67EC342BC555D25966DCA302F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727799   (108394) от 04.06.2024
-
-VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Cosmic Visions (4:26)
-02. Kool&Klean - Reality (4:28)
-03. eJazz Artistry - Sweet Love (4:01)
-04. Konstantin Klashtorni - Stylish Walk (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9534869EE1524203D18281ABB6E7245160DA3B7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727902   (108395) от 04.06.2024
-
-Гамлет / Amleto (1908) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых первых экранизаций нетленной пьесы Шекспира. Я с трудом напечатал слово "экранизация", потому что фильм не сохранился полностью. Совсем не полностью. По существу здесь несколько фрагментов без титров. Так что представленный фильм имеет только исторически-познавательное значение. И только вам решать смотреть его или не смотреть, вот в чем вопрос. (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, драма, немое киноРежиссер: Марио КазериниАктеры: Фернанда Негри ПугетЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366F7CF4391B5F33C3DB25E8F91D4BB8C8FFD1AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727800   (108396) от 04.06.2024
-
-VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Ineffable (5:22)
-02. Chillaxing Jazz Kollektion - Made a Way (4:08)
-03. Konstantin Klashtorni - Humble and Kind (4:07)
-04. Kool&Klean - I Said, You Said (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7AF8567F9E0968209759DFC7D55720C9A201C6
 ```
 
 

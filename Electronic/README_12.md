@@ -6,7 +6,7 @@ VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Winter Vibes DeepHouse & Nu Disco 2024 (2025) [MP3|320 Kbps] <House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29895.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29895.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29903.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29903.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Deep-House Hunters, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29904.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29904.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29916.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29916.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Slow Deep House Music Mix (2025) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30007.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Deep-House Hunters, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30012.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Winter Dance Covers 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30096.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - #1 Best Dance Hits, Vol. 2 (House, Electro, Synthwave, Ragga, Pop, Dubstep,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30206.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30206.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Best of Compilation 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30216.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30216.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ V.A. - Lounge & Wine, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30305.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - La Isla Del Sol, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30313.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Ultimate Cocktail Lounge Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30314.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - La Isla Del Sol, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30317.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Chillout Winter Session 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30735.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30826.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30826.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Armada Music - Trance Legacy III (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30827.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30827.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Love Lounge, Vol 4 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30832.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30832.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Always Progressive, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30837.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30837.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Under Pro Best 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30951.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30951.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Selected Trance Music 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30952.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30952.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Alan Walker - Walkerworld 2.0 (2025) [FLAC 24/44,1,48|Lossless|WEB-DL|tracks] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30970.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30970.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Sun Kissed, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31045.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31048.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Top 11 November 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31049.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31371.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31371.jpg" />
 </div>
 
 

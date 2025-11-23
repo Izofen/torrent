@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77514.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77554.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77555.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - 90 Club Hits From The 90's (2007) (4CD Box Set) [FLAC|Lossless]<Disco, Euro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77577.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CD1:
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77600.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Euro Truck Simulator [Wineskin] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77638.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Whisky c молоком (2010) DVDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77672.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:1B6CEEC85A8478B4CC6C608D9AFC7668B30E3CB2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77709.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:A0617556D17842F8D066419F2A5AC0DD6DCDC4AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77716.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Kubuntu 10.04.4 LTS [i386 + x86_64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77717.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:6119D41463615A24D1B1512DEB61600644396B74
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77735.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:176F65302464BA7E0671B861E0294B52DA6672C7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77783.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Drivers&Utility для матплаты Gigabyte (socket1155) с процесс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77799.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Drivers&Utility для матплаты Gigabyte (socket1155) с процесс�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77827.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:9E398E8511287BE13ACCD1877016302C5A465BDD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77839.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:ECD59EB3F7D2AE844D1D9CA6E69F86C73F4C94F6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77861.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:ECD59EB3F7D2AE844D1D9CA6E69F86C73F4C94F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77888.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:BC258A14125B8DC0A65254E457828CE29552DAAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77895.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Talk Talk - The Colour Of Spring (1986) [FLAC|Lossless]<New Wave, New Romantic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77902.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Prodigy - H.N.I.C. 3 (2012) [MP3|128 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77932.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:4BB79A7CB3CC97FD8039B306266BC000C578C9EB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77936.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:4BB79A7CB3CC97FD8039B306266BC000C578C9EB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77943.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Pocket PC-версия игры-лабиринта. Цель игры — исп
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77952.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Pocket PC-версия игры-лабиринта. Цель игры — исп
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77956.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ SPB Diary — это многофункциональный экранный м�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77958.jpg" />
 </div>
 
 

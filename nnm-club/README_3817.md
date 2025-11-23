@@ -1,3 +1,84 @@
+###  Публикация: 1697322   (118924) от 06.02.2024
+
+Bubba Henry - It Is What It Is (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let the Blues Be the Blues (4:14)
+02. I'm a Bluesman (3:18)
+03. Me and Memphis (3:41)
+04. Losing the Blues (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51711CB938DBF8D8A7762E9E5EDA7D0023AEA64F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697321   (118925) от 06.02.2024
+
+Bourbon Street Revival - Bourbon Street Revival (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolution (4:44)
+02. No More (5:06)
+03. Nine Minutes of Bliss (3:23)
+04. Ain't No Use (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD8C26BEEEF6E73D570993CE7A2A9CD93B3FEFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697108   (118926) от 06.02.2024
+
+Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling [00:03:07]
+02. Color of Death [00:03:40]
+03. Swamp Water [00:03:03]
+04. Monolith [00:03:30](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697503   (118927) от 06.02.2024
 
 Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
@@ -6,7 +87,7 @@ Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118927.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118928.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118929.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118930.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:8D4F07ABF2AED05F3720B7F9C4819527F1594A00
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118931.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Sandboxie 5.67.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118932.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:5D09B9BC1FEEF50E8696D02280990100AC9E01C5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118933.jpg" />
 </div>
 
 
@@ -187,7 +268,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz  Lounge, Vol. 11 (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118934.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ magnet:?xt=urn:btih:9EFE973626ABEFE1532E24D829AA73894E56FDA4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118935.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ Icecream Slideshow Maker PRO 5.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118936.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ Funky Bluester - Expensive & Dirty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118937.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ magnet:?xt=urn:btih:659602C2DA91384FA64C7C8B48A4147CEB01B998
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118938.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ magnet:?xt=urn:btih:7A229AB707508454D4F13D84B9AB2D269ED06BE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118939.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ VA - Acid Jazz Funk Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118940.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ magnet:?xt=urn:btih:2BCBA3B05844E69B570A0C35F6676492FBF53014
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118941.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ magnet:?xt=urn:btih:877AEA31E1E1748B138278241DAB73BDFB4C02B7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118942.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ magnet:?xt=urn:btih:F429E14C25875DAD6922684EE568BBC3778F59CF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118943.jpg" />
 </div>
 
 
@@ -440,7 +521,7 @@ magnet:?xt=urn:btih:9F7F18EB12B4A13257477C049BF54BD75BB18A93
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118944.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ magnet:?xt=urn:btih:65BE29A1E2DA134AAE750C3A8D16F9C3E348B517
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118945.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ magnet:?xt=urn:btih:285E2CAAED54C41F140966F71B8FC2CAAED05B85
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118946.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ magnet:?xt=urn:btih:3D5E11652914855C977C02BD9FAA41E3B87F6990
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118947.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:A236FC2574232150BE316730035BC4E96F9B62F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118948.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ magnet:?xt=urn:btih:CCF4377DDCAF6A69A0EBE40A475EA41EC103CFC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118949.jpg" />
 </div>
 
 
@@ -572,78 +653,6 @@ magnet:?xt=urn:btih:CCF4377DDCAF6A69A0EBE40A475EA41EC103CFC8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D29B988FF979E7CD01F1845EE3A87A37AB2D247A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697470   (118950) от 06.02.2024
-
-Sandboxie plus 1.12.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21240A39C5292AF3D70AD67A223E23DD0170D14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697393   (118951) от 06.02.2024
-
-BurnAware Professional 17.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118951.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64917104BC2A22BA2AC1E52FE607252EF1A386A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697406   (118952) от 06.02.2024
-
-IceCream Ebook Reader Pro 6.46 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8D21C0B231A7171DF6F70F3ADE936EBFDBD75A
 ```
 
 

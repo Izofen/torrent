@@ -6,7 +6,7 @@ VA - A'dam After Disco (2023) [MP3|320 Kbps] <Funky, Nu Disco, Indie Dance, Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170385.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Patricia Kaas - 19 Par Patricia Kaas (2009) Compilation [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170386.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ C.C.Catch - In The Mix - 80's Best (2002) [OGG Vorbis|480 Kbps] <Electronic, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170400.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170527.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170753.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Bravo The Hits 2023 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170932.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Hit News Vol. 1 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170968.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170978.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Totally Enormous Extinct Dinosaurs - When the Lights Go (2022) Deluxe Edition, 2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171057.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sandra - Fading Shades (1995) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171165.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mike Mareen - Love-Spy (1985) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171201.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171205.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171385.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171716.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171898.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172034.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Любовь всегда права (2023) Посвящение Алекс
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172081.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172089.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172092.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9A929D23DFCA0BE0F6A50B0B742FA22C762A4D77
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172261.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172270.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172439.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172587.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Italove - Chasing Ghosts I-II Albums(2023) [MP3|320 Kbps] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172593.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:186C39BDCD020524CC8D49B8C3536B7327CE6A52
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172600.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172973.jpg" />
 </div>
 
 

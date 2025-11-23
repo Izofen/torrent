@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21865.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21865.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DB7314EE103CD92D773957F2E7CB648C237DACC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21866.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21866.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ISO Workshop Pro 13.4  [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21867.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21867.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Virus [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21868.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21868.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B0671EA958E11F15005400A590500EECB0949884
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21869.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21869.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7B37A1510AD20246DB870C1ADC167498BC796B13
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21870.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21870.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PDF24 Creator 11.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21871.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lanpirot | Товарищ "Чума" (Книга 5). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21872.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21872.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9CAC1FE61701594D699CBE7016BD80DBBC3EB2A5
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21873.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21873.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Lanpirot | Товарищ "Чума" (Книга 4). (2025) [MP3, Виктор �
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21874.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21874.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Wondershare PDFelement 11.4.13.3417 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21875.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21875.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:99C3C418B9ABD6E6228C31FC6BA173D31EF302A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21876.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21876.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MassTube Ultra 20.1.4.128 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21877.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21877.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:20D02D672DC815F6942851DE06B1E2FC1794C111
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21878.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21878.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21879.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21879.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21880.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21880.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21881.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21881.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:5276552A97AADD41064A032A79CE0A96292A7DED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21882.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21882.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21883.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21883.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21884.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21884.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ WinCatalog 2024.10.1.410 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21885.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21885.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21886.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21886.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21887.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8489E36D774DD9B8E74366B37C1856CC69C673AA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21888.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21888.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:E5D0BCA56BA4708751576B0B64C8C8CAD0CFDB02
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21889.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21889.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21890.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21890.jpg" />
 </div>
 
 

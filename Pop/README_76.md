@@ -6,7 +6,7 @@ Burito - Samskara (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169574.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169656.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:67547EF3E16CCF50A7AADB0005CB0F52D2036B53
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169690.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - A Very Cool Christmas (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169725.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169749.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2B9A16A46F4AE10461877BFF9B17D60D59BA27B2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169784.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Melanie Payer - Herzuber (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169844.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Panama - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169920.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169944.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kongas - Afrodesia (2019) EP (Produced by Cerrone) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169955.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169983.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169994.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BF111FFA6A421946FAC13E6C9DC2EAE99FC13B45
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170085.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Hit News Vol. 2 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170119.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Ballads for a Broken Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170163.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:3EDAB8C279D294113025F7610BEEA5A5802E3836
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170222.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edit
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170253.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170264.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Disco Laser (1979) LP [MP3|320 Kbps] <Electronic, Rock, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170267.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Fancy - Diamonds Forever Part I (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170298.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170316.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ V.A. - NOW 100 Hits: Even More Forgotten 80s (2019) 5CD Box Set [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170319.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:456B016F046A8DBEC72BCDC5549FAACEE76E90DF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170339.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, In
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170351.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:C779079EECC850881511516D555BD6852F5FB987
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170361.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170375.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Paul Thorn - Life Is Just A Vapor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67438.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1F7DCDCF5EF6D8EDE319F24D29FE1FB3109EA082
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67439.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Missy Sippy All Stars - Vol II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67440.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Samantha Fish - Paper Doll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67441.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Aggravated Assault - The Order of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67442.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Michael Prunner - Dirty Times (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67443.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Benediction - Ravage Of Empires (2025) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67444.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Ori Uplift - Uplifting Only Episode 637 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67445.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67446.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mike Farris - The Sound Of Muscle Shoals (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67447.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Nikhil Korula Power Trio, Bob Malone, and Gregg Wright - Sight & Sound Episode 4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67448.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Terry Smith - Fall Out (1968) 2006, Sunbeam Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67449.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Vegas Two Times - Challenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67450.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Karen Lee Andrews - Survival (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67451.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Elegant People, Lo Greco Bros and Soulstance - Atlantis (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67452.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Jeff Krause & Brokedown Gramophone - Brokedown Gramophone (Live at Marigny Studi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67453.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67454.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Hands Of Despair - Studio Albums (4 releases) (2011-2021) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67455.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:4A5A50748481766EED5783370B907270E8A39293
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67456.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Chilled Beach Songs (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67457.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6661102D3F215570E03BF4B2D4446FB2AF3A6F8F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67458.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0CE9C6B9B2500C164DA820272C3821090D245C1D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67459.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5C04F58511A17AD8B98A4E722CDF8B19CBE6FF82
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67460.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67461.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Ghost Hounds - Almost Home (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67462.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:48B7C01C6B515D8633DC229BFF1FDD5221F38E6A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67463.jpg" />
 </div>
 
 

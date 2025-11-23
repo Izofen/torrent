@@ -6,7 +6,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (20231109/dlc) Scene Tenoke [Digital
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Sacred Acorn (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Crash Time - Undercover (2012) [Multi] (1.0) Scene Skidrow
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48690.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48694.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Spirits of The Silicium Forest (2024) [Ru/En] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48702.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48706.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dungeons of Hinterberg (2024) [Multi] (1.0.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48710.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48712.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (653.463/dlc) Scene Razor 1911
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48716.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48717.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48728.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) License GOG [Premium Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48743.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48861.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48885.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Riviera: The Promised Land (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48894.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Longing (2020) [Ru/Multi] (1.8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48895.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48908.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48927.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48933.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49007.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (build 14716072/dlc) Re
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49010.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49011.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tekken 8 (2024) [Ru/Multi] (1.06.01/dlc) Scene Rune [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49058.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49071.jpg" />
 </div>
 
 

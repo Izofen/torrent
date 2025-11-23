@@ -1,3 +1,75 @@
+###  Публикация: 1688501   (125034) от 30.12.2023
+
+Путешествие за одну улыбку / Podroz za jeden usmiech (1972) HDTV [H.264/1080p] (сезон 1, серии 1-7 из 7) С. Ващенко
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дудусь и Полдек - двоюродные братья. Дудусь - неприспособленный очкарик, зато Полдек полная ему противоположность. Братья закончили учебный год и оба отправляются на отдых к морю. Но на вокзале выясняется, что кошелек с деньгами и билетами пропал. Поэтому они отправляются в путешествие к морю в одиночку и без денег. В дороге их ждет много приключений.Производство: Польша / Zespol Filmowy "Panorama"Жанр: комедия, приключения, семейныйРежиссер: Станислав ЕндрыкаАктеры: Хенрик Голембиевский, Филип Лободзиньский, Алина Яновска, Ежи Цнота, Ежи Брашка, Анджей Воячек, Иоанна Ожешковска, Мажена Трыбала, Януш Клосиньский, Ежи ТурекПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, польскийСубтитры: русские (Professor)Продолжительность: ~00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5338727498491ED05E3102F5E1E70DEB5C75C828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688670   (125035) от 30.12.2023
+
+Журнал | Сабрина №1 (январь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125035.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2ACC0692CF223252C2AA2A53401651826B0990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688695   (125036) от 30.12.2023
+
+Журнал | Information security / Информационная безопасность №6 (декабрь 2023) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика журнала – информационная безопасность и все, что с ней связано. По мере развития IT технологий, проблема их безопасного использования становится год от года все актуальнее. Вот почему главной задачей журнала является ориентирование потребителя в море новых решений в этой области.Жанр: Безопасность серверов, сетей и информацииИздательство: ООО "Гротек"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD2D8D25736241275AB64373B9088DE0A8CE24A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688740   (125037) от 30.12.2023
 
 Журнал | Лиза №1 (2024) [PDF]
@@ -6,7 +78,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125037.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:074D3FB93CB2D5BFF0946CB7058AEE261754B7C6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125038.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:697D1F18BB0A1B73117ED99204FE61C3ACCE9295
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125039.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ Confetti's - Greatest Hits (2001) [OGG Vorbis|480 Kbps] <Electronic, New Beat, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125040.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ magnet:?xt=urn:btih:38103ED13A4C30F2E90E335C7C8F43CCFD181E34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125041.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:EFB3C85F303BB3C67CDAC64567112A698002E949
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125042.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:A2E20098F9D97542AC7E2A7128773D6420C986F0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125043.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ Ubuntu Junior cube r 1.4 (На основе Ubuntu 10.04) 1.4 [x86] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125044.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125046.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ magnet:?xt=urn:btih:6D5D17CDCFACBFF79C8D1AB92A233BF824E19440
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125047.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ VA - 101 90s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125048.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ Eguana - Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125049.jpg" />
 </div>
 
 
@@ -335,7 +407,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125050.jpg" />
 </div>
 
 
@@ -361,7 +433,7 @@ magnet:?xt=urn:btih:54E752CD5FF5A7CA5460DA2F12EF94312451BAB7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125051.jpg" />
 </div>
 
 
@@ -387,7 +459,7 @@ magnet:?xt=urn:btih:3E209097D8DE66FC5C84661F9C20C9FE8CC2A1B3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125052.jpg" />
 </div>
 
 
@@ -412,7 +484,7 @@ magnet:?xt=urn:btih:4D0CEF00B69D5F82B994216CDE397BB3E52504B8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125053.jpg" />
 </div>
 
 
@@ -436,7 +508,7 @@ magnet:?xt=urn:btih:80F00A0B9FDB1E86CE8B09EB88F3CD7CE56AA928
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125054.jpg" />
 </div>
 
 
@@ -460,7 +532,7 @@ VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125055.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ magnet:?xt=urn:btih:6E661E68303D0DFA2FB8A24C69F993D72DF4A338
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125056.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125057.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:9DCEE77FC4EB45055455D1AB28C74C6C9621DE6B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125058.jpg" />
 </div>
 
 
@@ -562,7 +634,7 @@ Dire Straits - San Antonio Live 1985 (2023) Leftfield Media [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125059.jpg" />
 </div>
 
 
@@ -576,78 +648,6 @@ Dire Straits - San Antonio Live 1985 (2023) Leftfield Media [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BE2DEFA0B6A1DE2D55B585E9F2EA3BFC5B49D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688481   (125060) от 30.12.2023
-
-Ведьма Лилли и Заколдованное Рождество / Hexe Lillis eingesacktes Weihnachtsfest / Lilly's Bewitched Christmas (2017) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя Лилли внешне не отличается от других школьниц, она – самая настоящая ведьма, и умело это скрывает от всех. В ее комнате живет Гектор, зеленый дракончик. Домашние думают, что это мягкая игрушка, а на самом деле это вполне разумное существо, умеющее мыслить и разговаривать. Лилли не верит в Рождество и в то, Санта-Клаус существует, она знает, что ей и ее младшему (   Читать дальше...   )Производство: Германия / Blue Eyes Fiction,Buena Vista International, FilmVergnuegenЖанр: фэнтези, драма, комедия, семейныйРежиссер: Вольфганг ГроосАктеры: Abdullah Daglioglu, Кристоф Биттенауэр, Герти Драссль, Хедда Эрлебах, Мареза Хёрбигер, Аня Клинг, Michel Komzak, Claudio Magno, Маурицио Магно, Михаэль МиттермейерПеревод: Дублированный (Велес)Язык озвучки: Русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533F920505DD6F91AC7ACA517CD7BB0A231E4861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688705   (125061) от 30.12.2023
-
-Мама-невидимка 2 / Invisible Mom II (1999) DVD5 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой сирота, наследник огромного состояния, попал в несколько странную семью. В первую очередь странную из-за того, что приемная мать может стать невидимой. Когда, неожиданно, появляются кузены мальчика, чтобы завладеть состоянием, его приемная мама спасает положение.Производство: США / Concorde-New HorizonsЮ, Royal Oaks Entertainment Inc.Жанр: фэнтези, комедия, семейныйРежиссер: Фред Олен РэйАктеры: Ди Уоллес-Стоун, Джастин Берфилд, Трентон Найт, Мики Доленц, Мэри Воронов, Бэрри Ливингстон, Кэти Гарвер, Эрик Лосон, Джонатан Хэйз, Рик МонтанаПеревод: одноголосый закадровый (Вячеслав Котов)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9B5E2BF561B6E40042D3E3CCC3696A98CB32FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688676   (125062) от 30.12.2023
-
-Единица с плюсом / Неразлучная пятёрка / Petka s hvezdickou (1987) HDTV [H.264/1080i] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125062.jpg" />
-</div>
-
-
-###  Подробнее
-
-В провинциальный южноморавский городок приезжает молодой учитель Петр Микеш, новый классный руководитель седьмого класса «А», известного своими озорными проделками. Главные же хулиганы класса — пять мальчишек, пять неразлучных друзей. Новый учитель сумеет наладить с ними отношения, а они сделают всё, чтобы он остался. Даже найдут невесту...Производство: Чехословакия / Filmové Studio GottwaldovЖанр: комедия, семейныйРежиссер: Мирослав БалайкаАктеры: Ян Гартль, Душан Блашкович, Ива Гуттнерова, Marián Zednikovic, Josef Prazmári, Вацлав Бабка, Вацлав Слоуп, Eva Repíková, Жан Билек, Мирослав КучераПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, чешскийСубтитры: русскиеПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B4E643D4FB8F8770EF9A852D145709971786F4
 ```
 
 

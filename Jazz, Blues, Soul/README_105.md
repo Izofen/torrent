@@ -6,7 +6,7 @@ VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119461.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Relaxing Soothing Jazz Chilly Jams Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119473.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anita O'Day - Indestructible! (2006) Kayo Stereophonic [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119604.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dave Pell - Four Classic Albums (1956 - 1957) 2CD, 2013, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119605.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ron Blake - Sonic Tonic (2005) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119752.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119782.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kenny Neal - 16 Albums (1988 - 2016) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119841.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119923.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119929.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119930.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119934.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119936.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Christopher Dean Band - Need a Friend (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119937.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Andy Lindquist - Balderdash Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119938.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Michel Petrucciani - Estate (1982) 2005, TDM [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119939.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Best of Burlesque (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119960.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vito Rezza - Cognitive Dissonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120065.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120066.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120078.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120079.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120080.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120095.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ JD Allen - Americana, Vol. 2 (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120254.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mike Goudreau Band - Just Wanna Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120403.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120404.jpg" />
 </div>
 
 

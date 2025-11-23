@@ -1,3 +1,78 @@
+###  Публикация: 1719512   (110604) от 29.04.2024
+
+Не разбей мое сердце (2023) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студентка Алёна Павлова мечтает иметь детей, любимое дело и верного любящего мужа. Но когда-то девушке сделали необычное предсказание: как только Алёна полюбит кого-то, к ее избраннику тотчас же придет слава и богатство, но он сразу же ее бросит. А рядом с Алёной останется лишь тот, кому нужна она сама, а не ее дар. Алёна не верила в предсказание, пока оно не начало (   Читать дальше...   )Производство: Россия | С.Д.Л.Жанр: МелодрамаРежиссер: Евгений БарановАктеры: Анна Мельникова, Никита Кучихидзе, Мария Столярова, Екатерина Семёнова, Анна Миклош, Иван Матвеенко, Вадим Ковальски, Евгения Шахнович, Ника Ломако, Екатерина РябоваПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20C9B08634D736852F9FA63601AD03BC1176CFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719188   (110605) от 28.04.2024
+
+Пятеро на одного (27.04.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16B65DF25EE18D0E4DEFCA7E89316B941DF7B26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719153   (110606) от 28.04.2024
+
+JC Smith - The Cool & the Smooth (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Callin' u (4:59)
+02. Ride Wit' me (4:57)
+03. Take U Away (4:13)
+04. I Fall in Love (4:42)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01624E0F9F3FF09261783174A4A1D6F6C66DBC65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719158   (110607) от 28.04.2024
 
 Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -6,7 +81,7 @@ Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110607.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110608.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110609.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110610.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110611.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110612.jpg" />
 </div>
 
 
@@ -168,7 +243,7 @@ magnet:?xt=urn:btih:E5AA929BE1D119903539CFEC4223BDBEDD5275BC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110613.jpg" />
 </div>
 
 
@@ -193,7 +268,7 @@ magnet:?xt=urn:btih:E10E94E6FCD851CDE14DA6FBE791CABA439BA42A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110614.jpg" />
 </div>
 
 
@@ -218,7 +293,7 @@ magnet:?xt=urn:btih:EED22243541C72B5AB00B5B80D78C835D3DBEB6E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110615.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ magnet:?xt=urn:btih:B7A27C022F7083436E360898EA89105C02B8B198
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110616.jpg" />
 </div>
 
 
@@ -268,7 +343,7 @@ magnet:?xt=urn:btih:6D91985232B9EA64E8F7481FB42F24CBE8CB0229
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110617.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ Marina Kaye - Heavenbound (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <World, Eur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110618.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:6C06BC1945B7E3E5BFB56958CEFF6CF6CF22A2D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110619.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Bar Music Masters - Lemonade Lounge: Jazz Beats in Every Refreshing Glass (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110620.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ magnet:?xt=urn:btih:519D002A47DF8D9F99264F3610A42F08A99CCD95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110621.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110622.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ Instrumental Wedding Music Zone - Romantic Saxophone Jazz for Wedding (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110623.jpg" />
 </div>
 
 
@@ -453,7 +528,7 @@ In My Hands - Крепче (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110624.jpg" />
 </div>
 
 
@@ -480,7 +555,7 @@ magnet:?xt=urn:btih:7208C1C74BA34B048EFE8A050A8352731FED09CA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110625.jpg" />
 </div>
 
 
@@ -506,7 +581,7 @@ Instrumental Music Ensemble - Focus Grooves: Smooth Jazz for Concentration (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110626.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ magnet:?xt=urn:btih:D4F678EFE76E9073C1CA40326DD8BCE3F740F7D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110627.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ magnet:?xt=urn:btih:8771080EB9FBC604DDCA7D2E1E001F16A8F583D2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110628.jpg" />
 </div>
 
 
@@ -587,7 +662,7 @@ Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110629.jpg" />
 </div>
 
 
@@ -601,87 +676,6 @@ Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537905ADFEE6F7854F3D12107200F579CFBABABD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718534   (110630) от 28.04.2024
-
-Cousin Kula - Vitamin D (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clothes Off [00:05:42]
-02. Poisoned [00:04:05]
-03. Staying With You [00:04:48]
-04. Hangin' On Your Lips [00:02:50](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90625947A7B6F9EF4B04B40069636962AFA3754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719142   (110631) от 28.04.2024
-
-Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Wonderful [4:35]
-02. And How I Hoped for Your Love [4:38]
-03. An Occasional Man [4:20]
-04. Don't Wait Too Long [3:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D228868D53758834FE6CC9F41572A7EEFBAAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719233   (110632) от 28.04.2024
-
-Attic - Return of the Witchfinder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Covenant (00:01:47)
-02 - Darkest Rites (00:05:35)
-03 - Hailstorm And Tempest (00:05:32)
-04 - The Thief's Candle (00:06:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A403C06D816B3F005152C2E739CA6D45A146602
 ```
 
 

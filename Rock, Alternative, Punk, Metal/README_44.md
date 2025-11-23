@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Rock Songs 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54354.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Rock Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54358.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54360.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Rock 21st Century Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54361.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Machine Head - Of Kingdom and Crown (2022) Scene, Limited, Special Edition[FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54571.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Laura Cox Band - 3 albums (2017-2023) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54594.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Raven Wundis - In Shadows Summons Divinity (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54662.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Playlist #1 - Rock & Pop Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54981.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Headless Ghost - King Of Pain (2024) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54985.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Motorhead - Remorse? No! (1984) Remaster, 2024, Sanctuary Records [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54989.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Slash - 11 albums, 14 CD (1995-2024) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55039.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Митьковская бескозырка (1999) [FLAC|Lossless|tracks + 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55203.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Рок-сборник 3 (В одной обойме) (2024) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55217.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bring Me The Horizon - Post Human Nex Gen (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55289.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2021, Blackened Recordings [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55320.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bring Me The Horizon - Post Human Nex Gen (2024) [MP3|320 Kbps] <Alt. Metal, Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55604.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Lenny Kravitz - Blue Electric Light (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55617.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Mark Knopfler - Duets & Collaborations (2024) [MP3|320 Kbps] <Rock, Country, Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55931.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Audio Reign - The Perfect Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55935.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ twenty one pilots - Clancy (2024) [MP3|320 Kbps] <Indie Pop, Pop Rock, Electroni
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55948.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Praying Mantis - 18 albums, 23CD (1981-2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55972.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Mark Knopfler - Duets & Collaborations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55991.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Kerry King - From Hell I Rise (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56033.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Billie Eilish - Hit Me Hard and Soft (2024) [MP3|320 Kbps] <Indie Pop, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56164.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ magnet:?xt=urn:btih:495D7FE08260B0D62E0893E1E6277A7D42CFE681
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56237.jpg" />
 </div>
 
 

@@ -1,3 +1,179 @@
+###  Публикация: 387561   (163526) от 17.12.2020
+
+Е.В. Колесникова | Геометрические фигуры. Рабочая тетрадь для детей 5-7 лет (2006) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книжка для занятий родителей с детьми старшего дошкольного возраста.
+Практическое пособие предназначено для работы с детьми 5-7 лет как на занятиях по развитию математических представлений, так и в свободное время, предусмотренное для ребенка в дошкольных образовательных учреждениях.
+Пособие входит в цикл "Математические ступеньки". В нем представлена (   Читать дальше...   )Жанр: Обучение, Геометрия детямФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D94F8309FC87F2AED21A019D63E88EDEF39FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598234   (163527) от 18.12.2022
+
+Crest Of Darkness - Project Regeneration (2000) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Computerized
+02. Luciferian Light
+03. Project Regeneration
+04. Sector 63s(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C430BD6A2437F4B87E8E861028D864BD0D92EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516556   (163528) от 14.12.2021
+
+Берега Нила / Rive del Nilo (1911) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем небольшой ролик. Один из первых цветных фильмов, снятых по системе Kinemacolor, переносит нас на берега великого, далекого и загадочного Нила самого начала 20-го века.Телекомпания: Великобритания, Charles Urban Trading CompanyЖанр: Документальный, видовой, историяЯзык озвучки: НемойПродолжительность: 00:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B553BF58989090C5ACF05036A22B04A24A6CAEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673908   (163529) от 03.11.2023
+
+Святой праведный Иоанн Кронштадтский | Начала веры (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой праведный Иоанн Кронштадтский – великий проповедник и молитвенник земли Русской. Слово его – слово пламенной веры во Святую Троицу, слово великой любви пастыря ко своим духовным чадам и ко всем чадам Христовой Церкви. В книге представлены размышления о душе человеческой, об истинном богатстве человека, о его предназначении, а также поучения о развитии добродетелей (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF2D293FA2E45B55513B9CBF09869659FB284D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346510   (163530) от 19.12.2019
+
+Джеймс Гарни | Как нарисовать то, что не существует (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисунок с натуры – отличный способ изобразить детали реального мира, но что делать, если нужно изобразить на бумаге несуществующий, воображаемый мир? Откуда взять формы, пропорции и идеи? Ведь невозможно просто выйти на улицу срисовать там космический корабль или сцену из «Одиссеи». Известный писатель и художник, автор бестселлеров «Динотопия» и «Цвет и свет» Джеймс (   Читать дальше...   )Жанр: Культура и искусство, Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EBF640786ED2D5668B05E72A57273C0D89319A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432480   (163531) от 17.12.2020
+
+Довод / Tenet (2020) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163531.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени - технологию будущего, позволяющую времени идти вспять.Производство: Великобритания, США, Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72096042D93E1AA9473DF717D549175A8A1AD3AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598167   (163532) от 18.12.2022
+
+Heimdalls Wacht - Ut De Graute Olle Tied-Deel Twee (Land Der Nebel) (2015) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiculus Paganiarum 01:42
+02. Die Fallenden Blätter Der Irminsul 12:55
+03. Conspiratio Barbarica 06:39
+04. Auf Roter Erde Erblüht... (Ursprung Teil I) 07:46(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95180B976BE3A0056C5AE25A60015CCFAEC76C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517232   (163533) от 14.12.2021
 
 VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
@@ -6,7 +182,7 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163533.jpg" />
 </div>
 
 
@@ -33,7 +209,7 @@ The Yardbirds - 15 albums, 1 Box set, 27 CD (1963-2018) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163534.jpg" />
 </div>
 
 
@@ -60,7 +236,7 @@ Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163535.jpg" />
 </div>
 
 
@@ -87,7 +263,7 @@ Roger Taylor - Outsider (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163536.jpg" />
 </div>
 
 
@@ -114,7 +290,7 @@ magnet:?xt=urn:btih:6028A8FB53599BB3CD66A4BD9692F0C3BE81721A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163537.jpg" />
 </div>
 
 
@@ -138,7 +314,7 @@ ACDSee Photo Studio 6 v6.1.1536 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163538.jpg" />
 </div>
 
 
@@ -164,7 +340,7 @@ magnet:?xt=urn:btih:FAAA9DA34A031B11421272F7AF663A85102703C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163539.jpg" />
 </div>
 
 
@@ -188,7 +364,7 @@ Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163540.jpg" />
 </div>
 
 
@@ -215,7 +391,7 @@ magnet:?xt=urn:btih:C9F98D183A93DBA74BCEE2E4B347FD2F92411CBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163541.jpg" />
 </div>
 
 
@@ -239,7 +415,7 @@ magnet:?xt=urn:btih:7EE794039BECC43A7C4E401F337975B2A2C917F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163542.jpg" />
 </div>
 
 
@@ -266,7 +442,7 @@ Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163543.jpg" />
 </div>
 
 
@@ -293,7 +469,7 @@ magnet:?xt=urn:btih:694E7AFE8D2DCF323865B7274D91E3574B61B08A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163544.jpg" />
 </div>
 
 
@@ -317,7 +493,7 @@ Topaz Mask AI 1.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163545.jpg" />
 </div>
 
 
@@ -341,7 +517,7 @@ magnet:?xt=urn:btih:A339388EF3E40A6D49E657ACB8CF98B7AD375F3B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163546.jpg" />
 </div>
 
 
@@ -368,7 +544,7 @@ Caramba Switcher + Corporate + Lab 2019.12.05 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163547.jpg" />
 </div>
 
 
@@ -392,7 +568,7 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163548.jpg" />
 </div>
 
 
@@ -419,7 +595,7 @@ Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163549.jpg" />
 </div>
 
 
@@ -446,7 +622,7 @@ magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163550.jpg" />
 </div>
 
 
@@ -470,7 +646,7 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163552.jpg" />
 </div>
 
 
@@ -484,184 +660,6 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F046B508DEADC418B102627F427590EB95760955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673849   (163553) от 03.11.2023
-
-Валерий Пушной | Торжество тревог (2023) [MP3, Игорь Демидов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое, которое главный герой пытался забыть и думал, что забыл, начинает к нему возвращаться. Его нельзя выбросить из жизни. С ним приходится жить до конца. Оно связывает по рукам и ногам, а иногда не оставляет выбора.Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 17:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE482602C9BE10F6B563B75F012D50B18D7DB7F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346579   (163554) от 19.12.2019
-
-О.А. Новиковская | Логопедическая азбука (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163554.jpg" />
-</div>
-
-
-###  Подробнее
-
-О.А. Новиковская, педагог-логопед с 25-летним опытом работы, представляет книгу для любознательных малышей и заботливых родителей – «Логопедическая азбука». Крупные буквы и яркие картинки помогут ребёнку быстро выучить алфавит. Занимаясь по этой книге, малыш научится правильно произносить звуки, сможет расширить словарный запас, развить речь, интеллект и мелкую моторику.Жанр: Познавательная литература для детей, ПедагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B81E5BCFB256F8C04992F833CB0B7AE44200D94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517191   (163555) от 14.12.2021
-
-Владимир Асмолов - Трилогия (2013) [AAC|~322 Kbps] <Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Интро (0:31)
-1.02. В кинозале темном (3:12)
-1.03. Рэкетмены (4:17)
-1.04. Призрак капитализма (3:02)(   Читать дальше...   )Жанр: ChansonПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605BEC8810532793E417172D494FAE0E99DE1CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673729   (163556) от 03.11.2023
-
-Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative metal, dance pop, folk metal, nu metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Physically Like You (2:57)
-02. Madhouse (2:54)
-03. Rock To Outer Space (3:29)
-04. Black Soul (3:23)(   Читать дальше...   )Жанр: Alternative metal, dance pop, folk metal, nu metalПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98D3AA255BE3F076D3A71373D0C23AA3C77F96E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575558   (163557) от 17.12.2022
-
-Русалки (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размеренную жизнь провинциального города потрясает страшная новость: найдено тело 32-х летней женщины. Есть подозрение, что погибшая — сестра следователя местного ОВД Риты Тихоновой, пропавшая 14 лет назад. Начинается расследование, в ходе которого Рита сталкивается с весьма странными обстоятельствами и понимает, что её окружение хранит страшные тайны, а родные и (   Читать дальше...   )Производство: Россия / АМЕДИА, Продюсерская компания «Среда»Жанр: детектив, драмаРежиссер: Александр КириенкоАктеры: Иева Андреевайте, Пётр Фёдоров, Михаил Горевой, Дарья Мороз, Евгения Дмитриева, Вера Воронкова, Мераб Нинидзе, Анна Цуканова-Котт, Мария Шумакова, Константин ВоробьёвПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA8C4E39C231ABEF32EE0E15FBAF35174A6A153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346377   (163558) от 19.12.2019
-
-Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.914.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA30EA80A4ABBC04C1F1C7127489658C48A3EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517158   (163559) от 14.12.2021
-
-Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163559.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I'm In The Mood For Love [3:11]
-02. You Are My Lucky Star [2:59]
-03. La Cucaracha [2:41](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 08:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39958665E232B0FD912ACEB9C6845632638357F
 ```
 
 

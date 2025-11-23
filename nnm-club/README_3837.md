@@ -1,3 +1,81 @@
+###  Публикация: 1696572   (119444) от 03.02.2024
+
+Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Baby Why (6:57)
+02. I Ain't Waiting (5:48)
+03. Let Freedom Ring (5:23)
+04. Spend The Night (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C07E772A6C95CB0467DFC5B19417256ADCFE979
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696507   (119445) от 03.02.2024
+
+June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Incomplete [00:02:56]
+02. Black Cat [00:03:09]
+03. Used to Happen [00:03:10]
+04. Tell Me How [00:02:48](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1954AD4B01C73B21E58249F1E07477EEE3A59C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696524   (119446) от 03.02.2024
+
+PowerPhotos 2.5.6 U2B [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119446.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EE91AF9757824DEA1420A1AC02F11B5F4026F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696627   (119447) от 03.02.2024
 
 The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
@@ -6,7 +84,7 @@ The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119447.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Batushka - Black Rituals (Liturgy in Budapest – Live 2021) (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119448.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119449.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119450.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Olhava - Sacrifice (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119451.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ PullTube 1.8.5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119452.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Nekonomicon - Choose Your Fighter! (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119453.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Hearts & Hand Grenades - Where I Begin (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119454.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Stone Horns - Chimaira (2024) [FLAC|Lossless|tracks] <Groove Metal, Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119455.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Jennifer Porter - Yes, I Do! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119456.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ magnet:?xt=urn:btih:028314A06A6885CEA69BC48E7B038BA83F15A219
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119457.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:3F371D7E4BC2B1241A1C8EAB79A8BD4805F4F85D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119458.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119459.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Groove C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119460.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119461.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ magnet:?xt=urn:btih:7883B55398EDF7B191C259E40DBB2666FD1532ED
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119462.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Ocean Jet - Mind Rivers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119463.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ Sam Feldt - Tomorrowland Friendship Mix (2024-02-01) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119464.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ magnet:?xt=urn:btih:211D6F34AA91FE2AA087AD1FCEF42E85ABF87B92
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119465.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ VA - Saturday Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119466.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Being As An Ocean - Death Can Wait (2024) [MP3|320 Kbps] <Post-Hardcore, Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119467.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ magnet:?xt=urn:btih:F21E43B0C6509F96E0BB096AC11A92F1C871DA58
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119468.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ magnet:?xt=urn:btih:A3A4F52EFA7B0B067C085F7D1075C6F95B7EB92B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119469.jpg" />
 </div>
 
 
@@ -601,84 +679,6 @@ magnet:?xt=urn:btih:A3A4F52EFA7B0B067C085F7D1075C6F95B7EB92B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD7EAFD879E4E52CC6D0E879A5E0C47CAAADCFA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696643   (119470) от 03.02.2024
-
-Военная тайна с Игорем Прокопенко (03.02.2024) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119470.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5114F48A998E5250324B771188D7333BB83DAF43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696705   (119471) от 03.02.2024
-
-Peter and the Roses - Peter and the Roses (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – First Wave
-02 – Save You (feat. Surahn)
-03 – Burning House (feat. Goldie Boutilier)
-04 – Scary Weather (feat. Jodie Abacus)(   Читать дальше...   )Жанр: Electronic, Disco, Nu-DiscoПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5A25194028FD04440EE4C6AA9DB56396CDF9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696571   (119472) от 03.02.2024
-
-BJ Baartmans - Ghostwriter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Side (4:13)
-02. Troubled (3:45)
-03. In You Only (4:09)
-04. Room 242 (3:45)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1FE9C70605E1ADB4FDEADB2F3138676E2E4BA9
 ```
 
 

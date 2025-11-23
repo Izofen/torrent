@@ -1,3 +1,78 @@
+###  Публикация: 1734872   (107068) от 05.07.2024
+
+VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Chill Coast (3:41)
+02. Autonne - Under the Sea (3:53)
+03. Lounge Groove Avenue - Lime Lights (2:52)
+04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952F277E5B14B78ED0164E2FA9FCFF95D0F70E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734824   (107069) от 05.07.2024
+
+Золото Рейна / Золотой инкассатор / Rheingold (2022) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107069.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, основанная на реальных событиях. Сначала беженец, потом мелкий преступник, а потом крупный наркодилер. За смелость и жестокость его прозвали Опасным. Теперь у него новая цель – стать звездой хип-хопа. Но как это сделать, когда тебя упекли за решетку? История становления рэпера и немецкого хип-хоп-рэпера, предпринимателя и бывшего заключенного Гивара Хаджаби.Производство: Германия, Италия, Нидерланды / Bombero International, Corazón International, Lemming Film, Palosanto Films, Rai Cinema, Warner Bros. Film Productions GermanyЖанр: драма, криминал, биография, музыкаРежиссер: Фатих АкинАктеры: Эмилио Сакрая, Мона Пирзад, Кардо Радзаци, Согол Фагани, Хусейн Топ, Арман Кашани, Денис Москитто, Энсар Альбайрак, Угур Юджель, Самир ЖебреллиПеревод: Дублированный (Pride Production), Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, НемецкийСубтитры: Русские (Forced, Full), Английские, Немецкие (Forced)Продолжительность: 02:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D82C55EA9F8870E2586716FD4CE05ACCCCCFC4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734877   (107070) от 05.07.2024
+
+Объясни мне, любовь / Ingeborg Bachmann - Reise in die Wuste / Ingeborg Bachmann - Journey Into the Desert (2023) WEB-DL [H.264/1080p] [звук с TS]
+
+>>Горячие новинки
+>>Экранки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ингеборг Бахман и Макс Фриш, настоящие рок-звезды литературы, впервые встречаются в Париже летом 1958 года. Они страстно влюбляются друг в друга, но профессиональные и личные амбиции начинают разрушать гармонию.Производство: Австрия, Швейцария, Германия, Люксембург / Amour Fou Luxembourg, Amour Fou Vienna, HeimatfilmЖанр: драма, биография, историяРежиссер: Маргарете фон ТроттаАктеры: Вики Крипс, Рональд Церфельд, Тобиас Самуэль Реш, Бэзил Айденбенц, Луна Ведлер, Марк Лимпах, Ренато Карпентьери, Катарина Шмаленберг, Никкель Бёзенберг, Филип Леонард КельцПеревод: Дублированный (звук с TS)Язык озвучки: Русский, НемецкийСубтитры: Немецкие (forced hardsub, на иностранную речь)Продолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD65A030EDA1D6B3A2E63231F72B696D5BE1A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734939   (107071) от 05.07.2024
 
 Soft Organizer Pro 9.51 [Multi/Ru]
@@ -6,7 +81,7 @@ Soft Organizer Pro 9.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107071.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Kasabian - Happenings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107072.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ FolderSizes 9.6.490 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107073.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Skype 8.123.0.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107074.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107075.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107076.jpg" />
 </div>
 
 
@@ -157,7 +232,7 @@ magnet:?xt=urn:btih:CBDBCFCDD11CB40F8C924B462B8DFEB778BB98B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107077.jpg" />
 </div>
 
 
@@ -184,7 +259,7 @@ magnet:?xt=urn:btih:12343E20FE3B1253C7A8CD8D7A4C60CD3DAD1F9E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107078.jpg" />
 </div>
 
 
@@ -210,7 +285,7 @@ Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107079.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107080.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107081.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107082.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107083.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107084.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107085.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107086.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:89555167F8A322274BB09E2D6459A414444D355C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107087.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107088.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107089.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107090.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107091.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ Fort Firewall 3.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107092.jpg" />
 </div>
 
 
@@ -579,7 +654,7 @@ magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107093.jpg" />
 </div>
 
 
@@ -590,82 +665,6 @@ magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734709   (107094) от 04.07.2024
-
-Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C36C8FEBEF0B64A20D5D24ADCD5060C474ABCDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734617   (107095) от 04.07.2024
-
-Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handsome Man (4:52)
-02. L'amour C'est bon (3:22)
-03. This Song (3:47)
-04. Trans Am Dancing (4:16)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07FA1E376F37AD64C8EE99E0DEEE94E9E15D24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734568   (107096) от 04.07.2024
-
-Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (2022) [FLAC|Lossless|tracks] <Techno, Tech Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix edit) (3:32)
-02. Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) (8:09)Жанр: Techno, Tech TranceПродолжительность: 00:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6376AA6C0D30BD0B743265FA9381CB69FCA97119
 ```
 
 

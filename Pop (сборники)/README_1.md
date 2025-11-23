@@ -6,7 +6,7 @@ VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32254.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8F2FE44BA1FFC8913C06E44494A0D63D294760DF
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32444.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n'
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32445.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 100 Пудовый хит (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32879.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32967.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33895.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Новогодние песенки для малышей (2024) [MP3|320 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34278.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Awesome 90's Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34324.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - US Top 100 – The 00s (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35243.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Pop Dance Weekend Party Non Stop (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35360.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35548.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35607.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kylie Minogue - Compilation (1988-2024) [MP3|320 Kbps] <Pop, Dance pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35663.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:FA837A00400C1D95D539A172D3CCD41A7D0D1B10
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36702.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37222.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37462.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37997.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38395.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - AI song, AI music CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38782.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - 100 Greatest Songs for You Vol.1 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39106.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - A Romantic World (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39295.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40177.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - New Pop Revolution (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40482.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Red System Records presents ... CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40557.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32177.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:054BAE87FD6D38CF8AEFED499C16183D2256C8E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32178.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:722A8A1CD1BE9DEED8D82F409C1B6F18D4D44CEC
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32179.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B50F07B541734A6B9633B4470B68F830D0F4F069
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32180.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Musical kaleidoscope part 19 Easy listening (2024) [MP3|320 Kbps] <Electron
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32181.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E0E831C0F8BC887EC7027937C7A7CD52E6808503
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32182.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:63B486B119FC9ED33B8006E6C9A02CB16EA19771
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32183.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:248BB8179D2239F7DD5BA2BDDB3B21A833063E5E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32184.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6166888ABF19A5ABCBD2F3CD594D990CC2392C1B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32185.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Andre Rieu, Johann Strauss Orchestra - Love Is All Around (Live) (2024) [FLAC|Lo
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32186.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E80F3881EA602F0CF31C0D0F1A5F62C3BD5E312E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32187.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:18EBCE16340849D88662B9DD00322848E7080B37
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32188.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32189.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:70D2C581C7DD7E052B749BB361E133111B9046D3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32190.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:E3012221FD7A57F3A7E1B40397ABCCBE0622E330
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32191.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4F8F70F9267AE9B30A93A152364273B4D23B715D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32192.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:E5797C8055B0B76244315AD81A490D5A08D7B8AE
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32193.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:8D2C07BA7AF055B4B90A757FE489295C5ACB9E1F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32194.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Happy Color® – игра раскраска v2.17.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32195.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:E036E027615F101006BD172A57E0EAB7BD242F53
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32196.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32197.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:27C35969D6409C973A13BE781B487393D321BA76
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32198.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:08652E999695C3A66DDE7916DC9925A564697492
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32199.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:955EC1ED39276741920DBEADB7B41DB89DB95A54
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32200.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:EE47CF9B6C5035336FD936637239DFB4A7E415B8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32201.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:EAF88BD837011BE65F2F26A8840652EB853EC48F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32202.jpg" />
 </div>
 
 

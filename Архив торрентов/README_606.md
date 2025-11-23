@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130985.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:317916BC4E3DF4913A1AB04D3BD063682B683189
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130987.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Photo AI 2.1.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130992.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ StartAllBack 3.7.1 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130993.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:43ACE20AA41177F0A4A35FDA6FA96562A48A16C6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130997.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WinISO Standard 6.3.0.4748 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131001.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WinISO Standard - программа для работы с образами CD 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131005.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6808845E39DBB0B892B6B635269583190C617BB9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131007.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Winter Wallpapers (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131013.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft PowerToys 0.76.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131024.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Best HD Wallpapers Pack (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131027.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sexy Girls Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131037.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:999EDDF9543288D30256C29AB4E9CF1162B67551
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131041.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SUMo 3.4.16.191 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131049.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Best HD Wallpapers Pack (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131058.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Computer Desktop Wallpapers Collection (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131059.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Sexy Girls Pack Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131061.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Nature Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131068.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ HWiNFO 7.67 Build 5285 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131072.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:8FE8F47206D26C298DFB3FCA8A4D9EAAA90366E2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131080.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Speedtest от Ookla 5.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131089.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:544F781C90F3A3A6CF6F99231BA51DD0819B202D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131095.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Sexy Girls Pack Wallpapers (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131096.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ HQ Wallpapers Perfect Women (30.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131099.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:12612A6BDE748A9B36BAB49D24838C4C9FF51343
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131105.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:26024AEBD1E8B1316B86CE99CD4E57C33C32E85A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131125.jpg" />
 </div>
 
 

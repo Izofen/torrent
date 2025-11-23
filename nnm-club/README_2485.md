@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65358.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65359.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D259383AEEE1020E210663C9882A0CFBC7846798
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65360.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B7B579868EA58F05451A5B5F7A4B989441E6B3C0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65361.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Suanda Ibiza 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65362.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:993F7D8EF778A5622E3BA3E2807C432262089962
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65363.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Vocal Anthems Ibiza 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65364.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4EFF3F154FC44A9B66203A9D66DD66E84A9D95F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65365.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ MY-RO - Краса Руси (2025) [MP3|320kbps] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65366.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65367.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:1F10385DD05E8CA45D8B1D0B1FA51CB1B69F0D86
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65368.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:588CE6116A31473E0A684582A36C5FC76A760015
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65369.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:83BB19FBE07E0B11C73A3985DE144CBD6718093F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65370.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:A822086BB39AF0D5579B0B1233725F76319C870F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65371.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ The Modest Jazz Trio - Good Friday Blues (1960) 2011, Pacific Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65372.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65373.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Carn - Colors With Your Flesh (2023) (EP) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65374.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Black Hole House Music 07-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65375.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:949586F94ECF9D7D05154E9B92171E790445B2DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65376.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Robotic Bean - Portatron 1.5.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65377.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:234120F13DF94742E08C9C2A778A235BAE589DD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65378.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Atomic Rooster - Atomic Rooster (1980) 2 x CD, Reissue, Remastered, 2025, Esoter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65379.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Black Hole Trance Music 07-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65380.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Waldorf - Microwave 1 Plugin 1.2.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65381.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Pubbas - Sheepadoodle Phaser 1.0.1 VST 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65382.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:64EEB3139ABD1D96517405DD24814A6522EB3654
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65383.jpg" />
 </div>
 
 

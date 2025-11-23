@@ -6,7 +6,7 @@ Vivaldi 7.6.3797.56 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1172.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD8E0BA8C2F1F2E5763CEAB6F4B2ADD76ED0940A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1189.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Google Chrome 140.0.7339.208 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1191.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Advanced Renamer 4.16.1 + Portable (x64) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1198.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ IObit Driver Booster Pro 13.0.0.143 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1206.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PDF-XChange Editor Plus 10.7.3.401 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1210.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Opera One 122.0.5643.71 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1217.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ PDF-XChange PRO 10.7.3.401 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1219.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PIDKey Lite 1.64.4 b49 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1222.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ OpenVPN 2.6.15 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1231.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ v2rayN 7.14.12 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1238.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Aignes WebSite-Watcher 2023 23.4.0.101 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1310.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Bandicam 8.2.2.2531 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1315.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DVDFab 13.0.4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1326.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Trayy 2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1474.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ RAM Saver Professional 25.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1476.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ R-Wipe & Clean 20.0.2527 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1482.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ OBS Studio 31.1.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1488.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ RegCool 2.037 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1492.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1501.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1540.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Glary Utilities Pro 6.31.0.35 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1636.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ O&O SafeErase 20.0.575 RePack by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1656.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Extreme Picture Finder 3.67.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1661.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wise Disk Cleaner 11.2.6.846 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1662.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Windows Manager 2.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1668.jpg" />
 </div>
 
 

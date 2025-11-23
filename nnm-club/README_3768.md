@@ -1,3 +1,78 @@
+###  Публикация: 1699779   (117650) от 14.02.2024
+
+Skype 8.112.0.210 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58FEE56E41F89647DDCB1C153CE7A4E829DC075
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823094   (117651) от 10.10.2025
+
+Hard Disk Sentinel PRO 6.30.4 Build 13402 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BF2B34E82859BE9D8400A7C795EDC914B77CC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699798   (117652) от 14.02.2024
+
+Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Now And Forever
+02.  Keep Coming Back
+03.  Hold On To The Nights
+04.  Silent Scream(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB88E3DC1849F343AC3097CEDD2768C2D855F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823093   (117653) от 10.10.2025
 
 AOMEI Backupper Technician Plus 8.0.0 Repack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +81,7 @@ AOMEI Backupper Technician Plus 8.0.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117653.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:3E4E713AE19A306438F2C4CA67DE0BEFB9E33D5B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117654.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:834141FAB7CFD6C07F5B3CFB56FD069D139B8DC5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117655.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117656.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117657.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ Bernie Torme - Die Pretty Die Young (1987) Remaster, 2024, Cherry Red Records [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117658.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:AC19A7C216F0D7A524FDDCAD4E5EFCC83ADE087A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117659.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ VIVA - Осень (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117660.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ Witchflame - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117661.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ QOwnNotes 24.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117662.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ magnet:?xt=urn:btih:D7755E02472434829EC079E764B735D9E6BBD451
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117663.jpg" />
 </div>
 
 
@@ -279,7 +354,7 @@ magnet:?xt=urn:btih:D0C7B2DB0EF793D250B1A008153D71CA062ACF4C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117664.jpg" />
 </div>
 
 
@@ -303,7 +378,7 @@ Bossa Nova Lounge Club, Romantic Love Songs Academy - Bossa Romance (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117665.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:ED94E8BA10CBC3AD227C06BD75F2CE5E550DACF5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117666.jpg" />
 </div>
 
 
@@ -356,7 +431,7 @@ magnet:?xt=urn:btih:6EF1D44B56AEA62F1EF2C4B142CF6CADD1D5B856
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117667.jpg" />
 </div>
 
 
@@ -380,7 +455,7 @@ magnet:?xt=urn:btih:9C26521799D63E7B3371626AA9507F3446562965
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117668.jpg" />
 </div>
 
 
@@ -404,7 +479,7 @@ Ableton Live Suite 12 Beta 12.0b28 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117669.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ magnet:?xt=urn:btih:65BF3068DDD1CC0FCFF3E5B51FE07C47DF282F87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117670.jpg" />
 </div>
 
 
@@ -452,7 +527,7 @@ IceCream Ebook Reader Pro 6.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117671.jpg" />
 </div>
 
 
@@ -476,7 +551,7 @@ magnet:?xt=urn:btih:7B196D71F1CA60D92AC53D0AAC28129EC221E078
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117672.jpg" />
 </div>
 
 
@@ -500,7 +575,7 @@ magnet:?xt=urn:btih:F534BC0C69B2574E8BEFE14179A10825A21FB271
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117673.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ Bear Ghost - Jiminy (2023) [MP3|320 Kbps] <Alternative Rock, Art Rock, Progressi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117674.jpg" />
 </div>
 
 
@@ -551,7 +626,7 @@ magnet:?xt=urn:btih:F0BB658D6CDD5AD5E7FA68B1318D0D14FBAF6182
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117675.jpg" />
 </div>
 
 
@@ -562,82 +637,6 @@ magnet:?xt=urn:btih:F0BB658D6CDD5AD5E7FA68B1318D0D14FBAF6182
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:883567879B49D93BCB2591DD0F507120FE4E1F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699659   (117676) от 14.02.2024
-
-Н. А. Парфентьева | Сборник задач по физике. 10-11 класс (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник задач составлен к классическому курсу физики авто-ров Г. Я. Мякишева и др. под редакцией Н. А. Парфентьевой. Пособие предназначено для учащихся 10—11 классов.
-
-В первой части сборника представлены задачи практически по всем темам, включённым в названный курс физики, в соответствии с последовательностью изучения материала в учебниках. Вторая часть содержит (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373C4256BB5129228270D1861671C4FC00DB221F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699792   (117677) от 14.02.2024
-
-Vivaldi 6.5.3206.63 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BB2BDAAD17148ADC3E82890A79C4284A6CA85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699781   (117678) от 14.02.2024
-
-Василий Панфилов | Россия, которую мы… (Книга 2). Детство 2 (2023) [MP3, Никита Кирдин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь продолжается, яркая и удивительная, полная новых впечатлений и приключений, от которых иногда подрагивают коленки и снятся кошмары. Но ГГ не вчерашний мальчишка-сирота, а закалённый уличный боец, встречающий опасные сюрпризы холодным прищуром синих глаз, уклоном… и левой боковой в челюсть!
-
-Осознание прошлого и тяжёлый опыт, неизбежный после жизни в трущобах, (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРесПродолжительность: 11:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A52B646B12DED87A5C29998AD7B2C616EFDADFF
 ```
 
 

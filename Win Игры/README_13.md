@@ -6,7 +6,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3956.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chaos on Wheels (2023) [Ru/Multi] (1.0/dlc) Repack Yaroslav98 [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3978.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (1.8.8/dlc) Scene Tenoke [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3981.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3985.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Terraforming Mars (2018) [Multi] (2.10.1.2779/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3987.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ SnowRunner (2021) [Ru/Multi] (38/dlc) Repack Let'sРlay [4-Year Anniversary Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3993.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3994.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4000.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Big Adventure: Trip to Europe 11 / Большое приключение: Пое
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4090.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4091.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4171.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4187.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4195.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4213.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1093513) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4221.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4222.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4233.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4234.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4238.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4254.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Universe Sandbox (2015) [Ru/Multi] (35.3.3) License GOG [Early Access] (обно
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4255.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4259.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4263.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4267.jpg" />
 </div>
 
 

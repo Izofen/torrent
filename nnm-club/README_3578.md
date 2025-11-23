@@ -1,3 +1,84 @@
+###  Публикация: 1710359   (112710) от 26.03.2024
+
+Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - From The Night (00:03:44)
+02 - Sand Of Time (00:03:54)
+03 - Golden City (00:04:09)
+04 - Stars (00:04:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60774787CB9AB481A15BF9DBDED1534B255A14F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710429   (112711) от 26.03.2024
+
+Владимир Одоевский | Городок в табакерке (2007) [MP3, Пётр Коршунков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Audiobook.
+Владимир Фёдорович Одоевский (1803–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы. Эти удивительные сказки унесут вас в волшебный мир, где правит музыка, и совершаются невероятные чудеса…
+
+ Владимир Одоевский на NoNaMe ClubЖанр: Русская литература для детей, классика, сказкаИздательство: ИДДКПродолжительность: 03:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B374573C512FD96239C2F96AC2C5C80B2AAAA883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710445   (112712) от 26.03.2024
+
+Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign of Weakness
+02. Alone I Die
+03. The Lighthouse
+04. Black Within(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E5D27EB71C9B5073CFC42310CAA569A10ECE6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710431   (112713) от 26.03.2024
 
 Владимир Одоевский | Два дни в жизни земного шара (2008) [MP3, Борис Хасанов]
@@ -6,7 +87,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112713.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ Mp3tag 1.8.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112714.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ PopClip 2024.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112715.jpg" />
 </div>
 
 
@@ -80,7 +161,7 @@ Antonio Sanchez - Live In New York At Jazz Standard (2008) 2CD, 2010, CAM Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112716.jpg" />
 </div>
 
 
@@ -107,7 +188,7 @@ DVD-Cloner 2024 for Mac v.11.10.741 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112717.jpg" />
 </div>
 
 
@@ -131,7 +212,7 @@ magnet:?xt=urn:btih:F57CE98AB6FCA89A71243286F37AD7554A2723D3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112718.jpg" />
 </div>
 
 
@@ -155,7 +236,7 @@ magnet:?xt=urn:btih:76D94328B6714C41DB12AC81705D2835753B73AF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112719.jpg" />
 </div>
 
 
@@ -182,7 +263,7 @@ PowerPhotos 2.5.7 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112720.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ eMail Address Extractor 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112721.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ Fission 2.8.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112722.jpg" />
 </div>
 
 
@@ -255,7 +336,7 @@ Invisible 2.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112723.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112724.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ Sandboxie 5.68.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112725.jpg" />
 </div>
 
 
@@ -331,7 +412,7 @@ Application Wizard 4.6 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112726.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Privatus 7.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112727.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ magnet:?xt=urn:btih:72F2E8F85A144F6CD458BAE299C52930A81ABBD9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112728.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ Abya - Prayer Of Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112729.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ Ghost Buster Pro 3.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112730.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ MouseBoost pro for Mac 3.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112731.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ GoodTask 7.7.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112732.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ magnet:?xt=urn:btih:208D04BE0CEE9C6C31C22B7D38886C42ADD45D9E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112733.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ myTracks 4.3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112734.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ magnet:?xt=urn:btih:15B7B09B8895EA0EB8169947FD8519B6D6380C91
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112735.jpg" />
 </div>
 
 
@@ -570,79 +651,6 @@ magnet:?xt=urn:btih:15B7B09B8895EA0EB8169947FD8519B6D6380C91
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:294B1BF22BE6B73ED09B3D905BE3607A4C7090F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710119   (112736) от 26.03.2024
-
-Multitrack Editor: Beat Mixer 1.0.7 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная студия микширования. Простой, быстрый и надежный инструмент для редактирования аудио. Запустите новый проект и добавьте аудиофайл. Вы можете начать редактировать один трек или добавить больше и редактировать их одновременно. Различные эффекты, фильтры, 6-полосный эквалайзер и другие настройки.
-Лучшее в многодорожечном редактировании то, что оно позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © Inline Solutions s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF23A9955CFBEBCD9D676228C4247B9D99557B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710383   (112737) от 26.03.2024
-
-USBclean 3.9 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF30F540E359154C726A92BF38197651BEFE268F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710345   (112738) от 26.03.2024
-
-EarthView 7.9.2 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112738.jpg" />
-</div>
-
-
-###  Подробнее
-
-EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452B06345BE6ABD71590ACF98ED1A82A15004EE8
 ```
 
 

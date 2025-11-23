@@ -6,7 +6,7 @@ Remote Desktop Manager Enterprise Edition 2023.3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser ESR 115.8.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116360.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Google Chrome 122.0.6261.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116368.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ungoogled Chromium 121.0.6167.184-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116369.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Firefox Browser 123.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116373.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ HWiNFO 7.73 Build 5365 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116374.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Blender 3.6.9 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116377.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ StartAllBack 3.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116379.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ WinTools.net Premium 24.2.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116380.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Windows and Office Genuine ISO Verifier 11.14.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116382.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Total Commander 11.03 (21.02.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116383.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B1FF32D01B362A246E736E4621A43506FB825216
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116384.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Google Chrome 122.0.6261.58 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116388.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ISO Workshop 12.7 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116390.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mozilla Thunderbird 115.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116391.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ DefenderKiller 11.2.2 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116396.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Hiren’s BootCD PE x64 v1.0.5 (20 February 2024) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116399.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Capture One 23 Enterprise 16.3.6.1949 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116402.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ ASCOMP Cleaning Suite Pro 4.010 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116403.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ StartAllBack 3.7.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116420.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ XnView Classic 2.51.6 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116440.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Tor Browser Bundle 13.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116443.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Adobe Photoshop Lightroom Classic 2024 13.2.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116453.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Total Commander 11.03 LitePack & PowerPack + Portable 2024.3 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116463.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Total Commander 11.03 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116467.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Labels and Databases 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116475.jpg" />
 </div>
 
 

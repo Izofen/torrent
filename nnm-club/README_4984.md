@@ -1,3 +1,187 @@
+###  Публикация: 1676810   (154368) от 15.11.2023
+
+Уэйн Дайер | Как выйти из зоны ошибок (2023) [MP3, Олег Катаранов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – абсолютный рекордсмен среди книг Дайера, долгое время оставалась бестселлером № 1 New York Times, переведена на многие языки, а общий тираж составил более 35 миллионов копий.
+В чем ее секрет? Автор предлагает читателю позитивное пошаговое руководство для избавления от ловушек негативного мышления. Ключевое понятие книги – зоны ошибок. Если вас мучает (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 11:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35A4C821F65DEFF263F8178BD3800F9E552C0F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347183   (154369) от 22.12.2019
+
+Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This (2019) Decca [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Face the Music and Dance (feat. Sharon van Etten) [4:07]
+02. The Sidewinder/The Beat Goes On (feat. Inara George) [4:32]
+03. Driftin' [4:43]
+04. The Thrill Is Gone/Django (feat. Miley Cyrus) [3:55](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC53B3B56C930549860BEB14265951A8B610130C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600863   (154370) от 29.12.2022
+
+PowerPhotos 2.1.3b2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154370.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41CFBAACDFF15BC0E11D7B306B8EAB8D94FD3A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518535   (154371) от 20.12.2021
+
+SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 2 (2020) [AAC|~324 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Furkan Senol, Natune - Angel (SolarFlow Chillout Remix) (3:54)
+02. SolarFlow, Veela - I Belive in Love (Original Mix) (5:46)
+03. Begining of Life (Intro Mix) (3:24)
+04. Flight over the Past (Original Mix) (4:24)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEDD50E0C240A90B384CB71B064F3803659B778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194889   (154372) от 26.12.2017
+
+VA - Abora Chillout: Best of 2017 [MP3|320 Kbps] <Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ross Rayer - Yonder (Original Mix) 03:50
+02. Playme - Ketty & Rune (Original Mix) 03:27
+03. Afternova feat. Andrea Becker - For You (Original Mix) 02:54
+04. Johannes Fischer - Sara (Original Mix) 04:55(   Читать дальше...   )Жанр: DowntempoПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27CE774BA58A4F91BF8B82B422A3DB5E41164E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433750   (154373) от 22.12.2020
+
+VA - Зайцев.нет Лучшие новинки Декабря (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alina Pash - Делай как я (2:35)
+02. Anti-flag - The War On Christmas Is Over (If You Buy It) (2:24)
+03. Ayzha Nyree - Holy Class (3:25)
+04. Besomorph, Lunis, Behmer - What I've Done (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08B06B6D135E3B2FB7D6D00CC9AD541E8689B07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347113   (154374) от 22.12.2019
+
+SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 003-001 (06:26)
+ 02. 003-002 (06:33)
+ 03. 003-003 (06:27)
+ 04. 003-004 (06:05)Жанр: Electro, ExperimentalПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB835CBB683202E18561130C200137BE81AB8492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270978   (154375) от 21.12.2018
 
 VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -6,7 +190,7 @@ VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154375.jpg" />
 </div>
 
 
@@ -33,7 +217,7 @@ Alpha Prime (2007) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154376.jpg" />
 </div>
 
 
@@ -57,7 +241,7 @@ magnet:?xt=urn:btih:BC6B21DE74AC37E1048EAFDCA4FB59C61D791041
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154377.jpg" />
 </div>
 
 
@@ -81,7 +265,7 @@ magnet:?xt=urn:btih:D555ED1375000A1835A630DF55AE9EC0F317B15D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154378.jpg" />
 </div>
 
 
@@ -105,7 +289,7 @@ magnet:?xt=urn:btih:63EBD9AB7175531A41FB1B5E2590CDF7E9979A36
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154379.jpg" />
 </div>
 
 
@@ -130,7 +314,7 @@ Tom Robinson Band - Rising Free (the very best of TRB) (1997) Compilation, EMI [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154380.jpg" />
 </div>
 
 
@@ -157,7 +341,7 @@ magnet:?xt=urn:btih:DD27E73CFE831AF76AA00D2D495BABB308033F87
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154381.jpg" />
 </div>
 
 
@@ -181,7 +365,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -211,7 +395,7 @@ magnet:?xt=urn:btih:5F93BD181C4FDBD6A9FF303C4BD9C9B39294BC20
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154383.jpg" />
 </div>
 
 
@@ -237,7 +421,7 @@ Veil of Thorns - Dosage (2018) [FLAC|Lossless|Web-DL|tracks] <Metal, Dark Ambien
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154384.jpg" />
 </div>
 
 
@@ -264,7 +448,7 @@ magnet:?xt=urn:btih:CEB3FFD5A5B1E2595B0FB5C433AC400244B61999
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154385.jpg" />
 </div>
 
 
@@ -288,7 +472,7 @@ Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154386.jpg" />
 </div>
 
 
@@ -315,7 +499,7 @@ Atapaskan - Humans (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154387.jpg" />
 </div>
 
 
@@ -342,7 +526,7 @@ Mitti 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154388.jpg" />
 </div>
 
 
@@ -368,7 +552,7 @@ Nitzinger - Nitzinger (1972) Reissue, CD [MP3|320 Kbps] <Southern Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154389.jpg" />
 </div>
 
 
@@ -395,7 +579,7 @@ Windows 10 Manager 3.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154390.jpg" />
 </div>
 
 
@@ -419,7 +603,7 @@ Comedy Woman (2016.12.23) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154392.jpg" />
 </div>
 
 
@@ -443,7 +627,7 @@ magnet:?xt=urn:btih:E316E99E2384AD652189338E524016B84F71B7AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154393.jpg" />
 </div>
 
 
@@ -467,7 +651,7 @@ magnet:?xt=urn:btih:82D75336E176842B9EB675CE0D6AEAFB48711D8A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154394.jpg" />
 </div>
 
 
@@ -478,180 +662,6 @@ magnet:?xt=urn:btih:82D75336E176842B9EB675CE0D6AEAFB48711D8A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49080224923CF1C99FF41B769DC579A1E24539BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600892   (154395) от 29.12.2022
-
-Incinerate - Back to Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Reality 03:48
-02. Human Demise Ritual 04:19
-03. Internal Distress 03:32
-04. Reprisal 03:27(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27790BAFF4A6CB5E0A473834D6543A73C8036E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433788   (154396) от 22.12.2020
-
-McAfee Endpoint Security for Mac 10.7.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защитите себя и всю вашу семью от новейших программ-вымогателей, шпионских и вредоносных программ, обеспечивая безопасность вашей конфиденциальности и личных данных.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: McAfee, IncorporatedПоддерживаемая ОС: macOS 10.15.6+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D656F261E48BFD39D0FD3F62638F64FF2F81B0BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194617   (154397) от 26.12.2017
-
-Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Up and Down [04:12]
-02. Strollin' [07:24]
-03. Groovin' High [05:43]
-04. Love for Sale [06:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6DEE32DF2BC05826731B43C20430EFD06E0E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676829   (154398) от 15.11.2023
-
-Маркизские острова. Дикая природа земли мужчин / The Marquesas Islands Wild Geography Of The Land Of Men (2018) HDTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маркизские острова площадью 1049 км² являются крупнейшим архипелагом Французской Полинезии, открытым испанскими мореплавателями на пути в Манилу. Французская Полинезия - само по себе место отдаленное. Его жемчужиной считается остров Таити, там вечное лето. Из-за расположения (почти самый центр Тихого океана) полеты в Полинезию крайне затратны. Именно поэтому (   Читать дальше...   )Производство: EU, TEN, The ExplorersЖанр: документальный, познавательный, путешествияРежиссер: Ив МайлларПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5959A1867F916E450592DC8FCCC4A8C8BEBB4CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270890   (154399) от 21.12.2018
-
-Обои - Wallpapers Кошачьи #39 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C516289D7027F6863BBB99A1D65B139E47B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347111   (154400) от 22.12.2019
-
-TCH - Sinflower (1997) Iridium [FLAC|Lossless|tracks+.cue] <Experimental, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dog EmbassyЖанр: Experimental, IDM, AmbientПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6CFBA952F6D36690A3B8DDEF8944E04CF4569C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085927   (154401) от 23.12.2016
-
-Врач  (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда.Производство: РоссияЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A4175BABC8AD69E8567C78333886BE8B018F39
 ```
 
 

@@ -1,3 +1,102 @@
+###  Публикация: 1515736   (168681) от 08.12.2021
+
+Yate 6.7.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 2021 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45AD99BCE05CBAFAB3DBF6843660A58E217659E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596715   (168685) от 11.12.2022
+
+SoftMaker Office Professional 2021 rev. S1060.1203 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный офисный пакет Softmaker Office 2021, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C942FC1B7DA5FAA0AEB3638D0335ECB0F44139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344746   (168688) от 12.12.2019
+
+simplewall 3.0.9 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа simplewall является простым, но функциональным инструментом, который поможет контролировать сетевую активность на вашем компьютере.
+Поддерживаются два режима работы: фильтрация по белому или черному списку. В первом случае, доступ в интернет разрешён только одобренным приложениям и, при запуске каждой новой программы, будет появляться окно с запросом. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9102B9623A4B43B3247362CAC5ECE29430A2F091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515794   (168690) от 08.12.2021
+
+SideNotes 1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168690.jpg" />
+</div>
+
+
+###  Подробнее
+
+SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2011‐2021 ApptoriumПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31CA8129E1F891990BA7166A55A30E2E036DB06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515762   (168697) от 08.12.2021
 
 Boxy SVG 3  v3.72.0 [En]
@@ -6,7 +105,7 @@ Boxy SVG 3  v3.72.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168697.jpg" />
 </div>
 
 
@@ -30,7 +129,7 @@ Stats 2.6.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168698.jpg" />
 </div>
 
 
@@ -54,7 +153,7 @@ A Better Finder Rename 11 v11.40 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168702.jpg" />
 </div>
 
 
@@ -79,7 +178,7 @@ uDock 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168707.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ ZWCAD 2024 SP1 Professional [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168713.jpg" />
 </div>
 
 
@@ -127,7 +226,7 @@ Everything 1.4.1.1002 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168718.jpg" />
 </div>
 
 
@@ -151,7 +250,7 @@ magnet:?xt=urn:btih:9968C857EAB41AAA66D7FCE2E5DF7464DD3D8E52
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168720.jpg" />
 </div>
 
 
@@ -175,7 +274,7 @@ TrustViewer 2.5.0.3970 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168728.jpg" />
 </div>
 
 
@@ -199,7 +298,7 @@ Native Instruments - Replika XT 1.1.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168738.jpg" />
 </div>
 
 
@@ -223,7 +322,7 @@ Keep It 1.11.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168744.jpg" />
 </div>
 
 
@@ -247,7 +346,7 @@ Caato Time Tracker Pro 1.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168748.jpg" />
 </div>
 
 
@@ -271,7 +370,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168749.jpg" />
 </div>
 
 
@@ -295,7 +394,7 @@ K-Lite Codec Pack Update 15.9.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168750.jpg" />
 </div>
 
 
@@ -319,7 +418,7 @@ Air Explorer Pro 2.6.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168783.jpg" />
 </div>
 
 
@@ -343,7 +442,7 @@ Adobe Animate 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168785.jpg" />
 </div>
 
 
@@ -367,7 +466,7 @@ Native Instruments - Replika 1.4.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168788.jpg" />
 </div>
 
 
@@ -392,7 +491,7 @@ magnet:?xt=urn:btih:9010499936DDAA65F2F7822F065B226B4BF3F2CE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168793.jpg" />
 </div>
 
 
@@ -416,7 +515,7 @@ OpenShot Video Editor 3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168808.jpg" />
 </div>
 
 
@@ -440,7 +539,7 @@ Enhancer - AI Photo Enhance v1.4.0 Mod by Mixroot [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168813.jpg" />
 </div>
 
 
@@ -464,7 +563,7 @@ Adobe Bridge 2020 10.0.1.126 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168816.jpg" />
 </div>
 
 
@@ -488,7 +587,7 @@ Adobe Audition 2020 13.0.1.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168823.jpg" />
 </div>
 
 
@@ -512,7 +611,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | Оседлав волну с тоб
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168827.jpg" />
 </div>
 
 
@@ -523,102 +622,6 @@ Kimi to, Nami ni Noretara | Ride Your Wave | Оседлав волну с тоб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D2D9473BA184D605648745C8A5E02C837A8E16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672540   (168828) от 28.10.2023
-
-DP Animation Maker 3.5.23 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальная 2D анимационная программа, которая позволяет вам превращать неподвижные изображения в живые движущиеся сцены. Создавайте живые, дышащие миры из своего неподвижного изображения с минимальными усилиями. DP Animation Maker позволяет создавать живые сцены с яркостью и передавать движения людям и объектам.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BF4C4CEB608EFC0CF2D8F582910921F929189F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672492   (168836) от 28.10.2023
-
-Uninstall Tool 3.7.3 Build 5720 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AF26C6A4652058928B20BAC32018BC2DB0037A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672317   (168842) от 28.10.2023
-
-Master PDF Editor 5.9.70 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BF2DBE8B58018403C593ABC39A44E825C44009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344883   (168848) от 12.12.2019
-
-Freemake Video Converter 4.1.10.479 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52923ECAC1D4F0859AB597186AC0944AB3F0932
 ```
 
 

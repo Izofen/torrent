@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:265BF2BC8893C2219528F894CD4297EB1CCAFF6A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36442.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r25 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36443.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:1C729EB7171D69AB5E83AF655A152BD3621B2768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36444.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:1C729EB7171D69AB5E83AF655A152BD3621B2768
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36445.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:2B8127ED1DC2A88A97221BF4FC480F5AAD3E92B5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36446.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36447.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36448.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Ferry Corsten - Connect (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36449.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:E597D24E6829B6DB58C2E7A9F29576E7CFB4B2B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36450.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36451.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36452.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36453.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Die For My Sins - Scream (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36454.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - We Love Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36455.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36456.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36457.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - 21 Winners: Fabulous 50's (2001) [FLAC|Lossless|tracks + .cue] <Rock & Roll
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36458.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36459.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Fellowship - 3 Albums (2022-2024) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36460.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36461.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dawn Of Destiny - IX (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36462.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36463.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36464.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36465.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36466.jpg" />
 </div>
 
 

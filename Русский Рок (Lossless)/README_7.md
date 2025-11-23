@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77435.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78352.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78360.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78835.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79124.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84272.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_85865.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86026.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86123.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86481.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87488.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91137.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4E41EF5E792D414FB2808E333A26196A25ED50BC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91206.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:227EE8F9BB3575EC26AC2642AD3070355D1A51C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91300.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91306.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91308.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96242.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96242.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96377.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96377.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97877.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99107.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100646.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:D1E081DBC004BFE62A4DC15458CBF9FF15AD0C12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100703.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100847.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100986.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101100.jpg" />
 </div>
 
 

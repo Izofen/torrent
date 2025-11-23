@@ -6,7 +6,7 @@ Botanicula [Multi12/+] (RePack) 2012 l R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Schwarzblut - Maschinenwesen (2CD) (2012) [MP3|~245 кб/с (V0)]<Dark Electro, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90787.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:8CE249D512216B4A1231C0CA3948C4624C0CA02A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90805.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FastStone Capture 7.1 Final + portable [Английский + Русифика�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90812.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90823.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Rusko - Songs (2012) [FLAC|Lossless|tracks] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90834.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mozilla Firefox 13.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90844.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90858.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90859.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:FDA1A2712BB06D3DBAE795BE49B188DD27F93E36
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90864.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kubuntu LTS Precise Pangolin 12.04 [i386] (1xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90866.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90869.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Eminem - 8 Mile Soundtrack (2002) [APE|Lossless]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90874.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eminem - 8 Mile Soundtrack (2002) [APE|Lossless]<Rap>
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90876.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Total Commander 7.57а kIT Programs PowerPack 12.4 [Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90879.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ kIT Programs PowerPack - набор программ, составленный �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cracked Horn (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90905.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90907.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90914.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90915.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90917.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90919.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E62468E2C9C4874BECBD512C53AA542C2C4913BA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90920.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90922.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Album Leaf - 9 альбомов (1999-2010) [FLAC|Lossless]<Post Rock, Ambie
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90923.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ DVD приложение к журналу Игромания №5 [2012] [unpac
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_90924.jpg" />
 </div>
 
 

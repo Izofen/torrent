@@ -1,3 +1,157 @@
+###  Публикация: 590788   (139707) от 18.12.2012
+
+Helicon Filter 5.1.1.1 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helicon Filter 5.1.1.1
+Название программы: Helicon Filter
+Версия программы: 5.1.1.1
+Последняя Версия программы: 5.1.1.1
+Адрес официального сайта: Helicon Soft Ltd
+Язык интерфейса: MULTi / РусскийЛечение: в комплекте
+Тип лекарства: другое
+Системные требования:Windows XP, Windows Vista, Windows 7, Windows 8(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679288   (139708) от 24.11.2023
+
+Индиана Джонс и колесо судьбы / Indiana Jones and the Dial of Destiny (2023) BDRemux [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неувядающий авантюрист и пытливый археолог-исследователь по-прежнему в седле. На этот раз ему придётся столкнуться с непростой задачей, которую решить на раз-два вряд ли получится. Но Индиана Джонс не даст слабину и не отступит при виде даже самой безнадёжной ситуации.Производство: США, Walt Disney Pictures, Lucasfilm, Paramount PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джеймс МэнголдАктеры: Харрисон Форд, Фиби Уоллер-Бридж, Мадс Миккельсен, Антонио Бандерас, Джон Рис-Дэвис, Тоби Джонс, Бойд Холбрук, Карен Аллен, Шонетт Рене Уилсон, Томас КречманПеревод: Дублированный (Le Doyen)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, full)Продолжительность: 02:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F630005EC5A66E028F3A6F7188888527E3E3AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044716   (139710) от 30.12.2017
+
+Пойманный в раю / Trapped in Paradise (1994) HDTVRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький провинциальный городок под названием «Рай», канун Рождества. Билл Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями — хитрецом Дэйвом и клептоманом Элвином. Когда братья решают ограбить местный банк, Биллу не удается их отговорить. К тому же дело на редкость простое и «верное«: в здании отсутствует охрана и сигнализация. (   Читать дальше...   )Производство: США, Permut Presentations, Twentieth Century Fox Film CorporationЖанр: Комедия, Приключения, Криминал, МелодрамаРежиссер: Джордж ГаллоАктеры: Николас Кейдж, Джон Ловиц, Дэна Карви, Ричард Б. Шалл, Медкен Эмик, Джек Хеллер, Флоренс Стэнли, Дональд Моффет, Майк СтейнерПеревод: ДублированныйПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590AB3CA620BEEE0FBBE5FAF32FABEF4018CB7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500844   (139711) от 29.12.2021
+
+Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shim / Меня выгнали из отряда героя, и я решил спокойно жить в глуши [2021, TV, 13] WEBRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Хосино МакотоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF61E8E9811A9CB6DF947FA15CE208B2B97DE409
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970452   (139712) от 31.12.2015
+
+George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intentions [04:48]
+ 02.Send In The Clowns [04:28]
+ 03.Metamorphosis For Mingus [06:56]
+ 04.Paradise Space Shuttle [04:13](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C2A574EEE6C75AA2594E4817C7AC093282A8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088230   (139713) от 30.12.2016
+
+Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о Старкиллере, ученике Дарта Вейдера, обманутом и предательски убитом в финале первой части игры. Благодаря технологиям клонирования Старкиллер возвращается к жизни, однако он лишен памяти.Тип издания: LicenseРазработчик: AspyrЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9E3A48801E395A905C780804C6F8712CA36523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349025   (139715) от 30.12.2019
 
 Mirillis Action! 4.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +160,7 @@ Mirillis Action! 4.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139715.jpg" />
 </div>
 
 
@@ -31,7 +185,7 @@ Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139716.jpg" />
 </div>
 
 
@@ -58,7 +212,7 @@ magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139720.jpg" />
 </div>
 
 
@@ -82,7 +236,7 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139721.jpg" />
 </div>
 
 
@@ -106,7 +260,7 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139723.jpg" />
 </div>
 
 
@@ -130,7 +284,7 @@ magnet:?xt=urn:btih:798DDDF348AFE27CE7B4648704D9CCBE985CB0CE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139724.jpg" />
 </div>
 
 
@@ -154,7 +308,7 @@ magnet:?xt=urn:btih:29D4AAACA6FEA5F94BC7213ABA843D82AD3E0212
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139725.jpg" />
 </div>
 
 
@@ -178,7 +332,7 @@ magnet:?xt=urn:btih:C18325FE93A405741C760CC9D81F93BBAB09965C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139726.jpg" />
 </div>
 
 
@@ -204,7 +358,7 @@ magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139728.jpg" />
 </div>
 
 
@@ -228,7 +382,7 @@ magnet:?xt=urn:btih:9EF639EC6D4626D9099A41749DE2578A645A373D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139729.jpg" />
 </div>
 
 
@@ -252,7 +406,7 @@ magnet:?xt=urn:btih:2AC18B2243B0FCE2E827435086E86FCA736899FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139730.jpg" />
 </div>
 
 
@@ -276,7 +430,7 @@ magnet:?xt=urn:btih:C90EF9573F3AEDE52C6E5F5F4722CB8F5608A5CE
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139731.jpg" />
 </div>
 
 
@@ -300,7 +454,7 @@ Kryder - Kryteria Radio 166 (Yearmix 2018) 2018-12-26 [MP3|192 Kbps] <House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139732.jpg" />
 </div>
 
 
@@ -327,7 +481,7 @@ magnet:?xt=urn:btih:DADA4EF1C77B41E3DCC33A534C59297B75A2089E
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139733.jpg" />
 </div>
 
 
@@ -351,7 +505,7 @@ magnet:?xt=urn:btih:0FB86D34D6E15398B0DA4EDD610EBD2D7E62D137
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139734.jpg" />
 </div>
 
 
@@ -378,7 +532,7 @@ magnet:?xt=urn:btih:17973BD4C3F82E5B32E6207992BBC3409A11FBAD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139735.jpg" />
 </div>
 
 
@@ -403,7 +557,7 @@ magnet:?xt=urn:btih:DCE391D400A839C7E71672E10195D352D919DC7D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139737.jpg" />
 </div>
 
 
@@ -427,7 +581,7 @@ magnet:?xt=urn:btih:DFC672E8E41E16B9AF63B1076233E88D60D72999
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139739.jpg" />
 </div>
 
 
@@ -451,7 +605,7 @@ David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139740.jpg" />
 </div>
 
 
@@ -478,7 +632,7 @@ Moment - Every Day Counts! 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139741.jpg" />
 </div>
 
 
@@ -489,156 +643,6 @@ Moment - это приложение обратного отсчета на ос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A432227B3BD986CF05902D5DC30386166523D415
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195485   (139744) от 30.12.2017
-
-Пойманный в раю / Trapped in Paradise (1994) WEBRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький провинциальный городок под названием «Рай», канун Рождества. Билл Фирпо, человек честный, приезжает сюда по делу с двумя только что вышедшими из тюрьмы братьями — хитрецом Дэйвом и клептоманом Элвином. Когда братья решают ограбить местный банк, Биллу не удается их отговорить. К тому же дело на редкость простое и «верное«: в здании отсутствует охрана и сигнализация. (   Читать дальше...   )Производство: США, Permut Presentations, Twentieth Century Fox Film CorporationЖанр: Комедия, Приключения, Криминал, МелодрамаРежиссер: Джордж ГаллоАктеры: Николас Кейдж, Джон Ловиц, Дэна Карви, Ричард Б. Шалл, Медкен Эмик, Джек Хеллер, Флоренс Стэнли, Дональд Моффет, Майк СтейнерПеревод: Профессиональный (многоголосый, закадровый) 20th Century Fox + Профессиональный (многоголосый, закадровый) Первый канал + Авторский (одноголосый, закадровый) А.ГавриловСубтитры: Русские, английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A906601E37A05456AF5717C8ABD8F37903FFF304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349035   (139745) от 30.12.2019
-
-ScrollNavigator 5.13.3 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139745.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScrollNavigator - программа, которая поможет вам прокручивать по-вертикали и по-горизонтали ваши документы. С помощью этой утилиты достаточно зажать правую кнопку мыши в любом месте страницы и протянуть курсор в нужном направлении. Это поможет вам избежать позиционирование мыши над полосой прокрутки и позволит перемещаться в обоих направлениях одновременно. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3558B2327A2915ADD920FFB597E09F88E5AF918C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970768   (139746) от 31.12.2015
-
-Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139746.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Twisted Vision
-2. Eerie Hauntings
-3. Smell The Death
-4. The Face That Shares My Skull(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C875FA498042AB2938CB0165741C12CF6962872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273018   (139747) от 30.12.2018
-
-Алла Надеждина и др. | Чудеса под новый год [Сборник] (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139747.jpg" />
-</div>
-
-
-###  Подробнее
-
-А Вы верите в чудеса? Говорят, в новогоднюю ночь сбываются самые несбыточные желания. Давайте проверим?Жанр: Романтическое фэнтези, РассказыПродолжительность: 03:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFF1A22109D4071E1648103966E4E4245E40B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436242   (139749) от 30.12.2020
-
-Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Sounds Better With You (Radio Edit) (4:25)
- 02. Music Sounds Better With You (12' Club Mix) (6:51)
- 03. Music Sounds Better With You (Anthem From Paris) (10:30)
- 04. Music Sounds Better With You (Chateau Flight Remix) (7:18)Жанр: Electronic, Garage HouseПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508608   (139751) от 29.12.2021
-
-Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Дублированный (iTunes), многоголосый любительский (АрхиAsia)Субтитры: Русские (.ASS), английские и китайские (hardsub)Продолжительность: 01:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AEA873E1F22B5FFF83AF2FE7F608B7E49F5252
 ```
 
 

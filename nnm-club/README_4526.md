@@ -1,3 +1,156 @@
+###  Публикация: 1348958   (140106) от 30.12.2019
+
+Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Freja's Choice
+02 Varangian
+03 Forged In Iron - Crowned In Steel
+04 Born For Battle (Black Dog Of Brocéliande)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAD917E7C5739616794D6480A419E7D19B1ABA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435184   (140109) от 29.12.2020
+
+Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/1080p] [MVO] [IMAX Edition]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа РотуэллПеревод: Многоголосый любительский (DuoWave)Субтитры: Русские, английскиеПродолжительность: 02:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740DC97192474B46804D87AFDF583D1A63ED91C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678928   (140111) от 24.11.2023
+
+VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soultrend Orchestra - About Love (Instrumental) (4:00)
+02. Zerosospiro - Diamonds Are Forever (Instrumental) (4:19)
+03. Bluedots - Behind The Clouds (2:31)
+04. Soulstance - Sweet Sorrow (5:58)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D6BB6C58D8A0B725CF5283F12C8B5BB11638C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087953   (140112) от 30.12.2016
+
+Проекты - VideoHive - 50 Modern Titles - 17047191 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140112.jpg" />
+</div>
+
+
+###  Подробнее
+
+50 Modern Titles - 50 текстовых анимированных элементов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702452EA3D6EE61869356B083306F70D40725616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520612   (140113) от 29.12.2021
+
+Виктор Тюрин | Ангел с железными крыльями (Книга 1) (2021) [MP3, Константин Корольков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сознание умирающего юноши переносится в тело потерявшего память поручика-артиллериста. Идет 1915 год. Вначале герой воспринимает новое тело как подарок судьбы, ведь, пролежав большую часть жизни на больничной койке, он получил в свое распоряжение целый мир и теперь ему надо наверстать все, что было упущено в той жизни. Герою придется схватиться с уголовным миром (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DD8CCE7F5F050DDFEBFB68901B6E2851ECAABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349071   (140115) от 30.12.2019
+
+Yate 5 v5.0.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686E5C3CF65D13B657ED17DEEA566E471A310FD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 705581   (140116) от 30.12.2013
 
 Атлантида / Atlantis  (2013) HDTVRip (Сезон-1 / Серии 1-13 из 13) BaibaKo
@@ -6,7 +159,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140116.jpg" />
 </div>
 
 
@@ -30,7 +183,7 @@ magnet:?xt=urn:btih:D27149052957FFD3E9B3FA9DEA0F1AF3587C7CB8
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140117.jpg" />
 </div>
 
 
@@ -54,7 +207,7 @@ magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140119.jpg" />
 </div>
 
 
@@ -78,7 +231,7 @@ magnet:?xt=urn:btih:A5B246E031A3389CBFA02359734EE0D8BA753490
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140120.jpg" />
 </div>
 
 
@@ -105,7 +258,7 @@ magnet:?xt=urn:btih:FEF18D11608260E99E620DB19E7BF3CBB214A3A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140121.jpg" />
 </div>
 
 
@@ -129,7 +282,7 @@ magnet:?xt=urn:btih:90699C801CE055B1F45FD81C5140125F08B81D7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140122.jpg" />
 </div>
 
 
@@ -153,7 +306,7 @@ Wise Care 365 Pro 4.7.7.460 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140123.jpg" />
 </div>
 
 
@@ -177,7 +330,7 @@ Adguard 1.4.0 (372) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140124.jpg" />
 </div>
 
 
@@ -202,7 +355,7 @@ Laurence Jones - Thunder In The Sky (2012) [FLAC|Lossless]<Blues/Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140125.jpg" />
 </div>
 
 
@@ -235,7 +388,7 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140126.jpg" />
 </div>
 
 
@@ -262,7 +415,7 @@ magnet:?xt=urn:btih:B363C2F0908D58B389F33092A1FB0AC979528C1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140127.jpg" />
 </div>
 
 
@@ -286,7 +439,7 @@ magnet:?xt=urn:btih:9CD3025043F7FCC85204D5C2B46399A87A905FB6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140128.jpg" />
 </div>
 
 
@@ -313,7 +466,7 @@ magnet:?xt=urn:btih:2C29F021D0E6DAEFFE7087E931AA338EC8E83E82
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140129.jpg" />
 </div>
 
 
@@ -338,7 +491,7 @@ magnet:?xt=urn:btih:3E8CAB3E1D078DD7708A9674C47E44704B2FB533
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140130.jpg" />
 </div>
 
 
@@ -362,7 +515,7 @@ magnet:?xt=urn:btih:6BF7C20CBD627338FF86E856C9D4404A12319582
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140131.jpg" />
 </div>
 
 
@@ -388,7 +541,7 @@ magnet:?xt=urn:btih:451E2D89229504A6C07A643CD070F662185701A3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140132.jpg" />
 </div>
 
 
@@ -412,7 +565,7 @@ Telegram Desktop 1.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140133.jpg" />
 </div>
 
 
@@ -436,7 +589,7 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140134.jpg" />
 </div>
 
 
@@ -463,7 +616,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140135.jpg" />
 </div>
 
 
@@ -487,7 +640,7 @@ Mojosoft BusinessCards MX v.4.75 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140136.jpg" />
 </div>
 
 
@@ -500,158 +653,6 @@ Mojosoft BusinessCards MX v.4.75 Update [Multi/Rus]
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520706   (140137) от 29.12.2021
-
-Брендон Сандерсон | «Архив Буресвета» Книга 1. Путь королей (2021) [MP3, Станислав Федорчук]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабная сага погружает читателя в удивительный мир, не уступающий мирам Р. Р. Толкиена, Р. Джордана и Р. Сальваторе. Уникальная флора и фауна, тщательно продуманное политическое устройство и богатая духовная культура – здесь нет ничего случайного.
-Рошар – мир во власти великих бурь, сметающих все живое на своем пути. Но есть и то, что страшнее любой великой бури, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 43:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B00F86C2F4BBCCD3A9ED92ABEEF511BF4A03B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088342   (140138) от 30.12.2016
-
-Мельница - Химера (2016) [FLAC|lossless|image + .cue] <Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бес джиги (04:13)
-02. Голубая трава (04:14)
-03. Изольда (03:14)
-04. Чёрный дрозд  (feat Гребенщиков) (04:11)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9006E7046E4CDB139F4C4494A65D2DA0B2C2E9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435572   (140139) от 29.12.2020
-
-Алексей Марков | Хулиномика 4.0: хулиганская экономика. Ещё толще. Ещё длиннее (2021) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный учебник для тех, кто не любит учиться по скучным талмудам!
-Экономика – это очень скучно. Куча непонятных заумных слов и формул? Кто вам такое сказал? Экономика это интересно и просто! Вы просто не знаете, с каким соусом ее нужно подавать, на какой стороне пережевывать и долго ли жевать. Самое полное издание.Жанр: Книги по экономике, Просто о бизнесеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A20DDF2C6AB7D87AE188900945740D69DA47A3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679174   (140140) от 24.11.2023
-
-Нора Робертс | Коллекционер (2023) [MP3, Валерия Савельева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из окна небоскреба в Нью-Йорке выпадает известная супермодель, а в ее квартире находят труп богатого наследника Оливера Арчера. Все обставлено как самоубийство, однако Лайла, случайно увидевшая момент падения из своего окна, так не считает. В квартире был кто-то еще, и этот кто-то явно имеет отношение к яйцу Фаберже, которое брат Оливера, Эштон, нашел в своей банковской (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 19:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E161118F4945BE4ED1DF2418FF14ED7CDA3199E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349022   (140143) от 30.12.2019
-
-Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140143.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. There's No Place Like Home for the Holidays [4:40]
-02. Sleigh Ride [3:47]
-03. Christmas Lullaby [3:04](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10BFC406E2594000E92FE776374F76B9532A8BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945666   (140144) от 30.12.2015
-
-Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антимагической Академии [2015, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этого «школьного боевого фэнтези» разворачивается в мире, где магия, в принципе, существует, но вот люди, обладающие соответствующими силами, практически вымерли. Собственно, развитие местной военной мысли шло по пути «Мечи – магия – огнестрельное оружие». Такеру Кусанаги учится в Антимагической Академии – специальном заведении, где тренируют Инквизиторов, (   Читать дальше...   )Жанр: боевик, фэнтези, школаРежиссер: Кавамура ТомоюкиПеревод: nnm-club^animeЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4B4DE172D6D370F974DFF70F927B01AA10DB91
 ```
 
 

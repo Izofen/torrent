@@ -1,3 +1,156 @@
+###  Публикация: 1435903   (140814) от 29.12.2020
+
+Ёлки 1914 (2014) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140814.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 лет назад, Российская империя... Канун Рождества. Декабрьские пробки, праздничные гулянья, роскошные балы и скромные праздники, титулованные дворяне и обычные крестьяне, царская семья и солдаты первой мировой войны, прогрессивные поэты и первые фигуристы - все было по-другому, за исключением ... праздника. Люди готовились, жили, верили, мечтали и ждали настоящего (   Читать дальше...   )Производство: Россия, Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D433E1B2EAD147388A8CBC6F6E692FE0F9506FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970365   (140815) от 30.12.2015
+
+Журнал | Сам себе мастер №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сам себе мастер» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31017C788F4B0238556FA9AAB0FE50F37537E50A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195467   (140816) от 30.12.2017
+
+Lindi Ortega (Линди Ортега) - Tin Star (2013) Last Gang Records, Q2 01500, Canada [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard As This 3:12
+02. Gypsy Child 2:29
+03. Tin Star 3:37
+04. Vodoo Mama 2:15(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6528A626872691BEB27487BD48508F8D15F78D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590786   (140817) от 18.12.2012
+
+Father Befouled - Revulsion Of Seraphic Grace (2012) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indulgence Of Abhorrent Prophecies 04:38
+02. Irreverent Ascendancy 03:48
+03. Devourment Of Piety 05:29
+04. Obscurance Of Universality 04:34
+05. Desacrament 04:52
+06. Impetus To Angelic Descension 03:09
+07. Triumvirate Of Liturgical Desecration 09:48Жанр: Death MetalПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB824DF22354D7C4C2385D568B2FF7C39E1641C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520647   (140819) от 29.12.2021
+
+Audio Editor - Merge Split And Edit 1.5.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Editor - Merge, Split And Edit - программа для редактирования аудио на macOS. Этот софт позволит вам редактировать любой файл в формате WAV на вашем компьютере. Вы сможете с легкостью обрабатывать, обрезать, копировать и вставлять выбранные вами части дорожки. Простое в использование приложение позволяет без лишних усилий создавать и сохранять ваши проекты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51619A8C3E1F68203659D76366A943C59516C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348715   (140820) от 29.12.2019
+
+Михаил Алексеев | Неожиданный шанс (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь преуспевающего бизнесмена Сергея Владимировича подошла к рубежу, когда уже можно подвести некоторый итог прожитым годам. Еще не окончательный, но все же. Выходец из буйных 90-х – боец, бригадир, лидер ОПГ по кличке Фома – нажил деньги, сумев, в отличие от многих, шедших с ним по одной дороге, разменять их на годы жизни. Неплохой, надо сказать, жизни. Как раз (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51FA07CBA289E210E4796A2EB9F580591B51955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 108130   (140822) от 23.11.2023
 
 Ташкент - город хлебный (1968) TVRip
@@ -6,7 +159,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140822.jpg" />
 </div>
 
 
@@ -32,7 +185,7 @@ magnet:?xt=urn:btih:0EE42DC4F92CF6FC361325A4D1C6CBA638C0A4F3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140823.jpg" />
 </div>
 
 
@@ -56,7 +209,7 @@ magnet:?xt=urn:btih:700FB166081D5087313B0EB5EF9B73B8804AC7BB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140824.jpg" />
 </div>
 
 
@@ -80,7 +233,7 @@ magnet:?xt=urn:btih:E65B25CAE99B9F5AB3E78F8AD54E03A40AFDE2C7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140825.jpg" />
 </div>
 
 
@@ -104,7 +257,7 @@ magnet:?xt=urn:btih:8312D90FAE5610588FA3ECE8F89CDD0C996637DE
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140826.jpg" />
 </div>
 
 
@@ -129,7 +282,7 @@ magnet:?xt=urn:btih:875F35F43A7D13C707D643D06149024B7A5A1CD4
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140827.jpg" />
 </div>
 
 
@@ -154,7 +307,7 @@ Bardo Pond - Volume 8 (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140829.jpg" />
 </div>
 
 
@@ -181,7 +334,7 @@ magnet:?xt=urn:btih:E0EAF3ADDEF181F3390F5E95FCEB9685AC23F9FA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140830.jpg" />
 </div>
 
 
@@ -214,7 +367,7 @@ VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140831.jpg" />
 </div>
 
 
@@ -241,7 +394,7 @@ magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140832.jpg" />
 </div>
 
 
@@ -265,7 +418,7 @@ magnet:?xt=urn:btih:DD3640A017241F0DDB5F9A1F18B9833C4A6F582C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140833.jpg" />
 </div>
 
 
@@ -289,7 +442,7 @@ magnet:?xt=urn:btih:2B98B76F5953EC439DF8622F97853650A35A5E51
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140835.jpg" />
 </div>
 
 
@@ -313,7 +466,7 @@ magnet:?xt=urn:btih:73B1CF3E0A7538BFAF53D85292634A760F497B03
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140836.jpg" />
 </div>
 
 
@@ -337,7 +490,7 @@ magnet:?xt=urn:btih:42083DB808DAA068A7FAF96A456695C7FD0EEF6A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140837.jpg" />
 </div>
 
 
@@ -361,7 +514,7 @@ magnet:?xt=urn:btih:26424EC15768F4D5F10EB95E607CBA2A3C78FAF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140838.jpg" />
 </div>
 
 
@@ -385,7 +538,7 @@ Fashion Art 1.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140839.jpg" />
 </div>
 
 
@@ -411,7 +564,7 @@ magnet:?xt=urn:btih:F00176B3105A094D2E8287801FB2410027EFD872
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140840.jpg" />
 </div>
 
 
@@ -435,7 +588,7 @@ magnet:?xt=urn:btih:D8C8D2C01D99BF43917454C303010829D5291E37
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140841.jpg" />
 </div>
 
 
@@ -459,7 +612,7 @@ magnet:?xt=urn:btih:3B17DBFFE51A65A03F1177A63350EBF430EB69C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140842.jpg" />
 </div>
 
 
@@ -483,7 +636,7 @@ Orestes - Equivocal Paragraph (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140843.jpg" />
 </div>
 
 
@@ -503,161 +656,6 @@ Orestes - Equivocal Paragraph (2011) [MP3|320 кб/с]<Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A542EEB1A35E42D67A4564B08442EE00B846BB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272782   (140844) от 29.12.2018
-
-Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear My Train Comin’ (Acoustic) 3:05
-02. Born Under a Bad Sign 7:37
-03. Red House 3:43
-04. Catfish Blues 7:47(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CD307FA3B9A11DB2089803A26C64A597548F49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970387   (140845) от 30.12.2015
-
-ASuite 1.5.2 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140845.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASuite — это средство запуска приложений, позволяющее создать список быстрого запуска из неограниченного числа файлов, папок и веб-страниц. Программа рассчитана на запуск со съемных носителей, таких как USB-флэшки, жесткие диски, iPod и т.п. Поскольку ASuite использует относительные пути к файлам, он прекрасно подходит для запуска портативных приложений. Очень похожий (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC6D3E599CF39C1992BEC044E0A9C0392EC85CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854946   (140847) от 30.12.2014
-
-VA - Billboard Top 25 Hot Rock Songs (03-01-2015) [MP3|320 кб/с]<Rock, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140847.jpg" />
-</div>
-
-
-###  Подробнее
-
-По ту сторону океана Новый год уже наступил. По крайней мере лидеры музыкальной индустрии публикуют чаты уже январские 2015 года.
-Вот и журнал Billboard выдал серию, из которой представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
-Топ создается в соотвествии с ранжированнием (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
-02. Fall Out Boy - Centuries  (3:52)
-03. Vance Joy - Riptide  (3:22)
-04. Milky Chance - Stolen Dance  (5:16)(   Читать дальше...   )Жанр: Rock, Pop, Dance, OtherПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772124106D14E26AA01722F51343D7A286F08227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195284   (140848) от 30.12.2017
-
-VA - Hed Kandi The Mix (2005) HEDK054 [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140848.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Disco Heaven Mix
-1.Solu Music Feat. Kimblee - Fade (Solid State Kandi Mix)
-2.Bob Sinclar Feat. Gary Nesta Pine - Love Generation (Full Intention Club Mix)
-3.Chanel - My Life (Grant Nelson Neo Funk Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59526877A2B76B550DF01AB3898B418FD5A60038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348782   (140849) от 29.12.2019
-
-Филип Пулман | Цикл «Темные начала» [4 книги] (2016-2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Двенадцатилетняя сирота Лира Белаква вместе со своим деймоном Пантелеймоном живет в Оксфорде. Ее дядя – могущественный лорд Азриэл – приезжает в колледж для того, чтобы организовать экспедицию на Север. Цель его поездки – выяснить происхождение загадочной «пыли», которую можно увидеть на фотографиях, снятых в этих местах. Вскоре после отъезда дяди таинственные (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9AA5E189663E46C70BE7CB0C3BC01B613EF8FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088394   (140850) от 30.12.2016
-
-Шпана 3 / Brotherhood  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная драма Шпана 3 является очередной частью кинопроекта, рассказывающего о непростой жизни подрастающего поколения на небольших британских улочках и трущобах. Героям этого фильма не довелось родиться в огромных особняках, у богатых родителей, так что все премудрости выживания в этом несправедливом мире им пришлось осваивать самостоятельно, отстаивая свои (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Ноэль КларкАктеры: Эшли Томас, Ноэль Кларк, Оливия Ченери, Стивен Кри, Ник Неверн, Дэвид Аджала, Тония Сотиропулу, Джейсон Мацца, Арнольд Ошенг,  Фейди Эльсайед, Лашана ЛинчПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CF2BEF4BA049AA478C5CCDD7FAD36F2869039F
 ```
 
 

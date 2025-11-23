@@ -6,7 +6,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Magical Mixture Mill (2024) [Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68254.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blood Bowl (2012) [Ru/Multi] (3-2-0-0) License GOG [Chaos Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69063.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69196.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69387.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69420.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69435.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69455.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69467.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lucky Season 2: End of the Rainbow (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69628.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69655.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70303.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70313.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70609.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70653.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70786.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Reflections of Life 13: Sleep's Embrace (2025) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70969.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1 b5457/dlc) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71039.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71281.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71287.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mind Echoes: The Lost Mysteries (2025) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71337.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71364.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71677.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Secret of Monkey Island: Special Edition [Ru/En] (RePack) 2009 | R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74563.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mafia II: Digital Deluxe / Mafia 2: Город грехов + 8 DLC [Ru] (RePack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77236.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78455.jpg" />
 </div>
 
 

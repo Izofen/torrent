@@ -6,7 +6,7 @@ Evanescence - Fallen (2003) 20th Anniversary Edition, Reissue, Remastered, 2023,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145591.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ T. Rex - Electric Warrior (1971) SACD, 2003, A&M Records [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145602.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Rolling Stones - Between The Buttons (1967) SACD, Remastered, 2002 ABKCO Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145618.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Screaming Jets - Professional Misconduct (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145643.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stay Away - СССР 2077 (2023) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145669.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145685.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:6F5B7BE2CAC081E525784D45608A493E19102728
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145701.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145717.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Imperia - Tears Of Silence (2015) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145744.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Catharsis - Время потерь (2018) EP [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145768.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Immortal Guardian - Unite and Conquer (2023) [MP3|320 Kbps] <Progressive, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145770.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Faces - Stay With Me: Faces Anthology (2012) 2CD Compilation, Remastered [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145771.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Motorhead (Motörhead) - Another Perfect Day (40th Anniversary) (1983) Deluxe Ed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145799.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Immortal Guardian - Psychosomatic (2021) [MP3|320 Kbps] <Progressive, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145815.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Capture The Crown - 'Til Death (2012) [MP3|320 кб/с]<Post-Hardcore | Electron
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145819.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Thief (Dylan Neal) - 4 Albums (2016-2021) [MP3|320 Kbps] <Alternative, Dark Elec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145859.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Slechtvalk - A Forlorn Throne (2010) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145860.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Mastercastle - Last Desire (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145890.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145897.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Herjan - Nightfall of Humanity (2017) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145909.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Ghost Machinery - Evil Undertow (2015) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145919.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145932.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:FC7ABF02612A9A1B9EAC5661AB06185A03D0F5F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145943.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ In Memory - LaKrima (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145947.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Metusa - 4 альбома (2009 - 2016) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145951.jpg" />
 </div>
 
 

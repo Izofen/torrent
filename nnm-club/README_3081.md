@@ -1,3 +1,84 @@
+###  Публикация: 474273   (97905) от 28.03.2012
+
+VA - Звезды Кавказа. Морское рандеву (2007) [MP3|224 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97905.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Группа Домбай - Кавказ
+002. Альберт Тлячев - Волны Черного моря
+003. Al’bina - Горный цветок
+004. Хардай - Ромашка
+005. Аza - Алые паруса
+006. Мардас Дауров - Хабез – Страна чудес
+007. Эльза - Желтая луна
+008. Marat - Сделай погромче
+009. Шокко - Малиновое лето
+010. Дени - Малика(   Читать дальше...   )2007Жанр: PopПродолжительность: 06:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97AB17EDB818EA2C5BDE7199F7495F37D475139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475225   (97906) от 29.03.2012
+
+[Wallpapers] Films Wallpapers (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAACB8EF9869C7CA7F47548FBC3C291723155DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475226   (97907) от 29.03.2012
+
+[Wallpapers] Interer Wallpaper (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEB1AECC1549CD74285FAAFCD72DFF6B8A60457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474950   (97910) от 29.03.2012
 
 Мишель Лебрюн | Смерть молчит [2007] [MP3]
@@ -6,7 +87,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97910.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97911.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97911.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97915.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ magnet:?xt=urn:btih:D5EE06918A46443E7DE257A548113CE252D0224B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97916.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ magnet:?xt=urn:btih:8830FFDDCEA22B4F489C4AADB7652AA333E21ADF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97917.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Game Over - NESperado (2006) [MP3|256 кб/с]<Experimental/Nintendo Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97920.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ magnet:?xt=urn:btih:F6CA2BBE9579C8FCB6EE9ED79F753F4989E53484
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97921.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:C21FC1BCBD621712645A6DAB6DB3B1476ECD9BA4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97924.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:5EF0ADBDD640CA08C5D647556ECFF792EB7A7186
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97925.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ magnet:?xt=urn:btih:55CAE106BD7E318F061A3F9D0B5EB7CCD9903752
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97929.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ Tracedawn - Lizard Dusk (2012) [FLAC|Lossless]<Melodic Death Metal/Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97930.jpg" />
 </div>
 
 
@@ -312,7 +393,7 @@ VA - Весенний марафон Europa Plus 50/50 (2012) [MP3|256 kbps]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97933.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ magnet:?xt=urn:btih:72D2524388CCD8A23949ED3C46E7AFCD5909EBF3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97934.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:92AB198A1930FBC25E38229F509AA680920131DB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97936.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ magnet:?xt=urn:btih:288A78CFD9423BF4FE22A4B83D8D78934048A90B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97939.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ magnet:?xt=urn:btih:0B378CD4F1D403E8DBB5C26E2C08D97FCEA2DE25
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97940.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ magnet:?xt=urn:btih:3D6C806C06216DA1BB54F12400EE28B7095549F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97942.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ magnet:?xt=urn:btih:778C97C808860834A972CD27131B9D3A95679B83
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97943.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ magnet:?xt=urn:btih:6263B5F2D409A34D2058251FD8C730FC726D39E1
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97950.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:A81406165230DD87EEEAF86E69EE314E7A9FF337
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97956.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ Mozilla Firefox 12.0  Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97957.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97957.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ Allied - Cryptic Era (EP) (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97958.jpg" />
 </div>
 
 
@@ -616,7 +697,7 @@ magnet:?xt=urn:btih:2E1BB0B240848FECD3122DAEA613858B1A0FD1D8
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97959.jpg" />
 </div>
 
 
@@ -627,89 +708,6 @@ magnet:?xt=urn:btih:2E1BB0B240848FECD3122DAEA613858B1A0FD1D8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328A90D6D6A16BA5A02D096ACA6B7856C6E3B430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474959   (97961) от 29.03.2012
-
-Дельфийский эффект / Kiss Me Deadly (2008) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейкоб Кин хочет только одного — исчезнуть. Оставив работу спецагента, он пытается скрыться от «коллег» и начать спокойную жизнь обычного человека. Но все его мечты рушатся, когда бывшая напарница врывается в его дом.
-
-Марту преследуют наемные убийцы и она не может доверять никому, кроме Джейкоба. Понимая, что только он ее единственный шанс выжить, Кин не может отказать Марте в помощи и вынужден вновь погрузиться в опасный мир шпионажа…Жанр: БоевикРежиссер: Рон ОливерАктеры: Роберт Гант, Шэннен Доэрти, Фрайзер Браун, Джон Рис-Дэвис, Натан Уайтакер, Кэтерин Кеннард, Алессандра Мьюир, Мэтью Сандерлэнд, Йен Робертс, Аластер ЛамсденПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:27:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474348   (97962) от 29.03.2012
-
-Дикий Юг. Острова Игуаны [2 сери] / Wild South. Island of the Iguana (1990-1999) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1551AF3D3387D38F62F213F926FEEE91A442B9D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474637   (97963) от 29.03.2012
-
-Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Flyer (5:48)
-02. Sign From Eternity (5:11)
-03. Masquerade (5:16)
-04. Tears Of The Sun (4:22)
-05. Remotion (5:22)
-06. Same Same (5:02)
-07. Rise On (6:59)
-08. El Dios (4:40)
-09. Out Of Nowhere (7:30)
-10. Cold Winters Night (5:07)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 

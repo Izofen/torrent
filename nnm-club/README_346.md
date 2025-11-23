@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9122.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:49BE7F1E6D8BD32EFAC237192CEAB279CE0C5CFC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9123.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:327C0B34A1AE06925511CDBAE5AA781D4EBE3D9E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9124.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:54227E162D1F8ED87A0BC4F2692DF9046F6E78D1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9125.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Audacity 3.7.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9126.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Music News For Forum vol.122 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9127.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3E89D37574447E415A82494DE2F8C5B8DBCF120C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9128.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:4FE092B1617CE6A5362C1730738A755407CEA56A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9129.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:5FE1157DAF972B51872C7A7077DE07F0D480E29B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9130.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ iZotope - FXEQ 1.0.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9131.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9132.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9133.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:012E6F0792DF7BD20B1D06266933F0C96164BDB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9134.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.11 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9135.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:4588F6417B4B473E4BE910F2E69F16DAD7D94030
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9136.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MiniMeters 1.0.4 STANDALONE, VST 3, CLAP (x64) RePack [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9137.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:C9D5A05FD7EBAFDED9F7EF4B1AC1ED65C63313B1
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9138.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ SoftBank сообщила, что опытная эксплуатация раз
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9139.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:0633591F011601FF8D547EDBE302B55CED54D723
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9140.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ ON1 Resize AI 2026 v20.0.0.17231 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9141.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:CAECE88730FC1CD52E87C0712A1FA74F7F3D372E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9142.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) HDTVRip [720p
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9143.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:9A6D3C3B6E0CBFBB8AEAEF92EF2AFDC2C57E35EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9144.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8325EA0F6F1E106601902E41F362BEA45FE48CF8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9145.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ IObit Smart Defrag Pro 11.0.0.454 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9146.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9147.jpg" />
 </div>
 
 

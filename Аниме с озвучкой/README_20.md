@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162898.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163693.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165344.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Rozen Maiden: Traumend + Ouverture| Девы Розена: Сновидение 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165995.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167032.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167061.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kumo no Mukou, Yakusoku no asho / The Place Promised in Our Early Days / За о
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168125.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168652.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168721.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:B0DD411A2C34AB83C9382136A4C3C7E9B7310FDF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171680.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171685.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172580.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172777.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:66EF0ED9178EE9754499D7782030EFA94424758F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175694.jpg" />
 </div>
 
 
@@ -343,6 +343,31 @@ magnet:?xt=urn:btih:FAA557934D36F8BC22876DC82EB8513480FB05D6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392886   (179442) от 02.12.2020
+
+Fruits Basket TV-2 | Корзинка фруктов ТВ-2 [2020, TV, 25 из 25] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
+Продолжение ремейка аниме Корзинка (   Читать дальше...   )Производство: Япония, cтудия TMS / トムス・エンタテインメントЖанр: Реверс-гарем, РомантикаРежиссер: Ибата ЁсихидэЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи, Русский, English, FrançaisПродолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A56EB0FBC4C66924EB00906AB6A690AF4BAF7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665975   (179473) от 04.10.2023
 
 Святая Сесилия и пастор Лоуренс | Shiro Seijo to Kuro Bokushi | Saint Cecilia and Pastor Lawrence [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -351,7 +376,7 @@ magnet:?xt=urn:btih:FAA557934D36F8BC22876DC82EB8513480FB05D6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179473.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179473.jpg" />
 </div>
 
 
@@ -376,7 +401,7 @@ magnet:?xt=urn:btih:6E31D7776030B8920CA0E325B8949D34FF8313C1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180101.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180101.jpg" />
 </div>
 
 
@@ -401,7 +426,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180180.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180180.jpg" />
 </div>
 
 
@@ -425,7 +450,7 @@ magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180423.jpg" />
 </div>
 
 
@@ -449,7 +474,7 @@ magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180434.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180434.jpg" />
 </div>
 
 
@@ -474,7 +499,7 @@ magnet:?xt=urn:btih:7EC32656908A43FA10A64B55AD85A3A3B3690EA3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180628.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180628.jpg" />
 </div>
 
 
@@ -499,7 +524,7 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180639.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180639.jpg" />
 </div>
 
 
@@ -523,7 +548,7 @@ magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180652.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180652.jpg" />
 </div>
 
 
@@ -548,7 +573,7 @@ magnet:?xt=urn:btih:279026C7C55A170D4C270751A4BF58551553C10E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181045.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181045.jpg" />
 </div>
 
 
@@ -573,7 +598,7 @@ magnet:?xt=urn:btih:ADFAE1AA91F299E7AAA376784FB334A7D09F2E7F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181232.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181232.jpg" />
 </div>
 
 
@@ -597,7 +622,7 @@ magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181274.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181274.jpg" />
 </div>
 
 
@@ -609,31 +634,6 @@ magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:803372D2EC23D13F1BDA08CBFFBD867EE226987F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628257   (181693) от 30.09.2023
-
-Жертвенная принцесса и владыка зверей | Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts [2023, TV, 24 из 24] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто лет назад между людьми и зверолюдьми разразилась великая война, которая унесла множество невинных жизней и закончилась перемирием сторон. Однако, одним из условий хрупкого равновесия стало ежегодное человеческое жертвоприношение Царю зверей. Вот уже век продолжается кровавый ритуал и уже девяносто восемь девушек было отдано на съедение, и теперь та же участь (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Романтика, фэнтези, сёдзёРежиссер: Кон ТиакиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Cleo-chan, HectoR, NastyhaGrizli, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BFA5CBA13121EAE3EB38DFC5C9418A20D8742C
 ```
 
 

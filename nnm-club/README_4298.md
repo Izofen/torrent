@@ -1,3 +1,79 @@
+###  Публикация: 1316485   (132242) от 04.12.2023
+
+Тайна железной двери (1970) DVDRemux
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвероклассник Толик Рыжков познакомился с волшебником и стал обладателем спичек, исполняющих все его желания и капризы. Вместе с другом Толик очутился на необыкновенном острове, где все плохое считается хорошим, а хорошее - плохим. К тому же, ребята вскоре поняли, что им возвращаться придется самостоятельно...Производство: СССР, Киностудия им. М. ГорькогоЖанр: Семейный, ПриключенияРежиссер: Михаил ЮзовскийАктеры: Эвальдас Микалюнас (...Толик Рыжов), Дмитрий Юзовский (...Митька), Сергей Евсюнин (...Волшебник), Вячеслав Цюпа, Савелий Крамаров, Олег Табаков (...папа), Алиса Фрейндлих (...мама Толика), Светлана Старикова, Андрей Харыбин (...Мишка).Субтитры: русские, английские, французские (вшитые, отключаемые)Продолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D23CD88B4B1CB489E7FFD553BD55959841FDEA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681589   (132244) от 04.12.2023
+
+Дядюшка Бак / Uncle Buck (1989) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленивого, добродушного дядюшку-холостяка просят позаботиться о племянниках на время семейного кризиса их родителей. К дяде Баку те обратились от отчаяния: больше оставить детей не с кем. Но немного везения, много любви, и дядя Бак сумеет всех удивить.Производство: США / Hughes Entertainment, Universal PicturesЖанр: драма, комедия, семейныйРежиссер: Джон ХьюзАктеры: Джон Кэнди, Джин Луиза Келли, Габи Хоффманн, Маколей Калкин, Эми Мэдиган, Элейн Бромка, Гэррет М. Браун, Лори Меткаф, Джей Андервуд, Брайан ТарантинаПеревод: дублированный, многоголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5052DAAAC6BC73CFDF289541D747374CD09F13A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595839   (132245) от 29.12.2012
+
+[Wallpapers] From the world of fiction (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132245.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] From the world of fiction (29.12.12)
+Название: From the world of fiction (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FC7EB3B71F369238A6E1B503247947DEDF510E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681769   (132246) от 04.12.2023
 
 Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop (2023) WEB-DL [EN]
@@ -6,7 +82,7 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132246.jpg" />
 </div>
 
 
@@ -32,7 +108,7 @@ magnet:?xt=urn:btih:8B4CE765E1335F4D7E6B6BD98471937A2ADF3BCC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132247.jpg" />
 </div>
 
 
@@ -60,7 +136,7 @@ magnet:?xt=urn:btih:00846BC8E61933B04C68C7010AF4D7DBEB01B517
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132248.jpg" />
 </div>
 
 
@@ -85,7 +161,7 @@ magnet:?xt=urn:btih:CDA05919CD7024D51EB7B72A9971787FC63219B0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132249.jpg" />
 </div>
 
 
@@ -113,7 +189,7 @@ magnet:?xt=urn:btih:0136FFAD86AC512209FCAE7119D36A1B865FFD63
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132250.jpg" />
 </div>
 
 
@@ -137,7 +213,7 @@ magnet:?xt=urn:btih:39AAD0F1C4E7E16BD41BD41A74EE9DA41353F438
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132251.jpg" />
 </div>
 
 
@@ -165,7 +241,7 @@ magnet:?xt=urn:btih:B1C6060EAA6E74E7FD9430875E3CBFD44848D9E1
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132252.jpg" />
 </div>
 
 
@@ -189,7 +265,7 @@ magnet:?xt=urn:btih:D0458E52479EDED8A98EA214601D4F226A55D618
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132254.jpg" />
 </div>
 
 
@@ -213,7 +289,7 @@ magnet:?xt=urn:btih:E408DC7AC4C66FE96115C9D1F9FBF8D335C8D3F7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132256.jpg" />
 </div>
 
 
@@ -237,7 +313,7 @@ TechSmith Snagit 2024.0.2 build 909 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132257.jpg" />
 </div>
 
 
@@ -261,7 +337,7 @@ Revo Uninstaller Pro 5.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132258.jpg" />
 </div>
 
 
@@ -285,7 +361,7 @@ Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginne
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132259.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ Liveclasses, Антон Мартынов | Генерация изображен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132260.jpg" />
 </div>
 
 
@@ -334,7 +410,7 @@ magnet:?xt=urn:btih:3AC140C39BB5290A6545CBF1DBBCB27C3084618B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132261.jpg" />
 </div>
 
 
@@ -358,7 +434,7 @@ Nature Wallpapers (29.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132262.jpg" />
 </div>
 
 
@@ -382,7 +458,7 @@ magnet:?xt=urn:btih:D870BDC1D190F5C4107605EB8AE6F147CFA14010
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132263.jpg" />
 </div>
 
 
@@ -406,7 +482,7 @@ Best HD Wallpapers Pack (28.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132264.jpg" />
 </div>
 
 
@@ -430,7 +506,7 @@ Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132265.jpg" />
 </div>
 
 
@@ -454,7 +530,7 @@ magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132267.jpg" />
 </div>
 
 
@@ -478,7 +554,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132268.jpg" />
 </div>
 
 
@@ -503,7 +579,7 @@ magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132269.jpg" />
 </div>
 
 
@@ -531,7 +607,7 @@ CyberLink PowerDirector Ultimate 22.0.2323.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132271.jpg" />
 </div>
 
 
@@ -555,7 +631,7 @@ Sexy Girls Pack Wallpapers (29.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132272.jpg" />
 </div>
 
 
@@ -566,82 +642,6 @@ Sexy Girls Pack Wallpapers (29.12.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40A81B6856C980CD2A673B77704C37C4E10C1113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681668   (132273) от 04.12.2023
-
-Прямой эфир (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блогер-миллионник Егор в погоне за контентом отправляется на съемки тест-драйва автомобиля в Кавказские горы. Все выходит из-под контроля в тот момент, когда сотрудник автокомпании Александр, помогающий Егору, случайно наступает на боевую мину, а Егор решает на этом хайпануть. Теперь, когда один борется за собственную жизнь, а второй за миллионные просмотры — каждый (   Читать дальше...   )Производство: Россия / Мовсес Фильм, Ирсна Медиа, Карго ФильмЖанр: триллер, драмаРежиссер: Карен ОганесянАктеры: Кирилл Кяро, Павел Чернышёв, Ирина Воронова, Ангелина Стречина, Сослан Фидаров, Ульяна Пилипенко, Анастасия Тодореску, Ксения Шундрина, Аслан Цаллати, Станислав ТкаченкоСубтитры: отсутствуютПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33E59325E1BB6528A10EE7D1F0DC8C7A746AF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595942   (132274) от 29.12.2012
-
-[Wallpapers] A selection of weapons (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132274.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] A selection of weapons (29.12.12)
-Название: A selection of weapons (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D505F2225ED967CB690FF7092A8CCF3947B237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681669   (132275) от 04.12.2023
-
-Большее зло / Худшее из зол / Choeakui ak / The Worst of Evil (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) TVShows
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каннам, 1995 год. Один из членов криминальной группировки Чон Ги-чхоль недоволен, что ему запрещают торговать наркотиками, поэтому захватывает власть и убивает босса, но в процессе погибает его лучший друг Тхэ-хо. Теперь бизнес Ги-чхоля процветает — организовано наркопроизводство, идут отгрузки в Японию — что привлекает внимание полиции. Под видом кузена Тхэ-хо в (   Читать дальше...   )Производство: Южная Корея / Baram PicturesЖанр: криминал, драма, боевикРежиссер: Хан Дон-укАктеры: Чи Чхан-ук, Ви Ха-джун, Лим Сэ-ми, Биби, Ли Джон-хон, Чи Сын-хён, Лим Сон-джэ, Чха Рэ-хён, Ли Щин-ги, Юн Гён-хоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (SDH), корейские (SDH)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D74A654492ED6346DEC105E8AAA6A835FE68A1D
 ```
 
 

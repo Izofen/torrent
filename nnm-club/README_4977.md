@@ -1,3 +1,183 @@
+###  Публикация: 1433924   (154186) от 22.12.2020
+
+Звезды и солдаты / Красное и белое/ Csillagosok, katonak / The Red and the White (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об участии венгерских красногвардейцев в гражданской войне в России. Разбит один из венгерских отрядов. Молодому бойцу Ласло удается бежать в монастырь, где расположились венгры. Но врывается отряд белых и расстреливает борцов за революцию. Однако татарину Чингизу, венграм Ласло и Андрашу, а также русскому матросу удается вырваться за пределы города…Производство: Венгрия, СССР / MANDA, МосфильмЖанр: Драма, ВоенныйРежиссер: Миклош ЯнчоАктеры: Татьяна Конюхова, Кристина Миколаевска, Тибор Мольнар, Йожеф Мадараш, Андраш Козак, Сергей Никоненко, Глеб Стриженов, Никита Михалков, Михаил Козаков, Вера Алентова, Савелий КрамаровЯзык озвучки: Русский, ВенгерскийСубтитры: Русские (на венгерскую речь)Продолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAD2A44094C0A257D7F8FE86476F25026F8DD62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086146   (154187) от 23.12.2016
+
+AIMP 4.12 Build 1877 Final RePack (& Portable) by D!akov (with DFX Audio Enhancer)  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154187.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147EB9B23ED3380E80001D7837EAF018CBAB9849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433478   (154188) от 22.12.2020
+
+VA - 80s Disco Forever (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Flames Of Love (Extended Version) (5:20)
+02. Grant Miller - Colder Than Ice (Tess Remix) (6:49)
+03. The Hurricanes - Only One Night (12'' Version) (5:52)
+04. Psychic Interface - Dancin' In The Night (12'' Version) (5:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1F667AAF20F4328E48A2C2A0B95FF49D3859E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086145   (154189) от 23.12.2016
+
+VA - Лучшие хитовые треки в стиле Industral Rock & Nu Metal от LORDEGRAF (2016) [MP3|96-320 Kbps] <Industral Rock & Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Alter Bridge - Blackbird [07:58]
+02.	Black Light Burns - Lie [04:19]
+03.	Blindside - Swallow [02:25]
+04.	Breaking Benjamin - Breath [03:39](   Читать дальше...   )Жанр: Industral Rock & Nu MetalПродолжительность: 06:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194789   (154190) от 26.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 21) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Георг Отс  -  Мы с тобой не дружили  2:50
+02.  Татьяна Дасковская  -  Прекрасное далёко  4:08
+03.  Олег Даль  -  И солнце всходило  3:20
+04.  Вахтанг Кикабидзе  -  Проводы любви  3:25(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C2AB983E0F19262CDB1BD4CD847693B9B8471D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518530   (154191) от 20.12.2021
+
+SolarFlow - Infinity (2020) [AAC|~320 Kbps] <Electronic, Lounge, Chill Out, Enigmatic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinity (Original Mix) (5:32)
+02. Apollo 13 (Original Mix) (6:25)
+03. Elements (Original Mix) (5:21)
+04. Dolphins (Original Mix) (4:55)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill Out, EnigmaticПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D622F21959A02FC21B10DE5DCEDB01926645F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270957   (154192) от 21.12.2018
+
+Султан и святой / The Sultan and the Saint (2016) HDTVRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два человека судьбы, один - путешествующий скромный христианский проповедник, другой - великий властитель мусульманской империи, встретились в эпицентре кровавой войны. После долгих бесед они поняли, что у них больше общего, чем различий... и эта встреча стала судьбоносной для истории человечества, так как привела к перемирию на целых восемь лет.Производство: США, Unity Productions Foundation, Studio UnknownЖанр: Документально-постановочный, историческийРежиссер: Александр КронемерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88E0FB24CFCF37AC5C28BE63EF322008CF6D5BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676953   (154193) от 15.11.2023
 
 Слай Сталлоне / Sly (2023) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +186,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154193.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:EA03E62F09A8EA96CF8881ED8DF398B35499EEF3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154194.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ magnet:?xt=urn:btih:A1197C6423A3C8BF12A64B9D6C349488B7292CED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154195.jpg" />
 </div>
 
 
@@ -78,7 +258,7 @@ Foldor-Design Your Folder Icon 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154196.jpg" />
 </div>
 
 
@@ -102,7 +282,7 @@ magnet:?xt=urn:btih:5399744692CA8B8D66DD65116EB2598D2B5E9949
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154197.jpg" />
 </div>
 
 
@@ -126,7 +306,7 @@ magnet:?xt=urn:btih:BB2CBDC1B9939E5B173D7B0FD54A753DCDAF23FA
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154198.jpg" />
 </div>
 
 
@@ -150,7 +330,7 @@ Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154199.jpg" />
 </div>
 
 
@@ -177,7 +357,7 @@ ePageCreator 5.9.9.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154200.jpg" />
 </div>
 
 
@@ -201,7 +381,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154201.jpg" />
 </div>
 
 
@@ -228,7 +408,7 @@ magnet:?xt=urn:btih:1BE9F1A3EBF419A2F0361BEC084C1B43F742367F
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154202.jpg" />
 </div>
 
 
@@ -252,7 +432,7 @@ AppPolice 1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154203.jpg" />
 </div>
 
 
@@ -276,7 +456,7 @@ magnet:?xt=urn:btih:AFD90AE2A4B694BF9B7694AB76E2D617AC8C77F1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -303,7 +483,7 @@ Sun Drivers - Blues Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154205.jpg" />
 </div>
 
 
@@ -330,7 +510,7 @@ FreeCommander XE 2021 Build 840 public x32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154206.jpg" />
 </div>
 
 
@@ -354,7 +534,7 @@ magnet:?xt=urn:btih:2C7479EBDDF875A841F7B8B57A98A0B6D1F10BDE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154207.jpg" />
 </div>
 
 
@@ -378,7 +558,7 @@ magnet:?xt=urn:btih:1680EAEF08A26F31023B5EFBE69CF815CA3B93F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154208.jpg" />
 </div>
 
 
@@ -402,7 +582,7 @@ magnet:?xt=urn:btih:745AB59F3959C38A10C0FAA103B848FE64DB409F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154209.jpg" />
 </div>
 
 
@@ -426,7 +606,7 @@ magnet:?xt=urn:btih:7CCEDD2A5A34699638D003B5108C06161981BB92
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154210.jpg" />
 </div>
 
 
@@ -450,7 +630,7 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154211.jpg" />
 </div>
 
 
@@ -464,185 +644,6 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676880   (154212) от 15.11.2023
-
-PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154212.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-XChange Editor — программа для просмотра, редактирования и изменения PDF документов. У вас теперь есть более легкий, быстрый и многофункциональный аналог программе Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов. С помощью PDF-XChange Editor можно смотреть и печатать PDF документы, экспортировать из них текст и графику, создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EE280E1E7ECB010347B9F675ABE5DA851798B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600977   (154213) от 29.12.2022
-
-Wood Roses - We Call It Maize (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Darlin' (3:12)
-02. Disatant Memories (3:35)
-03. Bar Room Crie (3:23)
-04. Penis On the Line (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E109A6F38C0C9BF6E3E5C381289CDA1FE0275C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270863   (154214) от 21.12.2018
-
-Method Man - Meth Lab II: The Lithium (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, East Coast Rap, Hardcore Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pilot - Intro (1:20)
-02. Episode 1 - Kill Different ( feat. Hanz On, Raekwon) (3:15)
-03. Episode 2 - Eastside ( feat. Intell, Snoop Dogg) (4:24)
-04. Commercial Break ( feat. Thotti Gotti) (0:49)(   Читать дальше...   )Производство: Hanz On Music - 759108568607Жанр: Hip-Hop, East Coast Rap, Hardcore RapПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136289D58F11B0AAA2B50497D79FE3FE12C686B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347281   (154215) от 22.12.2019
-
-Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - ObsessionЖанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433911   (154216) от 22.12.2020
-
-Шаблоны - GraphicRiver - Phone 12 Case 3d Mockup - 29444862 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 6 реалистичных и простых в редактировании iPhone 12 Case 3D Mockup для Photoshop.Формат: PSDРазрешение файлов: 6000×6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E1325B361D2840B382ED6DA0FEBDA28EC3FF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085827   (154217) от 23.12.2016
-
-Интересные факты. Выпуск 75 - 40 самых интересных фактов о человеке
-
->>Поговорим
->>А знаете ли вы..
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный проект NNM-Club
-Интересные факты. Выпуск 75
-40 самых интересных фактов о человекеФакт 1. Научное название пупка — умбиликус.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518600   (154218) от 20.12.2021
-
-Walletry 2.8.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Walletry - это простое приложение, которое поможет вам отслеживать свои доходы и ежедневные расходы. Вы можете добавлять свои ежедневные транзакции и классифицировать их, добавляя множество категорий и настраивая их. Также вы можете получать уведомления о сроках транзакций и прикреплять фотографии к своим транзакциям и еще указывать свое местоположение.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: © 2020 Fantazia AppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362555C7D269547D1FFFB3B182CAFE9967F583A4
 ```
 
 

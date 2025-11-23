@@ -1,3 +1,78 @@
+###  Публикация: 1749205   (104337) от 14.09.2024
+
+Судный День - Чёрное пророчество (2008) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Адские врата (Пролог) (1:11)
+02. Ария демонов (3:38)
+03. Один из нас (4:24)
+04. Предсмертная исповедь (6:38)(   Читать дальше...   )Жанр: Heavy Metal, Gothic MetalПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AB3CBD7EB5F7F3376E4070CC28FF59411F6FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749513   (104338) от 14.09.2024
+
+Эрхард Дитль | Огрики и жабечательный Новый год (2022) [MP3, Оксана Архиреева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все в Грязьбурге готовятся к празднованию Нового года. Все, кроме огриков, потому что они раньше и не слышали о таком празднике! Но как только огрики узнают, что Новый год — это ярмарки, поделки и веселье, они уже не могут остаться в стороне — ведь всё это так по-огриковски! И хотя по вине горожан зелёная семейка чуть не оказывается за решёткой в новогоднюю ночь, (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Мария ШалуноваИздательство: Альпина ДиджиталПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBAB69DB58C436E7A52AB63C4C3B945309D9013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749452   (104339) от 14.09.2024
+
+Живая еда с Сергеем Малозёмовым (14.09.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копченая и вяленая рыба — в ней только вред или есть еще и польза, какая лучше — домашняя или магазинная, как размягчить пересохшую воблу и чем — лимонным соком, зубной пастой или пивом — лучше отмывать руки после рыбной трапезы? Команда программы в новом выпуске «Живой еды» и провела экспертизу улова из самых опасных водоемов России и проверила его на паразитов. (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3533D50DAF59486D8A625836648D3B76989E7CB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749118   (104340) от 14.09.2024
 
 Ektomorf - Studio Albums (16 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu-Metal, Groove Metal/Hardcore>
@@ -6,7 +81,7 @@ Ektomorf - Studio Albums (16 releases) (1996-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104340.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ The Funeral Portrait - Greetings From Suffocate City (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104341.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:C57F7B2C69E1524EE6FFDFAC7C4152A1E8C0E13E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104342.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ magnet:?xt=urn:btih:0297F4E65B356040E4D3C9E80176EDAA335807F7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104343.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:E97E82153FEAFB3F30B7C9B4C487A5E21A80C7B0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104344.jpg" />
 </div>
 
 
@@ -138,7 +213,7 @@ Jim Hall Trio featuring Tom Harrell - These Rooms (1988) Denon [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104345.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104346.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Barock Disco Band - Disco Classical Fever (1979) LP [MP3|320 Kbps] <Funk Soul, C
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104347.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ The Gibbons - Into The Storm (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104348.jpg" />
 </div>
 
 
@@ -243,7 +318,7 @@ magnet:?xt=urn:btih:B49307150673733C296EC2A1D188C75985FC9CA5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104349.jpg" />
 </div>
 
 
@@ -267,7 +342,7 @@ Simon & Garfunkel - Manchester, England, May '67 (2024) [MP3|320 Kbps] <Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104350.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Le
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104351.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ XYplorer 26.40.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104352.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ magnet:?xt=urn:btih:B655C4BB37332879B87816EA466F1BBD4DD92F07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104353.jpg" />
 </div>
 
 
@@ -369,7 +444,7 @@ VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104354.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104355.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ magnet:?xt=urn:btih:4CE07FB81D2733DFB011295BC606B56D78A034C1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104356.jpg" />
 </div>
 
 
@@ -447,7 +522,7 @@ VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104357.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ VA - Maretimo Chill Radio - Best of Vol. 3 - Positive Summer Vibes (2024) [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104358.jpg" />
 </div>
 
 
@@ -501,7 +576,7 @@ magnet:?xt=urn:btih:8FBD6E247C847AF433DC63DCCF0A488F64536ED5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104359.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ VA - Find Your Harmony 2024 Part 1 - HEAVENS (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104360.jpg" />
 </div>
 
 
@@ -553,7 +628,7 @@ Breeze - Echoes from a Distant Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104361.jpg" />
 </div>
 
 
@@ -580,7 +655,7 @@ magnet:?xt=urn:btih:A7FDB4957FE6802E4D139C453B4CBA3DB6BF0888
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104362.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_104362.jpg" />
 </div>
 
 
@@ -592,78 +667,6 @@ magnet:?xt=urn:btih:A7FDB4957FE6802E4D139C453B4CBA3DB6BF0888
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822911   (104363) от 10.10.2025
-
-Охотник за скальпом / Погоня в горах / Hell Bent for Leather (1960) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители небольшого захолустного городка Саттервилль по ошибке принимают обычного торговца Клея Сантелла за беглого убийцу по имени Трэверс. Федеральный маршал Гарри Декетт, единственный, кто знает Треверса в лицо, видит, что Сантелл не тот человек, но решает убить Клея и выдать его за настоящего Трэверса с целью повысить свою служебную репутацию и получить денежное (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: вестернРежиссер: Джордж ШерманАктеры: Оди Мерфи, Фелиция Фарр, Стефен Макнэлли, Роберт Миддлтон, Джеймс Вэстмолэнд, Ян Мерлин, Герберт Радли, Малкольм Аттербери, Джозеф Рускин, Аллан ЛэйнПеревод: Одноголосый любительский (Grampy)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английскиеПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07273C6ADF53AFE891BF000257DE4542120B7CB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822906   (104364) от 09.10.2025
-
-Тот самый / Him (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечта, которая с детства казалась недостижимой, наконец становится реальностью — молодого, амбициозного футболиста приглашают на эксклюзивные тренировки с легендой спорта, загадочным и харизматичным квотербеком. Но вместо триумфа его ждёт изолированный тренировочный центр, и по мере того как обучение Кэма набирает обороты, харизма наставника начинает приобретать (   Читать дальше...   )Производство: США / Monkeypaw Prodctions, Ingenuity EngineЖанр: ужасы, спортРежиссер: Джастин ТиппингАктеры: Тайрик Уизерс, Марлон Уайанс, Джулия Фокс, Jordahn Smith, Тим Хайдекер, Дон Бенжамин, Kiara Gomez Glad Bak, Наоми Гроссман, Габриэла Алисия Ортега, Джим ДжефферисПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D014B96991FA2FD3FE71F081D3D5481DE636F4B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822916   (104365) от 09.10.2025
-
-Tor Browser Bundle 14.5.8 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3915E7DF591D28F7A3E5FF77D6F8F9CA77FDA372
 ```
 
 

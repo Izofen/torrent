@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51637.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F795C37BAA6420918598D46E5EE9B06831CF692
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51651.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6CCE4036E2C0F636E922AC4EAAF03CCB36AC3D5B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51889.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52042.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D33A56D55ECA13532549D67322EB3CD3E848A9EA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52150.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7DFFAA36C53C83D0DCC5330EA4EDA2D04EF0C50F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52176.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0FD1FE6E7FBE88FA5B390545B5E2430092E189C0
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52253.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:F4AF4F00ACCD1903EF1F5323C5ED3003E76767EE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52416.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52516.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:998DF8589D22CBFA9548D5C250B6E3C79C3B63C7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52860.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:2E556940C1C561B97EF9825BA261B4B9F32A1BD1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52906.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53241.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53346.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53499.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53769.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54269.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54417.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54443.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54859.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A7F89B6A65818198D289A572E83EDBC863C8D4CA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55166.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56922.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56991.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:CF19586D17B623C6DC895A5A5BB6DD947AF2EFA5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57714.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58063.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58073.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58252.jpg" />
 </div>
 
 

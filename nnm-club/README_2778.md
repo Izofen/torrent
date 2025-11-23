@@ -1,3 +1,79 @@
+###  Публикация: 455943   (77806) от 22.02.2012
+
+[UK] Богдан-Зиновий Хмельницкий / Богдан-Зіновій Хмельницький (2006) BDRip
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественный фильм рассказывает об одном из самых тяжелых и трагических моментов освободительной войны украинского народа против господства шляхетской Польши (1648- 1657 гг.) — битве под Збаражем.
+
+Во главе с Богданом Хмельницким казацкое войско взяло в плотную осаду городок Збараж. Польская шляхта под предводительством лютого врага Украины Яремы Вишневецкого оказалась в западне: закончились продовольственные запасы, начался голод, болезни; Ярема посылал десятки гонцов к Польскому Королю с мольбами о военной помощи, но ни один из гонцов не смог прорваться сквозь казацкую осаду. Казалось бы, вскоре запорожское казачество будет праздновать окончательную победу, но случилось непредвиденное — изменой обернулся для Хмельницкого союз с Крымским Ханом Исламом-Гиреем: посреди ожесточенного сражения орда покинула поле битвы…
+
+Богдан Хмельницкий оказался перед тяжелым выбором — одержать дорогой ценой победу над Польшей, утопив Украину в крови, или согласиться на унизительные и крайне невыгодные условия мирного соглашения… (   Читать дальше...   )Жанр: Драма, Военный, Биография, ИсторияРежиссер: Николай Мащенко, Мария Кульчицкая, Юрий ДомбруговАктеры: Владимир Абазопуло, Денис Кокарев, Сергей Джигурда, Билял Билялов, Ирина Бардакова, Николай Боклан, Виталий Розстальный, Ирма Витовская, Тарас Денисенко, Остап СтупкаПеревод: ОригиналПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B52F25F5C0D954A3A3D7D687445CE893E36435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456291   (77814) от 22.02.2012
+
+Game Booster v3.3.0 Final [Multi/Rus]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Game Booster - мощная утилита, которая настроит Ваш компьютер на максимальное быстродействие в играх, путем оптимизации многих параметров операционных систем Windows. Сочетание нескольких вариантов оптимизации (дефрагментация оперативной памяти и жесткого диска, диагностика конфигурации DirectX и др.) поможет полностью раскрыть потенциал Вашего компьютера. В арсенале любого опытного геймера можно обнаружить огромное количество утилит, которые позволяют повысить производительность игрового ПК. Многие из этих приложений не предполагают «разгона» аппаратных компонентов и обеспечивают прирост производительности за счет освобождения системных ресурсов и оптимизации работы ОС. Game Booster может дополнить собой указанную коллекцию полезных программ.Язык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456693   (77817) от 22.02.2012
+
+8 миллиметров / 8 mm (1999) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свет кинопроектора способен проникать в самые темные уголки человеческой души. На пленке, которая попала в руки частного детектива, запечатлена сцена зверского убийства молодой женщины. Он получает задание установить личность несчастной и выяснить, действительно ли было совершенно преступление. В стремительном мелькании страшных кадров сыщик безуспешно пытается различить (   Читать дальше...   )Жанр: Триллер, Криминал, ДетективРежиссер: Джоэл ШумахерАктеры: Николас Кейдж, Хоакин Феникс, Джеймс Гандольфини, Питер Стормар, Энтони Хилд, Крис Бауер, Кэтрин Кинэр, Мира Картер, Эми Мортон, Дженни ПауэллПеревод: Профессиональный (полное дублирование)Продолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA54B7D66ABBB75EEAE0BD50EA69757EBF641C05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456206   (77818) от 22.02.2012
 
 Михаил Ахманов | Серия: Пришедшие из мрака (6 книг) [2005-2011] [FB2,ТХТ]
@@ -6,7 +82,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77818.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:BFA0FDDF3A536D048E64388F81560B1954E9FBE8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77819.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ magnet:?xt=urn:btih:0D04267CBA7E5A60F35AA23C7D6667D2730A7572
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77822.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ magnet:?xt=urn:btih:8884338BE5155F887756000B8E3BEE84A038DBAA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77827.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trail
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77829.jpg" />
 </div>
 
 
@@ -128,7 +204,7 @@ magnet:?xt=urn:btih:EF3E442AB25D063BAF3DA295369560D21AAC7A63
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77833.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ Assassin's Creed: Brotherhood (L) [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77834.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ magnet:?xt=urn:btih:C846AA0FE5A10899B4CBCAFBB22631683779554E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77839.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ Heart de Roommate / Соседка По Комнате [Wineskin] [Rus]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77841.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ Scott Kelby, Dave Cross, Matt Kloskowski (NAPP) | Photoshop User TV - Уроки
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77849.jpg" />
 </div>
 
 
@@ -251,7 +327,7 @@ magnet:?xt=urn:btih:87349A1060C22A8C175FBD83DD5DE960DB998071
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77861.jpg" />
 </div>
 
 
@@ -278,7 +354,7 @@ magnet:?xt=urn:btih:87349A1060C22A8C175FBD83DD5DE960DB998071
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77863.jpg" />
 </div>
 
 
@@ -302,7 +378,7 @@ magnet:?xt=urn:btih:308A5FC69736417F4F1FDE083D19BBF45718C73A
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77865.jpg" />
 </div>
 
 
@@ -326,7 +402,7 @@ magnet:?xt=urn:btih:FA7B4182A099C1FD9C6B346C54586C41A5870151
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77868.jpg" />
 </div>
 
 
@@ -351,7 +427,7 @@ magnet:?xt=urn:btih:F4AD508359B77A613F73A8FD70FDC5A0A55BDB02
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77874.jpg" />
 </div>
 
 
@@ -375,7 +451,7 @@ magnet:?xt=urn:btih:1786A83333F6D686F05666BC389F0AD204DC2786
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77876.jpg" />
 </div>
 
 
@@ -399,7 +475,7 @@ magnet:?xt=urn:btih:1786A83333F6D686F05666BC389F0AD204DC2786
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77878.jpg" />
 </div>
 
 
@@ -423,7 +499,7 @@ magnet:?xt=urn:btih:4E2BD6DA97EE98FA6C9E71E354BE0F5E41E1CEF9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77880.jpg" />
 </div>
 
 
@@ -447,7 +523,7 @@ magnet:?xt=urn:btih:18E9F571439EA260DA3F48D937E684F93ACC3761
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77888.jpg" />
 </div>
 
 
@@ -471,7 +547,7 @@ magnet:?xt=urn:btih:BC258A14125B8DC0A65254E457828CE29552DAAE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77895.jpg" />
 </div>
 
 
@@ -495,7 +571,7 @@ Galneryus - Kizuna (2012) EP [FLAC|Lossless]<Neo-Classical Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77901.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ Talk Talk - The Colour Of Spring (1986) [FLAC|Lossless]<New Wave, New Romantic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77902.jpg" />
 </div>
 
 
@@ -555,7 +631,7 @@ Talk Talk - The Colour Of Spring (1986) [FLAC|Lossless]<New Wave, New Romantic>
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77911.jpg" />
 </div>
 
 
@@ -566,79 +642,6 @@ Talk Talk - The Colour Of Spring (1986) [FLAC|Lossless]<New Wave, New Romantic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCB7429D39E921A4C2A692B83715F513237BBD07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456992   (77918) от 23.02.2012
-
-Угол зрения. История панк-рока / Punk: attitude (2005) DVDRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77918.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине 1970-х обе стороны Атлантики накрыла последняя волна молодежного бунта. Панк появился в противовес выдохшемуся хард-року и нарождающейся продюсерской "попсе". Одновременно это был первый и образцовый пример коммерчески выгодной альтернативы: менеджер Sex Pistols Малькольм Макларен никогда не скрывал, что просто хотел подзаработать. Панк бродил под спудом еще с конца 1960-х, прорываясь то в "грязных" гитарах MC5, то почти в полный голос заявляя о себе в уникальных по беспросветности записях The Stooges. Усталость, быстро настигшая поколение больших фестивалей, расчистила путь сердитым юношам с ирокезами. Фильм рассказывает и о предыстории панка начиная с Velvet Underground, и о расфуфыренном глэм-панке заокеанского образца (New York Dolls), и о "классической" британской тяжбе Sex Pistols и The Clash, и о многочисленных производных от пост-панка до хардкора. Это насыщенная событиями и очень громкая история, точка в которой не поставлена до сих пор.
-Фильм от людей стоящих (   Читать дальше...   )Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 1:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA03053B74D84E191FF5AE3F7DD0C37074E8F039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456109   (77926) от 23.02.2012
-
-Со звездами на борту / Starlift (1951) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летчики ВВС Рик Вильямс и Майк Нолан пытаются встретиться с кинозвездой Нелл Уэйн. Рик и Нелл оба были из одного маленького городка, но никогда не встречались. Майк пытается убедить сотрудников и актеров в театре, что Рик и Нелл лучшие друзья. Рут Роман жалеет их и дает им возможность Оказаться рядом со "звездами". Рут Роман знакомит летчиков с Дорис Дэй, (   Читать дальше...   )Жанр: Мьюзикл, КомедияРежиссер: Рой Дел РутАктеры: Дорис Дэй, Гордон МакРэй, Вирджиния Майо, Джин Нельсон, Рут Роман, Дженис Рул, Дик Уэссон, Ричард Уэбб, Хейден РоркПеревод: Одноголосый закадровыйПродолжительность: 01:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DCEC6FBA9D3B98D03EF8B6B1FD387743DA95BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457151   (77927) от 23.02.2012
-
-Журнал | Радиоаматор №1 [2012] [DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоаматор - это увлекательный путеводитель в мир радио для тех, кто ради увлечения либо по роду своей профессиональной деятельности работает в эфире, занимается разработкой и ремонтом разнообразных радиоэлектронных устройств. Основные разделы журнала: аудио, видео, электроника, компьютер, КВ и УКВ радиосвязь, современные телекоммуникации.2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B6ECF60EC2F014E1C3CA8D29CAA30CE6B8D915
 ```
 
 

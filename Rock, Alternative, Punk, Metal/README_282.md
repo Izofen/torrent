@@ -6,7 +6,7 @@ We Shine Every Night - Memory and Imagination (2022) [FLAC|Lossless|WEB-DL|track
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169924.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ardarith - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog-Metal, Prog-Opera, Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169927.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dead Meadow - Force Form Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169934.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:55F4400EFA279200777418ED90DB2EEB64AEEB12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169935.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ All Empires Fall - Oblivious Momentum (2022) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169947.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ StormHammer - Seven Seals (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169951.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Spaceking - 3 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Ston
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169953.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lionheart - Welcome to the West Coast III (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169958.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Krilloan - Emperor Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169968.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ After Lapse - Face the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Barabbas - La Mort Appelle Tous Les Vivants (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169981.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169986.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ All the Fury - Layers (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169990.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Eufobia - Insemination (2010) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169995.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Veladelyra - XXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169997.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170000.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170002.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170008.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170011.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ribspreader - The Van Murderers - Part 2 (2018) [APE|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170025.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:495C5E787D735BA87401DADCABAA5F57D0AE1713
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170041.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D3CE341770797E83F2A6015874C04659E1328858
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170108.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nirvana - In Utero (1993) 2xCD, Remastered, 2023, UMe [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170143.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Red Reign - Don't Look Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170158.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170184.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170215.jpg" />
 </div>
 
 

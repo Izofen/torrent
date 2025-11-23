@@ -6,7 +6,7 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113116.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113117.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113118.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113122.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113124.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113125.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113130.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113131.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113133.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113139.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113143.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113147.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113151.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4D7009FDEF7C096CDFD46894932055EF775C138D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113154.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113170.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DFFA9B72FF95C7731A9293A49E53F5A2561E0657
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113177.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113180.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:00CF73F01D3BF8E68D8E947EF532B60781A05216
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113183.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:49E9EBCEB4D4A64833AD73429976DD3369389460
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113184.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F71F79F5739AE2FBB65E834F0709359F539181A8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113185.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113190.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113191.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113193.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113194.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113209.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113230.jpg" />
 </div>
 
 

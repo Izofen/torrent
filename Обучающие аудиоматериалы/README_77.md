@@ -1,3 +1,55 @@
+###  Публикация: 1836692   (254082) от 12.11.2025
+
+Александр Никонов | Между Сциллой и Харибдой. Последний выбор Цивилизации (2022) [MP3, Андрей Анучин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига будет безжалостно снимать с вас кожу привычных представлений.
+Александр Никонов – российский журналист, публицист и писатель, автор скандальных книг на общественные, исторические и естественно-научные темы.
+В аудиокниге «Между Сциллой и Харибдой. Последний выбор цивилизации» Никонов рассматривает процесс интеллектуального развития общества через призму (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 11:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBDFB0D3765168B901FBACC8C3623FC543BD753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628477   (254884) от 23.04.2023
+
+Вальмики | Йога Васиштха (2015) [MP3, Вадим Демчог]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_254884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрывки из книги.
+«Йо́га-Васи́штха» — санскритское религиозно-философское сочинение, освещающее учение Адвайта-веданты и йоги.
+Представляет собой сборник бесед между индийскими древними мудрецами, собравшимися во дворце принца Рамы, чтобы передать ему по его просьбе духовное знание. На вопросы Рамы отвечает мудрец Васиштха, затрагивая различные темы, связанные (   Читать дальше...   )Жанр: АдвайтаПродолжительность: 05:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF5E81752029E5621F43B1577DB2A519B3C55C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628189   (254924) от 22.04.2023
 
 Ричард Талер | Новая поведенческая экономика (2017) [MP3, Максим Доронин]
@@ -6,7 +58,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254924.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254924.jpg" />
 </div>
 
 
@@ -30,7 +82,7 @@ magnet:?xt=urn:btih:199B85ED64B1E9B8AB10DC3DCF3DFEE47564E046
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254957.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254957.jpg" />
 </div>
 
 
@@ -54,7 +106,7 @@ magnet:?xt=urn:btih:591D07C2998A191BD00C4FC3ADCE052CA01DA123
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255237.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255237.jpg" />
 </div>
 
 
@@ -78,7 +130,7 @@ magnet:?xt=urn:btih:C19C8AB9F63DEEEC0C40D59923CDEBE5E7136C50
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255369.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255369.jpg" />
 </div>
 
 
@@ -105,7 +157,7 @@ magnet:?xt=urn:btih:8C3A5C9CD4EF9185452FE901599028A7F64FEE26
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255402.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255402.jpg" />
 </div>
 
 
@@ -130,7 +182,7 @@ magnet:?xt=urn:btih:FB2EDB5FED0F09265E8EDE0F1B9C2B3FBA15FC47
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255409.jpg" />
 </div>
 
 
@@ -154,7 +206,7 @@ magnet:?xt=urn:btih:69F85F2017476697929163DA3AD2FE60404E2859
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255544.jpg" />
 </div>
 
 
@@ -178,7 +230,7 @@ magnet:?xt=urn:btih:2E33C8870B1F3AD4FEE0FCB707CAAD8961700F34
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255599.jpg" />
 </div>
 
 
@@ -202,7 +254,7 @@ magnet:?xt=urn:btih:91E0935528DF5F791C4692E90BB564937FDEF415
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255600.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255600.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ magnet:?xt=urn:btih:1F70A62A50DD7B772FD585A47527C03E666B0DF9
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255601.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255601.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ magnet:?xt=urn:btih:61920F22E55B73ED2717EB072C4FF3DB473F8A26
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255879.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255879.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ magnet:?xt=urn:btih:B6B6067FFFA2B1DC681887F2D81902822CFFCA80
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255880.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255880.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ magnet:?xt=urn:btih:797C9ACE7F0A4DABD72426F81DCFD773C781906F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256581.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256581.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ magnet:?xt=urn:btih:81085BA47EF56AAFA827885B806660F5239FAA95
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256582.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256582.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ magnet:?xt=urn:btih:8EBCB5DFAFB4B6F69BD7AE30403264C10C20FBCA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256584.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256584.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ magnet:?xt=urn:btih:8CDCBA0B6890FC4A84F0BC7DFAEC037F6F520621
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256769.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256769.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ magnet:?xt=urn:btih:3D13A32A34257D56B6523FD861DB9E8276D538E6
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256770.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256770.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ magnet:?xt=urn:btih:230161B8201D2500911A57273B4DC1BA2A9DF443
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257595.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ magnet:?xt=urn:btih:373235D73936A82F6816C90B13FB987F4698784A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257598.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257598.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ magnet:?xt=urn:btih:F4BA4AA2854069E0967C386DB3E99A0590D2A981
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257702.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257702.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ magnet:?xt=urn:btih:F467FA5E7D5AC32CD56CC2C8E53FA901F3B21343
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257703.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257703.jpg" />
 </div>
 
 
@@ -525,7 +577,7 @@ magnet:?xt=urn:btih:E58B47AAB92F6A622806ED298081D04AB7BCD55A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257704.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257704.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ magnet:?xt=urn:btih:FF8BD1BBF6DB186C1099F7230D8F3150861AFC1A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257735.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257735.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ magnet:?xt=urn:btih:FBCE072809C36A418046696B7F317A494325678B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257736.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257736.jpg" />
 </div>
 
 
@@ -586,31 +638,6 @@ magnet:?xt=urn:btih:FBCE072809C36A418046696B7F317A494325678B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B84BF284E5F868F6BBB0209C75FE499A343076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837896   (257908) от 19.11.2025
-
-Джеймс Чарни, Ной Чарни | Всё о кино за 12 часов. Краткая история кинематографа (2025) [MP3, Антон Ческидов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы задумались о покупке этой книги, то наверняка любите смотреть фильмы, как и все мы. Для большинства зрителей кино – это источник пассивного развлечения, однако стоит только проявить немного внимательности и терпения, восприятие любимых фильмов меняется. Впечатления от просмотра становятся ярче, рождается понимание киноискусства.
-Данная книга подскажет вам, (   Читать дальше...   )Жанр: История искусства, История киноИздательство: БОМБОРАПродолжительность: 12:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B38530C56395DF7984A59A4C1AA348586BABEB
 ```
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1272696   (141995) от 28.12.2018
+
+Мег: Монстр глубины / The Meg (2018) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана… с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Warner Bros. Pictures, Gravity Pictures, Maeday ProductionsЖанр: Ужасы, фантастика, боевик, триллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри ОулафссонПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, исландские, латышские, литовские, португальскиеПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DBDFD222C6302A050179EBE9988AB9D3766521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194870   (141996) от 29.12.2017
+
+Легенды севера / Aventures dans le Grand Nord (1995) DVDRip (сезон 1, серия 3 из 6)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Казан был наполовину волком. Его хозяина убили двое неизвестных. Таким, преданно охраняющим тело своего хозяина, и нашел его Пол Уэйман. Только Казан видел преступников. Позже он, конечно, опознал убийц, но новые хозяева не поняли его, и Казан ушел в лес и стал вожаком волчьей стаи. Но он помнил доброту людей, как и понимал и всю исходящую от некоторых из них опасность...Производство: Канада, Франция / Canal+, Cinévidéo Plus, Ellipse AnimationЖанр: приключенияРежиссер: Арно СелиньякАктеры: Джефф Фэйи, Софи Дьюз, Лорн Брасс, Патрис Биссоннет, Власта Врана, Арон Тэйджер, Серж Уд, Бруно Парент, Ив Гелт и др.Перевод: Многоголосый закадровыйПродолжительность: 01:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C478E95A30468BE0C3A9C474E2E4FDEC7FB915B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520441   (141997) от 28.12.2021
+
+Макабро / Macabre (1980) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн Бейкер, живущая в Новом Орлеане, заводит роман с мужчиной, Фредом, за спиной своего мужа и детей. Её дочь-подросток Люси подозревает, что её мать изменяет отцу. Джейн встречается с Фредом в комнате, которую она снимает в пансионе, принадлежащем миссис Дюваль, чей слепой взрослый сын Роберт также живёт в этом доме. Пока Джейн встречается с Фредом, Люси топит (   Читать дальше...   )Производство: Италия, A.M.A. Film, Medusa DistribuzioneЖанр: ужасыРежиссер: Ламберто БаваАктеры: Бернис Стиджерс, Станко Мольнар, Вероника Дзинни, Роберто Поссе, Фердинандо Орланди, Фернандо Паннулло, Элиза Кадиджа БовеПеревод: авторский (Сергей Визгунов)Субтитры: английскиеПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D9ACD6E701FFA28AEDD5C417C6E95FB2DDEBA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590724   (141998) от 17.12.2012
+
+VA - Осенний Рэп удар русский (2012) [MP3|256 кб/с]<Rap,Hip-hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клика - Слова на свободу
+02. Словетский feat. Тато - Часть 4ая
+03. Bad Balance - Жги темноту
+04. Стриж feat. Centr - Лозунги
+05. Тёмный Страж - Уходи
+06. Daydream - За спиной
+07. Словетский - Слышишь
+08. ST feat. Dino MC47 - Газета большого города (prod. Miko)
+09. TERRA - Пока есть время
+10. Триада - Promo 2 (Prod. Swizz Beatz)(   Читать дальше...   )Жанр: Rap,Hip-hopПродолжительность: 06:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12AAB80FEDAD15D12B87D374040EDE79449319D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348711   (141999) от 29.12.2019
+
+VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Downtempo, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booka Shade – Night Surfing | Remix by Matthias Schuell, Prismode & Solvane (7:16)
+02. Digitalism – Knight Life (07:31)
+03. Dominik Eulberg – Welt Am Montag (10:30)
+04. Extrawelt – Grand Slow Slam (07:51)(   Читать дальше...   )Жанр: Tech House, Deep House, Downtempo, MinimalПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59C018779C13996D7D00FF0FDB614CD95ADF3C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087949   (142000) от 29.12.2016
+
+Проекты - VideoHive - Christmas - 18952707 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas - проект для создания поздравительной новогодней открытки и праздничного показа вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EB06A70A6075F3961C0A6C9871A3B2ECDC82A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435963   (142001) от 29.12.2020
 
 Растровый клипарт - Delicious grilled meat with garnish stock photo [JPG]
@@ -6,7 +162,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142001.jpg" />
 </div>
 
 
@@ -30,7 +186,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142003.jpg" />
 </div>
 
 
@@ -55,7 +211,7 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142004.jpg" />
 </div>
 
 
@@ -82,7 +238,7 @@ Gothic 3 / Готика 3 (2006-2008) [Ru/En/Ge] (1.75.20108.14/2.1.17414.8/dlc)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142006.jpg" />
 </div>
 
 
@@ -106,7 +262,7 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142007.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ Free 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142008.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ magnet:?xt=urn:btih:AD4AE530E737B088E9A0A2898EDA462A058395C0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142009.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ magnet:?xt=urn:btih:F2102BF0D9153636AD72275B85884641F28C9B99
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142010.jpg" />
 </div>
 
 
@@ -213,7 +369,7 @@ Bazaart: Photo Editor & Graphic Design 2.3.3 (472) Mod by Youarefinished [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142013.jpg" />
 </div>
 
 
@@ -237,7 +393,7 @@ magnet:?xt=urn:btih:58C73E1B405AFC0CC8E5BB81DA8910FF1097A580
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142014.jpg" />
 </div>
 
 
@@ -261,7 +417,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142015.jpg" />
 </div>
 
 
@@ -285,7 +441,7 @@ Gothic / Готика (2011) [Ru/En/Ge] (1.08k/1.1e/dlc) Lossless Repack R.G. Or
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142016.jpg" />
 </div>
 
 
@@ -309,7 +465,7 @@ magnet:?xt=urn:btih:7AA163F30C80E6372DAE94E35323DD646D713CD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142017.jpg" />
 </div>
 
 
@@ -333,7 +489,7 @@ magnet:?xt=urn:btih:7DCEA45510F07CD7E87B576A7F5A5F635B8EA129
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142018.jpg" />
 </div>
 
 
@@ -357,7 +513,7 @@ magnet:?xt=urn:btih:68C2FD2A116A4ACA931EA23F1E8E8D65F8F49CE8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142019.jpg" />
 </div>
 
 
@@ -381,7 +537,7 @@ Magoshare Data Recovery Professional 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142020.jpg" />
 </div>
 
 
@@ -405,7 +561,7 @@ ESET Smart Security + NOD32 Antivirus 9.0.318.24 Repack by SmokieBlahBlah [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142022.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142023.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142024.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142025.jpg" />
 </div>
 
 
@@ -497,154 +653,6 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDBC441CD7715BE95E811AE6768BCD3CC545FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272639   (142026) от 28.12.2018
-
-Video Converter Movavi 19 v19.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший видеоконвертер – полностью на русском языке!
-Конвертер Видео Movavi – это самый простой, удобный и быстрый способ поменять формат видео, аудио и изображений без потери качествТип издания: macOS SoftwareРелиз состоялся: 29.11.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A9E43282F28E6A78326F209CAE3FC1EF3AB5BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590854   (142027) от 17.12.2012
-
-Современная реклама: MIX (17.12.12)
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная реклама: MIX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CC9CDF623B0FD4CE204164C8396AFBF872DBD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520414   (142029) от 28.12.2021
-
-Джастин  Кронин | Перерождение (Книга 03). Город зеркал (2021) [MP3, Светлана Смелова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцать были уничтожены 20 лет назад, и ужасающий век тьмы, обрушившейся на мир, закончился. Оставшиеся в живых постепенно выходят из убежищ. Они мечтают об обнадеживающем будущем и полны решимости построить общество заново. Но далеко, в мертвом мегаполисе, ждет он: Зиро.Жанр: ФэнтезиПродолжительность: 27:08:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5966E6972C9207B9B1E8CF3B17C26F43258563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941281   (142030) от 29.12.2015
-
-One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 720p Raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от запоминания супер-атак и бесконечных доспехов, но душа просит адреналина и драк? Тогда эта новая экшен-комедия от студии Madhouse для вас!
-Главный герой не размахивает мечом, не выкрикивает боевой клич и вообще не отличается ничем особенно героическим. Всё в этом молодом человеке по имени Сайтама так и вопит: «заурядный» — и его лысая голова, и его хилое (   Читать дальше...   )Производство: Madhouse StudiosЖанр: приключенияРежиссер: Нацумэ СингоСубтитры: РусскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348830   (142031) от 29.12.2019
-
-TextMate 2 v2.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142031.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
-
-Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72628442F6F85BBE85034C0C5552BF22FE122D4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087688   (142033) от 29.12.2016
-
-Гранд тур / The Grand Tour (2016) WEBRip [H.264/2160p] (сезон 1, серия 6 из 12) Jaskier
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию долгожданный многими фанатами автомобилей проект с легендарными ведущими Джереми Кларксоном, Джеймом Мэйем и Ричардом Хаммондом. В центре внимания проекта оказываются автомобили со всего света. Ведущие отправляются в большое путешествие по миру, чтобы найти раритетные модели авто или же невероятные суперкары. В каждом новом городе будет (   Читать дальше...   )Телекомпания: США / Amazon StudiosЖанр: Комедия, Авто-ШоуПеревод: Многоголосый закадровый, профессиональный - JaskierПродолжительность: ~ 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6217080FBEFCF3829D71EDCBF27CCD0FBCBBD597
 ```
 
 

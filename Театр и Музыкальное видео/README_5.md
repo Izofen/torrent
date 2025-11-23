@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40047.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1A06A22D3B87D07B476F98536CC21055CAFAC588
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40099.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7DB0D75563438B3318581E33DE739223B4DD4D31
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40117.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F5FBB5373DB7E3707F04926D4D8879083673FD57
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40129.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:65F69C9FD873583FC216959D66074658293A9583
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40463.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2EBC6105CDCBD2CBC74B3283944926D9D8664336
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40604.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Deep Purple & Orchestra: Live At Montreux (2011) Blu-ray 1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40653.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:26F7E28FDC41B33DB7EC110E694D8C7F5B7252F6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40708.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Weeknd - São Paulo Livestream (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40793.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Rammstein: Paris (2017) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40898.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Offspring - Hurricane Festival (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41066.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Sting - Radio 2 in the Park (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41243.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:84D6CB20D9692BAEDA123E5C5A3900E58B88E42A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41260.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:037D62DC32EFBC417762910ED79230DB2504FF3D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41399.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:74F474E00B18F35C1019B5F87B7B8BDE795CAA8B
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41400.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Linkin Park: From Zero (Live Stream) (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41479.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:9D7EFE2301C685A220BF0E19A265A894B1E193A2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41936.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CA35CFFD8D9B64AE0F892BA1027F69D9FDCB560C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41937.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:565DA7C4ED878AC57EEF6DFE0CFD32A6497ECB68
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41947.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:877F81CD86FBFDEDB930DFAE8594F3B63184F8F1
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41956.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:F8112D05F2CD792C311BA0595BEE2D41C1A33FB1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41987.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:E2AD4DE4152C6B0A1B53522DD65B11FE40C89D18
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42031.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:81230B1A8C99591F6AE555E61E98C39796B6BEEF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42047.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:41F2C4F9F77FCFC09E662368FAE4EADA8615DA4C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42075.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42145.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:E9754CF82EBC7F7636502D148FE74F970ABDD05C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42338.jpg" />
 </div>
 
 

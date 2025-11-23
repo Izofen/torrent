@@ -1,3 +1,173 @@
+###  Публикация: 1444226   (159046) от 11.11.2023
+
+Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титанов [ТВ-2] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди и гиганты. Кто из них охотник, а кто жертва? Для того, чтобы понять это, был создан корпус разведки под командованием Эрвина Смита. Но последние загадочные события, во многих из которых были замешаны кадеты 104 корпуса, поставили командира разведки в трудное положение.
+
+Кто же такие эти гиганты? Откуда они явились? Есть ли еще люди, которые могут превращаться (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniDub, AniLibria, KANSAI, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Nesitach & Stan WarHammer, Firegorn Team)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600208   (159047) от 26.12.2022
+
+Джон МакКрэй | Червь (Книга 28). Тараканы (2022) [MP3, Adrenalin28]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тейлор Эберт — обычная девушка, не пользующаяся популярностью в школе, но у неё есть секрет: она обладает суперспособностью. Впрочем, кроме неё в мире подобным секретом (а для кого-то и не секретом) обладает ещё огромное количество человек, которых принято делить на героев и злодеев, а также нейтральных одиночек. Костюмы, маски, клички вместо имён, неписаные правила, (   Читать дальше...   )Жанр: фантастика, боевикПродолжительность: 05:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29345AAECA15546ABF8BC6DF882267396AFF4F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674443   (159048) от 11.11.2023
+
+Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159048.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС “Windows® 11™” от Microsoft наиболее востребованных редакций, объединенных в 1 образ (x64) стандартными средствами от Microsoft ADK (DISM). Включает в себя обновлённые "чистые", почти не модифицированные образы редакций ОС Windows 11 Pro, Home и Enterprise x64. В системе присутствуют финальные, оригинальные обновления (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E41CD9A1BDC66A0691A7880B6F8829B4930E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600262   (159049) от 26.12.2022
+
+Дарья Калинина | В семье не без убийцы (2021) [MP3, Лилия Якшибаева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман мечтал о свободе. Его жизнь была похожа на страшную сказку. Красавица невеста после свадьбы превратилась в ужасную ведьму. И теперь Наташа бесконечно пилила его, изводила упреками, контролировала каждый шаг, а ее многочисленная родня во главе с чокнутым братцем и помыслить Роману не давала, что можно развестись. Романа настолько измучила семейная жизнь, что (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE3972E0F020326761ABF88A9D50F51A1E02EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663722   (159050) от 11.11.2023
+
+Кибердеревня (2023) WEBRip [H.265/2160p] [4K, SDR] (сезон 1, серии 1-10 из 10)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159050.jpg" />
+</div>
+
+
+###  Подробнее
+
+2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACF592DAA77D535BBBB106DF5A6EDD37AFA93A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600169   (159051) от 26.12.2022
+
+AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159051.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 iOS Cleaner может помочь вам освободить больше места для ускорения работы iPhone. Это программное обеспечение для очистки iPhone может очищать различные данные, такие как кеш приложений, документы, приложения, ненужные файлы, память, электронную почту, системные файлы, вирусы, мультимедийные файлы и т. д. Чтобы освободить место для iPhone, iPad и iPod. Выборочно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAF50D9C05155E574F24FD2DBDD2C3EDF9D3737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675797   (159052) от 11.11.2023
+
+Капкан: Судная ночь / Night of the Hunted (2023) WEB-DL [H.264/1080р]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выжить в схватке с беспощадным стрелком, скрывающим свое лицо, очень непросто. У маньяка своя философия, правила жизни и мотивы, по которым он выбирает, кто в эту ночь станет следующей жертвой, а кого следует пощадить.Производство: США, Франция / Cinestesia, Getaway Films, Heavy RainfallЖанр: триллерРежиссер: Франк ХалфунАктеры: Монайя Абдельрахим, Эббе Андерсен, Дж. Джон Билер, Брайан Брейтер, Бренда Нуньес, Алекс Попович, Айзиа Рейс, Камилль Роу, Джереми Скиппио, Сташа СтаничПеревод: Дублированный (Vox Records)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B451EA710AE75297E84D5CAF66603E434DE92522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600321   (159053) от 26.12.2022
 
 Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
@@ -6,7 +176,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159053.jpg" />
 </div>
 
 
@@ -34,7 +204,7 @@ magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159054.jpg" />
 </div>
 
 
@@ -58,7 +228,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159055.jpg" />
 </div>
 
 
@@ -85,7 +255,7 @@ magnet:?xt=urn:btih:BAFA955C8171A0F32E42B4383DF65B2DABE506C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159056.jpg" />
 </div>
 
 
@@ -109,7 +279,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159057.jpg" />
 </div>
 
 
@@ -136,7 +306,7 @@ The Invincible (2023) [Ru/Multi] (44.304/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159058.jpg" />
 </div>
 
 
@@ -160,7 +330,7 @@ magnet:?xt=urn:btih:3BC8B616A80EF8D989D1BEEE147C454EE80D9CE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159059.jpg" />
 </div>
 
 
@@ -184,7 +354,7 @@ magnet:?xt=urn:btih:1A2C2B794D84ACBD66D5FFBF7F1E06C261A242F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159060.jpg" />
 </div>
 
 
@@ -209,7 +379,7 @@ Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159061.jpg" />
 </div>
 
 
@@ -236,7 +406,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159062.jpg" />
 </div>
 
 
@@ -260,7 +430,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159063.jpg" />
 </div>
 
 
@@ -287,7 +457,7 @@ Birchpunk: Русская кибердеревня и другие (2020-2021) W
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159064.jpg" />
 </div>
 
 
@@ -311,7 +481,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159065.jpg" />
 </div>
 
 
@@ -338,7 +508,7 @@ Executive Assault 2 (2023) [En] (1.0.4.0) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159066.jpg" />
 </div>
 
 
@@ -362,7 +532,7 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159067.jpg" />
 </div>
 
 
@@ -389,7 +559,7 @@ magnet:?xt=urn:btih:B44979844AADA19C3A2AC16F911CF512C07631C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159068.jpg" />
 </div>
 
 
@@ -413,7 +583,7 @@ magnet:?xt=urn:btih:CFB17B4B635EB1E29407E87B8F8E455FC4D8E76C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159069.jpg" />
 </div>
 
 
@@ -437,7 +607,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159070.jpg" />
 </div>
 
 
@@ -461,7 +631,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159071.jpg" />
 </div>
 
 
@@ -475,183 +645,6 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D5618778D8ED7D20FDCB66D3471E3812C9E2BFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662569   (159072) от 11.11.2023
-
-Утреннее шоу / The Morning Show (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-10 из 10) TVShows, AlexFilm, NewComers
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159072.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Утреннее Шоу" - уникальный проект, который предлагает нам погрузиться в тонкости и особенности личной жизни одной из самых популярных ведущих на американском ТВ. Телевидение — весьма разнообразно, и здесь есть личности, чьи проекты и трансляции смотрят многочисленные поклонники. Главная героиня - человек, чье имя вошло в историю. Зрителям предстоит разделить (   Читать дальше...   )Производство: США | Echo Films, Hello Sunshine, Media ResЖанр: драмаРежиссер: Мими Ледер, Такер Гейтс, Дэвид ФрэнкелАктеры: Дженнифер Энистон, Стив Карелл, Риз Уизерспун, Билли Крудап, Марк Дюпласс, Нестор Карбонелл, Карен Питтман, Виктория Тейт, ДеШон Терри, Шари БелафонтеПеревод: Профессиональный многоголосый (TVShows, AlexFilm, NewComers)Язык озвучки: Русский, английскийСубтитры: Русские, Украинские, Английские (Full, SDH)Продолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4A7A25DB6F3BE5ADFA773F19293CBB2CBDC9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600181   (159073) от 26.12.2022
-
-Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Lee [4:05]
-02. Boardwalk [7:02]
-03. Boomerang [6:01]
-04. Digits [4:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F92F6DAABB6359CD96A1C5E442CEC18C802AC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662570   (159074) от 11.11.2023
-
-Утреннее шоу / The Morning Show (2023) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 3, серии 1-10 из 10) AlexFilm, TVShows, NewComers
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159074.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Утреннее Шоу" - уникальный проект, который предлагает нам погрузиться в тонкости и особенности личной жизни одной из самых популярных ведущих на американском ТВ. Телевидение — весьма разнообразно, и здесь есть личности, чьи проекты и трансляции смотрят многочисленные поклонники. Главная героиня - человек, чье имя вошло в историю. Зрителям предстоит разделить (   Читать дальше...   )Производство: США | Echo Films, Hello Sunshine, Media ResЖанр: драмаРежиссер: Мими Ледер, Такер Гейтс, Дэвид ФрэнкелАктеры: Дженнифер Энистон, Стив Карелл, Риз Уизерспун, Билли Крудап, Марк Дюпласс, Нестор Карбонелл, Карен Питтман, Виктория Тейт, ДеШон Терри, Шари БелафонтеПеревод: Профессиональный многоголосый (AlexFilm, TVShows, NewComers)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F28103C3ECA3B014848C8BBFAD214C26F3F5D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600296   (159075) от 26.12.2022
-
-Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE691D0F707AFB0F5071A3BA7083904F3D4EF2A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675935   (159076) от 11.11.2023
-
-OTUS, Владимир Кунаев | DevOps 1С. Автоматизация процессов разработки, тестирования и развертывания приложений на платформе 1С (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс даст студентам возможность систематизировать и расширить свои знания в технологиях обмена 1С с различными системами, а так же в вопросах установки и обслуживания систем 1С.
-Этот курс подходит вам, если вы:
-Программист 1С, администратор 1С или системный администратор, желающий расширить свои знания в плане настройки продуктов 1С и интеграции их с другими системами. (   Читать дальше...   )Производство: OTUSЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 28:59:51Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A859DF913F71B80896A81FB3E2A902859A23B8F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600294   (159077) от 26.12.2022
-
-Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Void 04:33
-02.Near Death Experience 04:01
-03.The Scapegoat 04:53
-04.Fragile King 03:20(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF066C277DCD992FD51FB16C39CC09F83E5A503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675905   (159078) от 11.11.2023
-
-Два, три, демон, приди! / Поговори со мной / Talk to Me (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа подростков решает развлечься и во время вечеринки устраивает спиритический сеанс. Миа пытается установить контакт со сверхъестественной силой, преследующей её после смерти матери, но общение с духом оборачивается для всех участников сеанса настоящим кошмаром.Производство: Австралия, Великобритания / Causeway Films, Head Gear Films, Metrol TechnologyЖанр: ужасыРежиссер: Дэнни Филиппу, Майкл ФилиппуАктеры: Софи Уайлд, Александра Дженсен, Джо Бёрд, Миранда Отто, Отис Дханджи, Зои Теракс, Крис Алозио, Александрия Стеффенсон, Маркус Джонсон, Санни ДжонсонПеревод: дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E0272C233833EC1305E82A904830AA22067838
 ```
 
 

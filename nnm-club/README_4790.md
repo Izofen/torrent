@@ -1,3 +1,178 @@
+###  Публикация: 1271653   (148477) от 24.12.2018
+
+GiliSoft Audio Toolbox Suite 2018 7.1.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148477.jpg" />
+</div>
+
+
+###  Подробнее
+
+GiliSoft Audio Toolbox Suite - универсальный, многофункциональный аудионабор все-в-одном, из 9 мощных и полезных утилит для работы с аудио, он включает Audio Recorder, Audio Cutter, Audio Joiner, Audio Converter, Video to Mp3,ID3 Tag Editor, Transfer to iTunes, CD Ripper, CD Burner.
+
+Этот набор может делать практически все: воспроизведение, конвертирование, запись (   Читать дальше...   )Язык интерфейса: Мультиязычный+Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE686F5FDB8B4919DF8BAA5EDF46662CB5F1BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347230   (148478) от 24.12.2019
+
+Джон Ширли| BioShock: Восторг (2011) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец Второй мировой. Новое соглашение Рузвельта предопределило собой всю американскую политику. Налоги еще никогда не были так высоки. Бомбежка Хиросимы и Нагасаки привнесла страх тотального уничтожения. С появлением новых секретных государственных агенств и санкций, многие опасаются за свой бизнес. "Американская свобода" заметно ослабела... И многие отчаянно (   Читать дальше...   )Жанр: Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6D0F75062D2206906840FA1DB835BFB3AB2B3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969269   (148479) от 26.12.2015
+
+Кэйти Силкокс | Здоровая, счастливая, сексуальная. Мудрость аюрведы для современных женщин (2016) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – своего рода справочник по женскому здоровью: от сияющей кожи до полноценной сексуальной жизни. Автор, известный на Западе преподаватель йоги, собрала в ней упражнения, медитации, рецепты и древние ведические практики, которые нисколько не противоречат современной жизни и возвращают женщине покой и внутреннее равновесие.
+
+На русском языке публикуется впервые.Жанр: Здоровье, фитнес, диетыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1335A23E00DEEA2EDD6A2C99716ECFED398CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087025   (148480) от 26.12.2016
+
+VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, Italo-Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilly - For Your Love & For Your Love (Suite) 11:48
+02. Digital Emotion - Dance To The Music 05:17
+03. Dschinghis Khan - Machu Picchu 07:08
+04. Milli Vanilli - Girl You Know It's True 08:49(   Читать дальше...   )Жанр: Synth-pop, New Wave, Italo-Disco, EurodanceПродолжительность: 03:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50556DC802481B30115BAA1CFC16CFE414D32857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670586   (148481) от 19.11.2023
+
+Сознание / Осознание / Awareness (2023) WEBRip [H.264/1080p] [MVO] [handmade]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастический триллеp о молодом мошеннике по имени Йен, проживающем с отцом на окраине небольшого городка. Окружающие видят в нем простого юношу, мало чем отличающегося от сверстников. Однако никто даже не подозревает, что у главного героя есть сверхъестественная способность, благодаря которой он легко обдуривает любых людей. С самого рождения Йен умеет создавать (   Читать дальше...   )Производство: Испания, Federation Spain, Onirikal Studio, The Modern Cultural ProductionsЖанр: фантастика, боевик, триллерРежиссер: Даниель БенмайорАктеры: Карлос Шольц, Педро Алонсо, Мария Педраса, Оскар Хаэнада, Лила Лорен, Карина Колокольчикова, Энсо Кальеха, Хесус Кастельс, Виктор Сересуэла, Калоян Кала ЧавдаровПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английский, испанскийСубтитры: русские, английскиеПродолжительность: 01:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F15A255DA69B7E7F1D28DDE02EA695512A3CF70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271719   (148482) от 24.12.2018
+
+Растровый клипарт - Design Cuts - Artwork Showcase Generator [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы с гордостью представляем наш проект для всех, кто создает произведения искусства. Много уникальных антикварных предметов и рамок в составе.Формат: PSDРазрешение файлов: 2325x1693-9805x5377
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FF58D7B44041F07A809C100A91837BBF7683B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519339   (148483) от 24.12.2021
+
+VueScan Pro 9.7.71 (DC 23.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148483.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1A4A91D6DFF9C6AAD93B2CC6E371A1B7176CC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434902   (148485) от 26.12.2020
 
 Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
@@ -6,7 +181,7 @@ Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148485.jpg" />
 </div>
 
 
@@ -33,7 +208,7 @@ League of Light 7: Growing Threat / Лига Света 7: Растущая уг
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148486.jpg" />
 </div>
 
 
@@ -57,7 +232,7 @@ magnet:?xt=urn:btih:D12BEAABFDC386672AEF3032F073E17B6945AD0E
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148487.jpg" />
 </div>
 
 
@@ -81,7 +256,7 @@ magnet:?xt=urn:btih:9E9A1386B35A9738972911307678A77BDFD758EF
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148488.jpg" />
 </div>
 
 
@@ -105,7 +280,7 @@ magnet:?xt=urn:btih:63EE713DE37754A1D99E3BB6EBD0E9F2034A8B54
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148489.jpg" />
 </div>
 
 
@@ -129,7 +304,7 @@ magnet:?xt=urn:btih:AD8EB9833F19B5B9414B9BCEED19D02183326A17
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148490.jpg" />
 </div>
 
 
@@ -153,7 +328,7 @@ magnet:?xt=urn:btih:BE191D071D2B035AE56B9CEBA9301F82B732723B
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148491.jpg" />
 </div>
 
 
@@ -177,7 +352,7 @@ VA - The Vanilla Jazz: Instrumental Collection (2021) [MP3|320 Kbps] <Jazz, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148492.jpg" />
 </div>
 
 
@@ -204,7 +379,7 @@ Wise Hotkey 1.2.3.43 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148493.jpg" />
 </div>
 
 
@@ -228,7 +403,7 @@ magnet:?xt=urn:btih:2643924924B5257CA95790151DD68A26BB45AECF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148494.jpg" />
 </div>
 
 
@@ -253,7 +428,7 @@ magnet:?xt=urn:btih:B80C1A88EEE519943FC25C7796AC6DA5CFAC100E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148495.jpg" />
 </div>
 
 
@@ -277,7 +452,7 @@ VA - Aesthetic Blues: Modern & Old Style (2021) [MP3|320 Kbps] <Blues, Folk Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148496.jpg" />
 </div>
 
 
@@ -304,7 +479,7 @@ magnet:?xt=urn:btih:EE45EC19B33F37D6A139DE7737BD31C550EAD24D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148497.jpg" />
 </div>
 
 
@@ -331,7 +506,7 @@ magnet:?xt=urn:btih:D679EF7356229D98B7B285EC2FC829C70992E57E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148499.jpg" />
 </div>
 
 
@@ -355,7 +530,7 @@ magnet:?xt=urn:btih:0E528C9920C0AD7D407260703FB688E6B710BD03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148500.jpg" />
 </div>
 
 
@@ -379,7 +554,7 @@ magnet:?xt=urn:btih:B10C78A41064603DEFC8A381E740D7C81097F356
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148501.jpg" />
 </div>
 
 
@@ -403,7 +578,7 @@ magnet:?xt=urn:btih:CAAA245E66FE5AB8EFCC7AD92DB38D888C540298
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148502.jpg" />
 </div>
 
 
@@ -428,7 +603,7 @@ magnet:?xt=urn:btih:E0F13A465FEFA77B8A5C2B7621DEEF17ACEB9EBC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148503.jpg" />
 </div>
 
 
@@ -452,7 +627,7 @@ magnet:?xt=urn:btih:9CA64CC5F5A0C88FE7015DA1B86169E38EEA8EF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148505.jpg" />
 </div>
 
 
@@ -464,180 +639,6 @@ magnet:?xt=urn:btih:9CA64CC5F5A0C88FE7015DA1B86169E38EEA8EF9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:134D67D76C2E76BDD8499E527E66F61E48029FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519458   (148506) от 24.12.2021
-
-Aiseesoft Mac Video Converter Ultimate 10.2.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Aiseesoft StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572427E39765D5A338C42D3CEC24C13D0DB5C753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087197   (148507) от 26.12.2016
-
-Macsome iTunes Converter 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macsome iTunes Music Converter - Конвертировать DRM защищенную музыку в незащищенный формат
-Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все аудио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
-
-Macsome iTunes Music Converter позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAD275E7E9FABA2D5AD215932E6EC96AD95A95A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347492   (148508) от 24.12.2019
-
-Microsoft Visual Studio 2019 Professional 16.4.0 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898E84EDFD70C20CCA05C7B8A14BA066A63FBE97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969007   (148509) от 26.12.2015
-
-Журнал | За рулем [Россия] №1 (1015) (январь 2016) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148509.jpg" />
-</div>
-
-
-###  Подробнее
-
-«За рулем» — популярный советский журнал об автомобилях и автомобилестроении. Первый номер вышел в апреле 1928 года, журнал издаётся по сей день. До 1989 года был единственным автомобильным периодическим изданием в СССР. Как всегда много информации из автомобильного и околоавтомобильного мира.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70527F4C7FF992D39A8DA0FDFD2A765E034CA1CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271718   (148510) от 24.12.2018
-
-Неизвестная Тварь / Of Unknown Origin (1983) WEB-DLRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148510.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Манхэттене в подвале дома Барта Хьюза происходят странные и страшные вещи. Неизвестное свирепое существо, наделенное сверхъестественным чутьем и силой, угрожает жизни Барта и других, оно стремится безраздельно владеть заброшенным домом… Этот монстр — гигантская крыса, а голодных крыс, как известно, ничто не остановит, даже мор или ядерная бомба. И Барт спускается (   Читать дальше...   )Производство: США, Канада / Warner Bros. Pictures, Famous Players Limited, Canadian Film Development Corporation (CFDC), Les Productions Mutuelles LtéeЖанр: УжасыРежиссер: Джордж Пан КосматосАктеры: Питер Уэллер, Дженнифер Дэйл, Лоуренс Дэйн, Кеннет Уэлш, Луис Дель Гранде, Шэннон ТвидПеревод: Профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: английскиеПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2164FA3E5D2C4F914BBF6B67F4D76B14A74DDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087217   (148511) от 26.12.2016
-
-Giraffe Tongue Orchestra - Broken Lines (2016) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adapt Or Die 3:25
-2. Crucifixion 4:17
-3. No-One Is Innocent 4:21
-4. Blood Moon 3.20(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B31BC4F25314A871045511DCF633FED0AAB1D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519529   (148512) от 24.12.2021
-
-Моя сестра Эйлин / My Sister Eileen (1955) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на пьесе Джозефа А. Филдса и Джерома Ходорова 1940 года. Рут и ее красавица-сестра Эйлин приезжают в «Гринвич Виллидж» в Нью-Йорке в поисках славы и удачи. Рут мечтает стать писательницей, а Эйлин - актрисой. Рут привлекает внимание издателя Боба Бэйкера, когда тот решает опубликовать историю о её сестре. Чтобы поддерживать к себе его интерес, Рут (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: мюзикл, мелодрама, комедияРежиссер: Ричард КуайнАктеры: Джанет Ли, Джек Леммон, Бетти Гаррет, Боб Фосси, Курт Казнар, Дик Йорк, Люси Марлоу, Томми Ралл, Барбара Браун, Хорас МакМахонПеревод: профессиональный многоголосый (Студия Кондор по заказу ВГТРК; вариант 2)Субтитры: русские (на песни), английские SDHПродолжительность: 01:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA106B30BF850771A9D756DBE7BBC06F2681397D
 ```
 
 

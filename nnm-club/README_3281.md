@@ -1,3 +1,75 @@
+###  Публикация: 1745869   (104988) от 28.08.2024
+
+Сатисъ | Ревностный проповедник христовой истины святой апостол Симон Кананит. (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вашему вниманию книга является попыткой собрать воедино сведения Православной Церкви о святом апостоле Симоне Кананите (Зилоте) и дополнить их святоотеческими толкованиями, молитвословиями, свидетельствами почитания апостола Симона на земле Абхазии.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EA2FE61E4D12FBB5B9F5DE824744B6B54F11BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745799   (104989) от 28.08.2024
+
+YT Downloader 9.10.10 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104989.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CBB9A65C611073CBF3AD4CD7BEA5FBD27F5A9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745880   (104990) от 28.08.2024
+
+Сатисъ | День христианина (1995) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104990.jpg" />
+</div>
+
+
+###  Подробнее
+
+…Так ли ты живешь, как должно жить христианину, т.е. усердно ли желаешь и усиленно ли домогаешься того, чего желает и домогается истинный христианин?.. Предлагаю наставление на одни день. Если будешь верно следовать этому наставлению, то увидишь, что другое наставление тебе не будет нужно! Как проведешь день первый, так должно будет провождать и всякий следующий…Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9359D4CACACFD5D48153C16CAEBECCC539BB3157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745972   (104991) от 28.08.2024
 
 Fostermother - Echo Manor (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
@@ -6,7 +78,7 @@ Fostermother - Echo Manor (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104991.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:B542EA58E22069C1F906CBD68772747238B34924
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104992.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Grimskull - Gathering Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104993.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ Oh He Dead - Ugly (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104994.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ Picture Bird - Bird Identifier v2.9.27 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104995.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Fast Video Cutter Joiner 5.3.0.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104996.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ PowerISO 8.9 Portable by FC Portables [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104997.jpg" />
 </div>
 
 
@@ -183,7 +255,7 @@ Cockos REAPER 7.22 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104998.jpg" />
 </div>
 
 
@@ -207,7 +279,7 @@ Beat Find / Распознавание музыки v1.6.3 Mod by NURIK kz [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104999.jpg" />
 </div>
 
 
@@ -232,7 +304,7 @@ magnet:?xt=urn:btih:1487B552247D9E95234914BBE08D0C66A393CD1B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105000.jpg" />
 </div>
 
 
@@ -256,7 +328,7 @@ YT Downloader 9.10.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105001.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ SnapEdit - AI photo editor v6.8.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105002.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (2408) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105003.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ CrystalDiskInfo 9.4.2 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105004.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:C56BFC07D821EDC6E4D1254C1308D89571F3F289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105005.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:C56BFC07D821EDC6E4D1254C1308D89571F3F289
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105006.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ magnet:?xt=urn:btih:85C1FC13863C5F7DA168927DDD715ACDA887C6D0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105007.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:E6732CFDE61D702C82CDFA949735E938CBD3B69B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105009.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:85DA55DE8DCCD19B9061DC58E3F8AA1CB6E5F655
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105010.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ Joe Pass - Whitestone (1985) 1987, Pablo [APE|Lossless|image + .cue] <Jazz Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105011.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105012.jpg" />
 </div>
 
 
@@ -553,7 +625,7 @@ Andre Matos (& Virgo (Matos-Paeth)) - Studio Albums (4 releases) (2001-2012) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105013.jpg" />
 </div>
 
 
@@ -567,81 +639,6 @@ Virgo (Matos-Paeth) - 2001 - Virgo(   Читать дальше...   )Жанр: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63EA7575DE25778EFF3E2697726E580448A5D058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745746   (105014) от 27.08.2024
-
-Связанные музыкой / The Bond of Music (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франко-прусская война. Французский город осажден немецкой армией. Но жизнь в городе продолжается и гражданское население занимается своими делами. Это нормально. Торговцы торгуют, домохозяйки домохозяйничают, старенький музыкант дает уроки своим ученикам. Среди них у него есть любимчик - молодой человек, способный, преданный музыке. Только вот на самом деле, этот (   Читать дальше...   )Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, военный, немое киноРежиссер: Чарльз КентАктеры: Чарльз Кент, Эрл Уильямс, Уильям Ши, Кейт Прайс, Ральф Инс, Эдвин Р. Филлипс, Хэл Уилсон, Фрэнк МэйсонПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692BCB05C83D58F77757CF083477364174F7938C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744691   (105015) от 27.08.2024
-
-Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serse (Xerxes), Opera, Hwv 40: Largo. Ombra Mai Fu / Welch Schattig Grun
-02. Work(S): Serenata Francese / Serenata Napoletana
-03. Amadis, Opera, Lwv 63: Act 2. Scene 4. Bois Espais Redouble Ton Ombre / Dicht...
-04. Fenesta Che Lucive, Song(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371C8C9A4540CE3CC705A0C8D1EE3A748F084FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745752   (105016) от 27.08.2024
-
-MediaHuman YouTube to MP3 Converter 3.9.9.95 (0809) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA039D0BBEE00E9072C81D6BB384AD1B271F53F
 ```
 
 

@@ -6,7 +6,7 @@ Pleasureland - Pleasureland (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101308.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heart 2 Heart - Alley Of Dreams (2024) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101310.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sunstorm - Restless Fight (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101319.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101325.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101327.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101342.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101349.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Beer Bear - За Незримой Чертой (2012) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101352.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nazareth - Loud'N'Proud (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101367.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101395.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101409.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Offspring - Supercharged: Worldwide in '25 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101435.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ John Popper - Zygote (1999) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101445.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101449.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Wildstreet - Origins (I-II) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101451.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101456.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Whip - Whip, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101457.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E09EE53A60246FD9641CEA4A599281736C9D7FE7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101458.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101459.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Faded Remembrance - 2 Albums (2023-2024) [MP3|320 Kbps] <Gothic, Doom, Death-Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101460.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101468.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101487.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101489.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101495.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101511.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Fighter V - Heart Of The Young (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101516.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60763.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7ED9F8BC93ABB4AFA239BC1BB1F0A1EAB966EC36
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60764.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ XtraTools Professional 24.3.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60765.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5B596F58029A80686F638DF715A5A7F00465B62A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60766.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Judas Priest - Invincible Shield (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60767.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:59E7B2530EB46A9CED7626DFFE00166159135846
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60768.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:2C0689B1DC5ABF33903F827E3549FEA05CA49790
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60769.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ JetBrains PhpStorm 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60770.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60771.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6429/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60772.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Office Installer & Office Installer+ 1.12 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60773.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60774.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:CFD64D7FBC96DD5E833CF9107C303F626C07022E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60775.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2A3565C1962746F0C58C9A7E5AD8ADD3CDD222E5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60776.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:57AEB04AA8E1CE0A689FAA8AD7FD0E02953E90BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60777.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Bigasoft Total Video Converter 6.6.0.8858 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60778.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8E2F6343FCE4600B77C58CD50E95F3D64086DEBB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60779.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2BC49793D3CCEDB648787017030F5A7A6D9A8F95
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60780.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:7DEF515F7B7D791847040ECE5D8EEC3DF8067279
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60781.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60782.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Megacubo 17.4.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60783.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:8CC0EFB7C28D07C6941E03E098FAA0E65E074A5F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60784.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:E71BB2CE25D8B1AC9BBFC08C5B217F3A1B78E5D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60785.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ MSI Kombustor 4.1.29.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60786.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4040224E345E3A28D26E978A4C63E60F484DB9D3
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60787.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ NVIDIA GeForce Desktop Game Ready 552.12 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60788.jpg" />
 </div>
 
 

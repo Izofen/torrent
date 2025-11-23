@@ -6,7 +6,7 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147066.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147067.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147109.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147114.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147134.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147393.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147397.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147456.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147461.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147467.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147476.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147594.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147612.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Clement Simon - Man on the Moon (2018) jazz family [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147648.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - By the Sea Lounge Relaxing Luxury Elegance Instrumentals (2023) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147674.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Club d'Elf - So Below (2018) Face Pelt Records [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147676.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147724.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147734.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147758.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147770.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147783.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147789.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147801.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147804.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147891.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147914.jpg" />
 </div>
 
 

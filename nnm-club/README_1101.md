@@ -6,7 +6,7 @@ TreeSize Professional 9.4.0.2000 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28979.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1C25A87F7F0B15681B6C9D6626A0EAE0BF4E4B6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28980.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1DE5D99DF27463F62C267661AEDD1618A0EF4E56
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28981.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ HopToDesk 1.42.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28982.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28983.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FreeCommander XE 2025 donor v924 x64 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28984.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28985.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8207B850324833A3B2F39ECCC418BD558324E333
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28986.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:728628FB9E04EEFA415D66841D90DD7A34BBE8FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28987.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:091574CB440E84988719228CB972A9B743A6A63D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28988.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28989.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ CoolUtils Total Doc Converter 5.1.0.356 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28990.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:190621F4BA254BE43D5672C45D995B1191C4299C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28991.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:190621F4BA254BE43D5672C45D995B1191C4299C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28992.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28993.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28994.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28995.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:FF06046CCFD47C867C91686901517ADC73BF729C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28996.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28997.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AVS4YOU Software AIO Installation Package 6.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28998.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ AVS Media Player 6.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28999.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:739E8964A3F7566744A332FB72465366750CA09A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29000.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29001.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9EA376DEC549035D23824E32D0A3021D64EC4D86
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29002.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:355B65C194227101C32534BF1A56480B5D85823F
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29003.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Mindroid: AVS, Mind machine v7.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29004.jpg" />
 </div>
 
 

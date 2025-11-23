@@ -6,7 +6,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C3481519C3F9D22EEF1146900434377E125F3099
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57254.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4E1035E37A5E8CD8D0FED012E3D8F7E378402939
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57255.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3B4C3F9054D91EA55F9217BDB97C435667E30F75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57256.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Dreamweaver 2021 21.4.0.15620 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57257.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nox App Player 7.0.6.0007 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57258.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A55513E0E172CD4BE1DF076EA3BD746E1909F11F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57259.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:543AFF3B8B0AC6B25D98249830E300A9C68F637C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57260.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:47612FDC1791D4241F4401C68A9878626B26BB1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57261.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:955A0CFB5061DB010D1CC9989934B69AD9B7B568
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57262.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:7ED33FD67B8C7D9742C50ED537EEC200ABCCEF1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57263.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:84790B0D9697CAAC88FB6D749946B34FFE28E564
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57264.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:12E8D1D3BEB88687CBAC53A3B95D6E3AFDB57040
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57265.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.08.05.24) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57266.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:3D1B0118B43E99DB996BC9CE1C6B976599D0434D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57267.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:91A82F73B3581FCBACDE1C67C1711E6C99D523EA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57268.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Illustrator 2024 28.5.0.132 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57269.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:555EFD1BCE60DE93F129A7F71B4E2C225E8003D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57270.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A938CFE9970F17C59B5F95ED3E0AC302DC50F94B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57271.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3D9C40B86C4664B6E09BC809B39CD6D9DD221BEE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57272.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7905B7B7DBBD9F8D0A8703E94BF704E740813EAC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57273.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DDA7E89AB0140B66071FA666E7CCADCF78D7C3FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57274.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0C46CF8320E9D602FBB3A78DCC08BA895756715F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57275.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:56F2825DEEEAFE76DD9BE2510DB05698E7A7DF25
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57276.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Smart AudioBook Player Pro v10.8.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57277.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:87D365C3254084909D0EDE690746D43A0E8F84AE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57278.jpg" />
 </div>
 
 

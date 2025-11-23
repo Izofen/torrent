@@ -6,7 +6,7 @@ Sunburst - Studio Albums (2 releases) (2016-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39561.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Conrad Herwig - The Latin Side Of Mingus (2022) Savant [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39562.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:82A374C04D12DB568A73BA6FA03D91EB71344D81
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39563.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ferrari Challenge Europe. Trofeo Pirelli. 7-й этап. Имола. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39564.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Beth Hart - You Still Got Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39565.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Amanda Lear - Amanda Lear / Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39566.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3006 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39567.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:79DA6F90D124A968E2363C2D66058617A090EBB3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39568.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Deep Blue Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39569.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ital - Rukapillan (2024) [FLAC|Lossless|WEB-DL|tracks] <PsyTrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39570.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:78AAF93D85ACDC2813A7509B487A96BAEDD5EFA2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39571.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:4142576BABB7F1092327BA0D4EA11971AD20A218
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39572.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Ele
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39573.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39574.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:D6AA15CFAB497F3BB2B1996D3D30087219CD1366
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39575.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:1BFD539D056DDD522B2F2FABEDEE4C07D97AC61E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39576.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:C3E2C329F7EA081A816CFAB46F553463FCDBC79E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39577.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Nightfall Dreams: Chillout Your Mind) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39578.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Balearic Chill out Winter 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39579.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E24E032DB34DF09806CDAFFD5218EE4AF5216DDC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39580.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:0F063FE4FEB2A85BF5BA4CEA019026829D012D92
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39581.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:281AB71F4671C384BCD91EFE635C37EC257C7E6B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39582.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ GPS АнтиРадар v46.1 Mod by 0x7d [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39583.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:4A30B5D87D2505CC4A9C7A48D283AB6CBCF0DEED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39584.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C10AB2E3C4770A9128B9E5250CE462F8CEDB1B9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39585.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39586.jpg" />
 </div>
 
 

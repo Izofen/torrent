@@ -1,3 +1,111 @@
+###  Публикация: 1627881   (199581) от 20.04.2023
+
+Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199581.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Innuendo
+A2 I'm Going Slightly Mad
+A3 Headlong
+A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626997   (199696) от 16.04.2023
+
+Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Hard Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Of Prey
+02. Time To Live
+03. Look At Yourself
+04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557543   (199804) от 14.04.2023
+
+Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Overkill — американская трэш-метал-группа, основанная в 1980 году в Нью-Джерси. Состав группы претерпел неоднократные изменения, и единственными неизменными участниками Overkill с момента основания являются вокалист Бобби «Blitz» Эллсворт и басист Д. Д. Верни. У группы есть талисман по имени Чали, который нарисован на большинстве обложек их альбомов — череп с костлявыми (   Читать дальше...   )1993 - I Hear Black
+1994 - W.F.O.
+1996 - The Killing Kind
+1997 - From The Underground And Below(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 18:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626371   (199887) от 14.04.2023
+
+Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_199887.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blackout
+A2. Can't Live Without You
+A3. No One Like You
+A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626106   (199996) от 13.04.2023
 
 Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Jazz>
@@ -6,7 +114,7 @@ Roma Trio - The Four Seasons (2008) Reissue, 2016, Venus Records [DSD64 2.0|1bit
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199996.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Sandra - The Long Play (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200228.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200228.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Bad Boys Blue - Heart Beat (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ital
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200378.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Various - Flashdance - Original Soundtrack From The Motion Picture (1983) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200488.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200488.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Eagles - The Long Run (1979) SACD, Reissue, Remastered, 2023, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200557.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ VA - Звёзды шансона (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Ch
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201399.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201399.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201512.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201512.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Johann Sebastian Bach, Akiko Suwanai - The Sonatas And Partitas For Violin Solo 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201610.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201610.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201632.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201632.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ magnet:?xt=urn:btih:F4595EF428B892223CE732B06255B6FA38F2F7EC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201677.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202261.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202261.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202370.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202370.jpg" />
 </div>
 
 
@@ -360,7 +468,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202566.jpg" />
 </div>
 
 
@@ -390,7 +498,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -417,7 +525,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -444,7 +552,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203349.jpg" />
 </div>
 
 
@@ -470,7 +578,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -524,7 +632,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -552,7 +660,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -579,7 +687,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -593,110 +701,6 @@ A4 Танцующие Туфельки • Dancing Shoes(   Читать дал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655732   (203748) от 28.08.2023
-
-Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norther (сильный северный ветер) — мелодик дэт-метал группа из Финляндии.2002 - Dreams of Endless War
-2003 - Mirror of Madness
-2004 - Death Unlimited
-2006 - Till Death Unites UsЖанр: Melodic Death/Power MetalПродолжительность: 05:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655843   (203795) от 28.08.2023
-
-Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Score • Счет
-A2 Learning To Fly • Учимся Летать
-A3 The Miracle • Чудо
-B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604662   (204069) от 14.01.2023
-
-Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Techno/Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно уже ставший классикой дебютный альбом 1995 года совсем тогда молоденькой китайско-тайской скрипачки. В 2004 году на ЭМИ был сделан многоканальный ремикс и выпущен SACD. Довольно слабенький, на мой взгляд/мое ухо микс, но сама музыка и экспрессия исполнительницы все искупают...За образ SACD благодаримЖанр: Techno/Pop, ElectronicПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604059   (204160) от 12.01.2023
-
-Мираж - МИРАЖ-III (оригинал) (1991) [FLAC 2.0|48/24|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:52] Я жду тебя
-[4:40] Ты словно тень
-[5:52] Солнечный ЗайчикЖанр: Pop, Disco, DanceПродолжительность: 00:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
 ```
 
 

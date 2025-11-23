@@ -6,7 +6,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12302.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13162.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.16.2.3/dlc) Scene Rune [Royal Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13331.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13402.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13520.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ashes of the Singularity: Escalation (2016) [Multi] (3.30.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13537.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13584.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.5.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13825.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack Pioneer [Ultimate Bu
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13859.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14144.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14173.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14249.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14658.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15523.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15717.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.28.4665/dlc) Repack Let'sРlay [Definitive Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16635.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Age of Darkness: Final Stand (2025) [Ru/Multi] (1.0.2.4) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16786.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16819.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16912.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16914.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16932.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18172.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18771.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19262.jpg" />
 </div>
 
 

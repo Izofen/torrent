@@ -1,3 +1,75 @@
+###  Публикация: 1524646   (126521) от 23.12.2023
+
+Сто самых красивых мест Франции / Les 100 lieux qu'il faut voir (2015) HDTVRip [H.264]  (серии 1-9 из ?) [FR / RU Sub] (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы любите путешествовать по Франции? Набираться новых впечатлений? Вам кажется, что вы хорошо знаете эту страну? У каждого из нас есть заветные места: пляжи, бухточки, поляны, деревушки, тропинки. Мы торопимся туда вернуться, словно спешим на встречу с близким другом. Именно об этой Франции нам хочется рассказать: о местах, которые надо увидеть хотя бы раз в жизни.Производство: Франция, TV5MONDE Europe HDЖанр: документальный, познавательный, путешествияРежиссер: Изабель Ле ГенПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод Е.Пичугиной, Hiventy)Продолжительность: серии x ~00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D027243BBD1419125927C5682B62EBA688526C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686644   (126522) от 23.12.2023
+
+Меч короля / Bastarden / The Promised Land (2023) BDRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датский король отправляет своего лучшего рыцаря обуздать дикие земли, покуда простирается его длань. Но здесь, за стенами высоких замков, свои законы. Местные князья не спешат подчиняться королевскому наместнику. Они сами решают, кто будет возделывать их земли, а кто упокоится в них навсегда. Конфликт усугубляет прекрасная дева, обещанная отцом местному феодалу. (   Читать дальше...   )Производство: Дания, Швеция, Норвегия, Германия / Zentropa Entertainments, Zentropa International Berlin, Zentropa International SwedenЖанр: драма, биография, историяРежиссер: Николай АрсельАктеры: Мадс Миккельсен, Аманда Коллин, Густав Линд, Кристин Куят Торп, Якоб Ульрик Ломанн, Мортен Хи Андерсен, Сёрен Маллинг, Магнус Креппер, Томас В. Габриэльссон, Феликс Крамер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:13Реклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686563   (126523) от 23.12.2023
+
+Присмотри за Сюзи / Gib acht auf Susi! (1968) DVD5 [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126523.jpg" />
+</div>
+
+
+###  Подробнее
+
+На десятилетнем Михи лежит серьезная ответственность. После того как его родители официально развелись, он должен присматривать за своей старшей сестрой Сюзи, которая готова менять поклонников каждый день, ну или почти каждый день. Для Михи и его приятеля лучше проводить время, как свойственно мальчишкам их возраста, например, изготовить порох и применить его. А (   Читать дальше...   )Производство: ГДР / Deutscher Fernsehfunk (DFF)Жанр: семейный, комедияРежиссер: Клаус ГендрисАктеры: Дорит Габлер, Лисси Темпельхоф, Фред Ленц, Каспар Эйхель, Йохен Томас, Ханс-Герд Сонненбург, Кристоф Матиас Лау, Horst Quednow, Людвиг Фридрих, Хайнц ХеллмихПеревод: авторский (Юрий Муравский)Язык озвучки: русский, немецкийСубтитры: отсутствуютПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1CE839CE976EF616DF7C8F214A664F542B473A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686512   (126524) от 23.12.2023
 
 Кибердеревня. Новый Год (2023) WEBRip [H.265/2160p] [4K, HDR10] (Новогодний спецэпизод)
@@ -6,7 +78,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126524.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:108B5704014F76B58A47C8B09E860CE4F147D4AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126525.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Pro Pool 2024 v1.54 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126526.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126527.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:BBB0507F2984AB5589E226AC8079994321D14433
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126528.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:E5C1A8021ED625443CE76A3FC6CE30C4E7860CF2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126529.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ JetBrains PhpStorm 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126530.jpg" />
 </div>
 
 
@@ -175,7 +247,7 @@ magnet:?xt=urn:btih:97359A09591F232B54A231622D701E33F96C5EEF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126531.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:97359A09591F232B54A231622D701E33F96C5EEF
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126532.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ Adobe Lightroom - Фоторедактор v9.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126533.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:5177E5A52A5D560BEE1E0BA9C0C3F090990E8EA2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126534.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:CB4D9CC93C9DCFE7D9350F7908F9A0C2DEF4B31E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126535.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:CB4D9CC93C9DCFE7D9350F7908F9A0C2DEF4B31E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126536.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:51F78E312505F4DCD8BE69A7BC04FA644943A70E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126537.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:FA759311A39121CA4C4FEF22C22B64D15E85C74B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126538.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ Jetbrains IntelliJ IDEA Ultimate 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126539.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:99E0814DE7C3EFBF6FBBDDB75C9533310A236E34
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126540.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126541.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:502298222552E20AB50AD69793EDCDFAE30EA9A5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126542.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:C4690D1856AE7F56DB95B932E1D61A2165A444B7
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126543.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:BBA0C7DD8944DB43209BDA3371215F8C83733104
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126544.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126545.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ JetBrains PyCharm Professional 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126546.jpg" />
 </div>
 
 
@@ -553,81 +625,6 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB5D87791F06E3489FC5EB371873544BE575B65B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686476   (126547) от 23.12.2023
-
-Jetbrains WebStorm 2023.3.2 Repack by Sitego [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126547.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872CA948BF7B25B02059BB9A7992A6011CE75875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686460   (126548) от 23.12.2023
-
-Черепашки-ниндзя: Погром мутантов / Teenage Mutant Ninja Turtles: Mutant Mayhem (2023) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо братьев-черепах, всю жизнь скрывавшихся от мира людей в канализациях Нью-Йорка и обучавшихся ниндзюцу, отправляются на поверхность и пытаются жить как нормальные подростки. С помощью своей новой подруги Эйприл О’Нил они выходят на след печально известного преступного синдиката и армии мутантов.Производство: США / Nickelodeon Animation Studios, Point Grey Pictures, Image ComicsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф Роу, Кайлер СпирсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3846EB930FE8EA93E64B1C37054D10958716F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686688   (126549) от 23.12.2023
-
-Александр Шишонин | Секреты здорового сердца (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое руководство по восстановлению и поддержанию здоровья сердца и сосудов в домашних условиях
-Что есть в видеокурсе?
-️Теоретическая часть (потому что теория без практики - уже кое-что, а вот практика без теории - ничто):
-    ✅Введение (как часто и какие сдавать анализы и проходить обследования, чтобы своевременно понять, что настало время серьезно (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 08:15:18Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417CD54A57A74F7D2EA3F5DAA440C9AB19F2FFA2
 ```
 
 

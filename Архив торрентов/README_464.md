@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101761.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101761.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ At Vance - Facing Your Enemy (2012) [MP3|320 кб/с]<Neoclassic Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101766.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Various Artists - Codreanu - Eine Erinnerung An Den Kampf (2001) [mp3|320 kbps] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101774.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:AA4029EB45340C5D8738F7C3503AB4D688C1AC74
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101776.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:EED138714CDB68036A427E9FC42F04E7B1524883
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101783.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ magnet:?xt=urn:btih:DBBE19289B7879DF1B21EE40C74234CDB914E7CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101784.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [APE|Lossless]<Dark 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101789.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101789.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Moonspell - Alpha Noir / Omega White (2012) Limited Edition [APE|Lossless]<Dark 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101796.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Menzoberranzan [En] (RePack) 1994 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101801.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101801.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Menzoberranzan [En] (RePack) 1994 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101812.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101812.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Menzoberranzan [En] (RePack) 1994 | Pilotus
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101814.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Yannic Noah - Pokhara (2003) [FLAC|Lossless]<french pop, chanson francaise, regg
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101826.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101826.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Yannic Noah - Pokhara (2003) [FLAC|Lossless]<french pop, chanson francaise, regg
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101830.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101830.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Yannic Noah - Pokhara (2003) [FLAC|Lossless]<french pop, chanson francaise, regg
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101843.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:5955706EC4291591F2EFF072DC7064BCDD57F54F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101845.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:6203646B61266BB5722D4A486A4131EAA1587379
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101846.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:6203646B61266BB5722D4A486A4131EAA1587379
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101852.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:7E5314042A4720D9BBF15B2296275C797836FA67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101853.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101853.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Bumpy Road v2.1 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101864.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101864.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dungeons of Dredmor {1.0.10} (P) [En] 2011 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101871.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101874.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101874.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101901.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101901.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ubuntu Studio 12.04 LTS [i386, amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101903.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101925.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101943.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Blackmill - Reach for Glory (28/02/2011) [MP3|320 кб/с]<dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101964.jpg" />
 </div>
 
 

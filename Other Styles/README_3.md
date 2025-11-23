@@ -6,7 +6,7 @@
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6A7D44062994B26F2836657E090909EB4E66DD7A
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46378.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46583.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46915.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7F6A7C52BD49CF94C8CC556C9C6DB958C05D5E5D
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48273.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, З
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48962.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-D
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48981.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_50998.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51697.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52029.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52092.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Ea
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52202.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53963.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventur
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54677.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55610.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:987FD914A8908C740B3E6F8E63301946BD5E03B0
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55828.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:1463030AA7BBBB7E9160443B77C8A1DCFCFA0BCE
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55832.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55848.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:D502D55E3315C937366549095DF65B522F1BFD8B
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55852.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mark Ashley - Instrumentals Vol. 1 (2024) [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56558.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57538.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57832.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57945.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58960.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60377.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61601.jpg" />
 </div>
 
 

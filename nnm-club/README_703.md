@@ -6,7 +6,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18602.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D7B47986B7C2726F514DF46CB8C7637B05BE44F6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18603.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5D587879248D0DA78FF80B8D298087FFB363CCED
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18604.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SoundHound ∞ - Music Discovery v10.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18605.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18606.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ TuneIn Radio Pro v38.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18607.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F6A7407D89E6CC2B5A2E115C27D49B7AF7E3290F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18608.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0E25A28CD4F1EE6DFCCCC098D257C2A722590F0A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18609.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Lighting calculations / Расчеты освещения v6.1.3 Mod by Balatan 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18610.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:76459DD4CB9BF1D385811AE3A94B6F778EE7834F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18611.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:151B7B32E5F39395BFE0FF08661353BA58CB3A8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18612.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Fairy Girls | Девочки-Феи (2014) [4 тома, 21 глава] [Манг
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18613.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.2 Mod by 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18614.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MotoGP. Этап 06 из 22. Гран-при Франции. Гонка (11.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18615.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Fairy Tail | Хвост Феи (2006) [63 тома, 545 глав + 5 Кросс�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18616.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Fairy Tail Zero | Хвост Феи. Начало (2014) [1 том, 13 глав]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18617.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:41EB194EB2E134DCA5911B078504A5B563972F88
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18618.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Emanuel Casablanca - Hollywood Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18619.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:BE322FA9119169569DABB71F7876B0C90E112E3D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18620.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Cain's Dinasty - Dinastía de Caín (2025) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18621.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:08F7DCE324A6D8F44A4948A4D47B45DADDD1AF04
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18622.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.3  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18623.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Liquor Store Simulator (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18624.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0E3D468A9760A160EA89BFDE3A0F7877C24EC744
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18625.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Vanced Tube v5.3.81.185 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18626.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ WinSCP 6.5.1 Build 16311  + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18627.jpg" />
 </div>
 
 

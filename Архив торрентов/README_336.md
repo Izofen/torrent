@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82512.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mountion Lion Skin Pack 2.0 for Windows 8 Consumer Preview (x32/x64) 2.0 [Englis
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82536.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Mountion Lion Skin Pack 2.0 включают в себя пакет програ
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82543.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C71CC1783122CB2F7F3A6A67B185CE9F6FC48FE4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82546.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1883191799C6AA202873F8BCD8A3C71131AC6136
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82550.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1883191799C6AA202873F8BCD8A3C71131AC6136
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82552.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mitsubishi, Обновление MMC ASA Europe update 253 03.02.2012 1.4.0.2
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82563.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Native Instruments - Guitar Rig Pro 5.0.2 by ASSiGN [x86 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82571.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Native Instruments Guitar Rig 5 Pro - универсальный студийн�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82590.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Native Instruments Guitar Rig 5 Pro - универсальный студийн�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82596.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D2E3D62FEB0F56D2F046642868D260EB1FF64BD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82597.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:3DCB238B9B3129A8C1E46B0F7DCEA62F99302354
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82599.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:69E9A5702712C1877BF3D754234139C7521B4499
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82604.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82618.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4A9EF192CC626C06E570EC9687905F4CDC1D51A9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82619.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82622.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82634.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:122BAB9E6BB4D15F2331AD0F5899856588ADA826
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82646.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82648.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82651.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:93026DFE733422A62CF2949B50BEABEC44BAEEA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82655.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:1B44C4EFADD1B302C571DCCD38593B1C6010B878
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82658.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DJ Smash - The Beat Instinct #001 - #007 (2011 - 2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82661.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:7DC83A70F9261FD4F7AB60DA38EBF25F6E218330
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82666.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7DC83A70F9261FD4F7AB60DA38EBF25F6E218330
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82670.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:7DC83A70F9261FD4F7AB60DA38EBF25F6E218330
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82683.jpg" />
 </div>
 
 

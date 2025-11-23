@@ -1,3 +1,75 @@
+###  Публикация: 1698412   (118456) от 09.02.2024
+
+Императрицы (2023) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр I пообещал маленькой дочери Елизавете, что выдаст ее замуж за Людовика XV, и она станет королевой Франции. Но все планы, в том числе договоренности с французским королем, рушатся вместе со смертью великого монарха: Петр I уходит из жизни, не успев назначить наследника. Так начинается безжалостная и беспощадная эпоха дворцовых переворотов — время интриг и борьбы (   Читать дальше...   )Производство: Россия / 1-2-3 ProductionЖанр: документальный, история, драмаРежиссер: Андрей КравчукУчастники: Юлия Пересильд, Ксения Утехина, Анна Уколова, Ольга Лерман, Иван Колесников, Игорь Гордин, Евгений Шварц, Павел Ворожцов, Виталий Коваленко, Юрий ИцковСубтитры: отсутствуютПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D66D92584677B7AE9A7CF84F0253A7993633FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698292   (118457) от 09.02.2024
+
+Brave Browser 1.62.162 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182E4589A4F952ED33C73F0923B533AA2B2BC9DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698521   (118458) от 09.02.2024
+
+Calibre 7.5.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB6EF49AC02FF17B25FCC20904D2FB6703D4D8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698384   (118459) от 09.02.2024
 
 Король Лев / The Lion King (1994) BDRip [H.265/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118459.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118460.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118461.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:889FFAC92C5C34DE873A3D1172B4F834F9B33D4A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118462.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118463.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118464.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ AutoPowerOptionsOK 5.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118465.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ TikTok 33.3.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.27 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118466.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:5D26DF224FEE96B8D6DF58A59321025966CA6CC8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118467.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118468.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ Digital Emotion - Digital Emotion (1984) 2024, 2CD Remastered Expanded Edition [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118469.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118470.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118471.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ magnet:?xt=urn:btih:2E57740DA6E57A9577C98A38DC487B49F71200A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118472.jpg" />
 </div>
 
 
@@ -352,7 +424,7 @@ magnet:?xt=urn:btih:3817ACBBDD6BD0DC892B2038369EFEEF1ED3906D
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118473.jpg" />
 </div>
 
 
@@ -376,7 +448,7 @@ magnet:?xt=urn:btih:2D913677345D5EBA4BFC98D15295805A0D20BB91
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118474.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Elect
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118475.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ VA - Sanremo (2024) 2 x CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118476.jpg" />
 </div>
 
 
@@ -454,7 +526,7 @@ magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118477.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ Creative Sound Blaster Command 3.5.10.0 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118478.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ magnet:?xt=urn:btih:E3E4E585529049E843F0135933D403F9B44F048E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118479.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ Windows 11 Manager 1.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118480.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ magnet:?xt=urn:btih:7EB669671138AB79BFE5559C6B3C75E789086627
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118481.jpg" />
 </div>
 
 
@@ -561,78 +633,6 @@ magnet:?xt=urn:btih:7EB669671138AB79BFE5559C6B3C75E789086627
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698518   (118482) от 09.02.2024
-
-Канал / The Channel (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118482.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неудачного ограбления банка отчаявшийся преступник, его неуправляемый брат и их разношерстная команда бывших морских пехотинцев должны сбежать из Нового Орлеана от преследующего их агента ФБР.Производство: США / Appalachian Film, Denton Film., Roosevelt Film LabЖанр: боевик, триллер, криминалРежиссер: Уильям КауфманАктеры: Клейн Кроуфорд, Макс Мартини, Никойе Бэнкс, Жюльен Джойнер, Лаки Джонсон, Джарен Митчелл, Эд Спила, Линдс Эдвардс, Тодд Дженкинс, Гари Кейрнс IIПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7F78B89C1AFC9D69D1A1775FA4B2E0F577207B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698415   (118483) от 09.02.2024
-
-River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118483.jpg" />
-</div>
-
-
-###  Подробнее
-
-River Town Factory – а что вы скажете на то, чтобы открыть фабрику, заняться переработкой нефти или же построить настоящий большой компьютера? И все это в условиях древнего времени? Ведь после того как на Ривер-Таун случайно упал метеорит, у вас появилась собственная мастерская. И отсюда начнется вершится история… Во-первых, займитесь созданием различных автоматизированных (   Читать дальше...   )Тип издания: RepackРазработчик: iFAction StudioЖанр: Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698589   (118484) от 09.02.2024
-
-Угон рейса 375 / O Sequestro do Voo 375 / The Hijacking of Flight 375 (2023) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время экономического кризиса в Бразилии в 1988 году вооруженный преступник угнал самолет, чтобы направить его в штаб-квартиру президента.Производство: Бразилия /     Star Original Productions, Escarlate Conteúdo AudiovisualЖанр: Боевик, драмаРежиссер: Маркус БальдиниАктеры: Данило Грангейя, Хорхе Пас, Роберта Гуальда, Сезар Мелло, Хулиана Алвес, Адриано Гариб, Клаудио Хаборанди, Габриэль Годой, Вагнер Сантистебан, Диего МонтесПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:33Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078A162C8651A938EF4813B4D3F89C58154EE127
 ```
 
 

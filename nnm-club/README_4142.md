@@ -1,3 +1,82 @@
+###  Публикация: 1541558   (127379) от 17.12.2023
+
+Мэри Нортон | Приключения маленьких человечков (Книга 2). Добывайки в поле (2019) [MP3, Иван Литвинов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказочные чудесные истории о маленьких человечках-добывайках, которые живут рядом с нами и потихоньку "одалживают" разные вещи.
+
+Юная Арриэтта нарушила правило — никаких контактов с людьми! — и вот семейство добываек Курантов ищет себе новый дом. А могут ли добывайки жить на открытом воздухе, например, в барсучьей норе или… в старом башмаке?Жанр: СказкиПеревод: Галина Островская, Ирина Ю. КрупичеваИздательство: ЭксмоПродолжительность: 05:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF06DDA1056DFE4E509032DEEF4577B82DF20B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684923   (127380) от 17.12.2023
+
+Владимир Ждамиров - А ты прости меня (2022) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты прости меня
+02. А я несу тебе цветы
+03. За прошлое прости
+04. В чужие края(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BACE8C8BA40A542C96EA72AAD483EC50BFD47C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541248   (127381) от 17.12.2023
+
+Элинор Портер | Поллианна (радиоспектакль) (2008) [MP3, Виктор Раков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти детективные повороты сюжета, психологическая точность, с которой автор создаёт образы, – всё это вот уже несколько поколений привлекает внимание к повести американской писательницы Элинор Портер «Поллианна».
+
+Что произойдёт, если соединить радостный оптимизм осиротевшей девочки Поллианны с жёсткой практичностью её респектабельной тетки? А произойдёт много неожиданного, (   Читать дальше...   )Жанр: Детская проза, Зарубежные детские книгиПродолжительность: 03:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8140C9E77193547556EC8699D347B9293345005C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684931   (127382) от 17.12.2023
 
 группа Эшелон - Закон (2002) [MP3|320 Kbps] <Шансон>
@@ -6,7 +85,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127382.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ magnet:?xt=urn:btih:A78F9D0FEA5EEDBF0A142D15154519389E621CF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127383.jpg" />
 </div>
 
 
@@ -57,7 +136,7 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127384.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ magnet:?xt=urn:btih:6D45B68665BD096ABF9B0D849858B537B59190B3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127385.jpg" />
 </div>
 
 
@@ -109,7 +188,7 @@ magnet:?xt=urn:btih:BF5F6FA1E92E10A9879FC5BC5F6E222C90416503
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127386.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127387.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127388.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ TV Girl - Who Really Cares (2016) Digital Album [FLAC|Lossless|WEB-DL|[tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127389.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ magnet:?xt=urn:btih:206DAC8842FB5E0410C689FE5E7922E590C1580A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127390.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127391.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ VA - Heavy Electric Guitar (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127392.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ magnet:?xt=urn:btih:6025930D7BDC49E1292CE413EBC7F03F649F825F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127393.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127394.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127395.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ magnet:?xt=urn:btih:E112A1EFCD9C857B1DA35F416B1C43263DFD5A57
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127396.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127397.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127398.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ magnet:?xt=urn:btih:4C5BFCC3384077AA232166BADF74D0FC07C433BF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127399.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ magnet:?xt=urn:btih:359866900CCCD7AFE6B14730F3F16C214A6DFE83
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127400.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127401.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127402.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127403.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ magnet:?xt=urn:btih:C3C5DB8CB0E31CF6D3F87370905F530CD1D6FB0F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127404.jpg" />
 </div>
 
 
@@ -593,82 +672,6 @@ magnet:?xt=urn:btih:C3C5DB8CB0E31CF6D3F87370905F530CD1D6FB0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E9F121E44014B3A500DF118F076476F2D567E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684873   (127405) от 17.12.2023
-
-Александр Гримм | Токийский полукровка (Книга 1). Разборки в средней Тосэн! (2023) [MP3, Сергей Васильев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127405.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВНИМАНИЕ: Автор не пропагандирует преступный образ жизни. Если после прочтения книги, вы, решите исполнить какую-нибудь незаконную фигню, то вы идиот, а я умываю руки.
-Знакомьтесь, это Антон. Бывший боец ММА. Почему бывший? – спросите вы. Всё просто, он неслабо облажался и теперь истекает кровью из распоротого грязной финкой брюха. Антон корчится от режущей боли (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Бояръ-анимеИздательство: ЛитРесПродолжительность: 08:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9390EC5AF67C2265D10ECCA83E720CA470A34077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527197   (127406) от 17.12.2023
-
-Пэм Муньос Райан | Эхо (2020) [MP3, Иван Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127406.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о любви, человечности, красоте и музыке, развернувшаяся на фоне Второй мировой войны и объединившая несколько поколений детей из разных уголков мира.
-
-Когда юный Отто заблудился в лесу, на выручку ему пришли три таинственные девушки. Они подарили мальчику музыкальный инструмент и пообещали, что придёт день, и он спасёт чью-то душу от неминуемой гибели.
-(   Читать дальше...   )Жанр: Книги для подростков, Современная зарубежная литератураПеревод: Майя Д. Лахути, Константин И. Мольков, Антонина А. ВасильеваИздательство: ЭксмоПродолжительность: 10:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5443484F81E842B05704646DF3548FA51A34DC34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560956   (127407) от 17.12.2023
-
-Антуан де Сент-Экзюпери | Le Petit Prince / Маленький принц (2006) [MP3, Clotilde Tonnerre]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127407.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Всегда этим взрослым нужно всё объяснять! Желательно в фактах и цифрах. И совершенно бесполезно говорить об удавах, о джунглях и о звёздах. Но однажды и в их жизни появится Маленький принц и скажет: «Пожалуйста… нарисуй мне барашка!» И тогда прощай всякое здравомыслие! Главного ведь глазами не увидишь, не пощупаешь, не измеришь. Главное можно почувствовать только (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиЯзык озвучки: французскийИздательство: АРДИСПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340BA74811399579F3AC115BB65A33CC3E4358B8
 ```
 
 

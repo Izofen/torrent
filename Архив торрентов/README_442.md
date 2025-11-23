@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98827.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:C87B086DB8B52037A0C9A96C4BE913EAA4B9DE8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98828.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:160C8E2D0E952347924C117A201DDD4276D62AA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98829.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1B2BB1F872C6BCB797EC4D43D2D75379367178B0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98830.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:8A71505547CA9F44585098DC852E4C1AFDC3539C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98831.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:2269D937A0EDC00B3E0465381B7D6B6D7126005F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98832.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:C3E5DB306863462EBBF8D43CE148E4D3346C0498
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98833.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:3A9EF35FFBC820EF2C5B6BE04EF72708681FD7F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98834.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:20E744BE7DAE44D89A57CCD2F110990E811C6A6A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98837.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:FA8A66FCA3E86454533A6F03D8D1A45027E18CF7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98838.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Omertah - Essence (Promo) (2012) [MP3|320 кб/с]<Atmospheric Math Metal / Post
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98839.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:82266B60C85E0C5045BA7E0703780E440FE01A1D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98841.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Soul of Ibiza Volume 28 (07.04.2012) [MP3|320 кб/с]<Uplifting Trance, Vo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98844.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:A73FEFFF1AEFFB57EEC0FAE023DAA4DA2660C2F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98845.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:98F78BEEDCCD64E5EC9CEFB6221339D4C6AE37B7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98846.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:99F877ECF353922C06D02E7FBB077D39D5ABBFCF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98849.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98850.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98855.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98856.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98858.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98862.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98862.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98863.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98866.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98872.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98875.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98878.jpg" />
 </div>
 
 

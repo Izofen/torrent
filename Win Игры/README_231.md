@@ -6,7 +6,7 @@ Christmas Stories 12: The Legend of Toymakers / Рождественские и�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Book Travelers 2: A Royal Story (2023) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126691.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack Decepticon [Lim
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126720.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126842.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126977.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127001.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127014.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127018.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TRAIL OUT (2022) [Ru/Multi] (2.9st/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127161.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127331.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127523.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127525.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (252136/dlc) Repack Decepticon [Col
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127527.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ LEGO 2K Drive (2023) [Multi] (12823980/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127535.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127729.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Viking Brothers 5 / Братья викинги 5 (2023) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127733.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127830.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127901.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127903.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127921.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128063.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Another World: 20th Anniversary Edition (2013) [Ru/Multi] (8516704) Repack dixen
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128185.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grim Tales 24: All Shades of Black / Страшные сказки 24: Все о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128303.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128313.jpg" />
 </div>
 
 

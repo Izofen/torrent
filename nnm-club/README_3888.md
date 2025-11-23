@@ -1,3 +1,84 @@
+###  Публикация: 1694658   (120770) от 26.01.2024
+
+The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora - Interlude (1:34)
+02. Queens (3:12)
+03. Send Me To The Wolves (3:10)
+04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694707   (120771) от 26.01.2024
+
+The Rods - Rattle The Cage (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now And Forever
+02. Wolves At The Door
+03. Cry Out Loud
+04. Rattle The Cage(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DED75AF05A5E52C2494BD979D028AAC877A342A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694680   (120772) от 26.01.2024
+
+Faith Circus - Bum In The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Dancer
+02. Bum In The Sun
+03. Larger Than Life
+04. Seven Mountain High(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C2A59C5B8BBE17742A7463AD6545F97DF38305
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694806   (120773) от 26.01.2024
 
 Tipard Screen Capture 1.1.26 [Multi/Rus]
@@ -6,7 +87,7 @@ Tipard Screen Capture 1.1.26 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120773.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Manticora - Mycelium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120774.jpg" />
 </div>
 
 
@@ -57,7 +138,7 @@ Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120775.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Fork 2.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120776.jpg" />
 </div>
 
 
@@ -108,7 +189,7 @@ Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120777.jpg" />
 </div>
 
 
@@ -135,7 +216,7 @@ uDock 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120778.jpg" />
 </div>
 
 
@@ -159,7 +240,7 @@ Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120779.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120780.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120781.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Text Workflow 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120782.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ Sojourner - Premonitions (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120783.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ magnet:?xt=urn:btih:D8582203F78CBD1B60FEED9C0B8333E0B795B14D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120784.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120785.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120786.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120787.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Manag
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120788.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120789.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ magnet:?xt=urn:btih:54D0534E28015C614BC670766F43CF7384BC0752
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120790.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ Cheetah3D for Mac 8.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120791.jpg" />
 </div>
 
 
@@ -496,7 +577,7 @@ magnet:?xt=urn:btih:B9007FFE1384DFE5452972E1009132FDC6A85885
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120792.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ The Gems (ex-Thundermother) - Phoenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120793.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Timo Gross - Black Dawg Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120794.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120795.jpg" />
 </div>
 
 
@@ -588,81 +669,6 @@ VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694733   (120796) от 26.01.2024
-
-Виктор Драгунский | Денискины рассказы. Надо иметь чувство юмора (сборник) (2008) [MP3, Владислав Галкин, Ольга Будина, Мария Голубкина, Татьяна Веселкина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, искрящихся глаз и звонкого детского смеха. Светлый, радостный и неповторимый мир, где нет места для скуки и уныния. В рассказах Виктора Драгунского - чудеса обыденной жизни, не замечаемые нами в каждодневной суете, и едва уловимое ощущение счастья при взгляде в наивные и такие мудрые (   Читать дальше...   )Жанр: приключения, детская прозаЯзык озвучки: русскийИздательство: ВимбоПродолжительность: 01:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FD3DB5BB61AD433E983893C580B84D3419C0EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694642   (120797) от 26.01.2024
-
-Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive [00:03:58]
-02. Stone Heart [00:04:42]
-03. Blame It on Me [00:03:33]
-04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694634   (120798) от 26.01.2024
-
-Борис  Кригер | Мишель Монтень. Субъективность опыта (2023) [MP3, Андрей Канаев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига посвящена творчеству выдающегося французского философа и писателя Мишеля Монтеня, чьи эссе олицетворяют собой особый тип литературного произведения. Книга стремится осветить, как формировался и развивался жанр эссе, а также какие аспекты мудрости и человеческого опыта нашли отражение в работах Монтеня. Книга погружает читателя в глубины субъективного опыта (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1084001D34B2665EC1B70069D93C73FB10BAC98
 ```
 
 

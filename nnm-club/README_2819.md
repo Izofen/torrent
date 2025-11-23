@@ -1,3 +1,77 @@
+###  Публикация: 466247   (81397) от 11.03.2012
+
+Машины востока. Золотая эпоха Ислама / Machines of the East (2007) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Исламская цивилизация прошлого, заложила огромный вклад в основу современного мира. Египтяне, греки и римляне были замечательными инженерами, учеными и изобретателями. Но исторические книги, не отражают удивительный период изобретений, когда Исламские ученные, величайшие умы древности произвели революцию в науке и в технологиях.
+Доп. информация: Наконец то Европейские ученные начинают изучать и признавать что без мусульманских ученных в период 8-16 века нынешний мир был бы ни таким продвинутым. Они признают что историю науки должны переписать занова, например они удивляются тому что торпеда как полагалось была изобретена в 19-том веке а оказалось мусульмани использовали её еще в 13-том веке.Жанр: ДокументальныйРежиссер: Stuart Clarke.Актеры: Ben Mole, Стюарт Кларк, Али МакГрэтПеревод: Одноголосый закадровыйПродолжительность: 00.45.08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465923   (81398) от 11.03.2012
+
+Беседа о сотворении мира. Иерей Даниил Сысоев (2010) DVD5
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беседа о творении мира, согласно Священному Писанию. Каждый день описывается подробно с раскрытием смысла слов и последовательности творения. Противопоставление откровения Бога и науки. В беседе приводятся аргументы и указания на сроки творения, на время существования всей вселенной. О месте, где сотворена вселенная. О двух видах вселенной. Почему именно вода сотворена была в первый день. О смысле образов и представлений и о значении времени. О гелео и геоцентрической теориях и аргументы к ним, согласно Библии. Как правильно христианам спорить с представителями науки. Об эволюции, существовании динозавров и сколько лет назад на самом деле это было. О правильном понимании гармонии животного и растительного миров. Беседа также сопровождается множеством душеполезных советов и задает хорошую базу для представления о Великой Тайне мироздания.Жанр: ДокументальныйПродолжительность: 04:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8AF520A6221C2EF8D463FF726028E7B7876957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466054   (81403) от 11.03.2012
+
+Ночевала тучка золотая (1989) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драма по одноимённой повести А. Приставкина.
+О трагической судьбе двух братьев-сирот, в 1944 вывезенных вместе с другими детдомовцами из подмосковного города на Кавказ, откуда было депортировано чеченское население.Жанр: ДрамаРежиссер: Суламбек МамиловАктеры: Андрей Башкиров, Володя Башкиров, Тамерлан Шатаев, Наталья Мерц, Иван Бортник, Вячеслав Баранов, Виллор Кузнецов, Павел Гайдученко, Андрей Гусев, Анатолий Иванов, Николай Погодин, Светлана Светличная, Ольга Семенова, Валентина ТитоваПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E851FD00A12ED5AEEDB91D73808E3AC2D582340E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466360   (81406) от 11.03.2012
 
 Журнал | Playboy [Argentina] №2 (2012) [PDF]
@@ -6,7 +80,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81406.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:8CB933FB33CA6CDC1CBA71F2FBBBF3E18C589DB8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81408.jpg" />
 </div>
 
 
@@ -56,7 +130,7 @@ magnet:?xt=urn:btih:B64D91C9A3CCF38F49C96DE2FF7AC0E5813E9637
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81411.jpg" />
 </div>
 
 
@@ -80,7 +154,7 @@ magnet:?xt=urn:btih:3F9FD6012E882CB21E487A5718015829F3030BFF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81413.jpg" />
 </div>
 
 
@@ -113,7 +187,7 @@ Save2pc Ultimate 5.11 Build 1377 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81418.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ save2pc - программа для загрузки и конвертирова
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81420.jpg" />
 </div>
 
 
@@ -161,7 +235,7 @@ save2pc - программа для загрузки и конвертирова
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81421.jpg" />
 </div>
 
 
@@ -187,7 +261,7 @@ magnet:?xt=urn:btih:D85C88CF8E99EA853D5F672874BF64F148CE2CA5
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81425.jpg" />
 </div>
 
 
@@ -220,7 +294,7 @@ magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81427.jpg" />
 </div>
 
 
@@ -246,7 +320,7 @@ magnet:?xt=urn:btih:04FAD1D2DA5994539C23F1A0C0473C0928F57FB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81428.jpg" />
 </div>
 
 
@@ -270,7 +344,7 @@ magnet:?xt=urn:btih:04FAD1D2DA5994539C23F1A0C0473C0928F57FB0
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81430.jpg" />
 </div>
 
 
@@ -294,7 +368,7 @@ magnet:?xt=urn:btih:04FAD1D2DA5994539C23F1A0C0473C0928F57FB0
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81431.jpg" />
 </div>
 
 
@@ -319,7 +393,7 @@ magnet:?xt=urn:btih:04FAD1D2DA5994539C23F1A0C0473C0928F57FB0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81432.jpg" />
 </div>
 
 
@@ -343,7 +417,7 @@ magnet:?xt=urn:btih:65EE6166D6452B4A41CB89327CBEE428151D1E8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81433.jpg" />
 </div>
 
 
@@ -367,7 +441,7 @@ magnet:?xt=urn:btih:65EE6166D6452B4A41CB89327CBEE428151D1E8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81436.jpg" />
 </div>
 
 
@@ -391,7 +465,7 @@ magnet:?xt=urn:btih:3B39A7496A4ADA039A489A97F9925DF83A60A90E
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81437.jpg" />
 </div>
 
 
@@ -417,7 +491,7 @@ magnet:?xt=urn:btih:C6BB2739B14BA1B10AD4D66FC8B4156E82F33E72
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81439.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ The Second Guest [Ge] (P) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81440.jpg" />
 </div>
 
 
@@ -465,7 +539,7 @@ magnet:?xt=urn:btih:E106DD9D2BE02220783684F6FB8A40D635D4D1AB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81441.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ magnet:?xt=urn:btih:CAA83515D18A3402F9FADD4033D5D338F1D9CA3E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81443.jpg" />
 </div>
 
 
@@ -517,7 +591,7 @@ magnet:?xt=urn:btih:D0553FF5B0FA831892C8D530B25A1F90C4EB19BE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81445.jpg" />
 </div>
 
 
@@ -542,7 +616,7 @@ magnet:?xt=urn:btih:D0553FF5B0FA831892C8D530B25A1F90C4EB19BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81446.jpg" />
 </div>
 
 
@@ -566,7 +640,7 @@ magnet:?xt=urn:btih:30342278639455C8BE1C7EB5E681E13CBFB6358B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81447.jpg" />
 </div>
 
 
@@ -578,95 +652,6 @@ magnet:?xt=urn:btih:30342278639455C8BE1C7EB5E681E13CBFB6358B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B33269CA413C0E04E5C882C073D8C578AF507A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466050   (81448) от 11.03.2012
-
-Маньчжурский вариант (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий фильм трилогии о разведчике Чадьярове, начатой лентами "Конец атамана" и "Транссибирский экспресс". Конец Второй мировой войны… На дальнем Востоке в Манчжурии готова к решающему сражению фанатично преданная императору японская армия. Следуя кодексу чести самураев, солдаты скорее готовы сделать себе харакири, нежели попасть живыми в руки (   Читать дальше...   )Производство: "Казахфильм" им. Шакена Айманова, ТО "МИРАС"Жанр: ВоенныйРежиссер: Игорь Вовнянко, Цой Гук ИнАктеры: Асанали Ашимов, Татьяна Цой, Едгор Сагдиев, Владимир Дин, Ергали Уразимбетов, Эдуард Пак, Олег Ли, Александр Мун, Николай Ким, Советбек Джумадылов, Болот Бейшеналиев, Юрий Туютянь, Исхар Хишанло, Геннадий Люй, Есболган ОтеулиновПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82102C5E17D7AECA5C0F04654068755FF176E530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466103   (81450) от 11.03.2012
-
-Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/с]<Eurodance, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry, Baby (Long Version)
-02. No Ordinary Love (Eurodisco Promo Mix)
-03. Soldier (Extra Dance Beat Version)
-04. Stay With Me (Eurodisco Long Version)
-05. One Thing (Extra Dance Beat Version)
-06. Can`t Give You Anything (Slow Down Eurodisco Mix)
-07. Gigolo (Moscow Fm Mix)
-08. The Sweet Hello The Sad Goodbye (Extra Dance Beat Version)
-09. Stay With Me (Air Piano Instrumental)2012Жанр: EurodanceПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466309   (81452) от 11.03.2012
-
-VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Л.Керубини, Introitus et Kyrie.mp3 - 7,14
-02 Л.Керубини, Dies Irae.mp3 - 10,26
-03 Г.Берлиоз, Agnus Dei.mp3 - 11,38
-04 Дж. Верди, Requiem aeternam.mp3 - 5,12
-05 Дж. Верди, Dies Irae.mp3 - 2,04
-06 Г. Форе, Agnus Dei.mp3 - 7,03
-07 Г. Форе, In Paradisum.mp3 - 3,55
-08 А. Моцарт, Lacrimosa.mp3 - 3,36
-09 А. Моцарт, Hostias.mp3 - 5,00
-10 А. Моцарт, Agnus Dei.mp3 - 10,542005Жанр: Классическая музыкаПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F911E1ABFF38DC59A08092B2C256D1984EF895
 ```
 
 

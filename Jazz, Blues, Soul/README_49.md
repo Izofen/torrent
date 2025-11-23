@@ -6,7 +6,7 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93524.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93531.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93550.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93555.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93559.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93578.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Corby Yates - Back From Yesterday (2005) [APE|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93601.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93707.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93708.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93712.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93714.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93751.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93754.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93763.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93853.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93995.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_93995.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94076.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94076.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94092.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94092.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94094.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94094.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94101.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Karin Krog - Raindrops, Raindrops (2002) [FLAC|Lossless]<Contemporary Female Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94125.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94125.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94176.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94183.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94354.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94354.jpg" />
 </div>
 
 
@@ -790,7 +790,7 @@ Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94367.jpg" />
 </div>
 
 
@@ -820,7 +820,7 @@ Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94731.jpg" />
 </div>
 
 

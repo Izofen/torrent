@@ -1,3 +1,75 @@
+###  Публикация: 1345812   (165812) от 16.12.2019
+
+FontLab 7 7.0.1 (build 7276) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165812.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab 7, это новая программа, для профессионалов, предназначенная для создания уникальных шрифтов. Программа для создания шрифтов позволяет создавать высококачественные шрифты и используется большинством дизайнеров, типографами, графическими студиями, чья работа профессионально связана с шрифтами, т.к. позволяет им полностью создавать или редактировать собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.10.5 YosemiteЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597585   (165821) от 15.12.2022
+
+Macrorit Partition Extender 2.1.0 Unlimited Edition RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Extender - утилита, доступная также в портативной версии, позволяет быстро расширять и объединять разделы жестких дисков HDD и SSD. Macrorit Partition Extender  позволяет быстро расширить раздел со свободным пространством из соседнего раздела, и автоматически объединить нераспределенное пространство в один раздел, если оно доступно на диске. Кроме (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516588   (165826) от 11.12.2021
+
+Textify 1.8.10 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textify — это крошечная утилита, позволяющая скопировать практически любой некопируемый обычными средствами текст диалоговых окон, меню, панелей инструментов и так далее. Пользователю достаточно воспользоваться горячими клавишами и кликнуть в нужную область экрана, а затем скопировать текст из открывшегося окна.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431773   (165835) от 15.12.2020
 
 Довод / Tenet (2020) BDRip [H.264/720p] [IMAX Edition] [PR]
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165835.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ K-Lite Codec Pack Update 17.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165836.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165839.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ OBS Studio 26.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165843.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165844.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165854.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Bootstrap Studio 5.5.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165855.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm &
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165857.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Macrorit Disk Scanner 6.0.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165858.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ Tap Forms Organizer 5 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165860.jpg" />
 </div>
 
 
@@ -255,7 +327,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165865.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ EarthView 7.5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165869.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ BELOFF [dp] 2021.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165870.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165871.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ Magnétophone - I Guess Sometimes I Need To Be Reminded Of How Much You Love Me 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165875.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165881.jpg" />
 </div>
 
 
@@ -405,7 +477,7 @@ FileMenu Tools 7.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165883.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ Smultron 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165890.jpg" />
 </div>
 
 
@@ -456,7 +528,7 @@ Advanced SystemCare Pro 17.0.1.108 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165892.jpg" />
 </div>
 
 
@@ -480,7 +552,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165894.jpg" />
 </div>
 
 
@@ -504,7 +576,7 @@ Samsung SSD Magician Tool 8.0.0.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165897.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ Brother Ali - Secrets & Escapes (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165898.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165899.jpg" />
 </div>
 
 
@@ -566,81 +638,6 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEDC09B3CC0BFF352C08C7DB31E1EB3EF00E37EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345746   (165909) от 16.12.2019
-
-Scrutiny 9 v9.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528328EB5DF5B199D26AFEADCA2F19C4B2E74623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345774   (165913) от 16.12.2019
-
-CheckBook Pro 2.6.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165913.jpg" />
-</div>
-
-
-###  Подробнее
-
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Splasm Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F213B02F89208D6F783081D3F756795701DAC6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345750   (165916) от 16.12.2019
-
-Xliff Editor 2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff!
-
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2019Разработчик: SweetP ProductionsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39553922D8EB134818FA9941AE35B5290C2D33BA
 ```
 
 

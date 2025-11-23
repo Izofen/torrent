@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28064.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28064.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B9A6C28AE17915FF8D4F312398C468DCFFD2F9DC
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28065.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skype 8.136.0.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28066.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7AA3319F1CC5492BE427C4690A521A7C5CB11079
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28067.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 06.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28068.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:ADEA5FB59B961EF00BB2C11F17A0AE0B37D3D3E8
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28069.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Jet Kave Adventure (2021) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28070.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ StartAllBack 3.9.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28071.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28071.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28072.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 8603627/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28073.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28073.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:BCA1A66F082AB588CCA1DC8B257D7B03B7E15346
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28074.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E0B5CB636915BD9BB426F1F08528B640973AA861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28075.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:E0B5CB636915BD9BB426F1F08528B640973AA861
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28076.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.0 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28077.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28077.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C1242E79BB10C8E8BC523F110AC9753C655585A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28078.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28078.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Food.ru: пошаговые рецепты v01.40.00 Mod by vadj [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28079.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:309849FE7E43A3565AC980ABF65427625F36B6E0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28080.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28080.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Lacey 3.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28081.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:601910DC2CD1DB00C860454E06229C38CC836EF6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28082.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28082.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:59C8BC7B824A01F198053FA036BB96E64E1A9E99
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28083.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28083.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CC8B5E331B6FD89C918142C0B63640E49F6C45E2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28084.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:97F7C4BA1551D77C7A07BCD431E861BBDBF59361
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28085.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:4F4643818C211E666378701BF9A083A7F1C42EFB
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28086.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FF46A51A829211828172CB91641543AA658B3EFD
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28087.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:0E56E954BF5F2C4F7DA2E6205BC2A2D625A39183
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28088.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stars In The Trash (2024) [Ru/Multi] (1.04 Build 20250209) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_28089.jpg" />
 </div>
 
 

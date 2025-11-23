@@ -6,7 +6,7 @@ Hex Editor Neo Ultimate 7.45.00.8708 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54185.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, BMG [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54186.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Gigapixel AI 7.2.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54187.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54188.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Black Sabbath - Anno Domini (1989-1995) Box Set, Reissue, Remastered, 2024, BMG 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54189.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Topaz Video AI 5.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54190.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Folder2ISO 1.1 [Multi]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54191.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:FFDDF13453D9508A1AEC508D1A30081F6C548EDF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54192.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BC41162A687247D0C0BE97669927E5EA94CAD291
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54193.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Planet VPN 2.8.26.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54194.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54195.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:65062100257BA8B3AEC486981688626E5C5E53BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54196.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:C41C01BB6E8A4825A95612CC9AE325BB201D83F0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54197.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0E1036660B9AD2200BFB9D9874F2F5E2FD5C8187
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54198.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C38B56A791BAB1187A336A288DEB7FD0D35A7BDE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54199.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A277B81D1849E9F6615DB4A0C19496AAF671A227
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54200.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ IObit Driver Booster Pro 11.5.0.83 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54201.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DefenderUI Pro 1.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54202.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:4FDC4410240DA0F3FD41B60AE0D8B03D1AC58A04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54203.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:8EEDFEC3855A2EF975BA3E363B8DCD5BCDD12D85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54204.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:CD83B77D6EB5C5B6FEDD8E7C44708D292D635951
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54205.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54206.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:2D827850BA4705F9D7DC3268E988641537F79B72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54207.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54208.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:E17618169AC52E242E958666F0282AD14E24914F
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54209.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Visual Studio Code 1.90.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54210.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.404.43827/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19404.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tempest Rising (2025) [Ru/Multi] (1.1.1+43856/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20040.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.5/dlc) Repack Let'sРlay [Centurion Bundl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20322.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.4.13/dlc) License GOG [Deluxe Edition] (�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20342.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20955.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20955.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TFC: The Fertile Crescent (2024) [En] (1.2001) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20986.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack seleZen [Anniversa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21558.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21558.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19/dlc) Repack FitGirl [Green Planet Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21977.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19.0.6676/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22019.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ War for the Overworld (2015) [Ru/Multi] (2.1.3/dlc) License GOG [Underlord Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22441.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22768.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23024.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23493.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24447.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Warcraft I + II: Remastered (2024) [Ru/Multi] (1.0.0.2198/1.0.1.2242) Repack Dec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25366.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25366.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25508.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25508.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack FitGirl [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25603.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack seleZen [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25608.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25656.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0.ca3e/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25691.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25976.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ StarCraft: Remastered (2017) [Ru] (1.23.9.10756) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26127.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26127.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warcraft 3: The Reign of Chaos (2003) [Ru] (1.26a/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26212.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26212.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26737.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Songs of Silence (2024) [Ru/Multi] (1.2.0-d.8104) Repack FitGirl [Deluxe Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26933.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27065.jpg" />
 </div>
 
 

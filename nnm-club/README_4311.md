@@ -1,3 +1,76 @@
+###  Публикация: 1681518   (132677) от 03.12.2023
+
+Корсика. Сокровища острова / Corsica. The Treasures of An Island (2018) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корсика четвёртый по величине остров в Средиземном море. Это один из 18 регионов Франции, тем не менее Корсика имеет особый статус - Территориальная общность Корсика. Более известен уютными прибрежными городами с их неповторимым обликом, густыми лесами и скалистыми вершинами, самой высокой из которых является Монте-Чинто. Почти половину острова занимает парк, где (   Читать дальше...   )Производство: EU, TENЖанр: документальный, история, путешествияРежиссер: Бернар ГуэрриниПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681461   (132679) от 03.12.2023
+
+Журнал | Photoshop User №11 (ноябрь 2023) [PDF][En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132679.jpg" />
+</div>
+
+
+###  Подробнее
+
+NAPP - торговая ассоциация и ведущий ресурс для фотографов выпускает свой журнал Photoshop User, который по праву считается одним из лучших источников знаний для изучения Adobe Photoshop и Photoshop Lightroom через тренинги, новости и образовательные материалы. Команда экспертов, состоящая в том числе из авторов статей, консультантов, тренеров и прочих известных (   Читать дальше...   )Жанр: Photoshop, LightroomЯзык: АнглийскийИздательство: Kelby Media Group (NAPP)Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAB5AFD281EFF8B766908D35AE8F997513C8596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681650   (132681) от 03.12.2023
+
+Былины русского народа (2006) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Былины – это русские народные эпические сказания о подвигах богатырей. Основой сюжета былины является какое-либо доблестное событие, или примечательный эпизод русской истории. Как и в сказке, в былине добро противопоставляется злу, и зло должно быть обязательно уничтожено. Только вот в отличие от героев сказок былинные богатыри не (   Читать дальше...   )Жанр: Русская литература, народные русские былиныИздательство: Студия «АРДИС»Продолжительность: 07:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113CB9EABE7729E1F3E8E41E021BF0006D6FCD37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595662   (132682) от 28.12.2012
 
 Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
@@ -6,7 +79,7 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132682.jpg" />
 </div>
 
 
@@ -39,7 +112,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132683.jpg" />
 </div>
 
 
@@ -66,7 +139,7 @@ magnet:?xt=urn:btih:6C4E9A111BEC6BF94D95EC286844620A45437C54
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132684.jpg" />
 </div>
 
 
@@ -91,7 +164,7 @@ magnet:?xt=urn:btih:2FF56229C027FEA6EAA29B4FF5CD2C85D356BFCC
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132685.jpg" />
 </div>
 
 
@@ -115,7 +188,7 @@ magnet:?xt=urn:btih:B45595B101718DA5398A889D0776A509438278A3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132687.jpg" />
 </div>
 
 
@@ -139,7 +212,7 @@ magnet:?xt=urn:btih:F1EE2B16E6975707472767A1022971D61D319F92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132689.jpg" />
 </div>
 
 
@@ -163,7 +236,7 @@ Listen Audiobook Player v5.2.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132691.jpg" />
 </div>
 
 
@@ -187,7 +260,7 @@ magnet:?xt=urn:btih:F10D9B9DDD0DCBD07384CBD9202A13AADC44426D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132693.jpg" />
 </div>
 
 
@@ -211,7 +284,7 @@ VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132695.jpg" />
 </div>
 
 
@@ -244,7 +317,7 @@ magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132696.jpg" />
 </div>
 
 
@@ -268,7 +341,7 @@ magnet:?xt=urn:btih:4D6090B3206023E2CBBD9D77C6CBAFFBDC6C4A65
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132698.jpg" />
 </div>
 
 
@@ -292,7 +365,7 @@ VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132699.jpg" />
 </div>
 
 
@@ -325,7 +398,7 @@ Photo Studio PRO v2.7.1.2163 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132700.jpg" />
 </div>
 
 
@@ -349,7 +422,7 @@ magnet:?xt=urn:btih:C14ED50EF78D7DF73D42CBE87061239099F52451
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132701.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ Norah Jones - Little Broken Hearts (2012) 2023, 2CD Japan Deluxe Edition, SHM-CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132702.jpg" />
 </div>
 
 
@@ -400,7 +473,7 @@ Sandboxie plus 1.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132703.jpg" />
 </div>
 
 
@@ -424,7 +497,7 @@ PictureThis - Plant Identification v3.71 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132704.jpg" />
 </div>
 
 
@@ -448,7 +521,7 @@ magnet:?xt=urn:btih:7BC68C491EDFAFCF9EAB007BE2D5EE84CB169BC1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132705.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:E5AF8F1B911085DDFCFB6833D3044C6049A41615
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132706.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132707.jpg" />
 </div>
 
 
@@ -524,7 +597,7 @@ Suffocation - Hymns From The Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132709.jpg" />
 </div>
 
 
@@ -551,7 +624,7 @@ magnet:?xt=urn:btih:514F6FAB10A2F06E95BEB81CDB17D62A7A89374B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132710.jpg" />
 </div>
 
 
@@ -575,7 +648,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132711.jpg" />
 </div>
 
 
@@ -589,90 +662,6 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAAF05932C9D0382C08BC51A3455CC77077316E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680882   (132713) от 03.12.2023
-
-Orphaned Land - A Heaven You May Create (2021) Live @ Heichal HaTarbut, Tel Aviv, 2023, Century Media[MP3|320 Kbps] <Doom-Death Metal, Middle Eastern Folk, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mabool (The Flood) (7:15)
-02. The Storm Still Rages Inside (9:05)
-03. Like Orpheus (4:38)
-04. The Kiss of Babylon (6:18)(   Читать дальше...   )Жанр: Doom-Death Metal, Middle Eastern Folk, Progressive MetalПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D927F3F1D708DACA5075AA4BE60D1254745861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681543   (132715) от 03.12.2023
-
-Sandboxie 5.67.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1917434D0AEAC5972C0BDB28657DC24F908719AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595276   (132716) от 28.12.2012
-
-VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 AD Men's - Жара (extended mix)
-02 Aerofeel5 - Disco In The Hell (original mix)
-03 Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev remix)
-04 Chris Decay & Re-lay - Love Junkie (Original Summer Mix Edit)
-05 Sound Hackers feat. Чи-Ли - Я Буду Помнить (Club Radio Version)
-06 LTN - Never Let Me Go (Beat Service remix)
-07 MMDance feat. Dj Smash - Суббота
-08 Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
-09 Горячий шоколад - Стены (Andry Makarov Club remix)
-10 Kash Trivedi - Darkness (LinBit remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
 ```
 
 

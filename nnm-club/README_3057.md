@@ -1,3 +1,86 @@
+###  Публикация: 468994   (96864) от 17.03.2012
+
+[Wallpapers] Nature Pictures №21
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96864.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №21
+Название: Nature Pictures №21
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469470   (96865) от 17.03.2012
+
+[Wallpapers] Nature Pictures №25
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96865.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469529   (96866) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 85
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96866.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 85
+Название: Desktop Wallpapers Pack 85
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2700х1800
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469195   (96867) от 17.03.2012
 
 [Wallpapers] Desktop Wallpapers Pack 72
@@ -6,7 +89,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96867.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96869.jpg" />
 </div>
 
 
@@ -62,7 +145,7 @@ magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96870.jpg" />
 </div>
 
 
@@ -90,7 +173,7 @@ magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96871.jpg" />
 </div>
 
 
@@ -118,7 +201,7 @@ VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96872.jpg" />
 </div>
 
 
@@ -151,7 +234,7 @@ magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96874.jpg" />
 </div>
 
 
@@ -179,7 +262,7 @@ magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96875.jpg" />
 </div>
 
 
@@ -207,7 +290,7 @@ magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96876.jpg" />
 </div>
 
 
@@ -235,7 +318,7 @@ magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96877.jpg" />
 </div>
 
 
@@ -263,7 +346,7 @@ magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96878.jpg" />
 </div>
 
 
@@ -291,7 +374,7 @@ VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96879.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96880.jpg" />
 </div>
 
 
@@ -352,7 +435,7 @@ Mozilla Thunderbird 12.0 Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96882.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96882.jpg" />
 </div>
 
 
@@ -376,7 +459,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96883.jpg" />
 </div>
 
 
@@ -404,7 +487,7 @@ magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96885.jpg" />
 </div>
 
 
@@ -432,7 +515,7 @@ magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96886.jpg" />
 </div>
 
 
@@ -460,7 +543,7 @@ magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96888.jpg" />
 </div>
 
 
@@ -488,7 +571,7 @@ VA - Супер Микс Продвинутых Хитов (2012) [MP3|256 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96889.jpg" />
 </div>
 
 
@@ -521,7 +604,7 @@ Gorod - A Perfect Absolution (2012) [MP3|320 кб/с]<Death Metal,Technical Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96890.jpg" />
 </div>
 
 
@@ -552,7 +635,7 @@ VA - TMP: Clear Sky 062 (2012) [MP3|320kbps]<Vocal Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96891.jpg" />
 </div>
 
 
@@ -585,7 +668,7 @@ VA - Maxximum Trance Tunes, Vol. 8 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96893.jpg" />
 </div>
 
 
@@ -618,7 +701,7 @@ magnet:?xt=urn:btih:E2FCD718EC789B89D470733660958B88A19776AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96894.jpg" />
 </div>
 
 
@@ -646,7 +729,7 @@ magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96895.jpg" />
 </div>
 
 
@@ -657,90 +740,6 @@ magnet:?xt=urn:btih:E0AA959E40005E88697F9EAE0CFDE97EBD354B5B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD333769938A5FDBC152599EE7183DCBB641615A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468921   (96896) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 16
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96896.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 16 
-Название:  Desktop Wallpapers Pack 16 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3036149AE723E0D5496505A7DC6CB8EE302CE46A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468925   (96899) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96899.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 17 
-Название:  Desktop Wallpapers Pack 18 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468488   (96900) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96900.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 11 
-Название:  Desktop Wallpapers Pack 11 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
 ```
 
 

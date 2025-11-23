@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Caramba Switcher Corporate 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pure Rock Crawling (2018) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38965.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ qBittorrent 5.0.1 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ qBittorrent 5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38967.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Devilated (2021) [Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38968.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Otto Kintet - Wildernis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38969.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38970.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Iron Wyrm - Necromancer’s Grimoire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38971.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Orrin Evans - Walk a Mile in My Shoe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38972.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Sonny Red - Sonny Red (1971) 2017, Mainstream Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38973.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Omer Leshem - Play Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38974.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:2B237948C80647CD90B8A932277E918CD7EBB302
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38975.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:232C1DF4CA9A98F9FD8F2842D31B771A575D0BC1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38976.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Light Image Resizer 7.0.9.54[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38977.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:60BBBA7481BA154C9D17A8880CD132174653DE0B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38978.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:C4B9464FD997DEB985B6D7F130E2050FA0582ED8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38979.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3 x CD [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38980.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38981.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Pornotek - Murmures à l'Oreille (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38982.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:E0787F823FA38BEEE44CFCD93D7099709A1703F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38983.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ XYplorer 26.50.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38984.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:352D71BEFDD2D603B698C9F273F1160F22A69788
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38985.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:7DD590BC1FFCF86972C9D211D0BBD01BDA4C24A5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38986.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Rossera Brothers Band - Out Of The Blue (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38987.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Black Moon June - The Witch Hammer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38988.jpg" />
 </div>
 
 

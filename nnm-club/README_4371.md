@@ -1,3 +1,75 @@
+###  Публикация: 1680022   (134726) от 27.11.2023
+
+Вор (1997) HDTV [1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134726.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1952 году шестилетний Саня и его мать Катерина едут в поезде. Их случайный попутчик, офицер Анатолий очаровывает и Катю и Саню. Катя и Анатолий решают жить вместе. Сильный и добродушный Толян почти заменяет безотцовщине Сане отца. Он учит мальчика стоять за себя, вести себя по-мужски - так, как сам понимает мужественность и в соответствии с теми правилами, по которым (   Читать дальше...   )Производство: Россия, Франция / "НТВ-ПРОФИТ", "Продюксьон Ле Пон", "Руассифильм"Жанр: драма, криминалРежиссер: Павел ЧухрайАктеры: Владимир Машков, Екатерина Редникова, Михаил Филипчук, Амалия Мордвинова, Лидия Савченко, Анна Штукатурова, Ольга Пашкова, Юрий Беляев, Анатолий Кощеев, Людмила СелянскаяСубтитры: русскиеПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325C54A2CE88819C2ACEE365C76067BEBD674C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679913   (134727) от 27.11.2023
+
+Зло: Проклятая комната / Великолепный / Glorious (2022) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134727.jpg" />
+</div>
+
+
+###  Подробнее
+
+После разрыва с любимой Вес со всеми своими нехитрыми пожитками отправляется в путь. В дороге он останавливается в специальном месте для отдыха, с горя напивается, а на следующий день в туалете сталкивается с неведомым. Голос из соседней кабинки представляется божеством и велит парню совершить непотребства с дырой в перегородке, иначе он разрушит весь мир.Производство: США, AMP International, FallBack Plan Productions, Eyevox EntertainmentЖанр: ужасы, комедияРежиссер: Ребека МакКендриАктеры: Райан Квантен, Дж.К. Симмонс, Сильвия Грэйс Крим, Андре Ламар, Торди Кларк, Sarah Clark, Katie BacqueПеревод: Дублированный (Pride Production)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F7628BBDA0CACF2A4FA8222713E49DF72DB777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680033   (134728) от 27.11.2023
+
+Проклятье слепых мертвецов / Curse of the Blind Dead (2020) BDRip [H.265/1080p-LQ] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XIII веке инквизиция ловит отряд рыцарей Тамплиеров прямо во время сатанинского ритуала и ослепляет их, а затем подвергает казни через сожжение. Однако, перед смертью рыцари дают клятву вернуться из своих могил, чтобы отомстить обидчикам и всему человечеству. Спустя много веков, в мире после ядерной войны, мужчина и его дочь, пытаясь спастись от мародёров, находят (   Читать дальше...   )Производство: Италия / Mafarka FilmЖанр: ужасыРежиссер: Раффаэль ПиккиоАктеры: Айк Стилстра, Элис Занини, Франческа Пеллегрини, Билл Хатченс, Фабио Тести, Дэвид Уайт, Дженнифер Мишати, Дуглас Дин, Микки Рэй МартинПеревод: Профессиональный многоголосый (OKKO)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4681216251E06984E3CB44E0D8B6707AEFD96C4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679971   (134729) от 27.11.2023
 
 Под настилом / Under the Boardwalk (2023) WEB-DL [H.265/2160p] [HDR10, 10-bit] [MVO]
@@ -6,7 +78,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134729.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ SoftMaker Office Professional 2024 rev. S1206.1118 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134730.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:70D57175A8B75D980B607FF6F1708F48B7666441
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134731.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:B6157F660C2AE5F0F24167C53080AFA4FB8C9FF2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134732.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Scribus 1.4.2 SVN build 121217 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134733.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134733.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Scribus – бесплатная издательская программа с 
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134734.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134734.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Scribus – бесплатная издательская программа с 
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134736.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:E385A4D949F9209B0ED210C3F7107049E2AA805F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134738.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:E77FA194D31617E28E184B0134DEFB861E885D8E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134739.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:8D19E0EB8B94A6A17934AA22E06BF843F2EDA664
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134740.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134740.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ Tanks Wallpaper (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134741.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134743.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:DF2B5B69AEFC653CBEE311F6BAB9692B2CEAE357
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134744.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ magnet:?xt=urn:btih:11FBC88122D4516545511EC202AF6D83C05356C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134745.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:E0A42050F43C3696C2FA2A9E9D01C5A4C7FD5BFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134747.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:87F042CBA8F19074710F60B724126A6E4C50ABCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134749.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:D70D9C0C77734AF55EA273707EC529146A5D51A9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134751.jpg" />
 </div>
 
 
@@ -416,7 +488,7 @@ magnet:?xt=urn:btih:94929A0D7E57E04CABFD5467979A8777B72BE6DF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134752.jpg" />
 </div>
 
 
@@ -440,7 +512,7 @@ CrystalDiskInfo 9.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134753.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:207A3B04C8A840B1814DCEB4AF4858ABAD3BB58A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134755.jpg" />
 </div>
 
 
@@ -488,7 +560,7 @@ Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134756.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Internet Download Manager 6.42 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134757.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:91A3EFB9B03408646A074A5D5905A7B4BE9F45F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134759.jpg" />
 </div>
 
 
@@ -556,96 +628,6 @@ magnet:?xt=urn:btih:91A3EFB9B03408646A074A5D5905A7B4BE9F45F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0571EDF4308DFBA1CEE68E989C09001FD6011659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592710   (134760) от 24.12.2012
-
-VA - So Fresh: Songs For Christmas 2012 (2 CD) (2012) [MP3|320 кб/с]<Holiday, Pop, Blues, Jazz, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham! - Last Christmas (4:28)
-02. Band Aid - Do They Know It's Christmas (3:49)
-03. Maroon 5 - Happy Xmas (War Is Over) (3:29)
-04. Human Nature - Away In A Manger (2:02)
-05. Michael Bolton - Joy To The World (4:06)
-06. George Michael - December Song (I Dreamed Of Christmas) (3:35)
-07. Diana Krall - Jingle Bells (2:13)
-08. Hillsong - Born Is The King (3:21)
-09. Marvin Gaye - I Want To Come Home For Christmas (3:28)
-10. The Jackson 5 - Up On The Housetop (3:14)(   Читать дальше...   )Жанр: Holiday, Pop, Blues, Jazz, RockПродолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5208771003BD6F1446E5BD2FDAC4AB689208D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680083   (134761) от 27.11.2023
-
-Зеркало для оборотня (2022) HDTVRip [H.264] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера выходит замуж, как ей кажется, за «прекрасного принца» Дениса. Девушка даже не подозревает, что Денис – хитрый и двуличный человек, оборотень, не останавливающийся ни перед чем ради достижения своих корыстных целей. Став жертвой его циничных и жестоких манипуляций, отсидев в колонии по ложному обвинению в убийстве и фактически лишившись родительских прав, Вера (   Читать дальше...   )Производство: Россия | «Феникс-Фильм»Жанр: Остросюжетная мелодрамаРежиссер: Игорь МужжухинАктеры: Юлия Франц, Станислав Бондаренко, Прохор Дубравин, Иван Батарев, Юлия Юрченко, Ксения Энтелис, Андрей Харыбин, Анастасия Теплинская, Полина Давыдова, Денис МотковПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DF02F464A62A742B6C6725C5B8DD74F0021CB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593592   (134762) от 24.12.2012
-
-James Newton Howard - Blood Diamond / Кровавый Алмаз (2006) [MP3|128 кб/с]<Instrumental> <OST>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blood Diamond Titles
-02 - Crossing The Bridge
-03 - Village Attack
-04 - R.U.F. Kidnaps Dia
-05 - Archer & Solomon Hike
-06 - Maddy & Archer
-07 - Solomon Finds Family
-08 - Fall Of Freetown
-09 - Did You Bury It?
-10 - Archer Sells Diamond(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929F27E0604721EFDDF5F2CC34069608329AC024
 ```
 
 

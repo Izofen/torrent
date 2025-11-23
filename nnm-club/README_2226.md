@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58241.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58242.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ShareX 16.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58243.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Topaz Photo AI 3.0.1 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58244.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E3929379B449C11EF36DA29ECA777484A96BA108
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58245.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:46D0F2DE04E6EC10B7D92561549DAEBF6AE56FFE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F164A0CE2CEFC3356B13A8517C6AFD1EC0A885BF
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58247.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Fast Video Cutter Joiner 4.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58248.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:81B13E6AAC80476C9007CD165B015218653015A6
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58249.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B3BE30026942F565CEC7129D73DBD370F1195681
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58250.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:89977737ACB6EB371FC1EFDFF3384ECF8B132055
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58251.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58252.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Native Instruments - Kontakt 7.10.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58253.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58254.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:72908385EEE62906846A45DD6235022EAE422C49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58255.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58256.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D0983287831D84BD35DF476BB4FB7F4A152415CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58257.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:F276C78D05C5B9A85561508AD92653D790EE3D25
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58258.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A2DD97363D2A841B2FF252FCD667AD04B6E1F33D
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58259.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:8076C7BF8D5E6678CF6FB0DDDEA287E80F985645
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58260.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:65DD8CDD3FDBA51ED4AF2616CCD77CECE3AD3313
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58261.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Punto Switcher 4.5.0 Build 576 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58262.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8A657BBADA8FF975BA25E77E8710AF94F5F4F11A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58263.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F7FFC1AB24D4ABEBDDEBE6E9E1ADDEA730B3576B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58264.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Enhance it v4.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58265.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Total Uninstall Pro 7.6.1.677 (x64) Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58266.jpg" />
 </div>
 
 

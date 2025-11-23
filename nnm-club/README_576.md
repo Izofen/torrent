@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15285.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:38731853839C2588EA5F23EA1566FF03EBFB8579
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15286.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15287.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6668A8876269DD31224B22F4BF60B77D4F5A2B2B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15288.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ WinToUSB Technician 9.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15289.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:674AF6954EE0368EA56857D70B8748C2B021CED5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15290.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dark Souls III (3) (2016) [Ru/Multi] (1.15.2/dlc) Repack seleZen [Game of the Ye
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15291.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Rune Factory: Guardians of Azuma (2025) [Multi] (1.0.3/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15292.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15293.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15294.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:63AAA632DB115E54EB61C02B5E5D3F0283590EB9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15295.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15296.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15297.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ WireGuard 1.0.20250531 [En] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15298.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Felvidek (2024) [Ru/Multi] (1.04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15299.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15300.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15301.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15302.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3.1plus6d76582b76/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15303.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5BEFA60FFF6864A0C383DF83A87719EFCB7BE6CB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15304.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3FCF069BAB9A73DBDBD5C225F5A18ACB96891F6F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15305.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Nova Drift (2019) [Ru/Multi] (1.2.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15306.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15307.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15308.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15309.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:847F868FA3D16075E1611B587A9B899D10DDC93A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15310.jpg" />
 </div>
 
 

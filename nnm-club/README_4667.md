@@ -1,3 +1,154 @@
+###  Публикация: 1272473   (144644) от 27.12.2018
+
+The Fade Beta - Yesterday's Eden (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterday's Eden (02:55)
+ 02. The Silences (04:47)
+ 03. African Sky (02:28)
+ 04. World (03:47)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDDC10072825C47573688750B486808E251EDE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435466   (144646) от 28.12.2020
+
+PullTube 1.6.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C531B6FBFFB88C7E0C6AB2B10BD845403C564B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520040   (144647) от 26.12.2021
+
+BBC. Гарри Поттер: История Магии / Harry Potter: A History of Magic (2017) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144647.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках подготовки к выставке "Гарри Поттер: История магии", организованной Британской библиотекой, Джоан Роулинг рассказывает, что послужило вдохновением для элементов созданного ею магического мира и кто был реальным прототипом некоторых персонажей.Производство: Великобритания / BBC Studios Documentary UnitЖанр: ДокументальныйРежиссер: Alex Harding, Jude HoПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD639897732D7327DFAC0A81E24DD88C5D6E7060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087613   (144648) от 28.12.2016
+
+Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Ravenite Social Club (02:13)
+02. Harbor Neuroscience (01:20)
+03. Do You Like Puzzles? (05:43)
+04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969817   (144649) от 28.12.2015
+
+Adobe Flash Player 20.0.0.267 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C839CFD266592E6B2842F69A0830976F7D676EBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272397   (144650) от 27.12.2018
+
+Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 4 (2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 23.12.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A341A886A92F22C35574106E66826F3BDE24E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969908   (144652) от 28.12.2015
 
 iGlasses 3.4.6 [En]
@@ -6,7 +157,7 @@ iGlasses 3.4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144652.jpg" />
 </div>
 
 
@@ -31,7 +182,7 @@ Udemy, Anthony Kelleher | English Grammar Launch Advanced: Upgrade your speaking
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144653.jpg" />
 </div>
 
 
@@ -55,7 +206,7 @@ magnet:?xt=urn:btih:7212E05B3C543CD525EDF46FC2873BF2086A9818
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144654.jpg" />
 </div>
 
 
@@ -79,7 +230,7 @@ magnet:?xt=urn:btih:AE5D251FFE36CCDFF984B254B2EC422AD41E97C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144656.jpg" />
 </div>
 
 
@@ -105,7 +256,7 @@ How to Dress Well - The Anteroom (2018) [FLAC|Lossless|tracks + .cue] <Experimen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144657.jpg" />
 </div>
 
 
@@ -132,7 +283,7 @@ magnet:?xt=urn:btih:02798350BBE3E166182DAFD1B9CB89ABF4C690C9
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144658.jpg" />
 </div>
 
 
@@ -157,7 +308,7 @@ magnet:?xt=urn:btih:FBB6A2FF8DC1F0C03A8C19FF138C6202E42E5DD0
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144659.jpg" />
 </div>
 
 
@@ -183,7 +334,7 @@ magnet:?xt=urn:btih:1A24094670037065690318A48F396F723F61342A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144660.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144662.jpg" />
 </div>
 
 
@@ -233,7 +384,7 @@ magnet:?xt=urn:btih:3885D9AF1147AA6F981190D9F9D820D944AE06C1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144663.jpg" />
 </div>
 
 
@@ -257,7 +408,7 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144664.jpg" />
 </div>
 
 
@@ -283,7 +434,7 @@ Any Video Converter Ultimate 4.5.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144665.jpg" />
 </div>
 
 
@@ -311,7 +462,7 @@ Any Video Converter Ultimate предоставляет пользователя
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144666.jpg" />
 </div>
 
 
@@ -335,7 +486,7 @@ VA - Utopia: Psychedelic Electronica (2018) [MP3|320 Kbps] <Psychedelic, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144667.jpg" />
 </div>
 
 
@@ -362,7 +513,7 @@ magnet:?xt=urn:btih:FF8E476CFC59700117CBBF8BE74E3C9EBE02E72D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144668.jpg" />
 </div>
 
 
@@ -386,7 +537,7 @@ Keda Z | Онлайн-класс по постобработке свадьбы 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144669.jpg" />
 </div>
 
 
@@ -410,7 +561,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Несбывш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144670.jpg" />
 </div>
 
 
@@ -434,7 +585,7 @@ magnet:?xt=urn:btih:ED7430C66D80F92694561C7347377AD89B3E2972
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144671.jpg" />
 </div>
 
 
@@ -461,7 +612,7 @@ magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144673.jpg" />
 </div>
 
 
@@ -485,7 +636,7 @@ magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144674.jpg" />
 </div>
 
 
@@ -496,160 +647,6 @@ magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FEB71FB6189244B8BD4C56B47FB7D99F5BDE46B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969884   (144675) от 28.12.2015
-
-New Age Style - Enigmatic Top. Vocal (2015) [MP3|320 кб/с] <New age, Enigmatic, Vocal>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anisina - Loaded Gun (4:55)
-02. Desert Rose - Fire in your Heart (4:05)
-03. Almadrava - If You Could See My Eyes (5:32)
-04. Saint Of Sin feat. Jenieva Jane - Drowned Inside Myself (3:31)(   Читать дальше...   )Жанр: New age, Enigmatic, VocalПродолжительность: 02:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64914FA892286A13DBEAAE90DF5AEFB7459B1B99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348223   (144678) от 27.12.2019
-
-E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:02)
-02. The Winner Takes It All (4:43)
-03. Angel Eyes (4:24)
-04. Fernando (4:16)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66743B434DE3DF88829419D34320116F40BBB02B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272388   (144679) от 27.12.2018
-
-The Alchemist - Lunch Meat (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin Steaks feat. Roc Marciano (1:40)
-02. Judas feat. Westside Gunn & Conway (4:47)
-03. The Hopeless Romantic feat. Action Bronson (2:48)
-04. Massacre feat. Styles P & Benny The Butcher (2:45)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEC118DC11AAED6AB19AFE03969C3F0E2B01D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678406   (144680) от 21.11.2023
-
-First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144680.jpg" />
-</div>
-
-
-###  Подробнее
-
-FIRSTDATE: LATE TO DATE — это романтически-комедийная интерактивная кинематографическая игра (FMV), в которой зритель определяет ход фильма с опциями, появляющимися каждую минуту. Добродетель должна убедиться, что Деря простит ее на этом первом свидании, когда она опаздывает, иначе их отношения закончатся до того, как они начнутся. С решениями, которые он примет (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Fossil, Eyexapp PlayЖанр: Adventure (Interactive Movie)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348096   (144681) от 27.12.2019
-
-Подозрительная Сова (2019) WEBRip [H.264/720p-LQ] (Сезон 6-7, серии 101-140)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда сова – это не просто сова. Иногда это российский коп, готовый положить голову, клюв и крылья на борьбу за справедливость. Подозрительная Сова и ее команда вынесут преступность, мозг и мусор из вашей кухни. Новое бескомпромиссное шоу. Нездоровый юмор, концентрированная жизненность и полное погружение в мир совьей подозрительности.
-Ещё два ушишкокуренных сезона (   Читать дальше...   )Производство: Россия, Кит фильмЖанр: Комедия, Приключения, Компьютерная анимацияРежиссер: Евгений Кузнецов, Кирилл Данильченко, Анна МалинаСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCD3519293D993A03E85403DE2EAAF0DB776008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969768   (144682) от 28.12.2015
-
-Коммуналка (2015) SATRip [H.264] (1-4 серия из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Анны Сабуровой, сорокалетней привлекательной женщины, со стороны может показаться идеальной: живет в роскошном загородном доме, состоятельный муж-профессор не чает в ней души, любимый сын учится в престижном московском ВУЗе. Всё рушится в один момент, когда муж Анны умирает у неё на глазах...Производство: Россия / АВК продакшнЖанр: мелодрамаРежиссер: Анарио МамедовАктеры: Екатерина Волкова, Дмитрий Миллер, Юлия Сулес, Олег Акулич, Александр Рапопорт, Сесиль Плеже, Юрий Горин, Ирина Чипиженко, Евгения Чиркова, Соня Грачева, Ирина Гришина, Александр Курицын, Никита Манилов, Елена Папанова, Евгения Ахременко и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1623FADED5D051D0FC4B170942FA5F85C57279CD
 ```
 
 

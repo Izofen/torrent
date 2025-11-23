@@ -1,3 +1,84 @@
+###  Публикация: 1762076   (103011) от 23.11.2024
+
+Минтранс. Тест-драйв LIXIANG L7 2024  (23.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103011.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Юридические нюансы. Обязан ли платить штраф водитель, который не по своей вине не успел поставить авто на учет?
+🔸 Тест-драйв LIXIANG L7 2024. Зачем водителю подушка под голову? Где спрятали кнопку аварийной сигнализации?
+🔸 Передача руля. Кто и когда может управлять машиной по доверенности?
+🔸 Советы для новичка. Сколько занятий по (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A6131A448E95AE56F72D758D8EB7C76E1DBED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761913   (103012) от 23.11.2024
+
+Isacaarum - Whorecraft (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felch Me 02:39
+02. Spermafrost 03:46
+03. Queef Corps 03:31
+04. Born for Porn 01:44(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B697C6D9FE3FC6F45F981249CCDF6BFCBCC9C61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762122   (103013) от 23.11.2024
+
+Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Left In The Day
+02. Oblivion
+03. Beneath The Masts:
+3.1 Part One: On The Bank(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD713557488D9C109A7F51DA81042B11E576C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761939   (103014) от 23.11.2024
 
 Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -6,7 +87,7 @@ Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103014.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Silent Winter - Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103015.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103016.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103017.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103018.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ GeoGebra 6.0.868.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103019.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ magnet:?xt=urn:btih:EBF0B213947A78BDBDBC706EDE6BC7AF4970DA9F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103020.jpg" />
 </div>
 
 
@@ -186,7 +267,7 @@ magnet:?xt=urn:btih:E916B1C31D6015A886116F496C4539A59E58531E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103021.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ magnet:?xt=urn:btih:15A217CED30B533A747E535F69429B12A1C95907
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103022.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ magnet:?xt=urn:btih:F6452FA3F898571205F2E18796173D8F026909E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103023.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ Photo Lab PRO v3.13.38 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103024.jpg" />
 </div>
 
 
@@ -285,7 +366,7 @@ magnet:?xt=urn:btih:8DC374C2FF6BAB18B601D23336C8A4994AFA0C1B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103025.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103026.jpg" />
 </div>
 
 
@@ -338,7 +419,7 @@ magnet:?xt=urn:btih:63C4BCD023602DFBCFE5F74E2A40562EBD25843D
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103027.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ magnet:?xt=urn:btih:7810AD565CEFF3E9956BD1A473D6171FA694DF72
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103028.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ Hirsh Gardner - Third Time's A Charm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103029.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ magnet:?xt=urn:btih:DD2C8AC7D8F1BA32AA6D7BB8148A8E4E6AC72414
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103030.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ magnet:?xt=urn:btih:1F9302250E98AEBD70BF3A56776028172C6B776B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103031.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ Light Image Resizer 7.1.2.63[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103032.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ The Pineapple Thief - Last To Run (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103033.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103034.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103035.jpg" />
 </div>
 
 
@@ -565,7 +646,7 @@ VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103036.jpg" />
 </div>
 
 
@@ -579,87 +660,6 @@ VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761828   (103037) от 22.11.2024
-
-Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103037.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. 25 Kisses (3:05)
-• 02. Someone Else (3:15)
-• 03. Irresistible (3:18)
-• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761864   (103038) от 22.11.2024
-
-Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Link of Chain (3:56)
-02. No Love Today (4:56)
-03. Love You Like a Man (3:08)
-04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761782   (103039) от 22.11.2024
-
-Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Street (4:14)
-02. Any Other Heart (3:52)
-03. Singing with the King (3:18)
-04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
 ```
 
 

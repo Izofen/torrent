@@ -1,3 +1,78 @@
+###  Публикация: 1703531   (114972) от 29.02.2024
+
+Firewind - Stand United (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation Day (4:23)
+02. Stand United (4:30)
+03. Destiny Is Calling (3:55)
+04. The Power Lies Within (4:20)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA70A42871EADC5A08BAA95804AE929B32DDD349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703499   (114973) от 29.02.2024
+
+Галина Романова | Метод Женщины. По следам старых грехов (2024) [MP3, Мария Оссовская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Ардин, известный юрист, оказывается в трудной ситуации, когда его соседка внезапно исчезает. Дом старухи оказывается запачканным кровью, на участке обнаруживаются захоронения, а записи с камер показывают, что Ардин закапывал тела. Майор Игнатов считает его виновным, но помощница Кира подозревает, что Михаила подставили. Вопрос в том, почему именно его.Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 08:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD0091FE651A0D1B67006C288D894DE75896C29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703402   (114974) от 29.02.2024
+
+Газета | Моя Семья №8 (1207) (февраль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114974.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моя Семья» задумана как газета о человеческих отношениях. Редакция делает упор на историях из жизни, поэтому многие наши публикации читаются как романы. Главной основой публикаций являются письма читателей, что делает «Мою Семью» уникальной — все наши истории подлинные.Жанр: Семья, дом, бытИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6999EC974041801829A2821FAD7FD8CB859F8A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703406   (114975) от 29.02.2024
 
 John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +81,7 @@ John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114975.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Medicine Head - Heartwork (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114976.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:EE368F4B09B12D0358E42480FF891610CA6E5D02
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114977.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|WEB-DL|image + .cue] <Death-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114978.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ The Soul of John Black - J.B.'S Blues Party! (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114979.jpg" />
 </div>
 
 
@@ -140,7 +215,7 @@ magnet:?xt=urn:btih:5931F536A6B4E0C04B99FF5C348B55B4531BE1C2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114980.jpg" />
 </div>
 
 
@@ -164,7 +239,7 @@ Kirk Nelson & Jambalaya West - Savor the Moment (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114981.jpg" />
 </div>
 
 
@@ -191,7 +266,7 @@ Ivan Strunin - The First Day of December (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114982.jpg" />
 </div>
 
 
@@ -218,7 +293,7 @@ Marc and Paula's Roadside Distractio - Marc and Paula's Roadside Distractio (202
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114983.jpg" />
 </div>
 
 
@@ -245,7 +320,7 @@ magnet:?xt=urn:btih:BA4CAF6DE510E4022039DA40401CD151AB5267E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114984.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ Linwood Taylor - Two Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114985.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ Surgical Strike - 24/7 Hate (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114986.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ Enslaved - Heimdal (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114987.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114988.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114989.jpg" />
 </div>
 
 
@@ -405,7 +480,7 @@ James Harman - Didn't We Have Some Fun Sometime (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114990.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:B519A40A32B088AE6B5A2A2574E8C1EA3B470394
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114991.jpg" />
 </div>
 
 
@@ -459,7 +534,7 @@ magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114992.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:C9744F02CB64BE6380EA985E0195B93FA12C125A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114993.jpg" />
 </div>
 
 
@@ -509,7 +584,7 @@ Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114994.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114995.jpg" />
 </div>
 
 
@@ -563,7 +638,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114996.jpg" />
 </div>
 
 
@@ -590,7 +665,7 @@ Steve Shive & the Urban Saints - Hard Bargain (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114997.jpg" />
 </div>
 
 
@@ -604,84 +679,6 @@ Steve Shive & the Urban Saints - Hard Bargain (2024) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4C5244D23D00CBE5955D1FA08453BC7BC199A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703590   (114998) от 29.02.2024
-
-AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Deeds Done Dirt Cheap
-02. Ain't No Fun (Waiting Round to Be a Millionaire)
-03. There's Gonna Be Some Rockin
-04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703588   (114999) от 29.02.2024
-
-PhotoDirector v19.0.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114999.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.02.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA71D336251B526194BEBDCF53E2A8D832EDB4A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703587   (115000) от 29.02.2024
-
-Walter Trout - Broken (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken (4:50)
-02. Turn And Walk Away (4:33)
-03. Courage In The Dark (5:36)
-04. Will Wilde - Bleed (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395BF883B6759FBAD6A865F8DF7D44FE7491BED1
 ```
 
 

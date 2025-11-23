@@ -1,3 +1,84 @@
+###  Публикация: 1714672   (111670) от 10.04.2024
+
+Sebastian Hardie - Four Moments (1975) Reissue, Remastered, 2004, Polydor [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Moments, Part 1: Glories Shall Be Released
+02. Four Moments, Part 2: Dawn of Our Sun
+03. Four Moments, Part 3: Journey Through Our Dreams
+04. Four Moments, Part 4: Everything Is Real(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA82D5F9CEF230D7D153D89D809D5799C57B6CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714817   (111671) от 10.04.2024
+
+Oceans of Night - Mindstorm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servants of Shadow / New Dawn (4:53)
+02. Before the Fall (3:40)
+03. Siren (5:31)
+04. Vast and Infinite (6:11)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A29CFC1F08788F53A7D9997C2357CEFFD300216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714637   (111672) от 10.04.2024
+
+Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Reader
+02. Tears In Rain
+03. Rage
+04. The Year Beyond This Year(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36582EB44B2C5A2234A4166BD1770EAE70468C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714768   (111673) от 10.04.2024
 
 Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -6,7 +87,7 @@ Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111673.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111674.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111675.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111676.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Telegram Desktop 4.16.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111677.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Rema
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111678.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ magnet:?xt=urn:btih:B14AA850A15B0716B52576D1D807783162DDC326
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111679.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ magnet:?xt=urn:btih:9A1237DE7CE460B26DECCCCC1DBF133A0A236DB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111680.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ magnet:?xt=urn:btih:25C28604E32560D1C130EC611BFC9240DFC07673
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111681.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.0 Mod by B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111682.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ magnet:?xt=urn:btih:433A08395CFDA0C3D88A4D5C186E0A78257FADA4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111683.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ BurnAware Free 17.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111684.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ Adobe Lightroom - Фоторедактор 8.2.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111685.jpg" />
 </div>
 
 
@@ -337,7 +418,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by frost_ua [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111686.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ magnet:?xt=urn:btih:4B93132272F9C60E5415DE0BD2EE44A808931CC5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111687.jpg" />
 </div>
 
 
@@ -386,7 +467,7 @@ magnet:?xt=urn:btih:68B0AA77FF1893EA3B285876230989B6A380BCAC
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111688.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ magnet:?xt=urn:btih:95BE4A9AD98D6FA8E4DAA41557769C3B6D81D4EE
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111689.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ magnet:?xt=urn:btih:3AC8DC566BA3D6551D0F8AF815422AD3C5DF5B70
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111690.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ Speedtest от Ookla 5.3.5 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111691.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ VA - Calming Moments, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111692.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ magnet:?xt=urn:btih:68B2660C46314BB1B0BD6D07854061A5DB280D47
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111693.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ Skype 8.117.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111694.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ Lucky Patcher 11.2.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111695.jpg" />
 </div>
 
 
@@ -573,78 +654,6 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6742751E57D74FF2242AC694400E0BC2EAE1E82D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714939   (111696) от 10.04.2024
-
-Speedtest от Ookla 5.3.5 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.04.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DD834600A63D12D97BC8065AEBF741F6A479C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714851   (111697) от 10.04.2024
-
-Busuu - изучение языков 31.19.1(984656) Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Busuu - популярный и востребованный проект для всех кто предпочитает получать образование самостоятельно. В данном случае пользователь открывает перед собой набор уроков и методик для достижения впечатляющих результатов в иностранных языках. В проекте содержатся очень сконцентрированные базы данных с несколькими вариантами подачи материала. Это поможет тем кто по-разному (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.04.2024Разработчик: BusuuПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CD0DDE6EE3BEE71A21A849C28AB5E8867BCF43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714604   (111698) от 10.04.2024
-
-Никита Прохоров, Дмитрий Сидорин | 50 ошибок, которые убьют твой стартап (2024) [MP3, Максим Киреев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создать свою корпорацию, собрать лояльную команду, стать медийной личностью – цель всех стартаперов. Как ее достичь? Авторы книги, ведущие российские интернет-эксперты и основатели нескольких компаний, опираясь на свой опыт, помогут будущим предпринимателям избежать многих ошибок на старте. Прочитав книгу, вы рационально оцените ресурсы для запуска, научитесь делегировать (   Читать дальше...   )Жанр: БизнесИздательство: Синергия СторПродолжительность: 05:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9563AD75D984A13033E48650DEAE065C97A5F6EF
 ```
 
 

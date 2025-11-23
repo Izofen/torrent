@@ -6,7 +6,7 @@ Follow the meaning (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Strange City (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32414.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32415.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Locked In Mind (2023) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32443.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32447.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32451.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32455.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Free Durov (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32460.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pyramids and Aliens: Escape Room (2024) [Multi] (1.0.6) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32462.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dustborn (2024) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32463.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Vincemus - Air Combat (2022) [En] (1.2.0a) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32465.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32471.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32485.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32510.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Machinika Museum (2021) [Ru/Multi] (1.24050201) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32515.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32522.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32527.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.28.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32535.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32548.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Deck of Souls (2024) [Multi] (1.0.6) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32554.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TRAIL OUT (2022) [Ru/Multi] (3.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32557.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32559.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32577.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9129) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32585.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cataclismo (2024) [Ru/Multi] (0.22.0.6.417) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32596.jpg" />
 </div>
 
 

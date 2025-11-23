@@ -6,7 +6,7 @@ VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168015.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bucks Fizz - The Land of Make Believe: B Sides and Rarities (2023) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168066.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Roxette - Joyride (2021) 3xCD, Remastered, Parlophone, Roxette Recordings, 30th 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168314.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Eurodance Power Hits For Aerobic Sessions 2022 (2021) [FLAC|Lossless|WEB-DL
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168352.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ V.A. - Dance Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168423.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7B6B9C73040FC7AB3371444F5DA52684AF983BB5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168517.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Buffalo Featuring Peter Vee - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168581.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ XS - Дефлорация  (2008) [FLAC|Lossless|tracks + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168635.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 100 Greatest Rock Anthems (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168745.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Roxette - Exclusive collection (2001) [FLAC|Lossless|image + .cue] <Pop Rock, Ba
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Queen Samantha - 3 Albums (1978, 1979) 2 Reissue CD, 2020 [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168854.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:71B93C8F505ED7EC99D3C481B9E6B4C07DF44E61
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168861.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168866.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168876.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 50 Hits Winter 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168971.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Emin - Девочка моя (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168989.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168990.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169043.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169063.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169102.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169104.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2FB0B5903C9933357B9E145866B3C8A36D48A43D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169114.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Blue System - Behind The Silence 2002 (2002) Unofficial Release [OGG Vorbis|480 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169130.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Tom Jones - Surrounded By Time (The Hourglass Edition) (2021) [FLAC 2.0|96/24|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169259.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169325.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169430.jpg" />
 </div>
 
 

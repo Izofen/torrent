@@ -1,3 +1,75 @@
+###  Публикация: 592837   (135582) от 22.12.2012
+
+Tiny Core Linux 4.7.2 [x32] (3xminiCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tiny Core Linux  (сокр. TCL) — минималистичный дистрибутив GNU/Linux, цель которого обеспечение базовой системы с использованием BusyBox, FLTK/FLWM и другого легковесного программного обеспечения. Размер дистрибутива около 10 мегабайт, устанавливается в текстовом режиме. Ведущий разработчик TCL, Роберт Шингледекер (англ. Robert Shingledecker), работает с сообществом пользователей и разработчиков дистрибутива для улучшения и тестирования 10-мегабайтного ядра и расширений. В TCL используется Tiny X вместо X-сервера, и uClibc вместо glibc — для экономии памяти и уменьшения размера дистрибутива. uClibc предназначен, прежде всего, для встраиваемых платформ, где ограничения памяти наиболее жёсткие.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592993   (135587) от 22.12.2012
+
+FontExplorer X Pro 3.5.1 [Eng]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135587.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontExplorer X Pro – предоставляет пользователю всевозможные средства и инструменты, которые позволяют проводить любые операции: сортировать старые шрифты, искать и импортировать новые, проводить выборку из любимых шрифтов и множество других функцийНазвание программы: FontExplorer X ProРелиз состоялся: декабрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592778   (135594) от 22.12.2012
+
+Мэтью А. Расселл | Dojo. Подробное руководство [2009] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dojo - это высоконадежный инструментарий JavaScript, позволяющий быстрее и проще создавать веб-приложения и сайты, основанные на применении JavaScript или технологии Ajax. Это издание представляет собой наиболее полный сборник документации по инструментарию Dojo, снабженный развернутыми комментариями. Демонстрируются эффективные приемы работы с обширным набором утилит, реализация различных пользовательских механизмов, методы воспроизведения анимационных эффектов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592766   (135604) от 22.12.2012
 
 Netrunner (интеграция KDE в Ubuntu) 12.12 [i386 + amd64] (2xDVD)
@@ -6,7 +78,7 @@ Netrunner (интеграция KDE в Ubuntu) 12.12 [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135604.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ Runners-ID (бесплатное и свободное облачное хран
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135607.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Voyager 12.10 [x86-64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135609.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135609.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ Voyager 12.10 [x86-64] (1xDVD)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135616.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ ScreenFlow 4.0.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135618.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135618.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135622.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135628.jpg" />
 </div>
 
 
@@ -194,7 +266,7 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135632.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135633.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135636.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ Sabicas & Escudero - The Fantastic Guitars (2011) [FLAC|Lossless]<Flamenco, Guit
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135638.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135638.jpg" />
 </div>
 
 
@@ -317,7 +389,7 @@ Flamenco in HI-FI with Anita Ramos
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135639.jpg" />
 </div>
 
 
@@ -341,7 +413,7 @@ magnet:?xt=urn:btih:DADD27891E6AC6004E072431299CC7D3132DEF7C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135640.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:DADD27891E6AC6004E072431299CC7D3132DEF7C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135642.jpg" />
 </div>
 
 
@@ -400,7 +472,7 @@ EZ CD Audio Converter 1.0.4.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135645.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135646.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:B9B1DEB9AB13871DBE9A80DB1EEE3799B427619E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135648.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135649.jpg" />
 </div>
 
 
@@ -512,7 +584,7 @@ magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135652.jpg" />
 </div>
 
 
@@ -536,7 +608,7 @@ magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135653.jpg" />
 </div>
 
 
@@ -560,7 +632,7 @@ magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135655.jpg" />
 </div>
 
 
@@ -586,7 +658,7 @@ Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135662.jpg" />
 </div>
 
 
@@ -619,7 +691,7 @@ magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135665.jpg" />
 </div>
 
 
@@ -631,98 +703,6 @@ magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592585   (135666) от 22.12.2012
-
-Rosemary Clooney - Forever Girl Singer (2002) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way We Were [05:03]
-02. Danny Boy [03:07]
-03. Sweet Kentucky Ham [03:54]
-04. Do You Know What Is Means To Miss New Orleans [03:52]
-05. Mambo Italiano [02:32]
-06. They Can't Take That Away From Me [03:28]
-07. The Glory Of Love [03:36]
-08. As Time Gose By [04:01]
-09. Brazil [06:54]
-10. Bewitched, Bothered And Bewidered [04:32](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592829   (135667) от 22.12.2012
-
-VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - First Floor Lobby
-02. Jeff Aug - Diving Into the Autumn Deep
-03. Marga Sol - No One Who Loves Me
-04. Anthya - Patience and Love
-05. Guenter Haas - The Pilot's Dance
-06. Weathertunes - Bikini
-07. Jeff Aug - Listen Up, Jazzhole!
-08. Taco-Town - Con Su Permiso
-09. Jeff Aug - 7 Ate the Cat (And Called It a Boogie)
-10. Aimee Sol - Girl in the Gallery(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592772   (135672) от 22.12.2012
-
-"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Boutique: модное чтение при любой погоде!
-Стильные, остроумные и современные книги на любой вкус, кроме плохого.
-В проект входят следующие серии:Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD02290B8277E2C8D38704C1CFA09BAE80233901
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40681.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40682.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C77009811FD26D3C406A7492CEF88835212663B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40683.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40684.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:5F653A821D829308402A5726D6B7AAF6403F82E5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40685.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B81404DA1A21FAB80F2368401EF23FAC3BD07033
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40686.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40687.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:392AE47B1821032E6A68B4ACF8C19365513EB9A8
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40688.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:73EFF071A18CA149B3496BD974BE3D23BEEC5BCD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40689.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ IPTV Pro v8.2.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40690.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:8D43B9E45DCAED5879EDCBE81BC16066015BA276
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40691.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:07C46C5D92D4CD6FABB9E560A0ACB075EFFE7F60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40692.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40693.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40694.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:55017FD3B58818A48C1DDEE504B996EAE817536F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40695.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ FastStone Capture 10.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40696.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40697.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40698.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Red System Records presents ... CD 1 (2024) [MP3|320 Kbps] <Eurodisco, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40699.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Okean Elzy (Океан Эльзи) - Той день (2024) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40700.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:CD2FAF3BDDD59FE01290D32F45976901C77B2848
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40701.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:BF8801999802F70AF41365DA8F31D8BFF9B2707B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40702.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - A Tribute To Rammstein (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40703.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Offspring - Supercharged (2024) [MP3|320 Kbps] <Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40704.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2312B9353DA653A30523AD60B3B5E621666E8EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40705.jpg" />
 </div>
 
 

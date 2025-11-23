@@ -1,3 +1,84 @@
+###  Публикация: 477115   (98446) от 02.04.2012
+
+[Картинки] Фото знаменитости/Пас Вега/Paz Vega
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пас Вега (исп. Paz Vega; урождённая Пас Кампос Триго (исп. Paz Campos Trigo); родилась 2 января 1976 года в Севилье, Андалусия) — испанская киноактриса.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D79436E1D89483C0A0DB03B13054DB31BFB9CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476653   (98447) от 02.04.2012
+
+Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boy
+02. Heartbeat Boogie
+03. Be My Sugar
+04. Going, Going, Gone
+05. Mixed Emotions
+06. Dip Stick
+07. Out Of Order
+08. Crazy 'bout My DS
+09. Treat Me Tender Tonight
+10. Blow Crazy(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477150   (98448) от 02.04.2012
+
+Дональд Майкл Крэйг | Психосенсорные способности [2007] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_98448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действительно ли существует такая вещь, как психосенсорные способности? Насколько они реальны? Есть ли они у каждого человека? Какова их типология? Можно ли каким-то образом подтвердить их существование? Книга "Психосенсорные способности" дает ответы на эти и другие вопросы, описывая полный тайн, восхитительный мир феноменов человеческой психики.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476820   (98451) от 02.04.2012
 
 Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
@@ -6,7 +87,7 @@ Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98451.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98451.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98452.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98453.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98454.jpg" />
 </div>
 
 
@@ -120,7 +201,7 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98455.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98455.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98456.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98457.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98459.jpg" />
 </div>
 
 
@@ -234,7 +315,7 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98460.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98462.jpg" />
 </div>
 
 
@@ -291,7 +372,7 @@ Yes - Yesshows (1980) 2 CD Digitally Remastered [FLAC|Lossless]<Progressive rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98464.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98464.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ Disc One
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98465.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98466.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98468.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98470.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|12
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98471.jpg" />
 </div>
 
 
@@ -467,7 +548,7 @@ Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98472.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98474.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98475.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98477.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98478.jpg" />
 </div>
 
 
@@ -604,7 +685,7 @@ VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98480.jpg" />
 </div>
 
 
@@ -637,7 +718,7 @@ magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98481.jpg" />
 </div>
 
 
@@ -648,105 +729,6 @@ magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B88CC9956DD010F4FE5DFEB8AF2849ED7DF587CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477672   (98482) от 03.04.2012
-
-New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem Of Hate (3:44)
-02. Flames For Hades (4:18)
-03. Brainless (5:27)
-04. The Not Self (4:36)
-05. Unsolved Aggressions (4:11)
-06. Life Not Death (4:53)
-07. Searching The Loss (4:20)
-08. Crawling Erect (3:15)
-09. Infecting The Lie (3:32)
-10. Watcher (4:34)(   Читать дальше...   )2012Жанр: Progressive Power MetalПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477392   (98483) от 03.04.2012
-
-VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molla & Marquis - Self Control (Radio Edit)
-02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
-03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
-04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
-05. Scooter Feat. Vicky Leandros - C'est Bleu
-06. Lady Gaga - Marry The Night (David Jost Twin Remix)
-07. Basto! - Again And Again (Bassanova And Moradzo Remix)
-08. Dj Smash & Chinkong - Lifemission (Radio Edit)
-09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
-10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476579   (98484) от 03.04.2012
-
-Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Nota Maron
- 02. Fecal Deluxe Party
- 03. El Modelo Shitman
- 04. Lord Of The Gas
- 05. Las Tías Buenas No Cagan
- 06. Cagando En Arguelles
- 07. Coprovoyeur
- 08. Vejado Por Gordas Deprvadas
- 09. Salcedo's Adventure
- 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
 ```
 
 

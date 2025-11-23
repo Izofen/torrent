@@ -6,7 +6,7 @@
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49157.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:19D1068645AFEA562946D2626B81A07AB8248E11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49158.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4692FEC49B01D8C395EAB794C0918BC680EB8A6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49159.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Shocking Blue - Greatest Hits Around the World (2004) DVD-5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49160.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1BD15B0A3B79CDE795F9DD1A09EDFEA66950D1B6
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49161.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:80D0CA7F6D865ED6FB3D1BB5F83E6FDF5B633EBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49162.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:80D0CA7F6D865ED6FB3D1BB5F83E6FDF5B633EBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49163.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Whitesnake - Live at Donington'1990 (2011) DVD9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49164.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:A21CD68E307363BB9554DE65CBB7325C10F79082
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49165.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Adobe Illustrator 2024 28.6.0.709 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49166.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:2AFB12DB514F20596AD803E2AB5E65CE81B6261A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49167.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FB02BBD0247DAEB95CA7E0E85F7F532DF1972874
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49168.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D79363C1C3D38138CC61EAF8B97B06C417C55EDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49169.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:D876D9868F329C3443AE1F9584F2140FE96F87A3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49170.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:269C47D091FE9B48E9BD83D81B7C3E1D05FFE9B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49171.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:DEAD37095EAC4C6A578625C34E1B8D2A2EFFBB03
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49172.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49173.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ HDCleaner 2.077 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49174.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:B1DA841178F70DFFB7F400F8575CEB40646D8DED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49175.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ TweakPower 2.057 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49176.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ George Vondriska | Основы работы с ленточной пилой (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49177.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:5A8FEBAB40D41665587965D7DA5CFBCE766722E7
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49178.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ DLNow Video Downloader 1.54.2024.07.19 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49179.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:826943F848950DC77CF945A3E4596379982A7535
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49180.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:BE5A9022CE83A27AB869FA83201F980A2D9F7848
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49181.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:939BA20AF27E32589BBB6E9890CABCC25C5C316E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49182.jpg" />
 </div>
 
 

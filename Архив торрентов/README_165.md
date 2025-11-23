@@ -6,7 +6,7 @@ Windows Manager 2.0.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40534.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ R-Studio Network 9.4 Build 191370 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40550.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Advanced SystemCare Pro 18.0.1.156 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40553.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ GoldWave 7.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40558.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Chasys Draw IES 5.32.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40569.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ OpenNumismat 1.9.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40576.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VN - Video Editor / VN - Видеоредактор v2.2.8 Mod by MustHave [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40580.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ TreeSize Professional 9.2.1.1907 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40582.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Alfa eBooks Manager 8.6.39.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40586.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ FastStone Capture 10.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40587.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ CrystalDiskInfo 9.5.0 Beta 3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40591.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WeNote: заметки блокнот планер v6.16 Mod by Balatan [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40594.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Enhance it v4.2.0 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40595.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FocusWriter 1.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40600.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40619.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9CCB94BBAA31FDDE2A4B18B7BC48F283CB71ADAC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40635.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:33302AE528213D50C28474991C5E6BCCE4315FEC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40637.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:2F76AF710F168F5D6E91FE05462C7F595AF32E38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40648.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:88267E79721CB5CF0AB30BEC7AAC6151CD37AC74
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40660.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ SweetScape 010 Editor 15.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40665.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Marmoset Toolbag 5.00 (5007) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40687.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ FastStone Capture 10.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40696.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40727.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40733.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tor Browser Bundle 13.5.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40734.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ IObit Driver Booster Pro 12.0.0.356 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40738.jpg" />
 </div>
 
 

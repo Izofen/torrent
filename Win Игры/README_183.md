@@ -6,7 +6,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54448.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thriving City: Song (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54452.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Little-Known Galaxy (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54454.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54460.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54462.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54463.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54467.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54470.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54473.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54475.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54478.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tiny Terry's Turbo Trip (2024) [Multi] (1.28.1701) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54479.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54482.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54489.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54490.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54492.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54495.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Relaxing Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54500.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ReConnect Exit LOOP (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54501.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:435D9A99056BE5A7E34ED988921086F07B53206B
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54504.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54506.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54509.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54512.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54514.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54520.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kingdom of Arcana (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54527.jpg" />
 </div>
 
 

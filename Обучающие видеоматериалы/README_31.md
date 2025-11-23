@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63551.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FEFF9AC905D9755215694C3B6094B451CB9B9372
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63563.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:4BCE1870E77974FE2DDA98857721AFC919DA649D
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63569.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:62CC0F7A19CF93EFF6CD2EB511E7845EA290EADF
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63598.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:B1FA0D1175D8AD4BC72744B6DC3D9E7FD3AB18C2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63651.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ITsets | Дизайн-симулятор - Middle UI - UX-дизайнер (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63681.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63772.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:B829265FAB2E50303D8A0E85F2A2B899474849A6
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63822.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:2E3FEEA983A65F9D96C0EBF370AFA37146CD62DB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69070.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:5C85531F1F5B15C5C8FF3C98A6350296960DD1D7
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69086.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69454.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69457.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:627D01750DF8D3C2C5572272EF05F3F48AF451B0
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70309.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ JUG Ru Group | Mobius 2024 Autumn. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70467.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74548.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:C6184011BEDB552935EC9C39341BE9045F7D2C86
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_75165.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:BAF25847EF4671FF3F558A51E4FF14AC643133CE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77819.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Scott Kelby, Dave Cross, Matt Kloskowski (NAPP) | Photoshop User TV - Уроки
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77849.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:87349A1060C22A8C175FBD83DD5DE960DB998071
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77989.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:3F1D1A808D04AB94F0A73075BBADA39090638F84
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78248.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:AB92368065A1762ED595B61EA320D6ECAB9CFD4A
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F6E41B5A517BDAFCDF865A279040D8C08A5B2B32
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78426.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78860.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78894.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ hochuchu | Параллельная обработка звука эффекта
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79456.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 485726   (100093) от 21.04.2012
+
+Mixed Wallpapers 0.8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD6F19F5FF780DFE2D6EB2E1DB80E9CC8EA46DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485336   (100098) от 21.04.2012
+
+Mustasch - Sounds Like Hell, Looks Like Heaven (2012) [FLAC|Lossless]<Stoner / Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_100098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Metal (3:07)
+02. The Challenger (3:46)
+03. It's Never Too Late (5:21)
+04. Cold Heart Mother Son (3:07)
+05. Morning Star (4:00)
+06. Dead Again (4:30)
+07. Your Father Must Be Proud Of You (3:07)
+08. Destroyed by Destruction (2:40)
+09. I Don't Hate You (4:03)
+10. Northern Star (1:26)Жанр: Stoner / Heavy MetalПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485638   (100100) от 21.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485635   (100102) от 21.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (21.04.12)
@@ -6,7 +87,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100102.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100103.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100105.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ magnet:?xt=urn:btih:18814D2D27C521860E98F901759D1A6567C42B4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100107.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ magnet:?xt=urn:btih:0613C7B7B222EE86E52B321F7EA328D8F2C67EB3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100113.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:452E2E47C78DCC06DD357AC3A242E747775FD85C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100115.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100120.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ VA - Chill Out Room XVI [3CD] (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100121.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ Theatre of The Absurd Collector's Editon (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100132.jpg" />
 </div>
 
 
@@ -252,7 +333,7 @@ magnet:?xt=urn:btih:95D8439C1E747CA1DC91CC1B6A8D3CA1FC8A01FE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100134.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ magnet:?xt=urn:btih:13D8D1D202C9353DE97CA2612E07ECDA47557DF6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100136.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ magnet:?xt=urn:btih:C6B8D497F00EF623828789DFCDFB65B9B6434BC1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100139.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ magnet:?xt=urn:btih:23334ABB78DED717AC60D9299A16DC2B7B4B0DD6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100140.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ magnet:?xt=urn:btih:3C59B799B2CB7E2F59CBBA3022CF416699095BB8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100143.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ VA - Mega парад Русских ДиДжеев 3CD (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100144.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ magnet:?xt=urn:btih:74A09ECC775C78CEEB1363DF8B95EAFD159F4DA7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100145.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ Mixed Wallpapers 0.9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100147.jpg" />
 </div>
 
 
@@ -471,7 +552,7 @@ Avgrunn - Conceived Genetically Perverse (2012) [MP3|229-271 kbps]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100151.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100153.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100154.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Penthagon - Penthagon (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100155.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100157.jpg" />
 </div>
 
 
@@ -602,7 +683,7 @@ magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100158.jpg" />
 </div>
 
 
@@ -613,79 +694,6 @@ magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E541D80872F87C2BFB3EE01DD0620A24A2FBB7F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485659   (100159) от 22.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3739
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485640   (100171) от 22.04.2012
-
-[Wallpapers] The Best Wallpapers (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486573   (100180) от 22.04.2012
-
-Журнал | Встречи на кухне № 3. Устроим рыбный день! [март 2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал для тех кто любит готовить.
-Тема номера: Рыбный день.март 2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
 ```
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1744575   (105274) от 22.08.2024
+
+VA - Top July 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Dani - Lay Down Near Me (Intro Mix) (04:53)
+02. Sam Fletcher - Winter Bloom (Original Mix) (06:50)
+03. SounEmot & Elgfrothi - Together in Time (Original Mix) (10:07)
+04. Juan Almiñana Obando - Ana (Original Mix) (06:47)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1784E41B9A4565D879A56080F9EA4C88596BBCDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744521   (105275) от 22.08.2024
+
+Сатисъ | «Золотая цепь святости». Старчество (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник, рассказывающий о традиции православного старчества, его значении и самих старцах вошли книги прот. Петра Латушко «Значение старчества в деле духовного руководства по учению святых подвижников», И. Петрова «Золотая цепь святости» и Г.Т. Северцева (Полилова). «Богом отмеченный. Из жизни одного старца подвижника».Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BE811067A5400E2FCFE8FAA153FFC2A8C80048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744637   (105276) от 22.08.2024
+
+Fleshgod Apocalypse - Opera (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ode To Art (De' Sepolcri) (2:18)
+02. I Can Never Die (4:30)
+03. Pendulum (3:59)
+04. Bloodclock (5:14)(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78246D2C1A48114B74592E9C1F4D95C28BB2D35B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744678   (105277) от 22.08.2024
 
 Kingcrow - Hopium (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Metal>
@@ -6,7 +84,7 @@ Kingcrow - Hopium (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105277.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105278.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ StartAllBack 3.8.5 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105279.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Jon Anderson and The Band Geeks - True (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105280.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ magnet:?xt=urn:btih:D7676A9D4D396105368C0ADA25FA8A4C36572889
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105281.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:F153FE0E9C324831B7B51D1A70F0AED0A572B0CF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105282.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:EC98532A7C941894C4779164A92717C6AA1DF145
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105283.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ Vivaldi 6.8.3381.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105284.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ FastStone Capture 10.7 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105285.jpg" />
 </div>
 
 
@@ -231,7 +309,7 @@ magnet:?xt=urn:btih:04A1F11DE54590291B7169D64F337D21B9E9E886
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105286.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ magnet:?xt=urn:btih:166EA897258A868643BD5D4A6200F68CE85CF095
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105287.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ magnet:?xt=urn:btih:F684209A8ED7B8B3FBEF8F5C6A32B4D2481FC99A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105288.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ magnet:?xt=urn:btih:70FB56A27870B5D31898EE128385CDE10ACBB977
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105289.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ Firefox Browser 129.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105290.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ FontLab 8.4.1.8926 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105291.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Simone Simons - Vermillion (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105292.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ Swiss & Die Andern - 10 Jahre Swiss Die Andern Best Of (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105293.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ SaffeK - I/U/WE/US (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105294.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Saving Them - Saving Them (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105295.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ Mojo Thunder - The Infinite Hope (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105296.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ Richard Clapton - The Great Escape (1982) Remaster, 2024, WM Australia[FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105297.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ magnet:?xt=urn:btih:99BB2EA4B2A94BB3425FB038AD2CFD147D00DD29
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105298.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ ACT! - Face to Face, Day by Day (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Chil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105299.jpg" />
 </div>
 
 
@@ -579,87 +657,6 @@ ACT! - Face to Face, Day by Day (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12A10AFEDDD7B7462DD48DA84360D56DD358081
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743897   (105300) от 19.08.2024
-
-Zero Digital - Timeline (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope & Despair (3:32)
-02. Sinners Win (The Poo) (3:24)
-03. Turning the Dark Legacy (3:11)
-04. Taylor Swift Pants (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7774E45548EEC801936A251877284EB206F6431
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743930   (105301) от 19.08.2024
-
-Lesibu Grand - Triggered (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, new wave, punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scary Mary [00:05:13]
-02. Hot Glue Gun [00:02:27]
-03. Ordinary Girl [00:02:51]
-04. Anarchy [00:02:20](   Читать дальше...   )Жанр: Alternative, new wave, punkПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFF1D67158A3CD8937B68A7D05C87C9C645A675
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744111   (105302) от 19.08.2024
-
-Hifi Sean & David McAlmont - Daylight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Funk, Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight [00:02:54]
-02. Sun Come Up [00:03:36]
-03. Coalition [00:03:10]
-04. You Are My [00:03:21](   Читать дальше...   )Жанр: Electronic, Funk, Soul, PopПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAC1071D68599ECCCC2777C065C663D45B65078
 ```
 
 

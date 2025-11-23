@@ -1,3 +1,177 @@
+###  Публикация: 1675820   (159866) от 10.11.2023
+
+Skype 8.108.0.205 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96961D9C3FD6D98913978984832725A53CB8B13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599361   (159867) от 23.12.2022
+
+Cabernet Deneuve - Смерти нет (2022) [MP3|320 Kbps] <Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159867.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Супермодели
+2. Поделить планету
+3. Все говорят
+4. Про капитанов и пилотов(   Читать дальше...   )Жанр: SkaПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7890C7F2BC9175D6114CB69D8F4EFF70BD2550C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675706   (159868) от 10.11.2023
+
+Эльвира Цайсслер | Охотницы Арии (Книга 2). Эовин. Выбор воительницы (2023) [MP3, Наталья Кратович]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юна. Отчаянна. Но вовсе не беспомощна… Новость о падении туманной границы заставила Эовин мчаться сломя голову назад, в родной Винтор. Девушка не подозревает, что это играет на руку ульфаратцам. В ночной и туманной столице люди-оборотни вот-вот захватят власть, и друзьям Эовин не остается ничего, как бежать. Сама Эовин вновь сталкивается со всемогущим воином Ульфарата, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЭксмоПродолжительность: 12:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524516A5A2AF53C733A8E625C23725AB043DCCC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599346   (159869) от 23.12.2022
+
+iMedia Cutter 5.6.7 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение iMedia Cutter разработано для редактирования аудио и видео. Такие функции, как изменение голоса, шумоподавление, управление звуком, изменение скорости, обрезка областей, преобразование видео в GIF.Тип издания: macOS SoftwareРелиз состоялся: 22.05.2022Разработчик: © 2016-2024 Opproa Technology StudioПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB24B9F7B97C4D86534A2FB382959858E3DCD4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675757   (159870) от 10.11.2023
+
+Журнал | The Woodworker & Good Woodworking №10 (октябрь 2023) [PDF][En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номер.Жанр: Столярное делоЯзык: АнглийскийИздательство: MyTimeMedia Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0149B5490860B4B2A2218FDE7A402461A5CE31A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599400   (159871) от 23.12.2022
+
+Своя игра (22.10–18.12.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:41:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6667B00365D28D90976EBE3F29E967EB927F9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675680   (159872) от 10.11.2023
+
+Sophie Lloyd - Imposter Syndrome (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Or Die (feat. Nathan James) (3:13)
+02. Pressure (feat. Brandon Saller of Atreyu) (3:51)
+03. Imposter Syndrome (feat. Lzzy Hale) (3:51)
+04. Let It Hurt (feat. Chris Robertson) (3:25)(   Читать дальше...   )Жанр: Modern Hard Rock, Heavy MetalПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487FE5EDADB0E4E07BC965F2DE7F077B06BFD46E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599375   (159873) от 23.12.2022
 
 Oliver Tree - Cowboy Tears Drown the World in a Swimming Pool of Sorrow (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock, Indie Rock, Folk Rock>
@@ -6,7 +180,7 @@ Oliver Tree - Cowboy Tears Drown the World in a Swimming Pool of Sorrow (2022) D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159873.jpg" />
 </div>
 
 
@@ -33,7 +207,7 @@ Eva Alcaide Quintet - Dive Into The Sea (2022) Errabal Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159874.jpg" />
 </div>
 
 
@@ -60,7 +234,7 @@ magnet:?xt=urn:btih:39072495B6EE5FDD6DBD3129AB214BEEBE99CFE9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159875.jpg" />
 </div>
 
 
@@ -84,7 +258,7 @@ magnet:?xt=urn:btih:9829514949D90B95B67BF9E061CB4A4C2EC48602
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159876.jpg" />
 </div>
 
 
@@ -111,7 +285,7 @@ magnet:?xt=urn:btih:4352622058D07ABD043FAE3149DCD971B7774EE8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159877.jpg" />
 </div>
 
 
@@ -135,7 +309,7 @@ magnet:?xt=urn:btih:C1C2A86528AFA626EE2EF9D62BB0FA061C9A26F4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159878.jpg" />
 </div>
 
 
@@ -159,7 +333,7 @@ HWiNFO 7.65 Build 5266 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159879.jpg" />
 </div>
 
 
@@ -183,7 +357,7 @@ magnet:?xt=urn:btih:327AF640404F3BB435AA9B0A356002CFC759C54F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159880.jpg" />
 </div>
 
 
@@ -207,7 +381,7 @@ magnet:?xt=urn:btih:B1FA5FB89FA0305C0963EED2A857ED45BA768902
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159881.jpg" />
 </div>
 
 
@@ -234,7 +408,7 @@ magnet:?xt=urn:btih:DDE0EB945CE73D28937EB550AE78D4EFF887E7A4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159882.jpg" />
 </div>
 
 
@@ -258,7 +432,7 @@ Aiseesoft FoneEraser 1.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159883.jpg" />
 </div>
 
 
@@ -282,7 +456,7 @@ Native Instruments Kontakt 7.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159884.jpg" />
 </div>
 
 
@@ -306,7 +480,7 @@ DRmare Tidal Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159885.jpg" />
 </div>
 
 
@@ -330,7 +504,7 @@ VA - Silent Shore - Euphoric Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159886.jpg" />
 </div>
 
 
@@ -357,7 +531,7 @@ Witness - The Hell List (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159887.jpg" />
 </div>
 
 
@@ -384,7 +558,7 @@ magnet:?xt=urn:btih:196BEE164CB7F2A096946CAB3C21734E65ED8D11
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159888.jpg" />
 </div>
 
 
@@ -408,7 +582,7 @@ Aiseesoft DVD Creator 5.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159889.jpg" />
 </div>
 
 
@@ -432,7 +606,7 @@ magnet:?xt=urn:btih:3B8D82F835565132A1C15AFCD1F8CBC5AEBA6B8D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159890.jpg" />
 </div>
 
 
@@ -456,7 +630,7 @@ Posthuman Abomination - Mankind Recall (2022) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159891.jpg" />
 </div>
 
 
@@ -470,188 +644,6 @@ Posthuman Abomination - Mankind Recall (2022) [FLAC|Lossless|image + .cue] <Brut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EAEF8A326001E7C27B0273B99D3A4A810E9F354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675783   (159892) от 10.11.2023
-
-Diviner - Avaton (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avaton
-02. Mountains High
-03. Dancing In The Fire
-04. Cyberwar(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267A2FA4447987A25E1A91C60BC3957827F3D34D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599295   (159893) от 23.12.2022
-
-Palefroid - Palefroid (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleu Blanc Sang (06:00)
-02 - Terre De Ruines (04:59)
-03 - L'Effondrement (04:55)
-04 - Palefroid (05:54)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD425F01FC1EF339F1936EF2E092579C29129304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675719   (159894) от 10.11.2023
-
-ДМЦ (Дороги Меняют Цвет) - Чёрная черёмуха (2023) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Куда открыли дверь
-2. Чёрная черёмуха
-3. И светит и греетЖанр: RockПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D493660F3E0440DF9BBB96194BA0DB43EAF7D175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599368   (159895) от 23.12.2022
-
-AudKit Tidal Music Converter 2.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159895.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudKit Tidal Music Converter — это универсальный загрузчик и конвертер Tidal, предназначенный для загрузки и преобразования музыки, плейлистов и альбомов Tidal в MP3, FLAC, WAV, AAC и т. д. на компьютерах Windows и Mac с 5-кратно более высокой скоростью пакетного преобразования для автономное воспроизведение в любом месте.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2022Разработчик: © 2022 AudKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106FE34184B73DD459D0F78979BBE80B29C7D9E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675699   (159896) от 10.11.2023
-
-VA - Top 10 October 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gao (CHN) - Adieu (Original Mix) [6:17]
-02. Duezher - Distant Mountains (Original Mix) [8:01]
-03. SounEmot - Tu Hermosa Sonrisa (Emotional Mix) [8:58]
-04. Isotopia - Forgetting Time (Original Mix) [6:21](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B37596E93C696A55D4ABFA1CA9A0C68A6D4D65C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599392   (159897) от 23.12.2022
-
-Witticism - Once upon a War (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zero Dark Thirty (00:48)
-02 - Conquer This Pain (04:43)
-03 - Don't Doubt My Belonging (04:56)
-04 - Kairos (04:54)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4181EFDAF724FC9F729D5483FC2C039A6322D120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675710   (159898) от 10.11.2023
-
-Александр Сеземин | Участковый Максимов. Подпольное дело (2023) [MP3, Валерий Равковский]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Максимов отправляется в долгожданный отпуск. Сочи, море, катраны... Которые в данном случае вовсе не акулы.Жанр: детектив, триллерИздательство: Неофициальное изданиеПродолжительность: 03:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C4731C67F051DAACCBC54488DAF76697226CFE
 ```
 
 

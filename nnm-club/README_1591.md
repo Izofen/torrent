@@ -6,7 +6,7 @@ VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41721.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41722.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:750A8895C665A15E7CE0C453C6DE0AADE4F0EA9D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41723.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:FFC6563B8F0E2A9D34173502FE9CACDB8BA75C4C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41724.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A088E790BDA8368991579474CE12C6CAADFFDA58
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41725.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Snappy Driver Installer Origin R771 | Драйверпаки 24.09.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41726.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8AE2AE2314DB83B6E5A121B572F83E7E811DDFB4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41727.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ OTT Navigator IPTV v1.7.1.6 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41728.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7DD9177A3F3344F6ADE68C5FCD6A48C254164998
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41729.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C4F6BE0BE5C230741C098D157994DE7C6A9EFB9A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41730.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:08975A76654C2522999A88FA9E7FBB44EBD5ADCE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41731.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9B8045F10D59102647D066B0081C722662F15B95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41732.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:2A95F0662C02A623D463928F0807DFC2D80F5DA9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41733.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:1D903B882C57F0603637734856F034D681613575
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41734.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41735.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:8279CBFD6F411B0AE62D8CEDB3778251571DD03E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41737.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:033EAB7F3858C1E0F12A7A360E04BB32C0CBEC34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41738.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:3D1635BDB59A968D118BD18FFA0F7D592BF8DF43
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41739.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7853A9F0E08DC2274517F6B8BA38DB5D2120D230
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41740.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:A0F78A41AFF48B142AFC8D5D5540EAA79D7E401C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41741.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F0302682DC8DCBC5AD0FFADC1392C3F77B3622D9
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41742.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Repack Decepticon [Alex Murp
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41743.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8A03D36D99C250DFB6CD7FBEE34A2CE937F4B854
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41744.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:92AA76A620657849A4547D22FECBE03B003A8A2F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41745.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Microsoft Windows 11 [10.0.22631.4169], Version 23H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41746.jpg" />
 </div>
 
 

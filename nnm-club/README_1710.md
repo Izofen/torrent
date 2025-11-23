@@ -6,7 +6,7 @@ Winxvideo AI 3.5 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44815.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Dark Arabic Bass House (Ethnic Deep House Mix) (2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44816.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics Driver Updater 2.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44817.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1CE492E5E9FF958962293ABC3BD468E39B5410EE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44818.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Auslogics Driver Updater 2.0.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44819.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - compilation  part 117  Electronic Assorted compilation (2024) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44820.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Opera One 113.0.5230.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44821.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:616B40C504A41DC7C4EA7A74246959D410C6CCDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44822.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:616B40C504A41DC7C4EA7A74246959D410C6CCDA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44823.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:B89FACEAE6E78C0133AE2D0EF9D60843E9C542F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44824.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Photo Studio Premium v2.7.9.3240 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44825.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kdenlive 24.08.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44826.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Danball Senki | Little Battlers Experience | LBX - Битвы маленьких
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44827.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44828.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CrystalDiskInfo 9.4.3 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44829.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D38CB4272353161D41F683DE5AB3FD83AE01BD1D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44830.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2476773E3D85B764128399BB0A0DD329130ADC9E
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44831.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2476773E3D85B764128399BB0A0DD329130ADC9E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44832.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:FE717170230EA7E17EF1FB39B72524DC07073279
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44833.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Serif Affinity Photo 2.5.5.2636 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44834.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DVDFab StreamFab 6.1.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44835.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Record Super Chart 31.08.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44836.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ DVDFab 13.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44837.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:932A0AB9CAAF69248973787B96B98B815FE53C40
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44838.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:B3ED6388CC03AB23069936E82D32A0F261F59042
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44839.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:9A5AC79C1DB84928D7771B400D9E64CBAB30E1EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44840.jpg" />
 </div>
 
 

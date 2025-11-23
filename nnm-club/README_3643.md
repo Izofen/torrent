@@ -1,3 +1,75 @@
+###  Публикация: 1704454   (114400) от 04.03.2024
+
+1922 / 1922 (2017) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история о Уилфреде Джеймсе, добропорядочном фермере и любящем отце, что из года в год усердным трудом взращивает на своей земле урожай. Он планировал сделать её наследием своего сына и его потомков, однако у жены Уилфреда другие планы. Она хочет продать землю и уехать в город. Честный фермер пойдет на многое, чтобы сохранить свой дом, даже на убийство собственной (   Читать дальше...   )Производство: США, Канада / Campfire, Lighthouse PicturesЖанр: ужасы, триллер, драма, криминалРежиссер: Зак ХилдитчАктеры: Томас Джейн, Молли Паркер, Дилан Шмид, Кейтлин Бернард, Брайан Д’Арси Джеймс, Нил МакДонаф, Боб Фрейзер, Патрик Китинг, Грэм Даффи, Брюс Блэйн, Питер Браун, Роан Кертис, Марк ЭчесонПеревод: Профессиональный многоголосый (Jaskier, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские, немецкиеПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E01B4110B8F0811934F56FC96980CFB6D4F675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704440   (114401) от 04.03.2024
+
+Сирил Норткот Паркинсон | Законы Паркинсона (2023) [PDF, FB2, RTF, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сирил Норткот Паркинсон – британский историк и писатель, родившийся в начале XX века, известный не столько многочисленными историческими исследованиями, сколько сформулированному закону, относящемуся к теории управления и получившему его имя. В наиболее общем виде этот закон звучит следующим образом: «Работа занимает столько времени, сколько его отводится на ее выполнение». (   Читать дальше...   )Жанр: Методы мотивации, мотивация и личность, самообразование, саморазвитие / личностный ростИздательство: ХАРВЕСТФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2453AB0AC70B26C613F011CBEF8FEB3486DCAA5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704462   (114402) от 04.03.2024
+
+Империя кошек (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милый документальный фильм расскажет, почему Россия стала лидером по количеству кошек на душу населения в мире.Производство: Россия / ООО, Телекомпания "Пятница"Жанр: документальныйРежиссер: Егор КлимовичЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CC943E7F1684CB06018A6826845F6B36794B41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704453   (114403) от 04.03.2024
 
 Тысяча девятьсот восемьдесят четвёртый / Nineteen Eighty-Four (1954) BDRip [H.264] [VO]
@@ -6,7 +78,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114403.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:12E80374C2125EC5012D1DF01AE2BD7F945C01BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114404.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:29C7C2331575FE747B562B119C81513F16DC5BB8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114405.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114406.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:0BA66652C14E55A7E318BA0D609D708D561D7AEE
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114407.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:A3B21F73962436BA58B0515C47C62AB4303A92B7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114408.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:0B83F2E9D8E820EFF38AEB3E5BF01E28AA699879
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114409.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ EZ CD Audio Converter 11.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114410.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ AIMP 5.30 Build 2540 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114411.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:B416E6164B69171C67A629E52473E2A5CE5BA082
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114412.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Topaz Video AI 4.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114413.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:129F5C630AA86A4CC74542367A58B7EF6AA53D7E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114414.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:A8A93CFDCBFF9109AC2BE63AE2822D19E9A11F66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114415.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ art of rally v.1.5.3 (2020) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114416.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:CFF5A7C9760587A5CC3BC13349FE75A374598EDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114417.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:0A5240033576EF55521FEF9A5766018B995C87E1
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114418.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:F77C7464094587E6B64B1E131C2078BC87467EC1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114419.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 04.03.2024) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114420.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ Paste 4 for Mac 4.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114421.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:150956839ADCD42AAE4098F981A446FF61026EF8
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114422.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:81604E8A6F82678C17314CCD9885AB6986177476
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114423.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:0D8D0D7C37AA9F88EEA12578374BF779C1BE2706
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114424.jpg" />
 </div>
 
 
@@ -540,7 +612,7 @@ magnet:?xt=urn:btih:8D1946698289C4F5F80C2FE3B5110EC8E1B81D91
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114425.jpg" />
 </div>
 
 
@@ -551,78 +623,6 @@ magnet:?xt=urn:btih:8D1946698289C4F5F80C2FE3B5110EC8E1B81D91
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5505FD1237CF8C133A18917F0A8A514F53150B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704476   (114426) от 04.03.2024
-
-Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как долго вы ждали доставщика сочной и вкусной пиццы? Добро пожаловать в мир скорости, адреналина и вкуснейшей пиццы! В "Run Pizza Run" вы окажетесь в роли отважного доставщика, который отправляется в опасное приключение, чтобы доставить свежую пиццу по указанным точкам. Однако, на вашем пути стоят не только голодные клиенты, но и беспощадные дорожные монстры (   Читать дальше...   )Тип издания: LicenseРазработчик: IZI GamesЖанр: Экшены, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703897   (114427) от 04.03.2024
-
-Автомобильные загадки советского кино: на чем ездили герои культовых фильмов
-
->>Форум Видео
->>Пользователи NNM-Club рекомендуют!
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие знаменитые советские автомобили завоевали огромную популярность и любовь, в том числе и благодаря советским художественным фильмам. Скажем культовую «Волгу» ГАЗ-21 особенно прославили ленты Генриха Оганесяна «Три плюс два» 1963 года, «Берегись автомобиля» 1966 года Эльдара Рязанова и даже шпионский детектив «Мертвый сезон» Саввы Кулиша. В этом фильме 1968 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704446   (114428) от 04.03.2024
-
-Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114428.jpg" />
-</div>
-
-
-###  Подробнее
-
-4uKey -Password Manager упрощает поиск, восстановление, просмотр, экспорт и управление всеми вашими паролями на iPhone и iPad. Восстанавливает сохраненные пароли для входа на веб-сайт (например, недавно сбросили пароль для Twitter и забыли) или приложение Skype, WhatsApp, Youtube и т.д. Программа автоматически обнаружит ваше устройство и отобразит информацию об устройстве. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.18Разработчик: TenorshareПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E71B9FBF0B00AF0D512DD8F89DFDDA69BB57C3
 ```
 
 

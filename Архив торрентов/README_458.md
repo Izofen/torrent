@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E541D80872F87C2BFB3EE01DD0620A24A2FBB7F5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100159.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3FE301FBD00833709BD51DF57095D60469276125
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100171.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100180.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100181.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100199.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100204.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:DFF4EF3175F8A3B444A35B512EBEE4845EDC0C6E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100217.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0A4DEB0E6CB2E36BF12A3E92363E5F4715BD047D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100226.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Janne Hatula (Fanu, FanuSamurai) - Дискография (4 альбома, 14 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100234.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:22E0884FD2D894061246549974AD8FFEE39154FE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100238.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2E3B1CCC32D024F7056F38BD242A8A28D754F217
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100247.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Liyr - 2 albums (2010-2011) [FLAC|Lossless] <Martial Industrial, Neoclassical, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100248.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:5B34034E9563591151CD3D35F5850812521C9D18
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100259.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Ildfrost - 5 albums (1994-2003) [mp3|192-320 kbps] <Darkwave, Neoclassical, Ambi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100266.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:0898E3836A4B3F0C9D13581FE853719A9A9F6095
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100270.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100275.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100276.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100277.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100280.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100281.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_100282.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100283.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100284.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100285.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100287.jpg" />
 </div>
 
 

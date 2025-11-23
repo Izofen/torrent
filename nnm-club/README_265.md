@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6974.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ashampoo Burning Studio 26.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6975.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CFFF2DAB99655932B7E02241C1343B15FFA025FE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6976.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7FF2986E1233DA94864CEECF8466D145E8D73121
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6977.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9F0162C99E947CE0016C298E9F669FC2B0173E17
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6978.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Popa Chubby - 30 альбомов (1992 -2025) 37 CD [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6979.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:051FAFF731E782BB2A3582C680C1008B703C257F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6980.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3238D7E1CDBD3DF5F7FBF018182C977D9CE406AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6981.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ventoy 1.1.07 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6982.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Total Commander 11.56 Final [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6983.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:730AD70595814D80D15FEDB847957B6528990BF1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6984.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows Server 2025 LTSC [10.0.26100.4946], Version 24H2 (Updated August 2025) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6985.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:297BE7B0F0346FE741E3F11D02066516E6BA0D8D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6986.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:9AC42BB1E418DF323BDB6B2E137876892531A76B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6987.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Slayer: The Demon Haunted World (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6988.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:6FA5042E1401BD23090B38F34BE0B08A3C8F2792
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6989.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6990.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6991.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CC13CB1D3B3A114009270FE1F8FA076B52B6DF25
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6992.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:29EF1549336D5DDA8D6B3E58EDB9C8A4E6E9D42B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6993.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:20C0789F9F5A0CA599649D293A802D3B94633526
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6994.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:3435B7E4EEAA52F6AB7A1EBE0C984227B2FC9B04
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6995.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Microsoft Windows 11 [10.0.26100.4946], Version 24H2 (Updated August 2025) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6996.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Tunshi Xingkong | Swallowed Star | Пожиратель звёзд | Погло�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6997.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:32F14456E5B984E71D2C52E49DD1D44A8EE24EDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6998.jpg" />
 </div>
 
 

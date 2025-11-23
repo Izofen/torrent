@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12698.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8D7BE8904EFC947339626C26A81B6B5DE1E5538B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12701.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5BC76C9D5CD7923BE69CBB2B5FE4DE2C8D3DFF5D
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12702.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3092FAB36DC5704602B1B9EC57DD2BDB948A5F58
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12703.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3852B664B0BD723E015CEC0D439373E335A4D753
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12708.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Resident Evil 4 / Resident Evil 4 Remake (2023) [Ru/Multi] (Build 11025382/dlc) 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12709.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Other s [Digital
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12710.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:60DF3AC9FA645E3DF2CBEBC98BBB9B5996D55CB3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12711.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1F82EA816A466C5611C6927344281A1CA299838A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12712.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3C5FB8E46C97B785C67EAC520BF428D34F869A18
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12713.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B83E2C925A8C239EB642A35BA2AFA8D3306AD6FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12714.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:7C592D813FBCE5AEDDD2A181BD0ACC1BE1F791EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12715.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:DA2956B5009BB34F661B53EE1AA0AFB94FCA8C23
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12716.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:5C0919CE85A5005544C063724A6F445D8476FA2B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12717.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:75A04A2E571DB97147340678AD35A8FFFA582F4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12718.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:75A04A2E571DB97147340678AD35A8FFFA582F4F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12719.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9F19CC7F51C4200D77879C0A9190E01188971FB0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12720.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12721.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C3E3CD8E8B448B9BD0A8BC5E55D4269D61C8A91C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12722.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12723.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.120236.0/dlc) Repack Let'sРlay [Dwar
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12724.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:C378024816B4614190F5753B2EF6CBBD3D45E953
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12725.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:C42CCDF126649486665238492207DB6F68AB3C74
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12727.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D0D3A525CAAFAA23CA83A0D966B3A091479417C2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12728.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:B51506B413CE92882DA241359665A2B6A20F85F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12729.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ UFO(Unidentified Flying Objects) - Champions Of Rock (1996) Compilation [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12730.jpg" />
 </div>
 
 

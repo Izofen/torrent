@@ -6,7 +6,7 @@ Chris Rea - Shamrock Diaries (1985) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125456.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125457.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Albert King - 42 Albums (1962 - 2017) 59 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125560.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Rea – Deltics (1979) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125605.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125606.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Neil Levin - The SoCal Sound Sessions With Neil Levin (2023) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ La Blues Band de Granada - The Jumping Boogie (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125694.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Joakim Tinderholt & His Band - Deadlines (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125697.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125698.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125700.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nemo Blues Band - In the Land of the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125706.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125712.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mick Clarke - Gnarly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125713.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Keith Scott Blues - One Nation Under the Blues (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125716.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Payson Lyon - Long Day's Journey into Light (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125720.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lurrie Bell - Collection, 10 Albums (1989 - 2018) (1989 - 2018) [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125728.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125730.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Misuria - Saint Thomas Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125760.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bryan Lee - 14 Albums (1991 - 2018) [FLAC|Lossless|tracks + .cue|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126021.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Horace Silver - 12 Classic Albums (1953 - 1962) 6CD, 2014, Enlightenment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126177.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Michel Petrucciani - Date With Time (1991) 1981, Owl Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126178.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126179.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126212.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126394.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Graeme Emmott - No Loitering (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126397.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Ingvay - One Magic Mile (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126403.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 596977   (131129) от 31.12.2012
+
+Sexy Girls Wallpapers (30.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C374384E3C7E4054C9B19C6EC06C386E837BC14B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682600   (131130) от 08.12.2023
+
+Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Second Chance
+02. Resurrection
+03. Wildest Dreams
+04. Into The Mirror(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB25C629CD809EE3D251CA04284B55EE588851F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682820   (131132) от 08.12.2023
+
+Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah (4:43)
+02. Never Give Up On Livin' (5:24)
+03. I'm Ready (3:26)
+04. Love And Happiness (5:06)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A331A76E593A751FD3ACA8B3F3C76987067BF07C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595125   (131133) от 31.12.2012
 
 REC. - Мордой В sWeg (2012) [MP3|320 кб/с]<Rap|Hip-Hop>
@@ -6,7 +84,7 @@ REC. - Мордой В sWeg (2012) [MP3|320 кб/с]<Rap|Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131133.jpg" />
 </div>
 
 
@@ -39,7 +117,7 @@ magnet:?xt=urn:btih:84AD68B98916FBDAD0C1486386786E91FD86375F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131134.jpg" />
 </div>
 
 
@@ -65,7 +143,7 @@ Scorngrain - 3 альбома (2004 - 2010) Дискография [MP3|CBR:320,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131137.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ Arminstel - Trance Evolution (31.12.2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131139.jpg" />
 </div>
 
 
@@ -122,7 +200,7 @@ magnet:?xt=urn:btih:2B210238B04C79948BA4D060F17F8CE8E6C1D784
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131141.jpg" />
 </div>
 
 
@@ -147,7 +225,7 @@ Cassidy Paris - New Sensation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131142.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ Edward Seger & Sounds of Silence - For Greeny (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131143.jpg" />
 </div>
 
 
@@ -201,7 +279,7 @@ Chip Windows XP SP3 (x86) 2012.12 DVD [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131144.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ Chip Windows XP SP3 (x86) 2012.12 DVD [русский]
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131145.jpg" />
 </div>
 
 
@@ -258,7 +336,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131147.jpg" />
 </div>
 
 
@@ -285,7 +363,7 @@ magnet:?xt=urn:btih:ACAB6A18582463AA51CDA6199FB549724D4476E7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131148.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ magnet:?xt=urn:btih:9BFF6C5C86605021FD2B71440B241112A0251568
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131149.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ magnet:?xt=urn:btih:747FEF3CE0603DF7056ADCDFF1990A0D108F7627
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131150.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ magnet:?xt=urn:btih:0FC8CCF24F71773425A32AA6664EE8494ED53F19
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131151.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ AgiliaLinux 8.1.1 "Telnyashka" [x32, x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131152.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ Blue Oyster Cult (Blue Öyster Cult) - First Night (2023) 50th Anniversary Live,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131153.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ VA - Modern Rock Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131155.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ magnet:?xt=urn:btih:9C109325CD96603426162ED417CFD5DE748B9B5A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131156.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ magnet:?xt=urn:btih:9C109325CD96603426162ED417CFD5DE748B9B5A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131157.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131159.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ Recovery Partition for Samsung NP-350 V5C / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131160.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Fifth Note - Here We Are (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131161.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ magnet:?xt=urn:btih:C62A27B911D0D9210D56CD7EE42DD0E77A1C93ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131162.jpg" />
 </div>
 
 
@@ -602,83 +680,6 @@ magnet:?xt=urn:btih:C62A27B911D0D9210D56CD7EE42DD0E77A1C93ED
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682742   (131163) от 08.12.2023
-
-Младший Боннер / Junior Bonner (1972) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стареющий ковбой родео Боннер возвращается в родной городок Прескотт в штате Аризона и понимает, что всё в мире меняется. С печалью он узнаёт, что его родители разошлись, а брат разбогател, распродавая по кускам землю отца... Боннер пытается вернуть себе уважение, укротив ранее непобедимого быка на родео, проводимом в городке в честь 4-го июля...Производство: США, American Broadcasting Company, Joe Wizan-Booth Gardner Productions, Solar ProductionsЖанр: драма, вестернРежиссер: Сэм ПекинпаАктеры: Стив МакКуин (I), Роберт Престон, Ида Лупино, Бен Джонсон, Джо Дон Бэйкер, Барбара Ли, Мэри Мёрфи, Билл МакКинни, Даб Тейлор, Сэм Пекинпа, Сандра Дил, Дон ’Красный’ Бэрри, Чарльз Д. Грэй, Мэтью Пекинпа, Сандаун СпенсерПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6D6EED34037472DBD4C50DD3D2BF2A21E3F379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596482   (131164) от 30.12.2012
-
-Borderlands 2 + 5 DLC [Ru/En] (RePack/1.2.2) 2012 l R.G ReCoding
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131164.jpg" />
-</div>
-
-
-###  Подробнее
-
-В команде с тремя соратниками по сети или же вдвоем с другом в старом добром режиме разделенного экрана отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
-
-Выберите героя и как следует снарядите его — по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, — причем чем дальше, тем больше. Предметы на Пандоре генерируются автоматически, и вы никогда не можете знать заранее, что за пушка окажется в ближайшем ящике! Открывайте новые тайны Пандоры, прокачивайте персонажа по мере выполнения заданий, заводите друзей и наживайте врагов — станьте героем собственной истории в полном неожиданностей мире Borderlands!(   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682671   (131165) от 08.12.2023
-
-Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The New Dimension
-02. Isis And Osiris
-03. Amazing Flight
-04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1696555   (119496) от 03.02.2024
+
+David Byron - Baby Faced Killer (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Байрон (29 января 1947 - 28 февраля 1985, настоящее имя Дэвид Гаррик). Британский певец и автор песен, наиболее известный как фронтмен Uriah Heep.01. Baby Faced Killer (3:13)
+02. Rich Man's Lady (3:53)
+03. Sleepless Nights (3:51)
+04. African Breeze (4:14)(   Читать дальше...   )Жанр: Electronic, Rock, DiscoПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D57FB59123B2E4708B24CC2B704FA5F5820A96B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696533   (119497) от 03.02.2024
+
+Моя прекрасная свадьба / Beautiful Wedding (2023) CamRip [H.264] (звук с TS) [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если вы поженились в Вегасе после одной безумной ночи? Конечно же, устроить себе отвязный медовый месяц в жаркой Мексике! Вещи собраны, а друзья уже в пути, ведь Эбби и Трэвис доказали всем, что они - идеальная пара. Но готовы ли они к браку, или же всё закончится ещё одним прекрасным несчастьем?Производство: США, Voltage PicturesЖанр: Мелодрама, комедияРежиссер: Роджер КамблАктеры: Дилан Спроус, Вирджиния Гарднер, Стивен Бауэр, Роб Эстес, Либэ Барер, Остин Норт, Дженезис Эстевес, Нил Бишоп, Эммануэль Кабонго, Джек ХескетПеревод: Дублированный (Мосфильм-Мастер, звук с TS)Язык озвучки: Русский, украинскийСубтитры: отсутствуютПродолжительность: 01:27:25Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696580   (119498) от 03.02.2024
+
+Радикальный / Radical (2023) WEB-DL [H.264/1080p] [SPA / RU, EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119498.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приграничном мексиканском городе, посреди коррупции и разрухи, учитель применяет радикально новый метод раскрытия потенциала своих учеников.Производство: Мексика / 3Pas Studios, EPIC Magazine, Pantelion FilmsЖанр: драмаРежиссер: Кристофер ЗаллаАктеры: Эухенио Дербес, Дэниэл Хаддад, Jennifer Trejo, Mia Fernanda Solis, Danilo Guardiola, Хильберто Барраса, Victor Estrada, Manuel Márquez, Christian González, Xochiquetzal MartínezПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: русские, английские, испанскиеПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76274F3D52BFDA59BE51014045252CF3B035B3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696675   (119499) от 03.02.2024
 
 DJ SMASH - MIU MЯU (2024) [MP3|320 Kbps] <Pop>
@@ -6,7 +81,7 @@ DJ SMASH - MIU MЯU (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119499.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:5C3081F8C54D079A8889DBA40CC6D32BF6874F92
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119500.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ magnet:?xt=urn:btih:DC33C8DADC733736A836F71632C6FE7F173E1102
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119501.jpg" />
 </div>
 
 
@@ -83,7 +158,7 @@ OfficeSuite Pro + PDF v14.2.50872 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119502.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ magnet:?xt=urn:btih:14A4EC49488C3564D17B3A5F5FA6E585E1CB6CF0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119503.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ dBpoweramp Music Converter 2024-02-01 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119504.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:6161539E95BBB13B92191CB1D042E5A8E677E8C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119505.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ ToonMe v0.6.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119506.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:F72F2B701E96CD0CC9519268954836116394BDAE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119507.jpg" />
 </div>
 
 
@@ -228,7 +303,7 @@ magnet:?xt=urn:btih:F4429ADF604C9C664157DBD4426F2E0BA5B45FB4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119508.jpg" />
 </div>
 
 
@@ -252,7 +327,7 @@ magnet:?xt=urn:btih:EADCE1065368BD272379F6A336E550A226AF13AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119509.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ magnet:?xt=urn:btih:B69B550E08A02F0649FB63FB31971DB713C17310
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119510.jpg" />
 </div>
 
 
@@ -300,7 +375,7 @@ WinCatalog 2024.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119511.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:F0312B0A904F21ACEE29E953B4EE107CFB956805
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119512.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:D73FFAF54152E3540E9E251B63B2201F7EA2C16F
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119513.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119514.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ magnet:?xt=urn:btih:EE7B651751E2E5C4F493868FB15C857A17A14D8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119515.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ magnet:?xt=urn:btih:552363FC10DA3DE45FE340D1E321131230239446
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119516.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119517.jpg" />
 </div>
 
 
@@ -471,7 +546,7 @@ magnet:?xt=urn:btih:6F08E2E23990C9FAC124C894B4B7477B99288CC9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119518.jpg" />
 </div>
 
 
@@ -495,7 +570,7 @@ magnet:?xt=urn:btih:2D1B0A462870225311B47B7FBC56ECFDD14E38A3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119519.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Spotify 1.2.28.581 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119520.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ magnet:?xt=urn:btih:B6DFA0C44EACF848464C61BEB24DBFA34B699ECD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119521.jpg" />
 </div>
 
 
@@ -555,78 +630,6 @@ magnet:?xt=urn:btih:B6DFA0C44EACF848464C61BEB24DBFA34B699ECD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD85B71A95047CE0EF8F11A9567E0CEAFDA8920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696522   (119522) от 03.02.2024
-
-SimInTech 2.24.1.26 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119522.jpg" />
-</div>
-
-
-###  Подробнее
-
-SimInTech – система автоматизированного проектирования логико-динамических систем, описываемых во входо-выходных отношениях, в виде систем обыкновенных дифференциальных уравнений и/или дифференциально-алгебраических уравнений, а также описываемых в виде расчётных («нодализационных») схем для специализированных решателей (расчётных кодов) термогидродинамических и (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44E237A1F4650A4EC91AD54507D4CD66B82180C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690636   (119523) от 03.02.2024
-
-Влюбиться в невесту брата / Dan in Real Life (2007) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн — вдовец, отец трёх дочерей, остроумный журналист, ведущий популярной колонки полезных советов в престижной газете. Но когда Дэн влюбляется (и не в кого-нибудь, а в невесту собственного брата), то с удивлением для себя обнаруживает, что советы, которые на протяжении многих лет он давал своим читателям и дочерям, в его случае не действуют. Оказывается, реальная (   Читать дальше...   )Производство: США / Dan In Real Life Productions, Focus Features, Jon Shestack Productions, Touchstone PicturesЖанр: драма, мелодрама, комедияРежиссер: Питер ХеджесАктеры: Стив Карелл, Жюльетт Бинош, Дэйн Кук, Элисон Пилл, Бритт Робертсон, Марлен Лоустон, Дайэнн Уист, Джон Махони, Норберт Лео Батц, Эми Райан, Джессика Хехт, Фрэнк Вуд, Генри Миллер, Элла Миллер, С.Дж. АдамсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97095CF37F11D60B2007DF767FACA8F9DA164129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683425   (119524) от 03.02.2024
-
-Ярче звезд (2023) WEBRip [H.264/720p] (сезон 1, выпуск 1-13 из 13)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое музыкальное шоу перевоплощений «Ярче звёзд» соберёт самых талантливых вокалистов, искусных пародистов и прирождённых артистов на одной сцене. Все они будут перевоплощаться в своих любимых исполнителей, а тот, кто сделает это убедительнее остальных, получит внушительный денежный приз и, конечно, всероссийскую славу и признание звёзд эстрады. В каждом выпуске (   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Музыкальное ТВ-ШоуУчастники: Гарик Мартиросян, Марина Кравец, Иван Абрамов, Алексей ЧумаковСубтитры: ОтсутствуютПродолжительность: ~01:25:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B0D1AB58C6964E65B68509CCF0E45F1B751D1A
 ```
 
 

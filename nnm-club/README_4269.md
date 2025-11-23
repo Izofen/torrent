@@ -1,3 +1,83 @@
+###  Публикация: 596377   (131256) от 30.12.2012
+
+John Woo Presents Stranglehold [Ru/En] (Repack/1.1) 2007 | R.G. Origami
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Stranglehold (другое название - John Woo Presents Stranglehold) — масштабный проект голливудского режиссера Джона Ву («Без лица», «Миссия невыполнима – 2» и др.).
+
+Stranglehold — высокотехнологичный компьютерный боевик с невероятным уровнем кинематографичности и реалистичности. Созданный на графическом движке Unreal Engine 3.0, он предлагает игрокам оценить невероятную интерактивность нового поколения. Внешность главного героя игры, инспектора Текилы, с фотографической точностью повторяет внешность актера Чоу Юн-Фата, исполнявшего главную роль в культовом фильме «Круто сваренные», который превратил Джона Ву в звезду мирового масштаба. Игроков ждут эффектные акробатические трюки, жаркие перестрелки, полностью разрушаемое окружение и море чистого экшена.
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E916028BBC1B0F0488AF0510F4C0A83B8FC79BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676511   (131257) от 07.12.2023
+
+Судья Дредд / Judge Dredd (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131257.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьем тысячелетии мир переменился. Климат, народы - всё перевернулось… Земля превратилась в ядовитую, выжженную пустыню, которую стали называть «Проклятая земля». Миллионы людей сосредоточились в нескольких огромных городах, на улицах которых царили хаос и преступники. Система правосудия не смогла справиться с анархией, и был создан новый порядок - элитные подразделения, (   Читать дальше...   )Производство: США, Нидерланды, Великобритания / Cinergi Pictures Entertainment Inc., Edward R. Pressman Productions, Hollywood PicturesЖанр: фантастика, боевик, триллер, криминалРежиссер: Дэнни КэннонАктеры: Сильвестр Сталлоне, Арманд Ассанте, Роб Шнайдер, Юрген Прохнов, Макс фон Сюдов, Дайан Лэйн, Джоэнна Майлз, Джоан Чэнь, Бальтазар Гетти, Морис РоевзПеревод: Многоголосый профессиональный (Twister, Киномания, Екатеринбург Арт Home Video)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFFDB92CECC8292D39F0E95213A2B082FFF003F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595417   (131258) от 30.12.2012
+
+King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как может показаться, в The Ancient City судьба вселенной никоим образом не зависит от ваших действий. Ведь все решено уже без вас - в королевство был завезен мистический символ печали, вследствие чего все население пострадало от страшной чумы. Так как спасать уже попросту некого, все, что остается - вернуть проклятую статуэтку ее законным обладателям.
+
+Сюжет ограничивается одной лишь завязкой. Спустя пару-тройку часов вы наверняка забудете, кто ваш герой и какими судьбами он оказался в очередном пропахшем сыростью подземелье. И не даже не найдетесь, что вам кто-нибудь напомнит. Город опустошен, NPC можно пересчитать по пальцам, а разговоры сводятся к никчемным замечаниям.
+
+Главное, что сюжетная линия не сдерживает вас в действиях. Вы вольны следовать, куда угодно, и развлекаться, как угодно. Если желаете, порешите топором продавца в магазине, которому до этого сбывали найденные предметы. Никто вам не скажет ни слова упрека. Некому. Отсюда и доминирующие чувства одиночества, безысходности, неопределенности. Как (   Читать дальше...   )Жанр: RPGЯзык интерфейса: Multi-5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682415   (131259) от 07.12.2023
 
 Оффлайн (2022) WEBRip [H.264] (сезон 1, серии 1-10 из 10 + док о фильме)
@@ -6,7 +86,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131259.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:F43A3B37462A10F64118ECF2155F03B877880FD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131261.jpg" />
 </div>
 
 
@@ -54,7 +134,7 @@ magnet:?xt=urn:btih:E85D57DB429BFCCC5C0881851AB8EED061DAD8DE
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131263.jpg" />
 </div>
 
 
@@ -78,7 +158,7 @@ VA - Rockовое Нашествие-Русская версия (2012) [MP3|128
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131265.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Blumentals HTMLPad | Rapid CSS | Rapid PHP | WeBuilder 2011 11.4.0.133 [MULTi / 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131266.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ Adobe Illustrator 2024 28.1.0.141 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131268.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ magnet:?xt=urn:btih:0335A1185BAC45C4AD32B0D3C1E994326F474F1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131269.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ magnet:?xt=urn:btih:C0AE430030956B6F186E0B258D83A995831AB4AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131270.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ magnet:?xt=urn:btih:BCC3BCF2A2B4F3B4240D1A4C0F3FFC512470BAF2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131271.jpg" />
 </div>
 
 
@@ -239,7 +319,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131272.jpg" />
 </div>
 
 
@@ -263,7 +343,7 @@ School of Motion, Joey Korenman, Greg Stewart и др. | A motion design masterp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131273.jpg" />
 </div>
 
 
@@ -287,7 +367,7 @@ magnet:?xt=urn:btih:0AA23E1690C6596FAD03EC9D2F9E6CC06C5B9988
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131274.jpg" />
 </div>
 
 
@@ -311,7 +391,7 @@ Udemy, Raj Chhabria | ChatGPT for Data Science and Machine Learning (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131275.jpg" />
 </div>
 
 
@@ -335,7 +415,7 @@ magnet:?xt=urn:btih:EA75FF8AF93BFDB38BED31B7E3EED6774C9416A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131276.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ magnet:?xt=urn:btih:EA75FF8AF93BFDB38BED31B7E3EED6774C9416A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131277.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ magnet:?xt=urn:btih:AC2ECA632E575A33C83AD1412A970C0863F5C6CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131278.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ magnet:?xt=urn:btih:A62D3DB3BD6C8AD3EF485B85D7CDEC3BFBA0C699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131279.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ AIDA64 Engineer Edition 7.00.6700 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131280.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ magnet:?xt=urn:btih:0BCA5E0ECF50F8E5595CFF8C9297D0335D2229E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131283.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ magnet:?xt=urn:btih:6B4917479AEDECF888B10D1968892EEF3F67DFFA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131285.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ Toorox 01.2013 [x32, x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131286.jpg" />
 </div>
 
 
@@ -529,7 +609,7 @@ Udemy, Mrawan Hussain | Blender: Rolls Royce Spectre in 3D (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131287.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ magnet:?xt=urn:btih:8ED2856C81E05C97F66CA6FCD55A3BCD220CF26E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131289.jpg" />
 </div>
 
 
@@ -567,80 +647,6 @@ magnet:?xt=urn:btih:8ED2856C81E05C97F66CA6FCD55A3BCD220CF26E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E1007362D09331DA25F4DBCE21E2C7620223BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682433   (131291) от 07.12.2023
-
-RizomUV Virtual Spaces / Real Space 2023.0.71 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131291.jpg" />
-</div>
-
-
-###  Подробнее
-
-RizomUV VS - это полнофункциональное приложение UV развертки, с функциями, превосходящими большинство предложений, представленных в настоящее время на рынке. В то время как его брат, RizomUV RS ((Real Spaces), предназначен для пространства САПР, RizomUV VS (Virtual Spaces) - это приложение UV развертки для индустрии компьютерной графики, от инди-кадров до игр, в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D436E84C71E9127DC3EC2E8693E6AE33E1EAFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596189   (131292) от 30.12.2012
-
-Karateka [Ru/En] (RePack/1.0) 2012 | Audioslave
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк первой игры Джордана Мехнера, создателя серии Prince of Persia.
-В Karateka игрокам предстоит спасти похищенную принцессу. «Лупим» всех без разбору, доходим до босса, сражаемся с ним, побеждаем, переходим на новый уровень, снова лупим, снова сражаемся с боссом – и так до победного конца. В идейном плане ремейк будет полностью соответствовать первоисточнику, но с точки зрения визуального исполнения между ними нет ничего общего.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade (Fighting) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC44B7E86B74F7342D129A1817459F7A46DE76E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682493   (131293) от 07.12.2023
-
-Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Тампа-Бэй Лайтнинг (06.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131293.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 декабря 2023, четверг. 03:00 МСК. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Линейный: Жюльен Фурнье (Гатино, Канада); Линейный: Дэвин Берг (Китченер, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B159BECAB0EC4820AEBF343E4743B179885F03D
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1674053   (163068) от 03.11.2023
+
+Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F31B3E4C1B970CBCE0C13E0AF7AECEEAA216ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432768   (163069) от 18.12.2020
+
+Adobe Animate 2021 v21.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Animate 2021, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate также позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594CFC8BD40EA10D35B44778CA72D16260545C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517374   (163070) от 15.12.2021
+
+Artstudio Pro 3.2.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D061CE48362044261E9AFC331BF4A02ACF0EC8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674015   (163072) от 03.11.2023
 
 4K Video Downloader 4.28.0.5600 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +78,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163072.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Cisdem PDF Password Remover 4 v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163074.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Adobe XD 35.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163075.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163078.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ CurrPorts 2.76 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163083.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Telegram Desktop 4.11.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163098.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Topaz Photo AI 2.1.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163104.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Audio Hijack 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163108.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ NewFileTime 7.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163110.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.60.5900 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163113.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Deflection 5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163135.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ New File Menu 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163139.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ HiBit Uninstaller 3.0.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163147.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ NetLimiter 5.1.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163148.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ Persecond 1.4.6 (build 120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163153.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Transcend SSD Scope 4.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163155.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ SRWare Iron 108.0.5500.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163156.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Free Hex Editor Neo 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163159.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ Boxy SVG 3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163163.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ ExactScan Pro 19.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163168.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Audacity 3.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163169.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Allegorithmic Substance Designer 2020.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163171.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ Yate 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163173.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ Yate был разработан для людей, которые серьез�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828A50020D8C639162BE50A71F1B6D4B5976AF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674016   (163174) от 03.11.2023
-
-AllDup 4.5.52 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163174.jpg" />
-</div>
-
-
-###  Подробнее
-
-AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
-Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E741B9B7B5E9C987152E04AC90C37F642EECAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598405   (163176) от 18.12.2022
-
-MuseScore 4.0 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163176.jpg" />
-</div>
-
-
-###  Подробнее
-
-MuseScore — великолепное приложение для создания партитур.  Программа распространяется бесплатно, имеет открытый исходный код.  Данное средство предназначено, скорее, для начинающих музыкантов, потому что хотя и имеет огромное количество инструментов и возможностей при этом остаётся невероятно простым для понимания программным обеспечением. Удобство и полезность программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AB017AC828F4125328F329C22051B1A2FD8B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673891   (163179) от 03.11.2023
-
-Wise Auto Shutdown 2.0.5.106 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Auto Shutdown позволяет Вам отключать компьютер, перезагружать его, отключать питание, выходить из системы, переходить в спящий режим или в режим гибернации на регулярной основе или определенное время. Это значительно упрощает управление питанием. Работает в фоновом режиме и показывает напоминание за 5 минут перед выполнением, если стоит соответствующая галочка.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72B4B04D802B7E81A4764600A696D3738B33051
 ```
 
 

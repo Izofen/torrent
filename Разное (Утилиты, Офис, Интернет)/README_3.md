@@ -6,7 +6,7 @@ AllDup 4.5.66 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27642.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27642.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ O&O ShutUp10++ 1.9.1444 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27785.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ System software for Windows v.3.6.6 by CUTA [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28006.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wise Auto Shutdown 2.0.8.109 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28052.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Movavi Screen Recorder 24.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28287.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28287.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Movavi Screen Recorder 24.5.0 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28340.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28340.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Movavi Screen Recorder 24.5.0 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28378.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Epic Pen Pro 3.12.161 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28395.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28395.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ClipAngel 2.17 & portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28757.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28757.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ TweakNow WinSecret Plus! 6.1.5 Portable by FC Portables [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28761.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28761.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ ASCOMP KeyCtrl Pro 2.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28901.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_28901.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Screenpresso Pro 2.1.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29079.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29079.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aiseesoft Screen Recorder 3.1.36 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29081.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ DisplayFusion Pro  + Portable + MSI 11.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29314.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Directory List & Print Pro 4.33 + Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31389.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Clipboard Master 5.8.3.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31501.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ KMSoffline 2.4.7 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32170.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33083.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Defender Tools 1.15 b10 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33223.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ FileSeek Pro  + Portable + MSI 7.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34522.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Clipboard Fusion Pro + Portable + MSI 6.2.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34540.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Run-Command 6.23 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35342.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ ClipClip Pro 2.4.5928 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35351.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ CMWTAT Digital Edition 2.7.2.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35597.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CA3F0E6725D760ECDF74D0189FDBC74A0ACF1389
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35691.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38855.jpg" />
 </div>
 
 

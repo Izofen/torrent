@@ -6,7 +6,7 @@ Topaz Video AI 7.0.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17937.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop 2025 26.6.1.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17962.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HEU KMS Activator 62.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17965.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DAC386844D4BE4864BE9B28DF0BC531313DC50A5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17968.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ WeNote: заметки блокнот планер v6.33 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17971.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ MobiPDF: Редактор и сканер PDF  v11.5.1.267066 Mod by Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17978.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9FF43B4B50F06F8A3B7D675E6BF3A32AEBF6E40E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17980.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Folder Player Pro v5.34 b346 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17983.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Squid - рукописные заметки v4.4.0 Mod by Alex.Strannik [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17985.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:03A46801BC34B994A88BC7B86BABAE0E1B1F937C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17990.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17994.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ventusky: Прогноз погоды v44.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18007.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ YT Downloader 9.12.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18024.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 7 SP1 7601.27729 x64 3in1 by OneSmiLe [17.05.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18036.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:67C56F570E18D2D780F49ABB971C0E0E14492A12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18076.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:585E5C8C5F31458C12B1AF746CEFE5C3C4248FD0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18082.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ OCCT 14.0.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18100.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Any Video Downloader Pro 9.2.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18114.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ EasyUEFI Technician 5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18122.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:2DB990D16834418C1F58E5A4D6DA490221C08A64
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18138.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Abelssoft SSD Fresh Plus 2026 15.01.61691 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18141.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:73C9D963D02605F64002ED0EE53F7E5BCB8D45DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18144.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ V-Ray 7.10.00 for 3ds Max 2021-2026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18145.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2099BFE5560A610BD3882EFA24AF02C1A5B6C4AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18148.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C96027E993A538CC71D93F2D01EB3DC74BCBF516
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18153.jpg" />
 </div>
 
 

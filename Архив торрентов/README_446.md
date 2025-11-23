@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99085.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99088.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99088.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99091.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99092.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99096.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:2A6ADEE6D3625B9EDD23E276F4893386E575B730
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99101.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:F5DF020804F52A1227FFD5046154614FD738F5E0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99102.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:6C53D5325033816BA8EAC77BD680351BCF9F156F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99104.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:DDB182F3F3C4573A9DF10DCE75B17CBE848059DE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99106.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:B37331C2BC9F5376A7CEBABAB241B3ED4D5480D7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99112.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Музыкальные хиты (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99113.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:056E7A434DA7507B41941BE74A16F0C86F011B97
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99114.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sumatra PDF 2.0.1 Final + Portable [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99123.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99123.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Datsik - Vitamin D (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99125.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:CBB9D563825163EFD7280ECDF5D994F8285AA5CF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99128.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Бездна Party 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99136.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:DB038F7EC0E660C4798743667E080E48F98A5398
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99149.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bentley всегда привлекали внимание - они всегда
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99150.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99153.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99154.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99156.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99161.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99166.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99168.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99168.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99170.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99174.jpg" />
 </div>
 
 

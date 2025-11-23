@@ -1,3 +1,76 @@
+###  Публикация: 594442   (134246) от 25.12.2012
+
+Sexy Girls Wallpapers (25.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD566D56C58FEC5C3CC2F58F9437C0A1002A2AF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680408   (134247) от 29.11.2023
+
+Fort Firewall 3.10.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4F4294B75DC34FB3ECB23C425D5BF4AB0018AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680564   (134249) от 29.11.2023
+
+TG Pro (Temperature Gauge Pro) 2.89 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134249.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B46E35697F1D881979E3D2B055FA3B61C3643AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680519   (134251) от 29.11.2023
 
 Skype 8.109.0.209 [Multi/Ru]
@@ -6,7 +79,7 @@ Skype 8.109.0.209 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134251.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:4F82F49C6D05BC011ABF44F5F38A8FA853905B61
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134252.jpg" />
 </div>
 
 
@@ -58,7 +131,7 @@ magnet:?xt=urn:btih:A818EC14099B17F472564ECE4C4F55B5B83245C2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134253.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ VA - Radio (Rádio) FM Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134255.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Hardwell - Hardwell On Air 095 (21.12.2012) [MP3|320 кб/с]<Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134256.jpg" />
 </div>
 
 
@@ -142,7 +215,7 @@ A Better Finder Rename 12.04 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134257.jpg" />
 </div>
 
 
@@ -167,7 +240,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134259.jpg" />
 </div>
 
 
@@ -191,7 +264,7 @@ Kane Roberts - Unsung Radio (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134260.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134261.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:483EB623B39D422E76A6590012C39452C33B4603
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134262.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ magnet:?xt=urn:btih:0E8F008008E6220C5DCD2DE4E79E78422A52EFDD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134263.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ Vinegar 2.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134264.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ magnet:?xt=urn:btih:AF9879B8CE3FA05DC7EBCFFC851AE31CD5106244
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134265.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134266.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ The Firstborn - From The Past Yet To Come (2000) [WavPack|Lossless]<Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134268.jpg" />
 </div>
 
 
@@ -406,7 +479,7 @@ The Firstborn - From The Past Yet To Come (2000) [WavPack|Lossless]<Melodic Deat
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134269.jpg" />
 </div>
 
 
@@ -430,7 +503,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134272.jpg" />
 </div>
 
 
@@ -463,7 +536,7 @@ magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134273.jpg" />
 </div>
 
 
@@ -489,7 +562,7 @@ Inherit Disease - 2 Альбома (2006-2010) Дискография [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134274.jpg" />
 </div>
 
 
@@ -522,7 +595,7 @@ Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134275.jpg" />
 </div>
 
 
@@ -549,7 +622,7 @@ Dalindeo - Open Scenes (2007) [MP3|320 кб/с]<Nu Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134276.jpg" />
 </div>
 
 
@@ -582,7 +655,7 @@ Imperial Child - Secrets Of The Roman Ghost (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134277.jpg" />
 </div>
 
 
@@ -609,7 +682,7 @@ magnet:?xt=urn:btih:2356BB5B6A365FCDD0B9B6062F3564F28B355490
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134278.jpg" />
 </div>
 
 
@@ -620,84 +693,6 @@ magnet:?xt=urn:btih:2356BB5B6A365FCDD0B9B6062F3564F28B355490
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03DB09BF0983055F943E27477BCB4D77336CB41D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680579   (134279) от 29.11.2023
-
-Baking Soda for Mac 1.1.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baking Soda — это расширение Safari, которое заменяет пользовательские видеопроигрыватели (кроме проигрывателя YouTube) минимальным тегом видео HTML.
-Baking Soda более проста, чем Vinegar 2.3.9Тип издания: macOS SoftwareРелиз состоялся: 02.10.2022Разработчик: © 2021-2022 And a DinosaurПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4934FFE88629513CC2D3BA1AAAE85C8608F225C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679427   (134281) от 29.11.2023
-
-Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023-10-19) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Let You Down (Nifra Remix)
-02. Nifra & Leo Reyes - Humanoids
-03. Tiësto ft. BT - Love Comes Again (Nifra 2023 Remix)
-04. Hardwell - GODD(   Читать дальше...   )Жанр: TranceПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D4B5E712ABDC26F0B43EC651BF6B8E8A99DB5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593459   (134282) от 24.12.2012
-
-Need for Speed ProStreet [Ru/En] (Repack/1.1)  2007 l R.G. Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые дорогие машины со всего света, умопомрачительный тюнинг, свет ксенона и нереальные скорости — нелегальные гонки всегда привлекали сорвиголов на самых быстрых шедеврах автопрома. Но со временем культура и мода меняются. Любители быстрой езды вышли в свет и перестали прятаться от полиции: новые соревнования проводятся официально на специальных трассах во всех частях планеты. Хобби «золотой молодежи» превратилось в самостоятельный вид спорта со своими правилами, спонсорами и чемпионами.
-
-Новая часть знаменитой гоночной серии Need for Speed меняется вслед за самими гонками. Больше не нужно прятаться от властей и рисковать в нелегальных заездах. Теперь самый опасный враг — не полиция, а хитрые и стремительные соперники. Они действуют агрессивно и в любой момент готовы подрезать машину оппонента или столкнуть ее в кювет, превратив в бесформенную груду железа. Эра бессмертных автомобилей прошла! Любого четырехколесного коня можно разбить вдребезги: мнется и отваливается буквально все — капот, бампера, спойлеры, крыша, крылья, стекла и даже колеса. ProStreet — не просто очередной эпизод сериала, это — новый уровень реализма и зрелищности, доступный всем!   (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1663999   (186151) от 24.09.2023
+
+Одиннадцать дней, одиннадцать ночей / Undici giorni, undici notti / Eleven Days, Eleven Nights (1987) HDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды на пароме случайно встречаются двое – Майкл и Сара, вспыхивает бурный роман. Но через двенадцать дней у Майкла свадьба. Сара предлагает ему оставшиеся 11 дней и ночей провести вместе.Производство: Италия, Filmirage S.r.l.Жанр: драма, мелодрама, эротикаРежиссер: Джо Д’АматоАктеры: Джессика Мур, Джошуа МакДональд, Мэри Селер, Том Моджек, Дэвид Брэндон, Ричард Баркели, Барбара Куписти, Дон Фиоре, Роберт Глигоров, Шила ГолдбергПеревод: Двуголосый профессиональный, одноголосый закадровыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892F586FB6A439302211E7D8BD5B8B620DB45B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663908   (186157) от 24.09.2023
+
+Схватка / Heat (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил МакКоли — один из лучших преступников Лос-Анджелеса. Ему противостоит лучший детектив Винсент Ханна. Две сильнейшие команды сходятся друг против друга в смертельной схватке.Производство: США / Warner Bros., Regency Enterprises, Forward PassЖанр: триллер, драма, криминалРежиссер: Майкл МаннАктеры: Аль Пачино, Роберт Де Ниро, Вэл Килмер, Джон Войт, Натали Портман, Том Сайзмор, Дайан Венора, Эми Бреннеман, Эшли Джадд, Майкелти Уильямсон, Уэс СтьюдиПеревод: Многоголосый профессиональный (ОРТ, НТВ+) профессиональный двухголосый (РЕН-ТВ)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B1FAEECF2463ECF595A1C61D1CD5DE302D783A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664136   (186164) от 24.09.2023
+
+Чужая (2010) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186164.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённой книге Владимира Нестеренко. 1990-е. Бандитский Киев. Бригада из четырех бойцов получает задание доставить из Праги девушку по кличке "Чужая". Она - родная сестра арестованного Бабая, чьи показания могут навредить важным людям. "Чужой" героиню прозвали не случайно - она поражает бесчеловечностью даже коллег за что и получает это (   Читать дальше...   )Производство: Россия, Профит, Красный квадрат, XX век ФоксЖанр: драма, криминалРежиссер: Антон БорматовАктеры: Наталья Романычева, Кирилл Полухин, Анатолий Отраднов, Евгений Мундум, Александр Голубков, Евгений Ткачук, Александр Большаков, Сергей Жарков, Дмитрий Ратомский, Ольга БынковаПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русские (вшитые на несколько фраз)Продолжительность: 01:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B5EBDA49AC802CDFE082D201E45AB4E247DCD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663702   (186338) от 23.09.2023
 
 День сурка / Groundhog Day (1993) BDRip [H.264/1080p-LQ] [handmade]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186338.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186338.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:F9AC749A54ECC14AD2B30B196D3D66BC0C83A880
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186340.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186340.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:1A8486D84419EF3DF36DF52D7C6EC47BA051280C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186361.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186361.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:B76376F618D1107E87BF3C840FBE97DCBFFEEEA3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186521.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186521.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:44D8F2757F1FB24ED86EE2AD2D2680A252AF683F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186526.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186526.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:D07F7C36F47AA4F0B4D3872E64BAC46C5992E8CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186656.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186656.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:341BF5B74BFA6EEF03F78BFC56D637FA9DB89A3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186668.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186668.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:C630F76ECE31BF75F60C78B3D425650109F2768F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186953.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186953.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:3834FF186C2216BE31770B7AD7D3D0C81036B521
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186968.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186968.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:95C7BD62C7AE5E662E5F29ED4E1F8E15B44A891F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186980.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186980.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:12F82A846B295A4F25AC57CC38E1BFF31E806B8F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186983.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:FB15BF057380447A7659B998D7B2991827135A68
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186993.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186993.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:B100A244653CA9A373CA0186C4413EE92A79D910
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187021.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187021.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:336CDDB96F12FFCC74E83B17F5374A4CD3B65EF1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187031.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187031.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:2935520E2D99815161458BEC3B0B57EDA3D94D33
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187305.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187305.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:2BB4969F056DD8A8A8D049E3DD87656132A42682
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187327.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187327.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:D2737678B041DF55DF3BEFCE0D8077F4F0AE0E6E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187344.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187344.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:F56D1DC5A67A396499725148B6ECD2B67CA4B0CC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187386.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187386.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:3823B1D63F3A032A739F4966839A0EBECCD9CA17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187639.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187639.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:A40E4E629D2E2F8AA53FDBB732C3801EE3DD1C14
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187647.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187647.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:5EEA3E1FD42ED0E4F7C612D5E7BBE4BC7CE510FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187651.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187651.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:2696885EEE678F3C8E337BB3948982F1F1D582F0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187655.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187655.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ magnet:?xt=urn:btih:9BBFD455B20DF54A0F2AEBC0FE5C3786174B7D56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_187898.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_187898.jpg" />
 </div>
 
 
@@ -550,79 +622,6 @@ magnet:?xt=urn:btih:9BBFD455B20DF54A0F2AEBC0FE5C3786174B7D56
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8506CC4E7D52D2E5CD16E850985036FF943029D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662020   (187904) от 17.09.2023
-
-Васаби / Wasabi (2001) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский полицейский Юбер Фиорентини, исполняя последнюю волю когда-то любимой им женщины, вынужден отправиться в далекую Японию, где ему приходится встретиться со старым другом и дочерью, о существовании которой он даже не подозревал. А также получить наследство в 200 млн. долларов и познакомиться с якудза, которые охотятся за этими деньгами.Производство: Франция, Япония / Canal+Жанр: боевик, триллер, драма, комедия, криминалРежиссер: Жерар КравчикАктеры: Жан Рено, Рёко Хиросуэ, Мишель Мюллер, Ёси Оида, Кароль Буке, Кристиан Синниже, Александр Брик, Жан-Марк Монтальто, Вероник Бальм, Фабио ДзенониПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9578947AC8B54D4088F385BF9F5D8C1BD95D585
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662019   (187906) от 17.09.2023
-
-Эйс Вентура: Розыск домашних животных / Ace Ventura: Pet Detective (1994) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — лучший в своем деле, единственный и неповторимый! Он — Эйс Вентура, детектив по розыску домашних любимцев. Когда таинственные злоумышленники похищают дельфина по кличке «Снежинка», талисман местной футбольной команды «Дельфины», Эйс тут же приступает к работе, проявляя чудеса изобретательности.
-История принимает странный оборот, когда похищают еще и ведущего (   Читать дальше...   )Производство: США / Morgan Creek ProductionsЖанр: комедия, детектив, приключенияРежиссер: Том ШэдьякАктеры: Джим Керри, Кортни Кокс, Шон Янг, Тоун Лок, Дэн Марино, Ноубл Уиллингэм, Трой Эванс, Рейнор Шайни, Удо Кир, Фрэнк АдонисПеревод: Дублированный (Мост-Видео, Варус-Видео), двухголосый профессиональный (НТВ, ТV1000)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C73B153A775D3A2DF4FB2954FDFAD1CB9648C51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662315   (187909) от 17.09.2023
-
-Солярис (1972) BDRip [H.265/2160p] [4K, 10-bit] [Hand made upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187909.jpg" />
-</div>
-
-
-###  Подробнее
-
-На космическую станцию, сотрудники которой давно и тщетно пытаются сладить с загадкой планеты Солярис, полностью покрытой Океаном, прибывает новый учёный, психолог Крис Кельвин. Его задача - разобраться в странных сообщениях, поступающих со станции и закрыть её вместе со всей бесплодной «соляристикой». Поначалу ему кажется, что немногие уцелевшие на станции ученые (   Читать дальше...   )Производство: СССР, Мосфильм, Творческое объединение писателей и киноработниковЖанр: Фантастика, драма, детективРежиссер: Андрей ТарковскийАктеры: Наталья Бондарчук, Донатас Банионис, Юри Ярвет, Владислав Дворжецкий, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхЯзык озвучки: РусскийПродолжительность: 2:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377ECFAB5A5E830B1E52CF73F05C3B6F8CE84FF9
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1572479   (209447) от 29.08.2022
+
+Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_209447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В продолжении знаменитого сериала Silent Hunter вы сможете примерить на себя форму командира немецкой субмарины и отправится в Атлантику и Средиземное море на войну с силами флота Союзников. Вас ждут поистине кинематографические битвы посреди бескрайних морских просторов. Отныне враги не будут для вас бездумным мясом, действие всех кораблей (будь-то транспортные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft RomaniaЖанр: Simulator (Submarine), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B3C5822EC6B8A65BF63CA3CDB850BE13D56BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645131   (209502) от 08.07.2023
+
+Transport Giant (2004) [Ru/Multi] (2.30) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас 1850 год - мир меняется. Началась новая эра массового производства и массовых перевозок. Для умного бизнесмена существует множество возможностей. Имея немного денег и хорошие идеи, вы можете основать бизнес-империю. На каждом углу появляются новые компании. Мир нуждается во всех видах товаров, и рост городов резко ускоряется. Но как товар попадает к покупателю?Тип издания: LicenseРазработчик: Fancy Bytes, ReactorЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Китайский, Чешский и другиеЯзык интерфейса: Русский, Английский, Китайский, Чешский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604730   (209951) от 15.01.2023
+
+Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_209951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Reign + Expansion – это мини-сборник, куда вошла оригинальная игра и дополнение к ней. Проект относится к жанру RTS. Сюжет повествует о борьбе двух сторон: Imperium и Freedom Guard. Расширение добавляет новые карты и ещё пару фракций: Shadowhand и Xenites. У тайтла научно-фантастический сеттинг.Тип издания: LicenseРазработчик: AuranЖанр: Стратегия, В реальном времени, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CC7F0E5EF927D9741B00B0485047E03B9CFCC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643550   (210041) от 02.07.2023
 
 CyClones (1994) [En] (1.0) License GOG
@@ -6,7 +78,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210041.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210041.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210208.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211176.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211293.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211293.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Soldier of Fortune II (2): Double Helix (2003) [Multi] (1.03hf) License GOG [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211299.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211299.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211978.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211978.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212165.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212165.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212179.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212179.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212283.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212283.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212290.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_212290.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212744.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212744.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ Alien Breed 3: Descent (2010) [Ru/Multi] (5.11) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212875.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212875.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Alien Breed 2: Assault (2010) [Ru/Multi] (118.6) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212877.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Alien Breed: Impact (2010) [Ru/Multi] (126) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212878.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212878.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213389.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ Blades of Time (2012) [Ru/Multi] (1.0.0/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213902.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213902.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214191.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214191.jpg" />
 </div>
 
 
@@ -414,7 +486,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217261.jpg" />
 </div>
 
 
@@ -438,7 +510,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221013.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221013.jpg" />
 </div>
 
 
@@ -462,7 +534,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221509.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221509.jpg" />
 </div>
 
 
@@ -486,7 +558,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221793.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221793.jpg" />
 </div>
 
 
@@ -510,7 +582,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222295.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222295.jpg" />
 </div>
 
 
@@ -534,7 +606,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_223144.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_223144.jpg" />
 </div>
 
 
@@ -545,78 +617,6 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C458DD7686D7F8A04398BAFCC34CCD08F8F22BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513201   (224502) от 28.11.2021
-
-Delta Force: Land Warrior / Отряд Дельта: Операция "Спецназ" (2000) [Ru/En] (1.00.42) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_224502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты служил в спецназе - гордись. Если не служил - радуйся. C помощью этой игры у тебя появилась возможность ощутить все прелести жизни бойца спецподразделения без всякого вреда для здоровья и даже наоборот! Ведь смех продлевает жизнь, а его в игре предостаточно. Вооружись как следует, учитывая, что в руках настоящего спецназовца даже табуретка является оружием (   Читать дальше...   )Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649963   (227231) от 30.07.2023
-
-Traffic Giant (2001) [En] (1.0.0.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Traffic Giant - это удивительная игра-симулятор, которая выводит общественный транспорт на правильный путь. Вы управляете целым парком автобусов, трамваев, поездов метро и многим другим. Вы почувствуете реалистично функционирующее городское движение с тысячами транспортных средств и пешеходов. Вы можете спросить каждого жителя, что он или она думает и чувствует.Тип издания: LicenseРазработчик: QLOCЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512883   (228082) от 26.11.2021
-
-Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_228082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры стартует, словно гоночный автомобиль. Вот мы в роли молодого ученика местной магической школы по имени Sareth ищем в какой-то пещере, забитой врагами, некий могущественный артефакт. Вот прибываем в город и буквально сразу же вступаем в схватку с гигантским циклопом, крушащим дома и пожирающим людей. Дальше - больше. Эти вот выходцы из средневекового наркодиспансера (   Читать дальше...   )Тип издания: LicenseРазработчик: Arkane Studios, Floodgate Entertainment, Kuju EntertainmentЖанр: Экшены, Ролевые игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21D157716CB3FC716761DB427B81587F422BE60
 ```
 
 

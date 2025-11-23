@@ -6,7 +6,7 @@ Beyond Compare Pro 5.0.2.30045 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DLNow Video Downloader 1.54.2024.08.26 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45278.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Google Chrome 128.0.6613.114 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45283.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 113.0.5230.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45286.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skype 8.127.0.200 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45287.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Capture One 23 Enterprise 16.4.5.2312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45298.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wondershare PDFelement 11.0.6.3108 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45301.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ CrystalDiskInfo & CrystalMark & Mark Retro 1.0.6 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45304.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe Media Encoder 2024 24.6.1.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45307.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zoom Player MAX 19.5.0 Build 1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45330.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ NetLimiter 5.3.17.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45331.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:ED7911F8F6D0503E5FDBAFD54147A8E5AE17DBC4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45336.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Cockos REAPER 7.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45338.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fast Video Cutter Joiner 5.3.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45339.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Topaz Video AI 5.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45340.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ PotPlayer 240827 (1.7.22317) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45343.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PotPlayer 240827 (1.7.22317) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45344.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45347.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ WinCatalog 2024.8.0.826 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45354.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ inPixio Photo Focus Pro 4.3.8622 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45355.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (2408) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45356.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ PowerISO 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45362.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Topaz Video AI 5.3.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45366.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Multi Commander Full Edition 14.2 Build 3026 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45367.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ant Download Manager Pro 2.14.0 Build 88304 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45371.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ DefenderKiller 12.5 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45379.jpg" />
 </div>
 
 

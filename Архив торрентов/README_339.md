@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83016.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:293C2C6A2E01DF9EF33C0AC13FB4FC399302C926
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83017.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97CEEFE0BEE67C5C94C67F10ED18AE866F5CC625
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83023.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C532F751DD5A1390ECC0B6AD53D513142DB6FC4B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83025.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83026.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83028.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:F3DF841DE5725DA528BBE896BAFCED6522C1F274
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83034.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:F3DF841DE5725DA528BBE896BAFCED6522C1F274
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83036.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:B42199B12ECBE687ECFDD3B3C6A7A2CE084EDC96
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83040.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:B98BA3C5ABA42D2F79EA12CB9E7C6F1E13950FD4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83045.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:7A467841A944BE0B1FC4EEEA592741668BA43566
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83048.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83050.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83051.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:3E38C278480FA99DE564BC9AEB083247E8832C1D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83057.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Alarm from ENOT 1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83065.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Alarm from ENOT 1.1 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83075.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:16587D85C0FDBEDBD2963801B0422A23A8BFD0E5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83077.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B392DE70928E7A49E78DEC0D9C9A888612C3EDC2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83080.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:CD03893372DB7D82C4C211CD00CE22630F4E7203
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83094.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:37A702BAF9235730BF902091F4E1FF8B0EBFD47D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83096.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83100.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:3A16318D86869EC2E0F3EB2BBE5A1E09DD4A7C21
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83111.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83113.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83127.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83130.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83134.jpg" />
 </div>
 
 

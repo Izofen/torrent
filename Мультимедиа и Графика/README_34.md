@@ -1,3 +1,30 @@
+###  Публикация: 591832   (136038) от 20.12.2012
+
+CopyTrans Manager 0.987 Portable [Multi / Русский]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ищете бесплатную и портативную альтернативу ITunes, чтобы быстро управлять iPhone, iPod Touch или IPad? CopyTrans Manager может стать прекрасной заменой ITunes и позволит добавлять, редактировать и удалять музыку, видео, программы, аудиокниги, подкасты, плейлисты, теги и т.д. на ходу.
+CopyTrans менеджер представляет собой легкий, но мощный инструмент для управления iPhone, iPod Touch или IPad. Добавить музыку, видео, программы и т.д., редактировать теги, такие как исполнитель, альбом, рейтинги, добавить текст и обложки, создавать и редактировать плейлисты или проигрывать с ваших устройств непосредственно на компьютере.
+После запуска вы сможете управлять вашим устройством без ресурсоемких приложений, все очень просто и понятно.
+Утилита позволит быстро вести коллекциями и плейлистами в вашем устройстве, можно "на лету" управлять iPhone, iPod Touch или iPad, также появится возможность безопасно управлять базами данных.Название программы: CopyTrans ManagerЯзык интерфейса: Multi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825532   (136729) от 17.10.2025
 
 ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by KpoJIuK [Ru/En]
@@ -6,7 +33,7 @@ ACDSee Photo Studio Ultimate 2026 19.0.0.4295 Full / Lite (17.10.2025) RePack by
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136729.jpg" />
 </div>
 
 
@@ -30,7 +57,7 @@ reaConverter Pro 8.0.144 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136846.jpg" />
 </div>
 
 
@@ -55,7 +82,7 @@ Kdenlive 25.08.2 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136933.jpg" />
 </div>
 
 
@@ -79,7 +106,7 @@ Corel Painter X3 13.0.1.920 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136938.jpg" />
 </div>
 
 
@@ -103,7 +130,7 @@ Corel Painter 12 12.2.1.1212 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136939.jpg" />
 </div>
 
 
@@ -129,7 +156,7 @@ Corel Painter 11 11.0.1.42 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136940.jpg" />
 </div>
 
 
@@ -154,7 +181,7 @@ Corel Painter X 10.1.0.53 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136942.jpg" />
 </div>
 
 
@@ -178,7 +205,7 @@ Corel Painter IX.5 9.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136944.jpg" />
 </div>
 
 
@@ -203,7 +230,7 @@ Corel Painter 8 8.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136946.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ MetaCreations (Corel) Painter 6 6.1.0 build 69 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136949.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ MetaCreations (Corel) Painter 5.5 5.5.0.12 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136950.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ CoolUtils Total Image Converter 8.2.0.283 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136956.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ Photo Supreme 2025.3.3.8115 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136958.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ RapidRAW 1.4.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136962.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ reaConverter Pro 8.0.145 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136964.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.2 Build 10 RePack by KpoJIuK [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136969.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ ProDAD Mercalli 4.0.482.1 + CMOS Correction RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137228.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ TMPGEnc Movie Plug-in AVC v1.0.9.9 CE RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137395.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Boris FX Continuum Complete 2021 v14.0.1.602 (PlugIns OFX) 2021 v14.0.1.602 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138153.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ WidsMob Portrait 1.4.0.128 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138560.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ Roland - ZENOLOGY Pro 1.5.2 VSTi, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140741.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ SINEE - Chop Suey 1.1 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141696.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143026.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ MAGIX Sound Forge Pro 15.0 Build 161 (x86/x64) [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143233.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ Slate Digital - Virtual Mix Rack Complete 2.5.2.1 VST, VST3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143439.jpg" />
 </div>
 
 
@@ -605,32 +632,6 @@ VMR 2.0 позволяет звукорежиссерам легко созда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A88128C7698D979C70FC109B00196756F9E73A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520340   (143486) от 27.12.2021
-
-Acoustic samples - VHorns Brass Section for 1.0 (UVI Falcon) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acousticsamples объявила о выпуске VHorns латунный профиль. Реалистичная и простая в использовании библиотека рупорных инструментов для бесплатного программного обеспечения UVI для рабочих станций.
-
-Для работы с банком требуется семплер UVI FalconЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
 ```
 
 

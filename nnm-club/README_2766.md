@@ -1,3 +1,76 @@
+###  Публикация: 452685   (76450) от 16.02.2012
+
+Гримм / Grimm (2011) WEB-DLRip [11 серия]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в современном Портленде, где детектив из отдела убийств узнаёт, что он является потомком группы охотников, известных как "Гриммы", которые сражаются, чтобы сохранить человечество в безопасности от сверхъестественных существ. Узнав о своей судьбе, и том, что он является последним из своего рода, он должен защитить каждую живую душу от зловещих персонажей сборника сказок, которые проникли в реальный мир.Жанр: Ужасы, Фэнтези, ДрамаРежиссер: Марк Баклэнд, Холли Дэйл, Омар МадхаАктеры: Дэйв Джинтоли (Ник Буркхардт), Рассел Хорнсби (Хэнк Гриффин), Битси Таллок (Джульетта Сильвертон), Сайлас Вейр Митчелл (Эдди Монро), Саша Ройз (капитан Ренар), Регги Ли (сержант Ву) и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Студия "Кравец"Продолжительность: ~ 42:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453215   (76457) от 16.02.2012
+
+Сто шагов в небеса (2006) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ровно 100 дней провел российский пограничник Женя Родионов с трема сослуживцами в чеченском плену. Боевики предлагали ему снять православный крест и принять ислам. Но Женя не мог предать веру, отечество и слово, данное матери. В день своего 19-летия он был обезглавлен. Маме солдата - Любови Родионовой пришлось пройти длинный и тяжелый путь, чтобы найти и выкупить у боевиков тело сына. Фильм посвящен 10-летию со дня мученической смерти Евгения Родионова.Жанр: ДокументальныйРежиссер: О. Волынская, протоиерей И. СобкоПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E86E609639A6E3D8F805E3CF42F4D41E905DD8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453236   (76459) от 16.02.2012
+
+Неудобная правда о Подкарпатской Руси (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм рассказывает об истории Подкарпатской Руси и о жителях этого края, древней ветви русского народа - русинах, само существование которых сегодня отрицается радикальными украинскими политиками.
+Веками боролись русины за сохранение своей национальной самобытности и, несмотря на многочисленные попытки вычеркнуть этот народ из истории, сохранили до наших дней свой язык, оригинальную культуру и сознание своего духовного единства с православной Святой Русью.Жанр: ДокументальныйРежиссер: Андрис ДзинтарсПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D309DB9F5F917C3765F5AAD7310B8265E60390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452862   (76463) от 16.02.2012
 
 Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
@@ -6,7 +79,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76463.jpg" />
 </div>
 
 
@@ -39,7 +112,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76465.jpg" />
 </div>
 
 
@@ -63,7 +136,7 @@ magnet:?xt=urn:btih:E95028FCE25E7C1A1EEFE3F3F922C45C60146A64
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76467.jpg" />
 </div>
 
 
@@ -87,7 +160,7 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76469.jpg" />
 </div>
 
 
@@ -111,7 +184,7 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76479.jpg" />
 </div>
 
 
@@ -135,7 +208,7 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76481.jpg" />
 </div>
 
 
@@ -163,7 +236,7 @@ magnet:?xt=urn:btih:CFD85012E275719AA7A7F9C66FB4E10DF43663AD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76485.jpg" />
 </div>
 
 
@@ -190,7 +263,7 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76493.jpg" />
 </div>
 
 
@@ -214,7 +287,7 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76497.jpg" />
 </div>
 
 
@@ -238,7 +311,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -262,7 +335,7 @@ Deep Purple - Nobody's Perfect (1988) 2SHM-CD Set /2011 Universal Music Japan/ [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76501.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Deep Purple — британская рок-группа, образованна
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76508.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ Deep Purple — британская рок-группа, образованна
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76512.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ Tindersticks - The Something Rain (2012) [FLAC|Lossless]<Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76515.jpg" />
 </div>
 
 
@@ -376,7 +449,7 @@ Wild Cherry - 6 Альбомов [1970-2002] [MP3|192-320 kbps]<Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76519.jpg" />
 </div>
 
 
@@ -406,7 +479,7 @@ Super Hits (2002)Жанр: Funk  |Продолжительность: 03:45:24
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76523.jpg" />
 </div>
 
 
@@ -430,7 +503,7 @@ magnet:?xt=urn:btih:AD0D7CD661236D5DDEA234AF170B81C4A3600998
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76530.jpg" />
 </div>
 
 
@@ -454,7 +527,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76540.jpg" />
 </div>
 
 
@@ -502,7 +575,7 @@ magnet:?xt=urn:btih:FDA0F4A2DEA54F2515785F19D75DBE4C6D9FA6E3
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -526,7 +599,7 @@ magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76555.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ magnet:?xt=urn:btih:8B4847663ECFDDEA727695BA511D5E28899D7536
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76557.jpg" />
 </div>
 
 
@@ -575,7 +648,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76571.jpg" />
 </div>
 
 
@@ -586,79 +659,6 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452124   (76573) от 16.02.2012
-
-Цыпленок Цыпа / Chicken Little (2005) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76573.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе фильма лежит старая басня про цыпленка, который вопил о том, что небеса падают на землю каждый раз, когда ему на голову падал желудь. Вот уже год, как Цыпленок пытается преодолеть позор своей ошибки (про падающие небеса) и жить как ни в чем не бывало. Но — увы! — желающих дружить с неудачником немного, и поэтому в товарищах у него ходят такие же изгои, как (   Читать дальше...   )Жанр: Фантастика, комедия, приключения, мультфильмРежиссер: Марк ДиндалПеревод: ДублированныйПродолжительность: 01:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D64920B9F141374559CDCE19DA72506CF3E0CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453485   (76578) от 16.02.2012
-
-Катя Самбука - Сказка (Uncensored) (2010) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453400   (76581) от 16.02.2012
-
-Борис Акунин | Приключения Эраста Фандорина (Книга 5. Том 2). Особые поручения. Пиковый валет. Декоратор (2011) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Григорий Шалвович Чхартишвили (род. 20 мая 1956, Зестафони, Грузинская ССР, СССР) — российский писатель, литературовед, переводчик, японист. Свои художественные литературные произведения публикует под псевдонимами Борис Акунин, Анна Борисова и Анатолий Брусникин.
-В аудиокнигу «Особые поручения» вошли два детектива из серии «Приключения Эраста Фандорина».Жанр: ДетективПродолжительность: 10:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CCDF08150F2B2910D1CBCF30D98852B4BEBC73
 ```
 
 

@@ -6,7 +6,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155178.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156313.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156341.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156531.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159515.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159530.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159709.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160737.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160738.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160748.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160784.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160882.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160914.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161552.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161560.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161617.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161765.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161818.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161918.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162011.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162229.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162236.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162240.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162644.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163204.jpg" />
 </div>
 
 

@@ -1,3 +1,77 @@
+###  Публикация: 1692503   (122564) от 16.01.2024
+
+Nuro Audio - Xvox Pro 1.0.3 VST 3 (x64) RePack by AstroNommy [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xvox Pro поставляется с 6 плагинами для оптимизации вашего рабочего процесса, включая Xvox Pro, Xvox Comp, Xvox DS, Xvox Tone, Xvox Space и Xvox SFX.
+Самый мощный набор для микширования вокала из когда-либо созданных. Упакованный в революционный интерфейс, он позволяет получать профессиональные результаты с полной гибкостью - быстрее и проще, чем когда-либо прежде.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A78B354831360BCBB0CD7E76C24BA68B61696F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692403   (122565) от 16.01.2024
+
+Илья Соломенный | Не время для героев (Книга 5) (2023) [MP3, Максим Полтавский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122565.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не время для героев» – роман Ильи Соломенного, пятая книга одноименного цикла, жанр эпическое фэнтези, героическое фэнтези, приключенческое фэнтези. Очнулся возле огромного замка и не помню, кто я такой… С рукой срослась кристаллическая перчатка, в голове звучит шёпот древних Богов, в крови бурлит магия, кругом – незнакомый и опасный мир, а какой-то призрак талдычит (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D13616B99DA2F11ED30DF58B175BF85824781C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692500   (122566) от 16.01.2024
+
+Glarysoft Malware Hunter PRO 1.178.0.798 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B424F0610A7E7AB53C6A0BDC89F25BC4BCD7C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692339   (122567) от 16.01.2024
 
 Media Player Classic Home Cinema (MPC-HC) 2.1.4 + Portable (unofficial) [Multi/Ru]
@@ -6,7 +80,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.4 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122567.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:00CD58652F87F494BC61307C3F291C00067FA3B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122568.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:B932B90D29AD93708208201602CA5991F98C1209
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122569.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:3CBFBD474CCC08EAB5CB797DE57C1ADABDBD4A54
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122570.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:EDE651B7F84F10C6F60FC13C6206134FF0E97F08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122571.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ Vov Sticky Notes 8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122572.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ Plexim Plecs 4.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122573.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122574.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -224,7 +298,7 @@ magnet:?xt=urn:btih:D55133DC2CF8F47FF764400BFD1FC70F87D4C042
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122576.jpg" />
 </div>
 
 
@@ -248,7 +322,7 @@ Morgenstern - Zeitgeist (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122577.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ VA - Music News vol.331 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122578.jpg" />
 </div>
 
 
@@ -302,7 +376,7 @@ Nuro Audio - Xrider 1.0.1 VST 3 (x64) RePack by AstroNommy [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122579.jpg" />
 </div>
 
 
@@ -329,7 +403,7 @@ magnet:?xt=urn:btih:CFDE90E41261223F6D6B803030C14640AF257FDC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122580.jpg" />
 </div>
 
 
@@ -353,7 +427,7 @@ KingStation 0.3a [x86-64] (AppImage)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122581.jpg" />
 </div>
 
 
@@ -377,7 +451,7 @@ magnet:?xt=urn:btih:3525E1082514EB684E9DC19EC6FC0495B17A576E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -403,7 +477,7 @@ magnet:?xt=urn:btih:6BAAEFC053084D94FF8C6BD6E3646FD5723A7326
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122583.jpg" />
 </div>
 
 
@@ -427,7 +501,7 @@ magnet:?xt=urn:btih:BED97472AA49F9A5A18DA090F70B83905D7F5453
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122584.jpg" />
 </div>
 
 
@@ -451,7 +525,7 @@ SMPlayer 23.12.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122585.jpg" />
 </div>
 
 
@@ -476,7 +550,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122586.jpg" />
 </div>
 
 
@@ -500,7 +574,7 @@ magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122587.jpg" />
 </div>
 
 
@@ -524,7 +598,7 @@ magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122588.jpg" />
 </div>
 
 
@@ -548,7 +622,7 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122589.jpg" />
 </div>
 
 
@@ -559,80 +633,6 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35CC5D1818F45DD83B5BEB953FAF4E49203FC378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692353   (122590) от 16.01.2024
-
-S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталкер подозревает своего коллегу в воровстве. Наказанием должна стать смерть. Доказательства нечестности напарника у сталкера есть, но внутренний голос говорит ему, что все не так просто. Фильм снят по мотивам произведений, вошедших в книгу-сборник Александра Вороненко "S.T.A.L.K.E.R.: ОХОТНИКИ ЗА СЧАСТЬЕМ"Производство: РоссияЖанр: короткометражный, драма, фантастикаРежиссер: Александр ВороненкоАктеры: Дмитрий Подадаев, Семён Шемес, Александр Загрудный, Алексей СидоровСубтитры: отсутствуютПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DF2FA800F8D7EAD68D01B39D5E37F5C485B0DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692350   (122591) от 16.01.2024
-
-S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/1080p] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталкер подозревает своего коллегу в воровстве. Наказанием должна стать смерть. Доказательства нечестности напарника у сталкера есть, но внутренний голос говорит ему, что все не так просто. Фильм снят по мотивам произведений, вошедших в книгу-сборник Александра Вороненко "S.T.A.L.K.E.R.: ОХОТНИКИ ЗА СЧАСТЬЕМ"Производство: РоссияЖанр: короткометражный, драма, фантастикаРежиссер: Александр ВороненкоАктеры: Дмитрий Подадаев, Семён Шемес, Александр Загрудный, Алексей СидоровСубтитры: отсутствуютПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9573757CB502EAD2F1BFFFC7C918EFD129B4F256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692060   (122592) от 16.01.2024
-
-Людмила Мартова | Стереть из памяти (2023) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лике Ковалевой, главной героине нового романа Людмилы Мартовой «Стереть из памяти», спокойно не живется. Тайны прошлого уже двадцать лет не дают ей спать по ночам, подкидывая воспоминания в страшных кошмарах. Ни врачи, ни помощь близких людей не помогают. Ей ничего не остается, как вернуться в город, где проходило ее детство, чтобы самой во всем разобраться…
-
-Возрастное (   Читать дальше...   )Жанр: Современные детективыИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B11C5C1DD40AF4FB447BA2FE8C4FAB4920E246
 ```
 
 

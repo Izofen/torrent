@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63180.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2B9C0376F5D25C7D3478792AEC8F4716AB4E6C99
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63184.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Toto Cutugno - Тото Кутуньо (1985) [FLAC 24/96|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63201.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Amaranthe - Studio Albums (7 releases) (2011-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63237.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C187AFE3A42EE0DF0642798F4B67B4D45187BF44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63388.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Slade - Slayed? (Слейд. Убитый?) (1972) 1993 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63391.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63483.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:0B7FF0843199BB84DED5C00FA92692D4CB3808C7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63484.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Supertramp - The Very Best Of Supertramp (1990) 1992 [FLAC 24/192|Lossless|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63496.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AC/DC - Rock or Bust (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63528.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AC/DC - Blow Up Your Video (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63579.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ AC/DC - Who Made Who (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63580.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63690.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63701.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63705.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:B966C845599D10859B85324EBE1AECA25CF3E566
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63706.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Billy Joel - Piano Man. 50th Anniversary Deluxe Edition (1973) Japanese Edition,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63711.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63850.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63877.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Orbit Culture - Death Above Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63986.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hooded Menace - Lachrymose Monuments Of Obscuration (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64012.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Megadeth - Tipping Point (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64018.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Judas Priest ft. Ozzy Osbourne - War Pigs (Charity Version) (2025) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64022.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ John Lennon - Lennon Legend: The Very Best Of John Lennon (1997) [DTS 5.1|Tracks
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64325.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64545.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_64614.jpg" />
 </div>
 
 

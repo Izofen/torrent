@@ -6,7 +6,7 @@ FastStone Image Viewer 7.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40043.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CCleaner 6.29.11342 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40050.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Process Lasso Pro 15.0.2.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40077.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 130.0.6723.59 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40081.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DxO PhotoLab Elite 8.1.0 build 434 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40097.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Video AI 5.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40100.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Freemake Video Converter 4.1.13.184 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40101.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Bridge 2025 15.0.0.397 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40103.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ DxO PhotoLab Elite 7.10.0 build 287 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40108.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe After Effects 2025 25.0.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40118.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe InDesign 2025 20.0.0.95 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40121.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Illustrator 2025 29.0.0.186 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40122.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Media Encoder 2025 25.0.0.54 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40123.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Navicat Premium 17.1.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40135.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Adobe Photoshop Lightroom Classic 2024 14.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40141.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Advanced Renamer 4.05 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40181.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ CareUEyes 2.4.5.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40197.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ GPU Shark II 2.4.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40200.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Telegram Desktop 5.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40210.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Google Chrome 130.0.6723.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40211.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CCleaner 6.29.11342 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40217.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ ALLPlayer 9.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40223.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ K-Lite Codec Pack 18.6.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40231.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ FurMark 2.4.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40232.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ KMSAuto++ Portable 1.9.9 b05 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40245.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FinePrint 12.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40270.jpg" />
 </div>
 
 

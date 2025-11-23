@@ -1,3 +1,75 @@
+###  Публикация: 1061083   (148971) от 25.12.2016
+
+Ван Хельсинг / Van Helsing (2016) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) BaibaKo
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным героем сериала «Ван Хельсинг» является Ванесса Хельсинг — дочка известного охотника на вурдалаков и непримиримого противника Дракулы — Абрахама Ван Хельсинга. Основная героиня оживает через 5 лет и оказывается в обществе, порабощенном вурдалаками. Ванесса выявляет в себе исключительную силу над вурдалаками и превращается в того человека, который сплотит народ, (   Читать дальше...   )Производство: СШАЖанр: фэнтези, боевик, драмаРежиссер: Майкл Нанкин, Саймон Бэрри, Дэвид ФрэйзиАктеры: Келли Овертон, Джонатан Скарф, Кристофер Хейердал, Рукия Бернард, Дэвид Кабитт, Винсент Гэйл, Хилари Джардин, Оливер Махоро Смит, Алекс Паунович, Элисон Вандзура и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка / Автор перевода: Лира Грим, Ольга Мотрич, Артёмий Мирон и Владимир Курдов / Ольга ПашковаПродолжительность: ~ 00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAC6E574EC3E51D9A90FCCAD1C3EA46F535250A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969108   (148996) от 26.12.2015
+
+Вечерний Киев / Киев вечерний / Студия Квартал 95. Сезон №8. Выпуск №10 (2015.12.25) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_148996.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Киев вечерний" - масштабное развлекательное шоу, которое собрало в себе смешные рубрики и программы. Это большое развлекательное шоу, формат которого нельзя описать одним словом. "Киев вечерний" - это новый этап в развитии развлекательного сегмента украинского телевидения. В проекте воедино собрано множество программ, рубрик и различных юмористических (   Читать дальше...   )Телекомпания: 1+1Жанр: Развлекательное шоуПродолжительность: ~ 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F2A65E12E129117480C1D51A9FAF2AB50C5401
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519201   (149012) от 23.12.2021
+
+Blackmagic Design DaVinci Resolve Studio 17.4.3 Build 10 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149012.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA8B7813A6BE07515B2B369D21D6B4BAADBE5DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588828   (149015) от 15.12.2012
 
 Работы художников - Artworks by Irene Sheri
@@ -6,7 +78,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149015.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149024.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Amadeus Pro  2.7 (build 2254) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149033.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ Inkscape 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149034.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Boom 3D 1.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149043.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ Coolutils Total PDF Converter 5.1.89 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149055.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:4EDA027BEBE99DAEE625DB26B9239CACE87A4215
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149062.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:E4230D98B3AC06D7A1B06270F83DD4C8FA0CBAF9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149084.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ EZ CD Audio Converter 1.0.2 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149087.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Opera One 105.0.4970.16 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149110.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Hetman Partition Recovery 3.5 Home / Office / Unlimited Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149111.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ Adobe InDesign CC 2019 14.0.1.209 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149114.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:34ECAD13E069182C3827C1F8982531C9A6A590D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149124.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Total HTML Converter 4.1.81 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149135.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ IObit Uninstaller Pro 10.2.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149152.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ ACDSee Ultimate 10.2 Build 878 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149157.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:7E3E602F57E8B4091807D696D2AC7CA1D8AE2240
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149158.jpg" />
 </div>
 
 
@@ -424,7 +496,7 @@ AOMEI Backupper Pro 6.3.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149161.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ Balabolka 2.14.0.682 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149170.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ AOMEI Backupper Technician Plus 6.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149173.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Malwarebytes AdwCleaner 7.2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149187.jpg" />
 </div>
 
 
@@ -520,7 +592,7 @@ Windows Update MiniTool 25.12.2015 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149193.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ OEM Info Updater 9.6 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149203.jpg" />
 </div>
 
 
@@ -555,78 +627,6 @@ OEM Info Updater 9.6 Portable [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA70DD8C60197B45439B4DECAF8C31ECD9FE90C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271583   (149204) от 23.12.2018
-
-ProduKey 1.93 + Portabe [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149204.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProduKey - крошечная, бесплатная утилита, которая отображает ProductID и серийные ключи для MS-Office, Windows, Exchange Server и SQL Server, установленных на вашем компьютере. Данная программка может быть полезна, если вы потеряли свой CD-ключ, и вам надо переустановить какой-то из компонентов или ОС целиком.Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB97CDBFB81DA29AF0D63CA46BC3F3752CA950A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086789   (149226) от 25.12.2016
-
-ACDSee Ultimate 10.2 Build 878 RePack by D!akov [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149226.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Ultimate 10 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5396726C751909E4639CD1700E4047DFC0A420BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086634   (149230) от 25.12.2016
-
-Расплата / The Accountant (2016) BDRemux [H.264/1080p] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему «на хвост» садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США, Electric City Entertainment, RatPac-Dune Entertainment, Warner Bros. Pictures, Zero Gravity ManagementЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (Чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53859BC383A18453AF167AAA9C28E44107CDE652
 ```
 
 

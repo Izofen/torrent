@@ -6,7 +6,7 @@ Firewind - Still Raging (Live At Principal Club Theater) (2023) 2 x CD [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169449.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169475.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:796DB5517A7424BB1480BD8FF0AB8F2576C9B2CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169511.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Soreption - Engineering The Void (2014) [WavPack|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169556.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Molybaron - Something Ominous (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169557.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Muse - Ghosts (How Can I Move On) [feat. Mylene Farmer] (2022) Single [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169583.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Roger Waters - The Lockdown Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169641.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:86D06697F023138BFA94B6ADB37D0AA96BB255B7
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169652.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:A0BBE74FC30234C03315F668AD6EA9D05577A746
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169699.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A1A079401ED304D0FC7CBF51B77B67B5BE8D661E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169718.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Tommy DeCarlo - Dancing In The Moonlight (2022) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169760.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:EED2A7C71CD2A35B0DEC98877440F31FC719EE52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169795.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Turisas - The Varangian Way (2007) [FLAC|Lossless|image + .cue] <Epic Viking Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169815.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Radigost - Nocturne (1999) (Reissue 2002) [FLAC|Lossless|image + .cue] <Black Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169828.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5AC63B7BB61A0E3FD989A4202964B7BF7966191D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169831.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Hannon Tramp - Hannon Tramp (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169836.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B6DA11B38A03EAF5DC39419FE3C903C87BE89ABB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169852.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Journey - Live in Concert at Lollapalooza (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169868.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Rob Moratti - Epical (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169872.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Last Bear Ender - The Second Year Ender (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169875.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Fathom - The Lurking Gloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169883.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Psideralica - Inhuman Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169886.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Merging Flare - Revolt Regime (2019) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169895.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Tarmat - Out Of The Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169898.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Majula - The Blace Tapes, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169902.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169911.jpg" />
 </div>
 
 

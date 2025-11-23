@@ -1,3 +1,78 @@
+###  Публикация: 1707291   (113334) от 16.03.2024
+
+John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. PC [8:17]
+02. I Want to Talk About You [13:59]
+03. Bye Bye Blackbird [23:28]
+04. Autumn Leaves [10:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707321   (113335) от 16.03.2024
+
+Пятеро на одного (16.03.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34199DDF158E897BE17BA5BF3704C119F7670A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707522   (113336) от 16.03.2024
+
+Сибирская Благозвонница | Служители темных сил (2012) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Духу злобы – диаволу – недоступен мир небожителей. И все свое внимание он обращает на землю с тем, чтобы между людьми сеять зло. Главный грех падшего духа – исcтупленная ненависть к Богу, и всю свою злобу он обращает на человека, являющегося образом Божиим. Свт. Григорий Богослов писал: «Диавол отовсюду пытает, высматривает, где низложить, где уязвить и найти, что (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6298153021D7B7383F59FD25FFBAE0B8B8DB5922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707116   (113337) от 16.03.2024
 
 VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -6,7 +81,7 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113337.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113338.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ magnet:?xt=urn:btih:7455FFB71937AE571F0D0CEC632516AB136D9629
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113339.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113340.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:5661E5F2677BEA7F75585BD01FFED670294D6952
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113341.jpg" />
 </div>
 
 
@@ -134,7 +209,7 @@ magnet:?xt=urn:btih:B6033A420938598AEFAE29FC592E3276267F90FF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113342.jpg" />
 </div>
 
 
@@ -161,7 +236,7 @@ The Yardbirds/Jeff Beck - Beck's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113343.jpg" />
 </div>
 
 
@@ -188,7 +263,7 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113344.jpg" />
 </div>
 
 
@@ -215,7 +290,7 @@ magnet:?xt=urn:btih:056B80A1C911A42E3F0510070E71BEB87A6633E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113345.jpg" />
 </div>
 
 
@@ -242,7 +317,7 @@ magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113346.jpg" />
 </div>
 
 
@@ -268,7 +343,7 @@ Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113347.jpg" />
 </div>
 
 
@@ -295,7 +370,7 @@ Sandboxie 5.68.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113348.jpg" />
 </div>
 
 
@@ -319,7 +394,7 @@ magnet:?xt=urn:btih:07EE74AABDFFEE357FCD9D359824C9EDFA4501A1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113349.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113350.jpg" />
 </div>
 
 
@@ -370,7 +445,7 @@ magnet:?xt=urn:btih:F46462FBDED6AE045C7D7F94E7A0228D9523008C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113351.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113352.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ magnet:?xt=urn:btih:1DBB4640BACB5D4C29D0DAE0DF6E65BB66B67DF0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113353.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ Bruce Springsteen - The Live Series: Songs Of Celebration (2024) Live (Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113354.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:61C8B60F459C9E88C21282BE1940A01999068BC9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113355.jpg" />
 </div>
 
 
@@ -498,7 +573,7 @@ Sandboxie plus 1.13.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113356.jpg" />
 </div>
 
 
@@ -522,7 +597,7 @@ magnet:?xt=urn:btih:70DFB962DC5887E58394290E600EF9EF2A7C50D3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113357.jpg" />
 </div>
 
 
@@ -549,7 +624,7 @@ VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113358.jpg" />
 </div>
 
 
@@ -576,7 +651,7 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113359.jpg" />
 </div>
 
 
@@ -590,87 +665,6 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707333   (113360) от 16.03.2024
-
-Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Поезд. (Н.Олев)
-02 - В саду играет музыка. (М.Танич)
-03 - Танцуем "диско". (А.Дементьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CC2ABCA3284B62DB9CE190F52CCAAA5EDCE547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707355   (113361) от 16.03.2024
-
-Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argy, Son Of Son - Faust (3:38)
-02. Argy, Weekend Heroes - No One’s Coming (3:39)
-03. Argy, Omnya - Aria (3:56)
-04. Argy - All Day Long (3:44)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EE6F00C6E27882F2E04941CC7D4AE977B567CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707328   (113362) от 16.03.2024
-
-VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Маскарад (И. Саруханов — О. Писаржевская, А. Монастырев) — 5.07
-И. Саруханов
-02. Предсказание (Д. Тухманов — Г. Кантор) — 2.53(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044D48609E12F54357734761AFF866778E03BBEC
 ```
 
 

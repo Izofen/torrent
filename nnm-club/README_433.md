@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11482.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7F1B60050EA8E6E4708A79EA975D5FD516E43D85
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11483.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0E2A57D74FBCE2DCE163D350D3F84508E7641204
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11484.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:82CA0CBCFEB7305DF1890175C5C3238348B8CA1E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11485.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MultiTimer: МультиТаймер v1.9 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11486.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:30CFB29DDF987726DE3D5BEDD8DB64C5B955F735
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11487.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Yngwie Malmsteen - Tokyo Live (2025) 2 x CD [MP3|320 Kbps] <Neoclassical Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11488.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best of Label Cantroll, Pt. 7-9 (2023-2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11489.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:DED79335E339D5DEA8184F692D264B1C1C823B54
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11490.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - The Black Lodge (David Lynch's Tribute) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11491.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:EFF37A5FBAED9DE93B7A8C205FE5178820134B73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11492.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:D6B8D69C7E768A46D0C8DF64B63DEDF2082711C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11493.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Best of Label Cantroll, Pt. 7-9 (2023-2025) [MP3|320 Kbps] <Electronic, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11494.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Eva Carboni - The Blues Archives (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11495.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:1ED98CEBC4166BF17254E06C30250D377BCECA2E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11496.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11497.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|track
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11498.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8198154ACB5F53E4C68AFC91D101C966544843C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11499.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Secret Garden and the Dusty Man - Keep Looking Up (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11500.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:47BB4887CC8E783D681CB68BCC868EFF786339C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11501.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11502.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Binary Paradigm - Road 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11503.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11504.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Recovery Fujitsu-Siemens Computers Windows Vista Home Basic (x86) [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11505.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:7D049E8EE28D1D590827C4D69A9EADC619266DD5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11506.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:79190D34B6775D5933DAF898DD33271F2955F083
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11507.jpg" />
 </div>
 
 

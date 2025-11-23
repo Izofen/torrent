@@ -6,7 +6,7 @@ Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70803.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70804.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautroc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70809.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nessa Barrett - Aftercare (2024) Deluxe, 2025, Warner Records [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70867.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tommy Castro & The Painkillers - Closer To The Bone (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70884.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Thorbjorn (Thorbjørn) Risager and The Black Tornado - House Of Sticks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70885.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70938.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70939.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70949.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70973.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70977.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70982.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70983.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70986.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70987.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70988.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70990.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71004.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71005.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71007.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71009.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71010.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71012.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71013.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71059.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Rossini & Hoffmeister - Quartets with Double Bass, Vol. 2 (2018) [DSD 2.0, DST 5
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71088.jpg" />
 </div>
 
 

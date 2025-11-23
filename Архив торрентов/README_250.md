@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.7.2.646 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56812.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bulk Crap Uninstaller 5.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56814.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CareUEyes 2.3.1.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56817.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Archicad 27 build 5003 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56842.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r6 Portable by Ratiborus [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56844.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PotPlayer 240510 (1.7.22225) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56860.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ EarthView 7.9.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56862.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ YT Downloader 9.7.17 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56882.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Antivirus Removal Tool 2024.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56897.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ WinTools.net Premium 24.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56902.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v4 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56905.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Windows 11 (v23h2) x64 PRO by KulHunter v4 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56910.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ SolidWorks 2024 SP2.0 Premium RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56933.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ IObit Uninstaller Pro 13.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56966.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Topaz Photo AI 3.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56968.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Red Button 5.99 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56970.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Photo AI 3.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56975.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PotPlayer 240510 (1.7.22225) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56982.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NVIDIA GeForce Desktop Game Ready 552.44 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56984.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ LibreOffice 7.6.7.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56988.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ EasyUEFI Technician 5.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56994.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ OCCT 13.0.0 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57072.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Emurasoft EmEditor Professional 24.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57073.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ PDF-XChange PRO 10.3.0.386 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57078.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ simplewall 3.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57092.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57098.jpg" />
 </div>
 
 

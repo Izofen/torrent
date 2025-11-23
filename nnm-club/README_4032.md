@@ -1,3 +1,81 @@
+###  Публикация: 1689655   (124514) от 03.01.2024
+
+Святитель Игнатий Брянчанинов | Отверзите двери Богу… (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Епископ Игнатий Брянчанинов явил в себе редкий образец сочетания большой образованности с высокой духовностью. Все свои знания и таланты он щедро отдал своей родной Православной Церкви. Главное содержание его трудов – ревностное желание помочь христианам возгореться духом к искоренению порока и насаждению внутреннего благочестия в сердцах своих.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B783234CD37095BA83413A00B3EF68EF882495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689656   (124515) от 03.01.2024
+
+Lair - The Hidden Shiv (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Taken Apart (00:04:38)
+02 - A Human Trench, Pt. 1 (00:05:30)
+03 - Saltlicker (00:06:23)
+04 - Something's at the Door (00:04:51)(   Читать дальше...   )Жанр: Doom Metal, SludgeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426FEBF3730CDEB60616961B2C868BDE105ABA38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689621   (124516) от 03.01.2024
+
+Sacriversum - The Shadow of the Golden Fire - Early Days (2001) Compilation, 2024, Thrashing Madness - Oldschool Metal Maniac [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across the Dust [00:05:25]
+02. Whispers [00:05:07]
+03. Pure Evil [00:05:11]
+04. In Emotional Garden [00:07:06](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759F03BD6A64BF40701AF1E96E7C433BC8367CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689735   (124517) от 03.01.2024
 
 KAUAN - ATM Revised (2023) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Rock, Dark Folk, Funeral Doom>
@@ -6,7 +84,7 @@ KAUAN - ATM Revised (2023) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124517.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Martyr - Murder X: The End of the Game (2000) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124518.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Visions of Morpheus - Lost Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124519.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Gwydrion - Gwydrion (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124520.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Exodia - Into The Mouth Of Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124521.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ magnet:?xt=urn:btih:A6CAA79DA8977BF4A0021B34FA07929040175613
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124522.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:F98E85B2A6F1937916A898B20DE54BFAC6133E85
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124523.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ PhotoDirector 18.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124524.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ magnet:?xt=urn:btih:64FD26B1F18BFDF67F7DECF5D044AD12C12A4C90
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124525.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ magnet:?xt=urn:btih:1B204F1BE1D7A776823FE85C2CB9D27528F14FCF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124526.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ VA - Interplay Highlights 2023 - Extended Versions (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124527.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Veil Of Maya - [m]other (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124528.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124529.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124530.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ magnet:?xt=urn:btih:013E7D277CB05BBE89BF05909EAF587696C7AA04
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124531.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ magnet:?xt=urn:btih:8AA0FC11C718569A8C6900FB05E1BD8E1B63EA2F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124532.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ magnet:?xt=urn:btih:1222DF821A1F06DDCC5A53EA13CBA4E6D7855609
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124533.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:5EA1CA1EB7D5CD022484829C4585745E98EFF0AB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124534.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ magnet:?xt=urn:btih:9ECB1687C38F16EE5FB814E1131F1DBF577E86F4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124535.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ VA - Keep It Trance Vol. 18 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124536.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ VA - Ablazing Winter Sessions 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124537.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ magnet:?xt=urn:btih:BD030616E704915B04185F8FAD94830E6C420AB8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124538.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ magnet:?xt=urn:btih:BCAA48815B5AC04D5C34CB53157BB3F2B9C55988
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124539.jpg" />
 </div>
 
 
@@ -584,84 +662,6 @@ magnet:?xt=urn:btih:BCAA48815B5AC04D5C34CB53157BB3F2B9C55988
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B38584001BF73C0CD38B52A70B5926E78E9D826C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689526   (124540) от 03.01.2024
-
-Екатерина Мурашова | Лекция «Если ребёнок ничего не хочет» (2020) [MP3, Екатерина Мурашова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители часто жалуются на то, что их ребёнок очень устал и ничего не хочет. Возраст «уставших и нехотящих» начинается с 9 лет, а заканчивается молодыми взрослыми, которые в процессе отчисления или уже отчислены из института. Они впадают в депрессию, лежат на диване и «ничего не хотят». Но почему? Ведь все родительские усилия направлены на «увлечь, развлечь и развить». (   Читать дальше...   )Жанр: детская психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B937C5D40B0CF54720DB22BDF50D2C3F57B64C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689640   (124541) от 03.01.2024
-
-Black Rainbows - 4 Albums (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic-Rock, Stoner-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Twilight In The Desert (2022 Remastered)
-2020 - Cosmic Ritual Supertrip
-2022 - Live at Desertfest Belgium(   Читать дальше...   )Жанр: Psychedelic-Rock, Stoner-RockПродолжительность: 4 CD, 03:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1F5532B1BC40124622EA6CDCD3D7363BAA40D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689566   (124542) от 03.01.2024
-
-VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massive Attack - Teardrop (Theme Song) 5:32
-02. Gomez - See The World 4:04
-03. Michael Penn - Walter Reed 3:41
-04. Elvis Costello - Beautiful 3:50(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37482F4440E88EE379BA08769242DDC748137A0
 ```
 
 

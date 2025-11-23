@@ -6,7 +6,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23009.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:915FFDC33F25B66F362E501EDDC3C5339DA4EC99
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23010.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5A7565A39FAE25F92D32E10A6EB08C161ED36247
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23011.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5A7565A39FAE25F92D32E10A6EB08C161ED36247
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23012.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C28C2532D8581DD27C210ECA70020B8510DCBF7E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23013.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5E57BC6BA5DC6D0181E3C79F05A529F57675D77B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23014.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:AD9D07A546E3D312D9B72D04EBF7EF7CA879E36F
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23015.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.31637s/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23016.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9261DC0C628D452F1DDF98AC8B97906E2C3536AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23017.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23017.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Gosick | Готика [2011, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23018.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C6985E1B4F40D0B62436B41D2336F7C3EAF725BE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23019.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Accentize - dxRevive Pro 1.2.2 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23020.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8FE1686A02E8E88F9BFDCB9425AFAFA8C0F087CE
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23021.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1CBA537191AA627C716F4F01B088F6F10BD13811
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23022.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MultiTimer: МультиТаймер v1.6 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23023.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.04.160.1/dlc) Repack Wanterl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23024.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.2  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23025.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.15161) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23026.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CA4EF6F034476CC59E5EB97DA406C196493AF30F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23027.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:8CBE70210425B07EB3A7DAF636B6CCA242834CE6
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23028.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ FullReader - читалка книг v4.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23029.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:56D39C9744CD6012C79BFB863EFD1D7CE3D4CB2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23030.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BDDCDAD1EDAC88721527FD3C7B4C3306C1B8DA11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23031.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23032.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:1AAA4972F1E8414DAB12BAB0D723E1EB5186FEF5
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23033.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:2E8FEE38562F9AC9EE7C1B5875F181125EBC3250
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23034.jpg" />
 </div>
 
 

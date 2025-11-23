@@ -6,7 +6,7 @@ Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Breather Of Chaos - Inner Demons (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154346.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tom Robinson Band - Rising Free (the very best of TRB) (1997) Compilation, EMI [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154380.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Veil of Thorns - Dosage (2018) [FLAC|Lossless|Web-DL|tracks] <Metal, Dark Ambien
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154384.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Atapaskan - Humans (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154387.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nitzinger - Nitzinger (1972) Reissue, CD [MP3|320 Kbps] <Southern Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154389.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Incinerate - Back to Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154395.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Deviants - Ptooff! / Disposable (1967-68) Unofficial, 2006, Mason Records [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154490.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hecate Enthroned - Redimus (2004) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154568.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hobbs Angel Of Death - Hobbs' Satan's Crusade (2003) Compilation, Reissue, 2017,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154577.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Mix: Rock 'N Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154591.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Modern Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154614.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rogue Deal - Escape from Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154675.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Madison - Best In Show (1986) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154726.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:8ADB020BEB94A79F1DBF60290C6DAE037C2769FF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154755.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Chocolate Watchband - The Inner Mystique (1968) Reissue, 1994, Sundazed Musi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154817.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ITO And The Moonlight Hippies - Spirit Of The Redwoods (2020) [MP3|320 Kbps] <Ps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154837.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:31701C60EF246341860DFE6DCA13EBEC47D04B60
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154863.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ O.N.A. - To Naprawde Juz Koniec 1995-2003 (2003) 2 CD, Compilation [APE|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154889.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154926.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Scorpions - Best Of Scorpions (1979) Remastered, 2017, Audio Fidelity [OGG Vorbi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154941.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Axel Rudi Pell - The Ballads V (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154944.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Beach Boys - The Platinum Collection (2005) 3CD [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154950.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Def Leppard - Diamond Star Halos (2022) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154955.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Taleteller - The Path (2020) [MP3|320 Kbps] <Sympho Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155022.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Marco Ragni - If (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155029.jpg" />
 </div>
 
 

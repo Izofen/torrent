@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:98362BD51B720205D7BA8F49066093E163A7F338
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70923.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Soft Organizer Pro 10.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70924.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ XnView MP 1.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70925.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8FDDDC195C9AEF5FC6627CE9B2F70941C4882C7F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70926.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PrivaZer Pro 4.0.98 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70927.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5706D612B5CC6429C21DE67EDC571B8F7196785A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70928.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3870D586F061D7E86D49CEC533F3AC365ED20C5E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70929.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6844DD7E3D9949518275426236439A9F6B48F841
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70930.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0E2872E381ABF708CF71B189A4B820DF89116F9C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70931.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Soft Organizer Pro 10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70932.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70933.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Photo Lab PRO v3.13.48 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70934.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70935.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:82395425D9228C15910E6FA679EFE13C5D71D2FB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70936.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:CA5F9F53751ED930D857869601F7F42BD46A6618
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70937.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70938.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70939.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Uplifting Only Episode 626 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70940.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Beans & Fatback - Hold Fast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70941.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70942.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Pentagram - Lightning In A Bottle (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70943.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9A5415EBBCE94AAF45F6C8055C2CCACBB8BB8A90
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70944.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70945.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70946.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70947.jpg" />
 </div>
 
 

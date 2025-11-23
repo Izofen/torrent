@@ -6,7 +6,7 @@ Filmora - Редактор видео с AI 14.2.30 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36880.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ v2rayN 7.1.2 portable pre-release [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36885.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shotcut 24.11.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36888.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ HDCleaner 2.083 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36890.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ v2rayN 7.0.9 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36899.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bandicam 8.0.0.2509 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36902.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ qBittorrent 5.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36903.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Download Master 7.1.3.1733 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36914.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PDF-XChange Editor Plus 10.4.4.392 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36918.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Internet Download Manager 6.42 Build 25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36919.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Jetbrains WebStorm 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36921.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Topaz Photo AI 3.3.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36923.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Luminar Neo 1.21.2.13959 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36924.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ JetBrains GoLand 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36926.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF-XChange PRO 10.4.4.392 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36928.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ JetBrains Rider 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36930.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Acrobat Pro 2024.004.20272 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36937.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ SAS.Планета 241111 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36945.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ v2rayN 7.1.3 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36950.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36953.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Polarr v6.10.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36964.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FacePic - AI Face App v1.9.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36979.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:5207613F2B1D6EDC5FFA255E985980C3459BF2B0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36982.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ XRecode 3 1.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36986.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PdfFactory Std & Pro 9.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36991.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:DCD7FC3CEE28F0DA2BF1340DB02AACC6D63FFA50
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37012.jpg" />
 </div>
 
 

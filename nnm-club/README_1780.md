@@ -6,7 +6,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:98986C43749DD427221F86925ECA0E4E3FCF8489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1E8D580173A0C145D4EBD30AB014B498CEEDA0F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46637.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1E8D580173A0C145D4EBD30AB014B498CEEDA0F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46638.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F6B693CE05661A5614FDB1D96DA42895D44D2CF5
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46639.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2749A968CE80F9B7D362D143DE5F17A21B1B93C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46640.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46641.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46642.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MT Force Aliens Uprising (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46643.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46644.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3955779AC2A7224DF88BD06D5A59F8CE595B4271
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46645.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:3C6D14A61A17748F8EE11C1DC75D12B03115E1B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46646.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:0818E767E47CFB3081572690DC85D0D33F4D1F76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46647.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Adobe Acrobat Pro 2024.002.21005 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46648.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:375BAEAC7CE95C85904B540D2AE1432B2C7B5242
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46649.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:18F9AED0AA3F69CD96526B6AB33C2D8A8C13766B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46650.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46651.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46652.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46653.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:8DC4B5BCF539A178F5B5E7A1128C83B9FF065C15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46654.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Acrobat Pro 24.002.21005 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46655.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:636ABD88530BA1E82A3B657AC9D352BB6A758445
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46656.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:12C260A70680F46BC76F7F73DE994E002092D183
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46657.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:600CD145175831669C28A6C00521C915A9D43222
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46658.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C001EF8D7F51DEC329BE21F25C908F6AF3955C06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46659.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.12.0 (16.08.2024) [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46660.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127774.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Monty Alexander - Facets (1979) 1991, Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127777.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toshiko Akiyoshi-Lew Tabackin Big Band - Sumi-e (1979) 1986, Insights [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127939.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127956.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127958.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127968.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Electro Swingers - Collection (2012-2013) 2CD [MP3|320 Kbps] <Electro, Swing
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127995.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127998.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dave McKenna - Christmas Ivory (1997) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128080.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lew Tabackin - Tenority (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128085.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Phil Woods & Lew Tabackin - Phil Woods / Lew Tabackin (1980) 1998, Evidence [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128086.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Chilly Ambient Smooth Jazz Lounge Playlist (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128099.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Fourplay - Between The Sheets (1993) 2023 30th Anniversary Remastered Edition [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128127.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Otis Rush - 19 Albums (1969 - 2006) [FLAC|Lossless|image + .cue|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128162.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Sad Girl Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128208.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Meditative, Romantic and Stylish Jazz for the Quiet Times (2023) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128211.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Luxury Relaxing Lounge Comfort Smooth Playlist (2023) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128217.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128218.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128224.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128233.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128239.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128245.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jessica Williams - This Side Up (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128354.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Thomas Hardin Trio - Clasicos a ritmo de Jazz (1998) GyC Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128374.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tim (Thomas) Hardin Trio - Light Intelligence Series 1 (1992) Golden Penguin [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128377.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ JUG Ru Group | HolyJS 2024 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58164.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58165.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:186C92257265EC78F5F6FDAC0F631AE81A6CA9B5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58166.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ BBC: Тайная наука. Химическое и биологическое
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58167.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5085871D528006D7D0DB6467D01F59A8167134A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58168.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ BBC: Шотландия. Последний рубеж Рима / Scotland: Rome
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58169.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:BB7710A0E3777EC6615AB499702C1B796BEA7BCB
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58170.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58171.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:CCF69E40FE159060603FE82D431EA8AFED88EABE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58172.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A566848E0554F4BC72DAD2C7F001A616E52312C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58173.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:42D17019667547B969E4220ACB10BA900C5D4554
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58174.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E93FC380C256123F08BF5248002BDB25FA15FA2A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58175.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E0DE5F8AEFD4F1C9BA06CBAB4021C5BB12004E03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58176.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:FA690AE4DFB3BA90EAE5950A8535526FC41253D7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58177.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9247EF3A931F4CAC79249C2AFC6BDBA1F9A22051
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58178.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:CFDFC180B84713B19D5F2A80D1DEFFC54B4CA52A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58179.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:2BA25C5DE71810767E9C4AD70CA5F91F1B2BDBD0
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58180.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D672D7A4C715298929F15AF48EA6B9659CF8ED96
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58181.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:61782F55EF1E0EBD8FD50DCAD075590B2B3C3E0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58182.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Topaz Photo AI 3.0.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58183.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:8E89A4635AB20E8C1E6451E744F69E560B4E791C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58184.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:546F5E95FB44457F9CFDCDC1A779F7EEFF719B13
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58185.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:546F5E95FB44457F9CFDCDC1A779F7EEFF719B13
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58186.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Horizon: Forbidden West (2024) [Ru/Multi] (1.0.37.0/dlc) Scene FairLight [Comple
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58187.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Horizon Forbidden West – продолжение приключения охо�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58188.jpg" />
 </div>
 
 

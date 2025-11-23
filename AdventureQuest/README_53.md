@@ -6,7 +6,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176418.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bilkins Folly (2023) [En] (1.0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176443.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176568.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179471.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -142,6 +142,30 @@ magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428001   (179616) от 02.12.2020
+
+Still Life (2005) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличие от «Post Mortem», являющейся квестом от первого лица, «Still Life» стала игрой от третьего лица. Игра даёт представление о работе как ФБР, где необходимо находить улики, допрашивать свидетелей, узнавать мнения судмедэкспертов, так и частного детектива, вынуждая взламывать замки, обыскивать канализацию, сотрудничать с преступниками и проститутками. В поисках (   Читать дальше...   )Тип издания: UnofficialРазработчик: MicroidsЖанр: QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666095   (179789) от 03.10.2023
 
 Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
@@ -150,7 +174,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179789.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179789.jpg" />
 </div>
 
 
@@ -174,7 +198,7 @@ Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_179794.jpg" />
 </div>
 
 
@@ -198,7 +222,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179834.jpg" />
 </div>
 
 
@@ -222,7 +246,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180507.jpg" />
 </div>
 
 
@@ -238,6 +262,78 @@ magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292716   (180618) от 26.11.2022
+
+Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Games
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_180618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная Труба существует. На самом деле. До последнего времени попасть туда было делом непростым, но теперь это стало доступно каждому. Все, кто побывал в Полной Трубе, описывают её по-разному: кто-то говорит, что там всё как у нас, другие утверждают, что это не так, а совсем наоборот. Но на самом деле всё гораздо, гораздо запутаннее...Тип издания: РепакРазработчик: PIPE StudioЖанр: Adventure / Arcade / Logic (Puzzle)Язык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227626   (181017) от 01.10.2023
+
+Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуйте по неведомым мирам, простирающимся за гранью вашего воображения, и открывайте тайны потерянной цивилизации Д'ни. Это она создала книги-порталы – «ворота» в другие измерения, названные «Мирами». Следуйте за Йишей, дочерью Атруса, чтобы найти утерянные секреты, решить загадки и исследовать многочисленные миры.Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417818   (181032) от 30.11.2020
+
+Mesmer (2020) [Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи лидером революции, убедите людей и фракции следовать за вами, но действуйте аккуратно — секретная полиция охотится на вас. Mesmer — это социальная игра на выживание, в которой важна каждая встреча. Как лидер революции вы влияйте на людей и фракции, чтобы они следовали за вами, избегая при этом внимания тайной полиции. Ставки высоки, а опасностей много. Но (   Читать дальше...   )Тип издания: LicenseРазработчик: Rain GamesЖанр: Приключение, Стратегия, Open WorldЯзык озвучки: Английский, НорвежскийЯзык субтитров: Английский, НорвежскийЯзык интерфейса: Английский, Норвежский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665765   (181033) от 01.10.2023
 
 Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
@@ -246,7 +342,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -270,7 +366,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -294,7 +390,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -318,7 +414,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181208.jpg" />
 </div>
 
 
@@ -342,7 +438,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -358,6 +454,30 @@ magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427638   (181746) от 29.11.2020
+
+The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Hope – вторая игра в антологии The Dark Pictures. Отрезанные от мира, застрявшие в городке Little Hope без надежды выбраться четверо студентов и их преподаватель отчаянно пытаются спастись  от кошмарных порождений ужаса, преследующих их в непроницаемом тумане.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028A40B4236C929747CEF111B907CA0B9512FAC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665358   (182043) от 30.09.2023
 
 Return of the Phantom (1993) [En] (1.01) License GOG
@@ -366,7 +486,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182713.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182868.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183333.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183850.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184233.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:972CA8C35BDF74FC9E1AC4BBBC4CCE7A3B3B5872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591883   (184832) от 20.11.2022
-
-The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Entropy Centre - умопомрачительное приключение в мире загадок, где вам предстоит перемещать предметы во времени, чтобы обойти невероятные препятствия и решить сложные загадки. Управляйте ходом времени, проходя через набитые головоломками комнаты к сердцу космической станции на орбите Земли.Тип издания: RepackРазработчик: Stubby GamesЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529015615C470CEA6B6471F0595AB2C5299D813F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664548   (185043) от 26.09.2023
-
-Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paranormal VHS отправляет в захватывающее путешествие в мир расследований паранормальных явлений. В этом захватывающем повествовании вы становитесь на место Джеймса, бесстрашного влогера, известного своим каналом Paranormal VHS. Вооружившись лишь видеокамерой, он отправляется в ночные приключения по заброшенным местам с привидениями, стремясь запечатлеть сверхъестественное. (   Читать дальше...   )Тип издания: SceneРазработчик: Elite Lords StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DB8FA85D0A9E48AE7753EEFF0AD06293E87CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658922   (185634) от 25.09.2023
-
-Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гигантский, таинственный инопланетный артефакт вышел на околоземную орбиту, вызвав всепланетный фурор. Земляне окрестили артефакт метаэдром и отправили для его изучения отряд по изучению форм жизни и коммуникации (SCAR), состоявший из ученых и инженеров. Однако все вышло не так, как задумано: метаэдр неожиданно перенес команду на загадочную планету за пределами Солнечной (   Читать дальше...   )Тип издания: SceneРазработчик: Mad Head GamesЖанр: Action, Adventure (Horror), 3rd Person, 3DЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC44C94B429E1F5DA69A5FBBB06A80CE7375860
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664194   (185849) от 25.09.2023
-
-Heart of the Woods (2019) [Multi] (2.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heart of the Woods – фентезийная визуальная новелла, что объединила в себе множество элементов нереального, например, фей, девушек-призраков, магию и потустороннюю активность. Проект является максимально дружелюбным к меньшинствам, ведь главная героиня – Мэдди Рейнс, имеющая лучшую подругу по имени Тара - влогершу, занимающуюся развитием собственного блога в интернете (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio ÉlanЖанр: Adventure, Visual Novel, NarrativeЯзык озвучки: АнглийскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591157   (187337) от 17.11.2022
-
-EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мия Лоренсон просыпается в заброшенной больнице и сталкивается со множеством вопросов. Что случилось с ней самой? Что случилось с миром? Edengate: The Edge of Life — это интерактивная игра, призванная передать ощущение неуверенности, изоляции и надежды.Тип издания: RepackРазработчик: HOOKЖанр: Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
 ```
 
 

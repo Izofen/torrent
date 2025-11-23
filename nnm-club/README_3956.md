@@ -1,3 +1,75 @@
+###  Публикация: 1692487   (122538) от 16.01.2024
+
+Журнал | Садовод и огородник №1 (516) (январь 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122538.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262B5E256D3946BF0FE397AC3D76685273958A06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692497   (122539) от 16.01.2024
+
+VueScan Pro for Mac 9.8.25 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122539.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8DE1CDB45A9D57330D4593C73D30ADD1563BEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692453   (122540) от 16.01.2024
+
+FBackup 9.9.849 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122540.jpg" />
+</div>
+
+
+###  Подробнее
+
+FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFEDD617C310EAA333A0B9D1D435846DFABE3DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692321   (122541) от 16.01.2024
 
 HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
@@ -6,7 +78,7 @@ HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122541.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ OneCommander Pro 3.65.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122542.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ StaxRip 2.33.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122543.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:EC599BB06D1A845D706B3032FD400EDFC73C9105
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122544.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122545.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:5D33C2D75B122F3AB8F2EFAFE1847E77773B8FA4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122546.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:C1FD5E95615809B317011070F6CBC743451C4B89
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122547.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:0DA2976428578645D39416BF853D38A6246369D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122548.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:4B65531D9F3E3142E455F2B7E531746A3FFBC564
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122549.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:61DE6B4988DA65CD4CB59D390639C363163F2B98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122550.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Process Lasso Pro 12.4.7.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122551.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Rhinoceros 8 v.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122552.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:8660DBC1FAD3BDCCE1EC0AE53CB47E346FA80F3E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122553.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ XYplorer 25.40.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122554.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:285672124A93F3016DFFED2EE4CE491D47D7BFFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122555.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:02E57FE4C8B52D794FB1C702EBD4EA40883087B9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122556.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ Chris Rea - Stony Road (2002) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122557.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ EarthView 7.8.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122558.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:4C5D44DBAC946D17596CDDA74ACB5CFF0ED8DEF2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122559.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122560.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:16FE845F4C59C6509D3355A86AB50BDFA1C297D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122561.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ magnet:?xt=urn:btih:C76DB575EBDFEB09ABF95F8868FADFBFB139AC95
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122562.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ magnet:?xt=urn:btih:8B988EBFECC15E22C4BCF233FE0F3ABBB59D51D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122563.jpg" />
 </div>
 
 
@@ -559,80 +631,6 @@ magnet:?xt=urn:btih:8B988EBFECC15E22C4BCF233FE0F3ABBB59D51D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8C37A7DC847C0F10911E384FCE321DA720227D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692503   (122564) от 16.01.2024
-
-Nuro Audio - Xvox Pro 1.0.3 VST 3 (x64) RePack by AstroNommy [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xvox Pro поставляется с 6 плагинами для оптимизации вашего рабочего процесса, включая Xvox Pro, Xvox Comp, Xvox DS, Xvox Tone, Xvox Space и Xvox SFX.
-Самый мощный набор для микширования вокала из когда-либо созданных. Упакованный в революционный интерфейс, он позволяет получать профессиональные результаты с полной гибкостью - быстрее и проще, чем когда-либо прежде.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A78B354831360BCBB0CD7E76C24BA68B61696F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692403   (122565) от 16.01.2024
-
-Илья Соломенный | Не время для героев (Книга 5) (2023) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122565.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Не время для героев» – роман Ильи Соломенного, пятая книга одноименного цикла, жанр эпическое фэнтези, героическое фэнтези, приключенческое фэнтези. Очнулся возле огромного замка и не помню, кто я такой… С рукой срослась кристаллическая перчатка, в голове звучит шёпот древних Богов, в крови бурлит магия, кругом – незнакомый и опасный мир, а какой-то призрак талдычит (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D13616B99DA2F11ED30DF58B175BF85824781C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692500   (122566) от 16.01.2024
-
-Glarysoft Malware Hunter PRO 1.178.0.798 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
-Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B424F0610A7E7AB53C6A0BDC89F25BC4BCD7C4
 ```
 
 

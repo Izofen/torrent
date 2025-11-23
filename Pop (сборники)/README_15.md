@@ -6,7 +6,7 @@ ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163123.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164054.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 100 Club Hits - Edition 2023 (2022) [MP3|320 Kbps] <Electro Pop, Dance, Fut
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164786.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164891.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165559.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - German Top 100 Single Charts 13.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167306.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167653.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167691.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - My Lyric Soul: Romantic Music Compilation (2019) [MP3|320 Kbps] <Pop, Lyric
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167807.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168455.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168965.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Delta Goodrem - Compilation (2022) [MP3|320 Kbps] <Pop, Vocal>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168979.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Old School Hits Collection от ALEXnROCK Часть 2 (2019) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169294.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172791.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - German Top 100 Single Charts 13.10.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173167.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174647.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_174647.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Осень на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_175036.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Hit Music: зима ( 2022) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176510.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176510.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176616.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176616.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - German Top 100 Single Charts 04.12.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176634.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176634.jpg" />
 </div>
 
 
@@ -538,6 +538,33 @@ magnet:?xt=urn:btih:F359800BF1BF8C9741441170981E44B5AA1533A0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428334   (179586) от 02.12.2020
+
+VA - Shazam Хит-парад Russia Top 200 Ноябрь (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foushee - Deep End (2:21)
+002. Tiësto - The Business (2:43)
+003. Blackbear - Hot Girl Bummer (3:05)
+004. TINI LIN & babylaurenne - Последний танец (2:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678B79452520C82261DD7128FB37767C94EE5CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593443   (180964) от 26.11.2022
 
 VA - German Top 100 Single Charts 25.11.2022 [MP3|320 Kbps] <Pop>
@@ -546,7 +573,7 @@ VA - German Top 100 Single Charts 25.11.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180964.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_180964.jpg" />
 </div>
 
 
@@ -565,6 +592,33 @@ magnet:?xt=urn:btih:28675983527B47EDE2377E60DD84ACD304BB3AE1
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427696   (181386) от 30.11.2020
+
+VA - Italo Disco: HN Radio Remix (2020) [MP3|271-320 Kbps] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_181386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Yellow - U.S.A.
+002. Savage Feat. Ice Mc - Where Is The Freedom
+003. Andy Bach - Don't Know
+004. Discotron - Disco Gettin' Jacked(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 12:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2A64B38F8621D67715BFE3CCD8B255C8259FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427113   (183671) от 27.11.2020
 
 VA - Hit Music (зима 2020) от Мяу [MP3|320 Kbps] <Pop>
@@ -573,7 +627,7 @@ VA - Hit Music (зима 2020) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183671.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_183671.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185749.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185749.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Af
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188650.jpg" />
 </div>
 
 
@@ -641,60 +695,6 @@ VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Af
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590508   (188754) от 14.11.2022
-
-VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Million Dollar Baby
-02. Lizzo - About Damn Time
-03. Ed Sheeran - 2step (feat. Lil Baby)
-04. Alex Warren - Headlights(   Читать дальше...   )Жанр: Synthpop, Disco, Dance, Hip HopПродолжительность: 01:42:39 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590507   (188790) от 14.11.2022
-
-VA - Totally Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Dance, Rhythm & Blues>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LF SYSTEM - Afraid to Feel
-02. David Guetta - Family Affair (Dance for Me)
-03. Nathan Dawe - 21 Reasons (feat. Ella Henderson)
-04. Tiesto - Hot in It(   Читать дальше...   )Жанр: Electropop, Synthpop, Dance, Rhythm & BluesПродолжительность: 01:21:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170C5A3F0207B8238A939CEF986FED743AD8D751
 ```
 
 

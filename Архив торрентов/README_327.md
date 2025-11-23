@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DF64CB55639C24E607730F8C624DCC898CDD2605
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81174.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF64CB55639C24E607730F8C624DCC898CDD2605
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81175.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81178.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81184.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81187.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81197.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VCMG - SSSS (2012) [MP3|320 kbps]<Techno, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81216.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:5021F13F36231ADDA564117254941EFC54A3021C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81218.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:1E0B8545A60E1833FC6CBA8FF0B2295D1B19D7CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81222.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Kidou Senshi Z Gundam -Hoshi wo Tsugu Mono / Mobile Suit Zeta Gundam: A New Tran
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81226.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Kidou Senshi Z Gundam II -Koibitotachi- / Mobile Suit Zeta Gundam -Lovers- / М�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81229.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ iTunes x32 10.6 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81240.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ PhotoInstrument 5.5.551 Portable [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81242.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ CyberLink PowerDVD Ultra 11.0.2608 RePack by qazwsxe [Русский / Англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81243.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Kimi ni Todoke 2nd Season / Дотянуться до тебя 2 [2011, TV, 12 �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81248.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:5E55CD963043983ADBBDC6DB2C5E602960ADE829
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81257.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Total Commander 7.57а Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81261.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81270.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Total Commander - популярный файловый менеджер с пр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81278.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:89D08CD3005F1EEF99D704AC4CAE776F824AE3FF
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_81282.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_81282.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:D9AE9DD337AE7698BA8156CB226BD9B7E467B480
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81284.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:90805683B1D118BF2AE77B5A484AA331034105A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81310.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:90805683B1D118BF2AE77B5A484AA331034105A5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81365.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:D6F77E6843307989AC918910C24C384A276BE6A0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81382.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:F4A13ECA245A03A89D99C49733B5B8982AC34BD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81383.jpg" />
 </div>
 
 

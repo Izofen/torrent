@@ -1,3 +1,75 @@
+###  Публикация: 591392   (136523) от 19.12.2012
+
+Лия Лин | Упади семь раз [2012] [RTF,FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три подруги - популярная певица Андре, известная художница Надин и многодетная мать Лия неожиданно попадают в сложную и запутанную ситуацию. На пороге мастерской художницы они находят труп мужчины, похожего на их знакомого Стаса. Ситуация ухудшается, когда убивают и самого Стаса - сына губернатора города. Убийства, предательства и подстерегающие даже во дворе собственного дома опасности меняют привычный уклад жизни подруг. Им приходится не только буквально бороться за выживание, но и разгадать причину невзгод, обрушившихся на них...Формат: RTF,FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591663   (136525) от 19.12.2012
+
+Журнал | Загадки истории №21 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136525.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» - теперь отдельный ежемесячный журнал! Он расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1AA6DA6B59352B8332D6AFA6D5E4BED18A6DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591621   (136526) от 19.12.2012
+
+Журнал | ID Interior Design №12-1 [декабрь 2012-январь 2013] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный журнал о дизайне и архитектуре. Все новое в декоре интерьеров, уникальное в архитектуре, эксклюзивное в интерьере, что создается в стране и мире, находит свое отражение в журнале, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0CBF9F3D421BB07BFBAD9A7BD38D5F3CACE93B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591549   (136529) от 19.12.2012
 
 Подшивка журналов | American Handgunner [2012] [PDF] [En]
@@ -6,7 +78,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136529.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:00885642423259B0C3BD267F25CF93ADE697256E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136531.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Cephalic Carnage - Xenosapien (2007) [WavPack|Lossless]<Brutal Death Metal / Gri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136534.jpg" />
 </div>
 
 
@@ -87,7 +159,7 @@ Shokran - Sixth Sense (EP) (2012) [MP3|320 кб/с]<Instrumental Progressive Mat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136536.jpg" />
 </div>
 
 
@@ -115,7 +187,7 @@ magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136539.jpg" />
 </div>
 
 
@@ -139,7 +211,7 @@ magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136541.jpg" />
 </div>
 
 
@@ -166,7 +238,7 @@ magnet:?xt=urn:btih:95A890C8A67B4B406988B68A768762213BAA2072
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136542.jpg" />
 </div>
 
 
@@ -190,7 +262,7 @@ magnet:?xt=urn:btih:9301899CB2D9C0CF25C94C9ACFA6A6F2687F8FE1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136543.jpg" />
 </div>
 
 
@@ -214,7 +286,7 @@ Mistabishi - Skum (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136547.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136550.jpg" />
 </div>
 
 
@@ -280,7 +352,7 @@ magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136552.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:5420B83FF978A221644B4C64602F4BD4A84588CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136557.jpg" />
 </div>
 
 
@@ -328,7 +400,7 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136560.jpg" />
 </div>
 
 
@@ -355,7 +427,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136561.jpg" />
 </div>
 
 
@@ -379,7 +451,7 @@ magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136562.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ magnet:?xt=urn:btih:BA516BA223D9AA0A36BA44C385EC47E6F9CD9B50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136563.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2019) [Ru/En] (0.20.1222.1605/dlc) Repac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136564.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:47A5715719416EC1F9DBE81FEBA2EC9B4436E2EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136565.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:D6239D7665A988AF735DEF13B45BECBF5170433C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136566.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:93E45B7167541F0A7677CB8E932C269A72AE3D9A
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136567.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:1F9DB2BB258F93D09A57B0780688A07A58102A49
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136568.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136569.jpg" />
 </div>
 
 
@@ -571,7 +643,7 @@ magnet:?xt=urn:btih:AA02798359EB35B2FF69511F65250E53103DE8A7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136570.jpg" />
 </div>
 
 
@@ -582,78 +654,6 @@ magnet:?xt=urn:btih:AA02798359EB35B2FF69511F65250E53103DE8A7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EEF6B08EE3F804DA6CDAABE7FB76A0F69522F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201808   (136571) от 31.12.2020
-
-Коллективный разум / Мудрость толпы / Wisdom of the Crowd (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136571.jpg" />
-</div>
-
-
-###  Подробнее
-
-У гениального изобретателя Джеффри Таннера погибает дочь, и он решает начать собственное расследование, создав краудсорсинговый узел для привлечения к делу талантливых людей в самых разных областях.Производство: СШАЖанр: триллер, драма, криминалРежиссер: Адам Дэвидсон, Джон Эмиел, Чарльз БисонАктеры: Джереми Пивен, Ричард Т. Джонс, Наталия Тена, Блейк Ли, Джейк Мэтьюз, Моника Поттер, Ион Оверман, Малачи Вейр, Рамсес Хименес, Бет Литтлфорд и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioСубтитры: русские (форсированные)Продолжительность: ~00:44:00 серияРеклама: присутствует реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5827EB03BBAA3651C6170516E53BDC5C3A97C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436276   (136572) от 31.12.2020
-
-Непосредственно Каха! (2020) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каха запал на прекрасную Софу, но, чтобы подобраться к её сердцу, ему нужно на своей «копейке» обогнать новенькую BMW Руслана и забить на дружбу с Серго. Что же выберет Каха – любовь или дружбу?Производство: Россия / Видеосервис START, Forever FilmsЖанр: КомедияРежиссер: Виктор ШамировАктеры: Артём Карокозян, Артём Калайджян, Тамара Турава, Данил Иванов, Микаел Погосян, Марина Калецкая, Людмила Артемьева, Нана Муштакова, Милена Цховреба-Агранович, Юлия Гревцова, Вартан Даниелян, Артур ОганесянПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F89DA24AC44DF773910CA917F81BB680161021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424473   (136573) от 31.12.2020
-
-Офицер и шпион / J'accuse / An Officer and a Spy (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях и романе Роберта Харриса. В 1894 году артиллерийского офицера Альфреда Дрейфуса объявляют особо опасным преступником. Официальное обвинение — государственная измена и шпионаж в пользу Германии. Бывший наставник Дрейфуса Жорж Пикар ведет собственное расследование, чтобы доказать, что его подзащитный невиновен.Производство: Франция, Италия / Legende Films, R.P. Productions, GaumontЖанр: Триллер, драма, историяРежиссер: Роман ПоланскиАктеры: Жан Дюжарден, Луи Гаррель, Кристоф Маратье, Пьер Пуаро, Стефан Годин, Грегори Гадебуа, Эрик Руф, Владимир Иорданов, Дидье Сандр, Янник ЛандрейнПеревод: Дублированный, авторскийСубтитры: Русские forced, full х3 (диск, imvolk-13, Focs), английские, французские, немецкиеПродолжительность: 02:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A8E8438315123E914A0DC8FFD3E97C86223336
 ```
 
 

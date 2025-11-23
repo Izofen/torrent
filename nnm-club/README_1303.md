@@ -6,7 +6,7 @@ Hitoribocchi no Isekai Kouryaku / Loner Life in Another World / Нападени
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB79985E6AF5C969074A6EEB6FCEFBB6876DE07B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FF5B27A1AF22E91DE24F3E81AA6A801A20431952
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FF5B27A1AF22E91DE24F3E81AA6A801A20431952
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34234.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34235.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Civilization VI: NETFLIX 1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34236.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3F41EC9981760196AEAB732DF1C8EBC3B4B1D0D9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34237.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Forever Skies (2023) [Ru/Multi] (1.7.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34238.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Дискотека 2025 Dance Club Vol. 226 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34239.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0554578B56FD4D903DE3BD37FB8AAB30D1BB01F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34240.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F10CCDB2EFD44032313A8FEBDB4C327EC17795C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34241.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F10CCDB2EFD44032313A8FEBDB4C327EC17795C7
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34242.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:462997749A9EE28F64B437C1A58497AF56EC0341
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34243.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:10744AC73C95E6EBC2149AB29070DEAEF7D62C90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34244.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:10744AC73C95E6EBC2149AB29070DEAEF7D62C90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34245.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:10744AC73C95E6EBC2149AB29070DEAEF7D62C90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34246.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:10744AC73C95E6EBC2149AB29070DEAEF7D62C90
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34247.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E48B15ED7E9DA2FA41E6DE8ED604155E87953EEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34248.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34249.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ostriv (2020) [Multi] (0.5.8.3/dlc) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34250.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D14DFA045A2AC16EC6C4E23E0D64F9D98C7C6F29
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34251.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 12.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34252.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8FC44A7CF2F5C1067C3130696383D8C97A35CD7B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34253.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:600877BFD208DD3DC7ECC95F9457EF2E350FC2A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34254.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:82A762CF6296CF95BA2CE2958CE2439B76985E0C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34255.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4BA0EE3632DD243071CB72C9F51539BB3B1632C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34256.jpg" />
 </div>
 
 

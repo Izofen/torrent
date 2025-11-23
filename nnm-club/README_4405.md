@@ -1,3 +1,84 @@
+###  Публикация: 591606   (136130) от 20.12.2012
+
+Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/ [FLAC|Lossless]<Angry Metal, Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth For War (03:57)
+02. A New Level (03:58)
+03. Walk (05:15)
+04. Fucking Hostile (02:48)
+05. This Love (06:33)
+06. Rise (04:37)
+07. No Good (Attack The Radical) (04:48)
+08. Live In A Hole (05:02)
+09. Regular People (Conceit) (05:27)
+10. By Demons Be Driven (04:40)(   Читать дальше...   )Жанр: Angry Metal, Thrash Metal, Groove MetalПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591291   (136132) от 20.12.2012
+
+Giacomo Puccini - Tosca  (Victor de Sabata & Orchestra Del Teatro Alla Scala, Milano)  2CD (1991) [FLAC|Lossless]<Classical, Opera, Romantic Period>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Opera, Romantic PeriodПродолжительность: 02:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BEA8A9709D0C0CE2F0F23FB7A31E843195470C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591888   (136138) от 20.12.2012
+
+Журнал | Stereo & Video [Россия] №1 [январь 2013] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F262825A1B031F1770DEA120DB1EBAD090CF820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591727   (136139) от 20.12.2012
 
 Reg Organizer 5.46 Final DC 19.12.2012 [Русский / Английский]
@@ -6,7 +87,7 @@ Reg Organizer 5.46 Final DC 19.12.2012 [Русский / Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136139.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136139.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ Reg Organizer® - это многофункциональная программ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136147.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136147.jpg" />
 </div>
 
 
@@ -63,7 +144,7 @@ Reg Organizer® - это многофункциональная программ
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136148.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ magnet:?xt=urn:btih:3FDAA072905D196DACA6890F2670913E705E596A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136149.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ magnet:?xt=urn:btih:5BF72601A8A6B48F1459EE4475A6BE86E5D28093
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136151.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ magnet:?xt=urn:btih:608E58A67C6F3EB53F24B595F8D7835492074C6C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136153.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ magnet:?xt=urn:btih:3EAB58F1C0E1B4513E98457435CCD9893D765C74
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136157.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ magnet:?xt=urn:btih:D29C816729D8C6963CF7ADC4D88246DAD5A150AA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136159.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Classic ROCK предлагает читателям глубокие анали
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136160.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ magnet:?xt=urn:btih:594DA2F1D41D3287340B19DF353E714BCFB5B5D8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136165.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136165.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ magnet:?xt=urn:btih:594DA2F1D41D3287340B19DF353E714BCFB5B5D8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136167.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ Desktop Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136169.jpg" />
 </div>
 
 
@@ -312,7 +393,7 @@ magnet:?xt=urn:btih:C36152866E8E4C1E402E74B382C36B589E68B069
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136171.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ Ludovico Technique - Some Things Are Beyond Therapy (2012) [MP3|256-320 kbps] <I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136177.jpg" />
 </div>
 
 
@@ -369,7 +450,7 @@ magnet:?xt=urn:btih:F4E009B4F91EFE995804B9B07E0794415453EEB5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136179.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136183.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ Jethro Tull - 20 Years Of J. T. The Definitive Collection (1988) [FLAC 2.0 24/96
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136188.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ DJ Muggs (Cypress Hill) - Sound Boy Killa (2012) EP [MP3|320 kbps] <Dubstep, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136193.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:52D115B88AA10211FF74AB5ED59C2EF2866E3774
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136194.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ magnet:?xt=urn:btih:71F9987C049B25AEB6617B9989058E2A55159F9A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136195.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136197.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136199.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136201.jpg" />
 </div>
 
 
@@ -603,88 +684,6 @@ magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7980743BC3BC06A816A2DBC8783B5D997C1D5C67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591095   (136202) от 20.12.2012
-
-The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Simpsons Main Title Theme (Extended Version)
-02 - We Do (The Stonecutters' Song)
-03 - Dancin' Homer (Medley)
-04 - Homer & Apu (Medley)
-05 - 'Round Springfield (Medley)
-06 - 'Oh, Streetcar!' (The Musical)
-07 - Jingle Bells
-08 - $pringfield (Medley)
-09 - 'Itchy & Scratchy' Main Title Theme
-10 - 'Itchy & Scratchy' End Credits Theme(   Читать дальше...   )Жанр: OSTПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592071   (136204) от 20.12.2012
-
-Журнал | Вязание модно и просто. Для самых маленьких №12(30) [декабрь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теплая вязаная одежда для малышей в возрасте до 3 лет.
-Маленьким деткам – пестрые комплекты. Теплые кофточки для сына и дочки. Вязаные топотушки для мальчишек и их подружек.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426AAFE46C53D04806ABA90AA2076896438863D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591559   (136209) от 20.12.2012
-
-Лицом к стене / Face Down (1997) VHSRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136209.jpg" />
-</div>
-
-
-###  Подробнее
-
-К бывшему полицейскому Бобу Синьорелли, работающему частным детективом, обратилась за помощью эффектная блондинка Меридит Лейк. Сначала Боб счёл её рассказ плодом богатого воображения, но, познакомившись с девушкой поближе, он понял, что происходящее с нею не выдумка…Жанр: Драма, Детектив, КриминалРежиссер: Том ЭберхардтАктеры: Джо Мантенья, Питер Ригерт, Келли Мэроуни, Кэмерон Тор, Адам Энт, Дж.К. Симмонс, Шэннон Лоусон, Кент Стэйнс, Дайана Рейс, Юджин Кларк.Перевод: Двуголосый закадровыйПродолжительность: 01:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 ```
 
 

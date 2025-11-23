@@ -6,7 +6,7 @@ Michael Fortunati - 2 Albums (1987, 1988) LP [MP3|320 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105708.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6409F3E0AC53EF45FEA53B35EE28C535A44DD38A
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105723.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2322E82E2C645D25074808A08209C3B371433AFF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105744.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:90B606AB1B3C306B68E6387AC5D4656BC77569E1
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105754.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:925F306036397BE1CB13CFFFB58A7B2690C7892F
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105766.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jasmin - От Любви До Любви (2013) [WavPack|Lossless|image + .cue] 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105920.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:018365C305B6DB94C6DEC159F82DB36A887CE643
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105941.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105943.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105946.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Sta
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105950.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105963.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9D2BAE7DA0BFA48EDED6DEA88C58309823D9A615
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106008.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8BAA710D3E201DFAA7A0A65602333527030F097B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106013.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106030.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106039.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106041.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106047.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106099.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106101.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106109.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Trad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106135.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:EDEF2A1E78652B15FCFEDC09A0A0178FA6FF6529
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106233.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106287.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106312.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106317.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106319.jpg" />
 </div>
 
 

@@ -1,3 +1,102 @@
+###  Публикация: 462885   (95560) от 05.03.2012
+
+VA - Mellow & Warm (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_95560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Carmen McRae - I only have eyes for you (3:12)
+02.Stan Getz - Misty (5:26)
+03.Miles Davis - Summertime (3:19)
+04.Billie Holiday - You go to my head (2:53)
+05.Dexter Gordon - How Insensitive (4:57)
+06.Chet Baker - The Wind (3:59)
+07.Louis Armstrong - La vie en Rose (4:51)
+08.Stephane Grappelli - Paradise (6:01)
+09.Sarah Vaughan - What are you doing the rest of your life (3:55)
+10.Duke Ellington - The feeling of jazz (4:19)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462061   (95565) от 05.03.2012
+
+VA - The Dance Cube XXXV 3CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95565.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность 01:11:06
+========================
+01 - Grant Lewis - As You Were (Original Mix)
+02 - MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+03 - Taras Bazeev - Funcilar (Original Mix)
+04 - Dakota - Katowice (Mr. Pit Remix)
+05 - Emma Hewitt - Colours (Armin Van Buuren Remix Dub)
+06 - Claudia Cazacu - Quatrain
+07 - Lisa Lashes - The Bends (Original Mix)
+08 - Van Venrooij - We Connect (Cozmoz Darkroom Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B06577AADD49C886B5C6BCE81C9BE8673C27F84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462775   (95569) от 05.03.2012
+
+VA - The Dance Cube XXXVI 3CD (2011) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95569.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Продолжительность: 01:17:27
+====================================
+01 - Tony Palmer - Loved You For 2 Weeks (Original Mix)
+02 - Markus Voorn - Earth Hour (Original Mix)
+03 - Breakfast pres. Keyworth - Median (Original Mix)
+04 - Dakota - Saints (Arnej Remix)
+05 - Oliver Hirsch Aka DJ Sabu - Moonsault (Original Club Version)
+06 - Orjan Nilsen - Lucky Strike (Original Mix)
+07 - Tangle & Mateusz - Evergreen
+08 - Anna Lee - New Hope (Ilya Soloviev Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 03:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3CA5391D961479704DD10A2E93748DBCC2CE4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462883   (95580) от 05.03.2012
 
 VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
@@ -6,7 +105,7 @@ VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95580.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95580.jpg" />
 </div>
 
 
@@ -39,7 +138,7 @@ Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95588.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95588.jpg" />
 </div>
 
 
@@ -72,7 +171,7 @@ El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95599.jpg" />
 </div>
 
 
@@ -105,7 +204,7 @@ Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95603.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95603.jpg" />
 </div>
 
 
@@ -138,7 +237,7 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95604.jpg" />
 </div>
 
 
@@ -165,7 +264,7 @@ Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95613.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95613.jpg" />
 </div>
 
 
@@ -198,7 +297,7 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95619.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95619.jpg" />
 </div>
 
 
@@ -231,7 +330,7 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95621.jpg" />
 </div>
 
 
@@ -255,7 +354,7 @@ Bruce Springsteen - Wrecking Ball (Special Edition) (2012) [MP3|~245 кб/с (V0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95623.jpg" />
 </div>
 
 
@@ -288,7 +387,7 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95625.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95625.jpg" />
 </div>
 
 
@@ -321,7 +420,7 @@ Gal Costa - Gal Costa (1969) [FLAC|Lossless]<Jazz, Folk>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95626.jpg" />
 </div>
 
 
@@ -345,7 +444,7 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95628.jpg" />
 </div>
 
 
@@ -378,7 +477,7 @@ VA - Smooth Jazz Fever (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95629.jpg" />
 </div>
 
 
@@ -403,7 +502,7 @@ magnet:?xt=urn:btih:007D2F856557D8CBF7ABAD97B2B5A920538D6DA5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95637.jpg" />
 </div>
 
 
@@ -427,7 +526,7 @@ magnet:?xt=urn:btih:7C2F41BDD1E85D504CD282AE2D90D54A478AD17B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95652.jpg" />
 </div>
 
 
@@ -451,7 +550,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95653.jpg" />
 </div>
 
 
@@ -483,7 +582,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95655.jpg" />
 </div>
 
 
@@ -508,7 +607,7 @@ magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95662.jpg" />
 </div>
 
 
@@ -532,7 +631,7 @@ magnet:?xt=urn:btih:F3DA6BDFB6B77BEB00FE232ACAE14367018D1122
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95665.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95665.jpg" />
 </div>
 
 
@@ -565,7 +664,7 @@ Roxy Music - The Best Of (2003) [FLAC|Lossless]<Rock, Glamour Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95676.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95676.jpg" />
 </div>
 
 
@@ -598,7 +697,7 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95678.jpg" />
 </div>
 
 
@@ -622,7 +721,7 @@ magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95689.jpg" />
 </div>
 
 
@@ -646,7 +745,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95699.jpg" />
 </div>
 
 
@@ -666,79 +765,6 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6B982893C073C65FFB59F83CC91B212435BF29C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462698   (95700) от 05.03.2012
-
-В.А.Кукель | Правда о гибели Черноморского флота в 1918 году [1923] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95700.jpg" />
-</div>
-
-
-###  Подробнее
-
-18-го июня 1918 года на рейде Новороссийска потоплена своими командами половина Черноморского флота бывшей императорской России.
-Это потопление, обстоятельства которого ниже излагаются активным участником его В.А. Кукелем, является одним из наиболее трагических эпизодов в истории военных флотов, эпизодом не уступающим по трагизму другим историческим "потоплениям": (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462301   (95713) от 05.03.2012
-
-Водная жизнь / Water Life (2007) BDRip [1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: RusПродолжительность: 5 серий~ по 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462661   (95720) от 05.03.2012
-
-Григорий Раковский | Конец Белых. От Днепра до Босфора. (1921) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раковский Григорий Николаевич - журналист, военный корреспондент, переживший Гражданскую войну на Юге России вместе с Белой армией. Очевидец и непосредственного участник описываемых событий рассказывает о попытке генерала Врангеля воссоздать белую армию в Крыму сразу после разгрома Деникина. Крымский этап эпопеи белого движения во многом напоминает деникинский: и (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
 ```
 
 

@@ -6,7 +6,7 @@ VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36859.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37064.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37176.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37196.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37198.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37221.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:8A99794483978E811E76A20F05EF3B00A72F46FD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37596.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37776.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:438854B549F3004FCAEDD2C3BB1ACFD2F330D4C3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37862.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:CF6C7AE73C6EB8359D53D44B673DB77DE25C3877
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37889.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [MP3|320 K
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37907.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ INSTASAMKA & Ленинград - Бумеры и зумеры (2024) [FLAC|Loss
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37939.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - best music all the time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38129.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:9D5A28FD10B3C1AF2AB8A05A6F1DE4C05A60F96D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38384.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:870337EA48BDCA853A9F9D2EF63E6908AC8C0077
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38407.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:B9C22DA038E476694BF9FD4D39588BB7250D20EC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38583.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38798.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pupo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38922.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Modern Talking Vol.1 - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39083.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Modern Talking Vol.2 - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39086.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - HITS WE ALL KNOW (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39092.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Gazebo - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39168.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39257.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Boney M - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39297.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39379.jpg" />
 </div>
 
 

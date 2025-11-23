@@ -1,3 +1,27 @@
+###  Публикация: 447118   (74235) от 05.02.2012
+
+Вильгельм Шульц | «Подводный волк» Гитлера. Вода тверже стали [2011] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он по праву считается одним из лучших подводных асов III Рейха. Его экипаж готов идти за своим капитаном даже в ад. Его U-boot прославилась громкими победами — атаковала вражеские порты, топила не только транспортные суда, но и боевые корабли, не раз выигрывала дуэли с британскими эсминцами, погружаясь на запредельную глубину, где Das Wasser besiegt den Stahl (вода тверже стали), и даже с боем прорвалась через «игольное ушко» Гибралтара, хотя шансы выжить здесь у немецкой подлодки были 1 к 10… Его феноменальное везение, невероятное чутье и дар ясновидения, который сегодня назвали бы «экстрасенсорным», привлекли внимание оккультного института СС Annanerbe и самого Гитлера, который лично отдает своему лучшему Der Seebar («морскому волку») секретный приказ: спасти от верной гибели флагман Кригсмарине линкор «Бисмарк» и изменить ход истории!2011Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84369A2D3FF39B72287CA11090B73F3A3E9E99EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447543   (74237) от 05.02.2012
 
 Алексей Варламов | Григорий Распутин (2007) [MP3, Владимир Левашёв]
@@ -6,7 +30,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74237.jpg" />
 </div>
 
 
@@ -32,7 +56,7 @@ magnet:?xt=urn:btih:495E85440CC35F5FC5A4B8028104AA2C27055EC8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74250.jpg" />
 </div>
 
 
@@ -56,7 +80,7 @@ magnet:?xt=urn:btih:42448210F2C507522A31835B2C2CC5967FCF4A9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74251.jpg" />
 </div>
 
 
@@ -81,7 +105,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74268.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ magnet:?xt=urn:btih:58E5E168AA66816AE9A451BA3B92A9DBC4262121
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74286.jpg" />
 </div>
 
 
@@ -135,7 +159,7 @@ magnet:?xt=urn:btih:3787CC4118D6DD881778A71B4AD61FFEBE1368BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74292.jpg" />
 </div>
 
 
@@ -160,7 +184,7 @@ magnet:?xt=urn:btih:3787CC4118D6DD881778A71B4AD61FFEBE1368BF
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74328.jpg" />
 </div>
 
 
@@ -185,7 +209,7 @@ magnet:?xt=urn:btih:C3C7028899DCB467C701AE466DD100008255B736
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74330.jpg" />
 </div>
 
 
@@ -209,7 +233,7 @@ magnet:?xt=urn:btih:C3C7028899DCB467C701AE466DD100008255B736
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74336.jpg" />
 </div>
 
 
@@ -233,7 +257,7 @@ Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74337.jpg" />
 </div>
 
 
@@ -268,7 +292,7 @@ Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Fore
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74354.jpg" />
 </div>
 
 
@@ -296,7 +320,7 @@ Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Fore
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74356.jpg" />
 </div>
 
 
@@ -320,7 +344,7 @@ Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Fore
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74358.jpg" />
 </div>
 
 
@@ -344,7 +368,7 @@ Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Fore
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74359.jpg" />
 </div>
 
 
@@ -368,7 +392,7 @@ magnet:?xt=urn:btih:15E686D708FAFC21FEF399BDA15CF380C3ECC8E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74360.jpg" />
 </div>
 
 
@@ -392,7 +416,7 @@ magnet:?xt=urn:btih:15E686D708FAFC21FEF399BDA15CF380C3ECC8E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74363.jpg" />
 </div>
 
 
@@ -416,7 +440,7 @@ VA/Сборник видеоклипов / HD клипы для хорошего
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74367.jpg" />
 </div>
 
 
@@ -443,7 +467,7 @@ magnet:?xt=urn:btih:EAD367E08A0EAC4B65B74F36AE5AE198E996D16E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74368.jpg" />
 </div>
 
 
@@ -467,7 +491,7 @@ magnet:?xt=urn:btih:878BC72E994ABCAE3D733E34C055D23207A8B076
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74371.jpg" />
 </div>
 
 
@@ -491,7 +515,7 @@ magnet:?xt=urn:btih:63256B2A675BE42E36E3D2049FA1EFA72400D03C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74374.jpg" />
 </div>
 
 
@@ -519,7 +543,7 @@ magnet:?xt=urn:btih:63256B2A675BE42E36E3D2049FA1EFA72400D03C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74375.jpg" />
 </div>
 
 
@@ -544,7 +568,7 @@ Cтудия 54 / Studio 54 (1998) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74390.jpg" />
 </div>
 
 
@@ -568,7 +592,7 @@ magnet:?xt=urn:btih:2EB30A4D99EC21B29B280623CAC793C490295734
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74395.jpg" />
 </div>
 
 
@@ -596,7 +620,7 @@ magnet:?xt=urn:btih:83396F05322DBD7F2BE0B76F139320F6EAE02EC8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74405.jpg" />
 </div>
 
 
@@ -622,37 +646,13 @@ magnet:?xt=urn:btih:83396F05322DBD7F2BE0B76F139320F6EAE02EC8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_74416.jpg" />
 </div>
 
 
 ###  Подробнее
 
 После того как 31 января украинская милиция пресекла деятельность файлообменника ex.ua, сайты многих государственных органов страны подверглись массированным атакам. Это парализовало работу многих официальных ресурсов, а также сайта провластной Партии регионов, а заодно выяснилось, что на сайте министерства внутренних дел Украины любой желающий может скачать себе пиратскую версию Windows и MS Office.Об интересной находке, как сообщает bigmir)net со ссылкой на сайт Watcher, рассказал блогер с ником Doctor Juta.Блогер советует зайти на 91.227.69.2 - по этому адресу ранее находился сайт МВД Украины, который затем перенесли на 91.227.69.10. Там же, помимо сайта МВД, расположены сайты Службы внешней разведки и узел антивирусного мониторинга государственных служб.Весь пул IP-адресов с 91.227.69.0 по 91.227.69.255 находится в ведении министерства внутренних дел, но интересно не это, а то, что сервер с адресом 91.227.69.2 имеет открытый ftp протокол с анонимным доступом. Там, среди прочего, в свободном доступе можно найти (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447841   (74422) от 06.02.2012
-
-Оперативный псевдоним (2003) 2хDVD5+DVD9 (серии 1-12 из 12)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74422.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом провинциальном городе Тиходонске живет бывший пациент дома умалишенных Сергей Лапин. Он производит впечатление тихого и скромного человека. Однако местные жители знают, что странный мужчина, живущий с рыночной торговкой в состоянии какого-то полузабытья, на самом деле не так прост, как кажется. Сергей очень силен и вспыльчив, причем эта ярость неподконтрольна (   Читать дальше...   )Жанр: Боевик, Криминал, ПриключенияРежиссер: Игорь ТалпаАктеры: Александр Дедюшко, Ольга Прохватыло, Дмитрий Шалов, Владимир Епископосян, Карен Аванесян, Вячеслав Молоков, Михаил Богдасаров, Александр Пашковский, Аристарх Ливанов, Владимир Конкин, Людмила Зайцева, Владимир Рузанов, Эдуард ФедашкоСубтитры: нетПродолжительность: 12 x ~ 00:44:10
 
 ## Скачать торент
 ```bash

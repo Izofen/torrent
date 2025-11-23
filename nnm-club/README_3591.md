@@ -1,3 +1,84 @@
+###  Публикация: 1708292   (113048) от 20.03.2024
+
+Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fly [5:55]
+02. Blues on Down [6:05]
+03. Five Spot After Dark [3:23]
+04. My Funny Valentine [4:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BF397850909A299A15ABE086BF27777808C7C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708100   (113049) от 20.03.2024
+
+Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Months on Tuesday - 2024 Remaster (4:48)
+02. In Dogs We Trust - 2024 Remaster (3:55)
+03. Three Walls Down - 2024 Remaster (3:35)
+04. Understanding (Just a Little) - 2024 Remaster (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF051021833ED5DB207C01A161C311391B4A3FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708290   (113050) от 20.03.2024
+
+The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the City [7:55]
+02. From Dream to Dream [6:48]
+03. Write Soon [9:44]
+04. Vas Simeon [7:33](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708288   (113051) от 20.03.2024
 
 The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +87,7 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113051.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Atrophy - Asylum (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113052.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ Kryuhm - Only in My Mind (2022) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113053.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113054.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ TechSmith Snagit 2024.2.2 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113055.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ magnet:?xt=urn:btih:BAA958FE4A807C5D8E1C47807BF3348539C2485A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113056.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Easy New File 5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113057.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ magnet:?xt=urn:btih:84C8148C840944184E490891495F36523494F121
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113058.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ OmniReader Pro for Mac 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113059.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ Rocky Athas - Livin' My Best Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113060.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113061.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113062.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ New Old School - New Old School (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113063.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ Ragwater - Shifting Shapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113064.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113065.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ Cryin' Out Loud - Play Loud & Smoke Often (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113066.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ PopClip 2024.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113067.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ Five Dollar Shake - Bigger Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113068.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ magnet:?xt=urn:btih:A14C536CAA0BD1073097D4B4DCA8B72051F5158B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113069.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ KA & The Blue Devils - Anywhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113070.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ magnet:?xt=urn:btih:1339C29ACC4A19D9DDFE3C2820D6B8F80A51FEAF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113071.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ Ash Bucher Blue Combo - Clear Cut (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113072.jpg" />
 </div>
 
 
@@ -577,7 +658,7 @@ magnet:?xt=urn:btih:EDEC9F003232E7BBDAE8AA14CAD118EC36897E5D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113073.jpg" />
 </div>
 
 
@@ -591,81 +672,6 @@ magnet:?xt=urn:btih:EDEC9F003232E7BBDAE8AA14CAD118EC36897E5D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708348   (113074) от 20.03.2024
-
-Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Гринландия (Музыка и слова К. Брейтбурга)
-02. Рыбак (К. Брейтбург - А. Тарковский)
-03. Флейта (К. Брейтбург - А. Тарковский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EBBB2FA591FC39156D935BE2D5F4A3EB189C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708473   (113075) от 20.03.2024
-
-Doppler for Mac 2.1.20 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2024 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C8CDC15B3B7330B39A63F3EAB2F1F450E9D33E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708467   (113076) от 20.03.2024
-
-HWiNFO 7.73 Build 5390 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113076.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9DF19D74B5A378E9D97015EA6F8932165CCDB4
 ```
 
 

@@ -1,3 +1,28 @@
+###  Публикация: 1822083   (94621) от 05.10.2025
+
+Perfectly Clear WorkBench 4.8.0.2857 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C8DCFE02E1B9EFAD689A3539DBCE7B16D42B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822053   (94653) от 05.10.2025
 
 Adobe Photoshop 2025 26.11.0.18 Light Portable by 7997 [Multi/Ru]
@@ -6,7 +31,7 @@ Adobe Photoshop 2025 26.11.0.18 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94653.jpg" />
 </div>
 
 
@@ -30,7 +55,7 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94753.jpg" />
 </div>
 
 
@@ -57,7 +82,7 @@ ScreenToGif 2.42.1 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100716.jpg" />
 </div>
 
 
@@ -81,7 +106,7 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100768.jpg" />
 </div>
 
 
@@ -105,7 +130,7 @@ reaConverter Pro 8.0.141 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100769.jpg" />
 </div>
 
 
@@ -130,7 +155,7 @@ Fast Video Cutter Joiner 6.9.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100805.jpg" />
 </div>
 
 
@@ -154,7 +179,7 @@ Adobe Media Encoder 2025 25.5.0.13 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100840.jpg" />
 </div>
 
 
@@ -178,7 +203,7 @@ FxSound 1.2.1.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100851.jpg" />
 </div>
 
 
@@ -202,7 +227,7 @@ Ocenaudio 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100974.jpg" />
 </div>
 
 
@@ -226,7 +251,7 @@ AIMP 5.40 Build 2696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100983.jpg" />
 </div>
 
 
@@ -250,7 +275,7 @@ PotPlayer 251002 (1.7.22623) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101001.jpg" />
 </div>
 
 
@@ -274,7 +299,7 @@ AIMP 5.40.2696 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101004.jpg" />
 </div>
 
 
@@ -298,7 +323,7 @@ StaxRip 2.50.3.5 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101068.jpg" />
 </div>
 
 
@@ -323,7 +348,7 @@ Plugin Alliance - Karanyi Sounds Wavesufer 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101180.jpg" />
 </div>
 
 
@@ -347,7 +372,7 @@ Lunacy Audio - BEAM 1.3.4 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101314.jpg" />
 </div>
 
 
@@ -371,7 +396,7 @@ SketchUp Pro 2026 26.0.429 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101594.jpg" />
 </div>
 
 
@@ -395,7 +420,7 @@ CyberLink PowerDirector 2026 Ultimate 24.0.1003.0 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101601.jpg" />
 </div>
 
 
@@ -419,7 +444,7 @@ Marmoset Toolbag 5.02 (5022) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101631.jpg" />
 </div>
 
 
@@ -443,7 +468,7 @@ SketchUp Pro 2026 26.0.429 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101634.jpg" />
 </div>
 
 
@@ -467,7 +492,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.4 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101647.jpg" />
 </div>
 
 
@@ -491,7 +516,7 @@ Xilisoft AVI to DVD Converter 7.0.1.1122  Portable [Русский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102128.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102128.jpg" />
 </div>
 
 
@@ -521,7 +546,7 @@ Pop Art Studio 6.2 Batch Edition x32/x64 Portable by Boomer  [Русский]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102292.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102292.jpg" />
 </div>
 
 
@@ -548,7 +573,7 @@ Auburn Sounds - Panagement 2 2.6.0 (FULL) VST, VST 3, AAX (x86/x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103083.jpg" />
 </div>
 
 
@@ -573,7 +598,7 @@ Newfangled Audio - Recirculate 1.1.9 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103084.jpg" />
 </div>
 
 
@@ -597,7 +622,7 @@ Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103086.jpg" />
 </div>
 
 
@@ -608,30 +633,6 @@ Eventide - Blackhole Immersive 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2280F9FAE4C516A121E8D413D03EA26C0E3ACCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761148   (103089) от 18.11.2024
-
-Newfangled Audio - Generate 1.6.9 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите хаос на новый уровень с помощью Generate. Разработанный компанией Newfangled Audio, Generate представляет собой полисинтезатор marquee, сочетающий в себе пять революционных хаотических генераторов со всеми функциями, которые вы ожидаете от первоклассного синтезатора. Создавайте красивые сложные пэды, теплые скользящие клавишные, нервные секвенированные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFE7C228DEC4D7B321D380098663980177639E6
 ```
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 1676873   (154577) от 15.11.2023
+
+Hobbs Angel Of Death - Hobbs' Satan's Crusade (2003) Compilation, Reissue, 2017, High Roller Records [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Death 04:07
+02. Crucifixion 04:45
+03. Jack The Ripper 03:23
+04. Bubonic Plague 02:48(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECD59AED3CDBD65CC04C4A6FF98598DDB120365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433694   (154578) от 22.12.2020
+
+Nina - Control (2020) EP [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Where It Ends (feat. LAU) [00:03:29]
+2. Control (feat. LAU) [00:03:37]
+3. Forever (feat. LAU) [00:03:50]
+4. Tainted Butterflies [00:01:36](   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrowaveПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1464A1F602701BB2997CE4D553C1C11B798AA9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194448   (154579) от 25.12.2017
+
+My Little Pony в кино (Мой маленький пони) / My Little Pony: The Movie (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король Шторм хочет лишить пони магии и захватывает Кантерлот. Под угрозой будущее всей Эквестрии! Чтобы остановить злодея, пони покидают родные края и отправляются в путешествие, полное чудес и опасностей. Им предстоит покорить волшебные горы, погрузиться в подводные миры и даже оказаться на летучем пиратском корабле!Производство: Канада, СШАЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Джейсон ТиссенАктеры: Тара Стронг, Эшли Болл, Андреа Либман, Табита Сен-Жермен, Кэти Уэслак, Эмили Блант, Кристин Ченоуэт, Лив Шрайбер, Майкл Пенья, СиаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45ACF0B115263BF2A9EA4B667FC6E7986BB34E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345391   (154580) от 21.12.2019
+
+На слом! / This Property Is Condemned (1966) WEB-DLRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судебный чиновник, прибывший в забытый богом городок на юге США с целью закрыть львиную долю железных дорог, являющихся ключевым источником дохода горожан, влюбляет в себя и сам влюбляется в самую красивую девушку города.Производство: США / Paramount Pictures, Seven Arts ProductionsЖанр: Драма, мелодрамаРежиссер: Сидни ПоллакАктеры: Натали Вуд, Роберт Редфорд, Чарльз Бронсон, Кейт Рид, Мэри Бэдхэм, Алан Бакстер, Роберт Блэйк, Дэбни Коулмэн, Джон Хардинг, Рэй ХэмпхиллПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F7B7BC7756A7C69DAF4F4426A73544398CA9F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270966   (154581) от 21.12.2018
+
+Cassius Lambert - Symmetri (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krig
+02. Hav Pt. 1
+03. Hav Pt. 2
+04. Hav Pt. 3(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B504ABB6A09DB74776A74B8B09F95816112B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084955   (154582) от 23.12.2016
+
+Рустам Ибрагимбеков, Никита Михалков | Сибирский цирюльник (2012) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы правления императора Александра III в Россию приезжает изобретатель и авантюрист из США Маккэрен, который задался целью продать правительству своё последнее чудо изобретение — самоходное устройство для пилки леса "Сибирский цирюльник". Единственный человек который стоит на его пути к успеху — это глава приемной комиссии генерал Радлов. (   Читать дальше...   )Жанр: исторический романИздательство: Нигде не купишьПродолжительность: 08:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF01D73738273EA1EA1343471BC649FE42DB9BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600758   (154583) от 28.12.2022
+
+Эра выживания / Vesper (2022) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля будущего. Человечество находится на грани вымирания. Хотя технологии вышли на невероятно высокий уровень, люди каждый день сражаются за жизнь с природой, которая эволюционировала и превратилась в безжалостного убийцу. Восстановить баланс и пошатнуть чашу весов, на которые возложена судьба всего человеческого вида, предстоит 13-летней девочке Веспер.Производство: Франция, Литва, Бельгия / Rumble Fish Productions, Natrix Natrix, 10.80 FilmsЖанр: фантастика, драма, приключенияРежиссер: Кристина Буожите, Бруно СамперАктеры: Раффиелла Чепмен, Эдди Марсан, Рози Макьюэн, Ричард Брэйк, Мелани Гейдос, Эдмунд Дин, Матвей Буравков, Nojus Buslevicius, Марюс Демискис, Маркас ЭймонтасПеревод: Дублированный (Велес)Субтитры: Английские (Full, SDH)Продолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084D59D87EB13CE7CD67E21968F739AFAE42D627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085913   (154584) от 23.12.2016
 
 Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
@@ -6,7 +183,7 @@
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154584.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154585.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ OCCT 7.2.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154586.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ magnet:?xt=urn:btih:3968420DE2EFC57587182F73B4399FA99DD6A72B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154587.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154588.jpg" />
 </div>
 
 
@@ -129,7 +306,7 @@ Blue Period | Голубой период [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154589.jpg" />
 </div>
 
 
@@ -153,7 +330,7 @@ magnet:?xt=urn:btih:D10B647A71A9ECD7A3DBCEB970A81FDD1CC51434
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154590.jpg" />
 </div>
 
 
@@ -179,7 +356,7 @@ VA - Mix: Rock 'N Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154591.jpg" />
 </div>
 
 
@@ -206,7 +383,7 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154592.jpg" />
 </div>
 
 
@@ -230,7 +407,7 @@ magnet:?xt=urn:btih:AB5EEB50EC0C4544879B883F51237AF373871FB9
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154593.jpg" />
 </div>
 
 
@@ -255,7 +432,7 @@ magnet:?xt=urn:btih:FB20AF33FD15520E17C408464AEFC9E71C8EE72E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154594.jpg" />
 </div>
 
 
@@ -279,7 +456,7 @@ magnet:?xt=urn:btih:769B6AAB57EC96522457E0A35E4D44160725EE4D
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_154595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_154595.jpg" />
 </div>
 
 
@@ -303,7 +480,7 @@ magnet:?xt=urn:btih:769B6AAB57EC96522457E0A35E4D44160725EE4D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154596.jpg" />
 </div>
 
 
@@ -327,7 +504,7 @@ magnet:?xt=urn:btih:B19FB7BC6DAA0338CDADB15602C6D614EB48A352
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154597.jpg" />
 </div>
 
 
@@ -351,7 +528,7 @@ magnet:?xt=urn:btih:8EE4111CBFF16C2F87A5EE13F4679C0F6810C654
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154598.jpg" />
 </div>
 
 
@@ -375,7 +552,7 @@ magnet:?xt=urn:btih:5B9DD2C0F5ED5D5F8E5D042F830144DB82FC207B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154599.jpg" />
 </div>
 
 
@@ -399,7 +576,7 @@ magnet:?xt=urn:btih:A77BE528B317905874ACC0F6B8BE683C8A4B3F36
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154600.jpg" />
 </div>
 
 
@@ -423,7 +600,7 @@ Topaz Video AI 4.0.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154601.jpg" />
 </div>
 
 
@@ -447,7 +624,7 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154602.jpg" />
 </div>
 
 
@@ -458,177 +635,6 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315E10E5E42C55E4A4C582E26441230210E9606D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194582   (154603) от 25.12.2017
-
-Cinema 4d r19 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinema 4D R19 предоставляет великолепные улучшения, которые вы можете использовать уже сейчас и которые также демонстрируют, что можно ожидать в будущем. Дизайнеры выбирают Cinema 4D из-за её быстрого, простого рабочего процесса и высокой стабильности, а R19 делает рабочий процесс ещё быстрее, расширяет горизонты новыми функциями и предоставляет надёжность на которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: MAXONПоддерживаемая ОС: Mac OS X 10.11.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A9F9C83C2CCFAFF4D2DD83D2C3127A9BC5FD21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086087   (154604) от 23.12.2016
-
-HTML Egg Pro 7.70.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154604.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML Egg Pro позволяет проектировать веб-сайты и веб-формы.
-HTML Egg Pro  имеет уникальный drag-and-drop редактор  и может автоматически генерировать код на основе ваших проектов. Никакого программирования  не требуется. Это приложение подходит для веб-дизайнеров, чтобы создавать веб-сайты без необходимости изучать передовые языки программирования.
-
-Вы сможете открывать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2016Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9E72DAEB9C4A8E3D1C9D81C9762DF31A506D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433827   (154605) от 22.12.2020
-
-Картинки - NNM-Club - Календари на 2021 от Warrior 123 №8 - 1433827 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753EA6647ABCF49EC29D4D50027A02572CE77363
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676748   (154606) от 15.11.2023
-
-MediaHuman YouTube to MP3 Converter 3.9.9.87 (1114) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3887A05F3F7F7C41E1BC973077B9748B49DED07B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433949   (154607) от 22.12.2020
-
-Тур Хейердал | Путешествие на «Кон-Тики» (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1947 году Тур Хейердал и пять товарищей отправились в рискованное морское путешествие, получившее название «Экспедиция Кон-Тики». Хейердал хотел пересечь Тихий океан на бальсовом плоту, чтобы доказать, что Полинезия заселена южноамериканскими индейцами. Никто не думал, что он выживет, но ему это удалось. Вместе с командой он сделал невозможное: преодолел восемь (   Читать дальше...   )Жанр: Биографии и мемуары, Тревелоги, ПублицистикаПеревод: Лев ЖдановФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D24B2C42DDB506C214CEAC2E126E7B1EA7D1ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329005   (154608) от 21.12.2019
-
-Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV, 12 из 12] WEB-DL 1080p rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154608.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Зверомаск» — сильнейший рестлер в маске! Он выходит на ринг под бурю оваций! Вот-вот прогремит гонг, возвещая о начале решающего боя с заклятым врагом — Князем! Мгновение… и тишина. За секунду до начала сражения «Зверомаска», а если точнее, Гэндзо Сибату, призвали в другой мир. Не успел он прийти в себя, как принцесса Альтена взмолила о помощи: она просит сразить (   Читать дальше...   )Производство: Япония, студия ENGIЖанр: комедия, фэнтезиРежиссер: Миура КадзуяЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635417F3D50CB1E8D38CBFC75452C8D63CF080A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194601   (154609) от 25.12.2017
-
-Эспен в королевстве троллей / Askeladden - I Dovregubbens hall (2017) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважный Эспен отправляется в увлекательное и опасное приключение к пещере горного короля, чтобы спасти принцессу и все королевство.Производство: Норвегия / Maipo Film, Sirena Film, Subotica EntertainmentЖанр: ПриключенияРежиссер: Миккель Бренне СандемусеАктеры: Вебьёрн Энгер, Элли Харбоа, Мэдс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Эллан Хайд, Гискен Арманд, Гард Б. Эйдсвольд, Синневе Макоди Лунд, Торбьорн Харр, Ида Урсин-ХольмПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A381F84646652AAEA982923491C237C201AFAFA2
 ```
 
 

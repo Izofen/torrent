@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121030.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DefenderUI 1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121032.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Modern Tweaker 2.0 Final (24.01.2024) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121034.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinRAR 7.00 Beta 4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121048.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121084.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unclutter 2.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121091.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121092.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Notebooks – Write and Organize 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121097.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:1F5CA1BCB39667B2B3FA29EBA66D2B6BC3868E9D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121104.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121116.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:3C4AA8E54ECC66AB7F2F7A863A55657CC04935E6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121121.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ BlueHarvest 8 v.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121122.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ IObit Uninstaller Free 13.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121134.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dynamic Wallpaper Engine 17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121139.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mozilla Thunderbird 115.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121147.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Cobian Reflector 2.5.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121148.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ IObit Uninstaller Pro 13.3.0.2 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121155.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Firefox Browser ESR 115.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121156.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Skype 8.111.0.607 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121157.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ IceCream Ebook Reader Pro 6.45 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121158.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Google Chrome 121.0.6167.86 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121162.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Firefox Browser 122.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121164.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Topaz Photo AI 2.3.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121166.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:3FD539D894BA4D7913E77C2F60BD734EF03CFD20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121167.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AMD Radeon Software Adrenalin Edition 24.1.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121171.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ashampoo Photo Optimizer 10.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121174.jpg" />
 </div>
 
 

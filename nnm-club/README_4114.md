@@ -1,3 +1,75 @@
+###  Публикация: 389298   (126651) от 22.12.2023
+
+Владимир Скаковский | Музыкальные сказки 4 (2008) [MP3, Марина Совцова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокнигу вошли сказки «Три поросёнка» и «Кот в сапогах» в пересказе Владимира Скаклвского. Сказки в талантливой постановке с оригинальным музыкальным сопровождением, порадуют и приятно удивят как детей, так и взрослых.Жанр: Литература для детей, сказкаИздательство: 1С-ПаблишингПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF83BC52B942F618520157E3CC9E4B5E61E2D9F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686348   (126652) от 22.12.2023
+
+Эквилибриум / Equilibrium (2002) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в будущем, когда люди лишены возможности выражать какие-то эмоции, потому, что они… запрещены. Это — та цена, которую человечество платит за устранение из своей жизни войны. Теперь книги, искусство и музыка находятся вне закона. А любое чувство — уже преступление, наказуемое смертью.Производство: США / Dimension Films, Blue TulipЖанр: фантастика, боевик, триллерРежиссер: Курт УиммерАктеры: Кристиан Бэйл, Шон Бин, Эмили Уотсон, Тэй Диггз, Энгус Макфадьен, Шон Пертуи, Уильям Фихтнер, Джон Кеог, Дэвид Барраш, Дирк Мартенс, Кристиан КарманнПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9D5717BA6C4960617627B9D0CF6ABDC7EEB873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686421   (126653) от 22.12.2023
+
+Последнее путешествие «Деметра» / The Last Voyage of the Demeter (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дракула путешествует в Лондон на русском корабле «Деметр» и потихоньку ест матросов и пассажиров.Производство: США, Великобритания, Мальта, Италия, Германия / Amblin Partners, Dreamworks Pictures, Firebrand VideoЖанр: ужасыРежиссер: Андре ЭвредалАктеры: Кори Хокинс, Эшлинг Франчози, Лиам Каннингэм, Давид Дастмалчян, Крис Уолли, Джон Джон Брионес, Стефан Капичич, Мартин Фурулунд, Николай Николаефф, Вуди НорманПеревод: Дублированный, многоголосый (HDRezka Studio, Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: Русские (Forced, full), английские (full, SDH)Продолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E98EC42AB2BDB1353AD6490F12701CAB9D9DB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686332   (126654) от 22.12.2023
 
 Без лица / Face/Off (1997) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126654.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:F6B47CFD1112A8BC3CCDE908EA7B3AC1772F2D08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126655.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:175CEEAECDD04299BCDEBD328D6BC0FA2ADD3D57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126656.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:159AE78C30323F84F5A6755A0FFD6F77A0A9693E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126657.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:8343EFCF394AE06674BFA50323CB948161B3CFAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126658.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126659.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:536470030D4B013B6E266A2EFBA30F652BAEB7E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126660.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:536470030D4B013B6E266A2EFBA30F652BAEB7E2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126661.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:6A8F0C63AC206C7A4B91A2A17692A16557B638E2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126662.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:F0D898A6F285CE6BDDB5CFDD81D1FBAA2834314A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126663.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ VA - Christmas  Disco - Merry Christmas Everyone (2023) [MP3|320 Kbps] <Disco, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126664.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ VA - Новый год с Первым музыкальным 2024 (2023) [MP3|3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126665.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:AAD1782582AD1C478E85A310E3626093E750A3F9
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126666.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ magnet:?xt=urn:btih:602A2B8D50EDCB9E796B864E272F11F4195F87D2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126667.jpg" />
 </div>
 
 
@@ -354,7 +426,7 @@ magnet:?xt=urn:btih:45C15C6D690024B95F9B500926A49A427098536F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126668.jpg" />
 </div>
 
 
@@ -378,7 +450,7 @@ magnet:?xt=urn:btih:8D1AFB81910FEFB5E0DB983777CF5EB29831BD0F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126669.jpg" />
 </div>
 
 
@@ -403,7 +475,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi. | Исто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126670.jpg" />
 </div>
 
 
@@ -427,7 +499,7 @@ magnet:?xt=urn:btih:5886621749CF3455FFCBA99FC58134C4F4A4E426
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126671.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:13305B1A3D11B42683C512B8FA7DA7DC335CB5B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126672.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:13305B1A3D11B42683C512B8FA7DA7DC335CB5B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126673.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:F031E451DC31537C5943EF8F751933C35EB2EACE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126674.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ CLion 2023.3.1 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126675.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ magnet:?xt=urn:btih:FC1335E544F6F08F30EAD8DA5990F36D869251E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126676.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ magnet:?xt=urn:btih:FC1335E544F6F08F30EAD8DA5990F36D869251E9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B04E141CD454695829EB235571C9F8320BFF58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686404   (126677) от 22.12.2023
-
-Последнее путешествие «Деметра» / The Last Voyage of the Demeter (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дракула путешествует в Лондон на русском корабле «Деметр» и потихоньку ест матросов и пассажиров.Производство: США, Великобритания, Канада, Индия, Германия / Amblin Partners, Dreamworks Pictures, Firebrand VideoЖанр: ужасыРежиссер: Андре ЭвредалАктеры: Кори Хокинс, Эшлинг Франчози, Лиам Каннингэм, Давид Дастмалчян, Крис Уолли, Джон Джон Брионес, Стефан Капичич, Мартин Фурулунд, Николай Николаефф, Вуди НорманПеревод: Дублированный (Официальный), Профессиональный многоголосый (HDRezka Studio, Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), английские (full, SDH)Продолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0C10D7A56A88B42235B0C95DBB04FD73053DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686376   (126678) от 22.12.2023
-
-День благодарения / Thanksgiving (2023) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плимут, штат Массачусетс. Давка в торговом центре в Чёрную пятницу, совпавшую с Днём благодарения — празднике, зародившемся в этом городке, — унесла жизни нескольких человек. Год спустя, надев маску первого местного губернатора Джона Карвера и украв из музея его топор, неизвестный начинает охоту на виновных в той трагедии.Производство: США, Канада, Австралия / TriStar Pictures, Spyglass Media Group, Ethereal Visage ProductionsЖанр: ужасыРежиссер: Элай РотАктеры: Нелл Верлак, Патрик Демпси, Гэбриел Дэвенпорт, Джейлен Томас Брукс, Майло Манхейм, Дженна Уоррен, Рик Хоффман, Карен Клише, Эддисон Рэй, Тай ОлссонПеревод: Многоголосый профессиональный (TVShows 18+)Язык озвучки: РусскийСубтитры: Русские (18+) отдельноПродолжительность: 01:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF055D83552BFBE9A0D5A03F98D139B9179404D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374020   (126679) от 22.12.2023
-
-Джером Д. Сэлинджер | Девять рассказов + 1 (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Джером Дэвид Сэлинджер – (1919–2010) известный американский писатель. Мировую известность Сэлинджеру принес роман под названием «Над пропастью во ржи». Писатель-классик, писатель-загадка, на пике своей карьеры объявивший об уходе из литературы и поселившийся вдали от мирских соблазнов в глухой американской провинции. Книги Сэлинджера, (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 06:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D3FB33EBF89063E5095E33650BEC0A5EF44E26
 ```
 
 

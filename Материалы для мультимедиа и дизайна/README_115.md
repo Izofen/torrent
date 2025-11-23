@@ -1,3 +1,149 @@
+###  Публикация: 1827432   (186085) от 21.10.2025
+
+3D print - Neko Figurines - Hornet (Hollow Knight: Silksong) [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, ребята! Делимся нашей новой диорамой «Шершень» из Hollow Knight: Silksong! Фигурка поставляется с предустановленными опорами, масштаб одинаковый для поддерживаемых и неподдерживаемых деталей.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A142DAFB3D25C1F63824E05A7FBAA9070055685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827419   (186091) от 21.10.2025
+
+Шаблоны - Creative Market - Paper Poster Card Mockup - 290947358 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот потрясающий нейтральный шаблон макета на бумаге идеально подходит для демонстрации различных товаров, напечатанных на бумаге: открыток, плакатов, резюме, флаеров, меню и приглашений. Он очень универсален и идеально подходит для демонстрации ваших работ и дизайнов в вашем магазине, позволяя им выглядеть профессионально и современно в кратчайшие сроки.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECEC20C890F835A00BCF4EC4F53F4C31E0E122F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827416   (186093) от 21.10.2025
+
+Шаблоны - YouWorkForThem - Vintage Anaglyph Halftone Effect - E13008 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте завораживающие, высококачественные изображения и фотографии всего за пару кликов! Этот фотоэффект включает в себя слои смарт-объектов, обеспечивая полную настройку, простоту и универсальность рабочего процесса. Просто откройте нужный слой, дважды щелкнув по его миниатюре, удалите заглушку, добавьте графику, сохраните и наблюдайте, как волшебство дизайна (   Читать дальше...   )Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D7289464E75304D21B0346FD8ED6787C984098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827413   (186094) от 21.10.2025
+
+Текстуры - Supply.Family - Grainy Paper Overlay Textures [JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои дизайны с помощью этой яркой коллекции из 45 градиентных текстур высокого разрешения. От ярких неоновых до плавных переходов цветов — каждая текстура создана для того, чтобы добавить глубины, движения и энергии вашим цифровым творениям. Идеально подходит для использования в Figma и Canva. Google Slides, веб-дизайне, брендинге и социальных сетях — эти (   Читать дальше...   )Формат: JPG, PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54EBEC86FA0225575311FF3DFB16C32117B6C86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827384   (186106) от 21.10.2025
+
+Пресеты (LUTs) - 3motional - 30 Aesthetic LUT Collection - bDM4A [CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразите свои видео с помощью 30 эстетических LUT-файлов (CUBE) для создания стильных видеороликов, вдохновлённых путешествиями, природой, винтажными съёмками, съёмкой на плёнку Fuji и 35-мм плёнку. Идеально подходит для инфлюенсеров, блогеров, моделей и режиссёров, которые ищут яркие ретро-тона в стиле киноплёнки, тёплую, яркую, воздушную и уникальную эстетическую (   Читать дальше...   )Формат: CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD59E4386141BCA97EED8671076DAD597800B71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827379   (186109) от 21.10.2025
+
+3D print - Cults3D - KC Studio - Ciri - The Witcher 4 Fanart [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптимизирована для печати смолой, поставляется с полностью предустановленной поддержкой в ​​масштабах 1/6 и 1/10. Фигурка была отпечатана в тестовом режиме для обеспечения возможности печати.
+​​Обратите внимание: все принтеры и настройки смолы могут различаться.
+Наши предустановленные файлы успешно прошли тестирование на всех наших принтерах, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD22EA0503D8108AE0CABBCFEB347F52A99721FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827374   (186111) от 21.10.2025
 
 Звуковые библиотеки - SoundMorph - Lock/Load [WAV]
@@ -6,7 +152,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186111.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186111.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:2F92DCB1B94DC9109E7E194726E16A8384840EEB
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186112.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186112.jpg" />
 </div>
 
 
@@ -54,7 +200,7 @@ magnet:?xt=urn:btih:1BAD4B23A9CA4F71F69404E2EAC09AC368A41733
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186114.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186114.jpg" />
 </div>
 
 
@@ -78,7 +224,7 @@ magnet:?xt=urn:btih:B22E5379598AEE478639EC2EBA0E7B3069152291
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186371.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186371.jpg" />
 </div>
 
 
@@ -102,7 +248,7 @@ magnet:?xt=urn:btih:A035E9C65C562099671463978490F6BF7A2C1D4F
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186373.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186373.jpg" />
 </div>
 
 
@@ -128,7 +274,7 @@ magnet:?xt=urn:btih:84CCE6EE08A20AEDA68FC511F52D3165C6CEC9A0
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187048.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187048.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ magnet:?xt=urn:btih:8B92811CE62A08CDDD8BD34F6882F5D57F82471F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187859.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187859.jpg" />
 </div>
 
 
@@ -176,7 +322,7 @@ magnet:?xt=urn:btih:DF399F0DEE65EDB1CEC4A251C20B8D233AAA3A2D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187890.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187890.jpg" />
 </div>
 
 
@@ -200,7 +346,7 @@ magnet:?xt=urn:btih:A8D22C1ACD114C53FAB32D2CBE4197939C71ABB4
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187908.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187908.jpg" />
 </div>
 
 
@@ -224,7 +370,7 @@ magnet:?xt=urn:btih:136BF3E4F5A28F67A3BE6BD3D401FF47D16F15C4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187910.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187910.jpg" />
 </div>
 
 
@@ -248,7 +394,7 @@ magnet:?xt=urn:btih:348022665C934FEA409E634D62A9A6C3DF1CF258
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187933.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187933.jpg" />
 </div>
 
 
@@ -272,7 +418,7 @@ magnet:?xt=urn:btih:1CA6529A80092F96C8F87D804060AD109CA57512
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187937.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187937.jpg" />
 </div>
 
 
@@ -296,7 +442,7 @@ magnet:?xt=urn:btih:B4A0F58EF57249715BB8266B06E68C6F90CD0B24
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187945.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187945.jpg" />
 </div>
 
 
@@ -320,7 +466,7 @@ magnet:?xt=urn:btih:1EB584C42E261B026D66580EAB377A1F13EAB0B8
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187951.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187951.jpg" />
 </div>
 
 
@@ -344,7 +490,7 @@ magnet:?xt=urn:btih:8447F480CE2F01159EC3CBC88768F78FF4AB8846
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187952.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187952.jpg" />
 </div>
 
 
@@ -368,7 +514,7 @@ magnet:?xt=urn:btih:40DDAE6333B80DA7ADA051DEC60E52EB039B7828
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187954.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187954.jpg" />
 </div>
 
 
@@ -394,7 +540,7 @@ magnet:?xt=urn:btih:41BB9516367DF632F61EFCF0F7821EF73BEA8CB6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187959.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187959.jpg" />
 </div>
 
 
@@ -420,7 +566,7 @@ magnet:?xt=urn:btih:BB7162A568BD99EE0859620219300F1CDB49C70C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188337.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188337.jpg" />
 </div>
 
 
@@ -447,7 +593,7 @@ magnet:?xt=urn:btih:2242C70DFCE2FD7036454FA9283E9FF20A3133A1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188813.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188813.jpg" />
 </div>
 
 
@@ -471,7 +617,7 @@ magnet:?xt=urn:btih:3237F01C29E0E4A43003F6736C32C7AC1E7FB936
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189144.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189144.jpg" />
 </div>
 
 
@@ -484,152 +630,6 @@ magnet:?xt=urn:btih:3237F01C29E0E4A43003F6736C32C7AC1E7FB936
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8526CD3E7DEBA0BA6E71BFEE4448D6ECC959A67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589529   (189818) от 10.11.2022
-
-Футажи - Big Films - Dark Magic Pack [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189818.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Набор Dark Magic Pack создан специально для кинематографистов, работающих над фантастическими и фэнтезийными фильмами. С этим пакетом мы даем вам доступ к огромному арсеналу эффектов темной магии, которые позволят вам создавать необычные миры и эпические боевые сцены! Просто перетащите эти эффекты в кадр и начните создавать свои собственные темные (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160, 4096x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85B3EB459ECF29D3D311EF8F33E75D8BD012DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588609   (191233) от 05.11.2022
-
-Растровый клипарт - Creative Market - Ikebana Botanical Asset Collection - 6103306 [ATN, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Икебана - это коллекция высококачественных элементов: цветы, лепестки, листья, бутоны и прочее. Комбинируя их вы сможете получить огромное количество вариаций. 80 элементов в PSD формате, без фона, с реалистичным освещением. Целый цветочный магазин в одной сборке.Формат: ATN, PSDРазрешение файлов: 2000x1600-4620x4452
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243D4A865CF0C4BBD3413E8E973F3327EECAAA06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588455   (191482) от 04.11.2022
-
-Кисти - ArtStation - 1850 Hand Painted Alpha Graffiti, Paints & Decals (MEGA Pack) - Vol 12 [PNG, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь давайте перейдем к истории этого пакета:
-Этот мега-пакет представляет собой самую большую, уникальную, наиболее полную и разнообразную коллекцию практичных и высококачественных 4k Альфа-граффити ручной росписи и красок, которые у вас могут быть.
-Наличие этой мега-коллекции позволит увеличить вашу библиотеку и привнести эти классные элементы в вашу работу.Формат: PNG, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FF1251CDA21CE9D81330596CE288976438B4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588439   (191496) от 04.11.2022
-
-Растровый клипарт - Plants [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция растений. Используйте, просто перетаскивая элементы в Photoshop.Формат: PSDРазрешение файлов: 9000x12500-19822x19790
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175183A19196CC33D3EFDF0784C68C8240CDF2A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588446   (191560) от 04.11.2022
-
-Шаблоны - Halloween Pumpkin Mock-up [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутый, простой в редактировании макет. В нем есть все необходимое для создания реалистичного вида вашего проекта. Гарантирует хороший внешний вид для ярких и темных дизайнов и идеальное прилегание к форме. Простая навигация, хорошо описанные слои.Формат: PSDРазрешение файлов: 4000x2670
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5841442034AE709E9D3C6D071B3BC70F917454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658145   (191656) от 06.09.2023
-
-Футажи - Big Films - SCI-FI Infinity Pack  [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191656.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "SCI-FI Infinity Pack — это инструмент №1 для кинематографистов, позволяющий поднять свои научно-фантастические проекты на новый уровень. Пакет SCI-FI Infinity Pack, наполненный множеством космических истребителей из внешнего мира, эпическими механическими роботами (Ходьба, бег, борьба. Рендеринг с нескольких ракурсов.), гигантскими космическими кораблями, (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080, 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9390948D6104C6A53C4AA881065D7DF96543387
 ```
 
 

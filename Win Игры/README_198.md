@@ -6,7 +6,7 @@ In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60303.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60321.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mystical Riddles 4: Ghostly Park (2024) [Multi] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60341.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Barn Finders (2020) [Ru/Multi] (25372/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60350.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60369.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60387.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60396.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.25) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60403.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60428.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60434.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Handball 17 (2016) [Multi] (1464816) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60445.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60450.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60462.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Llamasoft: The Jeff Minter Story (2024) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60472.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60474.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ario (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60479.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60481.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60487.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60490.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60500.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60503.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ War Tortoise (2024) [Ru/Multi] (10000) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60530.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Edge of Reality 9: The Legend Of Greenbush / Край реальности 9: Л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60536.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60562.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Project Hunt (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60579.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Go Fight Fantastic (2024) [Multi] (1.11.0001) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60584.jpg" />
 </div>
 
 

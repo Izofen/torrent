@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109029.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Serif Affinity Publisher 2.5.0.2471 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109031.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FastCopy Pro 5.7.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109032.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BurnAware Professional 17.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109034.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OneCommander Pro 3.80.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109038.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Fort Firewall 3.12.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109046.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Opera GX 109.0.5097.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109054.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Files Inspector Pro 4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109065.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wondershare UniConverter Ultimate 15.5.9.86 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109069.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Opera One 110.0.5130.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109070.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PhotoRoom 4.9.6 (b1403) Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109082.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ BurnAware Free 17.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109092.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Soul Browser 1.4.21 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109098.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109110.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Fort Firewall 3.12.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109126.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Speedtest от Ookla 5.3.7 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109128.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Taskito: To-Do и напоминания 1.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109136.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Google Chrome 125.0.6422.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109138.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ PhotoRoom 4.9.6 (b1398) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109150.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PhotoRoom 4.9.6 (b1403) Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109151.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Acode - code editor | FOSS 1.10.2 (947) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109170.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ PhotoRoom 4.9.6 (b1401) Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109176.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ RAM Saver Professional 24.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109181.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Fort Firewall 3.12.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109191.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Soul Browser 1.4.21 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109203.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Fort Firewall 3.12.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109207.jpg" />
 </div>
 
 

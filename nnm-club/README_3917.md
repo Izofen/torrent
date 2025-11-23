@@ -1,3 +1,75 @@
+###  Публикация: 1693754   (121524) от 22.01.2024
+
+Дорога в один конец / Bring Him to Me (2023) WEBRip [H.264/1080p] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Водитель должен отвезти ничего не подозревающего пассажира в место, где ему грозит смерть. По пути он борется с муками совести, пытаясь найти правильное решение в этой безвыходной ситуации.Производство: Австралия | Sparke FilmsЖанр: триллер, криминалРежиссер: Люк СпаркАктеры: Барри Пеппер, Джэми Коста, Сэм Нил, Рэйчел Гриффитс, Лиам Макинтайр, Захари Гарред, Эллисон Бойд, Харли Бронвин, Дженнингс Броуэр, Алекс ФлериПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:12Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823250   (121525) от 10.10.2025
+
+Обитатели холмов / Watership Down (2018) WEBRip [AV1/1080p-LQ] (сезон 1, серии 1-4 из 4) [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о семействе кроликов, который ищут себе новый дом после того, как одному из них приснился кошмарный сон о приближающейся катастрофе.Производство: Ирландия, Великобритания, США / Biscuit Ent., ITV Studios, BBCЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Ноам МурроАктеры: Джеймс Макэвой, Николас Холт, Джон Бойега, Бен Кингсли, Том Уилкинсон, Джемма Артертон, Питер Капальди, Оливия Колман, Макензи Крук, Энн-Мэри ДаффПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: ~ 00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7038818F79B270EB3E891DB75D47BA61B3AE95B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693761   (121526) от 22.01.2024
+
+Большая гонка. Ауди против Лянчи / Race for Glory: Audi vs. Lancia (2024) WEBRip [H.264] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_121526.jpg" />
+</div>
+
+
+###  Подробнее
+
+История знаменитого противостояния итальянской «Лянчи» и немецкой «Ауди». Битва двух концернов, двух философий и двух легендарных машин, за рулём которых сидели лучшие в мире пилоты. 20 трасс в 12 странах: дождь, снег, горные серпантины и узкие улочки средневековых городов. В ход идут все уловки — ни одна из команд не думает отступать. Победитель (   Читать дальше...   )Производство: Италия, Великобритания, Ирландия | Lebowski, HanWay Films, Recorded Picture Company (RPC)Жанр: спорт, драма, биографияРежиссер: Стефано МординиАктеры: Хейли Беннетт, Даниэль Брюль, Риккардо Скамарчо, Кэти Кларксон-Хилл, Фолькер Брух, Эстер Гаррель, Карлотта Верни, Брюно Гуэри, Якопо Рампини, Кай ПортманПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:14Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823249   (121527) от 10.10.2025
 
 MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
@@ -6,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121527.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ HWiNFO 7.69 Build 5335 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121528.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:B0DA3C5DE1830BEE9B219F37E039EE9423219045
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121529.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:6D80592BCBEBBFA1170427FE2165972F09D3BC3A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121530.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:D7D0150EA57CC8BEA6571F1E634FA3A7BC06232A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121531.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:5DBA62A18920FAE1E3B8564E9F96962A09623F6E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121532.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:9ABF88F243B06A20C186A5DDB9AE3850176D36E9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121533.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ magnet:?xt=urn:btih:274E7839974D709C3EDA95DA4361AF039CD1C9B9
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121535.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:51C91908EBFF9560B86CDF03607A78D32D2C2A9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121536.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121536.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ Karing 1.2.4.869 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121537.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ Firefox Browser 122.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121538.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ magnet:?xt=urn:btih:6A9B6D047D85386495C7738275ECEEE88B58D421
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121539.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ magnet:?xt=urn:btih:BB3AE08043BEE740058C27A3540E3254790DEA83
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121540.jpg" />
 </div>
 
 
@@ -347,7 +419,7 @@ magnet:?xt=urn:btih:2AF2B8F9239383518A45F577C8D06EF4AA37F2BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121541.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ magnet:?xt=urn:btih:86382A03E842E9FFBC3B39E63E89AF5A86F027AB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121542.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:6E3E44C25623695ED252BA724D2B4F460BEC76D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121543.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ magnet:?xt=urn:btih:F8D04828F17DF15E8E13410091D7EA0C16575A16
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121544.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:01F92DA3BFD303AC41E8E143B493314EF66A637F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121545.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:E4653F20C5429F31AC65075A03E45CA766EFA2FA
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121546.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:530EA58A32A9BAC20591717E76CC21B1B3DEF5E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121547.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:530EA58A32A9BAC20591717E76CC21B1B3DEF5E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121548.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:50134169D77C9F2F2D2AAFEBCF48894747C0B9D2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121549.jpg" />
 </div>
 
 
@@ -553,78 +625,6 @@ magnet:?xt=urn:btih:50134169D77C9F2F2D2AAFEBCF48894747C0B9D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01D9AC43D0B274D6DE58DE77F39683957977616
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693894   (121550) от 22.01.2024
-
-Imagine 1.4.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545669EE6FD00776C22C358195D5C81BA541D026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823221   (121551) от 10.10.2025
-
-Сигизмунд Кржижановский | Неукушенный локоть (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репортер крупного издания отправляется за интервью к человеку, посвятившему жизнь стремлению «укусить себя за локоть». Внезапно, этот забытый для всего мира человек, становится новым феноменом, переворачивающим общественную и политическую жизнь.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B770D074094EC26FCFDD459F6902C4B89E2E6D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693840   (121552) от 22.01.2024
-
-TweakPower 2.049 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121552.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9088A519EF678C211C2C4E2F51720CC25C651E
 ```
 
 

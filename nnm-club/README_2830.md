@@ -1,3 +1,84 @@
+###  Публикация: 466356   (81966) от 13.03.2012
+
+[Xbox 360] The Darkness 2 [Russound] [Region free] (XGD3) (LT+2.0) (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение жестокого шутера про наемного убийцу Джеки Эстакадо, который творит свои делишки под защитой (точнее, проклятьем) потусторонней Тьмы. За прошедшее время Джеки дорос до должности мафиозного босса и ввязался в полномасштабную войну между гангстерами — так что его «темным» способностям будет где разгуляться. Студия Digital Extremes собирается отказаться от реалистичной картинки и применить в игре технологию сел-шейдинга, имитирующую двухмерный рисунок.Тип издания: XGD3 / ПираткаЖанр: Ужасы / ШутерЯзык интерфейса: Eng (русская только озвучка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443E4635F905FC9F763AADD872B06E4AE925A744
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467702   (81972) от 14.03.2012
+
+Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistress (3:47)
+02. Love You (2:45)
+03. Longing For Rain (3:17)
+04. Atonement (3:52)
+05. See You In Yurakucho (3:33)
+06. Lake Mashu In Fog (3:26)
+07. Snow Country (4:33)
+08. Cheers (3:23)
+09. Old Name Has Gone Out (3:34)
+10. Una Sera Di Tokyo (2:59)(   Читать дальше...   )2007Жанр: Smooth JazzПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467577   (81975) от 14.03.2012
+
+Серия «Детектив-событие» (24 книги) [2007-2011] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив-событие - серия детективных романов трех наших писательниц: Дианы Бош, Евгении Михайловой и Елены Михалковой.2007-2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22CD263E7D02B5F12FFD25065C00C5419A2F84B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467864   (81976) от 14.03.2012
 
 Дом на Турецкой улице / The House on Turk Street / No good deed / (2002) DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81976.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ PhotoLine 17.03 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81978.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81981.jpg" />
 </div>
 
 
@@ -82,7 +163,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81984.jpg" />
 </div>
 
 
@@ -106,7 +187,7 @@ magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81987.jpg" />
 </div>
 
 
@@ -134,7 +215,7 @@ Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81990.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ Abrosoft FantaMorph Deluxe 5.3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81992.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ FantaMorph - программа для создания анимированны
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81994.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81996.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81997.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82000.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ magnet:?xt=urn:btih:C7C397FD1CCD49FD5B3536DD688ECB1218A8CDEA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82001.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ magnet:?xt=urn:btih:ACB368FAF912925887C135E4630C6CF94FE988D6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82003.jpg" />
 </div>
 
 
@@ -337,7 +418,7 @@ magnet:?xt=urn:btih:A062BE15A6C5801632276E51844B5984F953746D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82004.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82005.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82007.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ magnet:?xt=urn:btih:3BA6C1129CD9123E32E31034F092FE81F0947B3F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82008.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ magnet:?xt=urn:btih:5A34BC8DD6BF207ACD19510448E1DE8A179B7E77
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82010.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ magnet:?xt=urn:btih:C0AFD65C97CEBEACEC6ECFD29EE6E94DCB3DE907
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82013.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:8861F2265BF66E62DFCE091243BCFC624B58F1C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82015.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ Space Sieged (L) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82016.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82019.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ magnet:?xt=urn:btih:0745FF1D8037A1FFDDEDA7CFA11718C438D8A773
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82020.jpg" />
 </div>
 
 
@@ -588,96 +669,6 @@ magnet:?xt=urn:btih:0745FF1D8037A1FFDDEDA7CFA11718C438D8A773
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A187724DB7F4BCE3A3BE82BC70202CD983EEDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467413   (82021) от 14.03.2012
-
-Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, Psychedelic rock, Blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shocking You
-02. I'll Follow The Sun
-03. Roll Engine Roll
-04. Time Slips Away
-05. Dowee Dowee
-06. So Far From Home
-07. Just A Song
-08. You'll Come
-09. Boll Weevil
-10. I'll Write Your Name Through The Fire(   Читать дальше...   )Жанр: Rock, Nederbeat, Psychedelic rock, Blues rockПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467724   (82022) от 14.03.2012
-
-VA - Московские окна: Песни на все времена (1995) [MP3|320 кб/с]<Pop< Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Леонид Утёсов - Московские Окна (4:55)
-02.Эмиль Горовец - Голубые Города (3:03)
-03.Эдуард Хиль - Человек Из Дома Вышел (2:33)
-04.Эдита Пьеха - Только Ты (2:04)
-05.Аккорд - Назло (3:10)
-06.Галина Великанова - Ландыши (2:33)
-07.Владимир Трошин - Нелётная Погода (3:22)
-08.Аккорд - Возвращайся (3:48)
-09.Эмиль Горовец - Седьмой Этаж (3:03)
-10.Герг Отс - День Рождения (2:49)(   Читать дальше...   )1995Жанр: Pop< RetroПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE60BD9AE16EAE5EFEF75B85598B06F6CF7A8E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467902   (82023) от 14.03.2012
-
-BBC: Загадки истории. Век полетов: Легенды мировой авиации [Диск 2] / Century Of Flight. The epic story of human triumph in the sky. (1997,2011) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм – полномасштабное исследование истории авиации, в создании которого принимали участие крупнейшие авиаконструкторские бюро мира, музеи авиации и авторитетные эксперты. Не всегда эксперименты по созданию новых видов летательных аппаратов заканчивались удачно. Многие прототипы ждала печальная участь. Однако негативный опыт был тоже частью того успеха, которого удалось достигнуть в покорении воздушного пространства.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2x~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 ```
 
 

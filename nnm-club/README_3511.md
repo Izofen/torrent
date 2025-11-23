@@ -1,3 +1,84 @@
+###  Публикация: 1718265   (110968) от 24.04.2024
+
+U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Embarkation
+02. Mission No. X
+03. 24/7
+04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718256   (110969) от 24.04.2024
+
+Strom - En Orkan Pa Var Sida (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - En Orkan Pa Var Sida (04:12)
+02 - Blodsprangda ogon (03:34)
+03 - Aristokrat (04:19)
+04 - Kicken (04:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744D716415AB051DB473854C77676F458163287C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718264   (110970) от 24.04.2024
+
+Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie's Farm (3:25)
+02. Chain Of Fools (3:15)
+03. New Key To The Highway (3:06)
+04. Rainy Night in Georgia (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B15948604CCDD1D9658B9578849F746E13A7EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718315   (110971) от 24.04.2024
 
 The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +87,7 @@ The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110971.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110972.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:848823398AC1A991EF2B8A8D0F6C15852DDC77F0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110973.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110974.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110975.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ magnet:?xt=urn:btih:036200C90D50A935D70E7276611ECB16697EA320
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110976.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110977.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110978.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110979.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110980.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ Archiac Torse - Sneak Attack (1992) Reissue, 2022, Vic Records [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110981.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110982.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ magnet:?xt=urn:btih:733B43CF1254403D835EA18CCC20EC871D19147E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110983.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Strom - En Orkan Pa Var Sida (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110984.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ magnet:?xt=urn:btih:B2FFCEE02E69A8021989A12780C2E50ADB02C767
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110985.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ magnet:?xt=urn:btih:F56101FA40AA1600A2ADA99CA520E4647DE8F787
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110986.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ Skype 8.118.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110987.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ Knightfall - Destiny Calling (2024) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110988.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ magnet:?xt=urn:btih:742635AEE82848B3E63E28DC514272C6C204F5C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110989.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ magnet:?xt=urn:btih:9D90D3E997AFD28F0C1813A9558BBC84AA14ACE8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110990.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:B1A2DA8C4E9CC61973E3F39E8FF06B1941A83119
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110991.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ The Architect - Savage Rhythms (2024) [MP3|320 Kbps] <Nu Metal, Alt. Metal, Hard
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110992.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ Pale Revenant - Гибель Солнца (2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110993.jpg" />
 </div>
 
 
@@ -593,82 +674,6 @@ Pale Revenant - Гибель Солнца (2024) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC6C4AE81A45C1F6196C702594525142FBD8340A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718369   (110994) от 24.04.2024
-
-Лятиф / Лицом к лицу (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта картина стала дебютом для азербайджанского режиссера Микаила Микаилова. Действие в ней происходит в годы коллективизации и классовой борьбы между бедными и зажиточными крестьянами. Богатых деревенских жителей, так называемых кулаков, представляли в советском искусстве 1930-х годов жадными, безжалостными и способными на любую подлость.
-Фильм входит в коллекцию (   Читать дальше...   )Производство: СССР, АзгоскиноЖанр: драма, история, немое киноРежиссер: Микаил МикаиловАктеры: Лятиф Сафаров, Haqiqat Rzayeva, А. Базирганов, Рустам Кязимов, Мустафа Марданов, Иззет Оруджзаде, Камиль Губушов, Меджид Шамхалов, Аждар Султанов, Гасым ЗейналовСубтитры: русские (интертитры)Продолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3FF2D2261B3B5CC4A850F1553375BA8F6E9F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718290   (110995) от 24.04.2024
-
-Восход солнца / Sunrise: A Song of Two Humans (1927) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма основывается на вышедшем в 1917 году романе Германа Зудермана «Путешествие в Тильзит». В основе сюжета классический любовный треугольник. В интертитрах персонажи названы просто Мужчина, Жена, Женщина Из Города... Мужчина влюбляется в Женщину Из Города, которая подговаривает его устроить его жене «несчастный случай» и переехать к ней в город. Они договариваются, (   Читать дальше...   )Производство: США / Fox Film CorporationЖанр: драма, мелодрамаРежиссер: Фридрих Вильгельм МурнауАктеры: Джордж О`Брайен, Джанет Гейнор, Маргарет Ливингстон, Дж. Фаррелл МакДональд, Джейн Уинтон, Артур Хаусман, Эдди Болан, Салли ЭйлерсПеревод: профессиональный одноголосыйЯзык озвучки: русскийСубтитры: русские (Fenix Club), английские (интертитры)Продолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCE75200A18BCB4211DA128B70117FC801EBD88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718316   (110996) от 24.04.2024
-
-Gordi - Fenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Želim Da Se Napijem [00:04:09]
-02. Imaš Samo Jedan Život [00:04:43]
-03. Ozbiljno Zezanje [00:04:22]
-04. Nema Nas Više [00:03:39](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA53E7C9BBA761126CE08430857FD5C5D6214C7
 ```
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:BCAA221F50364BFECF3BDC0818B5C3A34903205E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44088.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:F6F1F08A5FFB440221393810DFFE2B31B750A31F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44089.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Arabtronica 2024 - The Best Eastern Rhythms (2024) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44090.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:1A5B668019357DDE99DE25CFC7A59E559D23D888
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44091.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:440BB9173D99D3168D3068B840373307D4795411
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44092.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ u-he - ACE 1.4.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44093.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Hidden Chill out Cafe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44094.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:AC0294633822345657EFCFEEFF08F87A16B04AB6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44095.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ TweakPower 2.060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44096.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:AD140D2A45B2955A2ECF2AA7A9AB44E2A812C156
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44097.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:79CE130E8AE94A63B806E26EC3E17E6CD09B87AA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44098.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:6F435A706B8FD6043F85663D6871B0CD59E2045D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44099.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44100.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44101.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44102.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ HDCleaner 2.080 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44103.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - 50 Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44104.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Reveal Sound - Spire 1.5.17 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44105.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ IK Multimedia - TONEX MAX 1.7.5 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44106.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RegCool 2.012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44107.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Audacity 3.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44108.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:0D8D84C361547B955560F78B4465F0A8A55DBC0D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44109.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:F0A2DCC16ABB29E2D4C58A03898F515B284A0D5B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44110.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:350B8AA2C2ABEB7D2795A87AA960CFA9DB7801D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44111.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - compilation part 121 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44112.jpg" />
 </div>
 
 

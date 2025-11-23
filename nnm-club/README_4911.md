@@ -1,3 +1,182 @@
+###  Публикация: 1434220   (152208) от 23.12.2020
+
+Отроки во Вселенной (1974) DVDRemux [немецкое издание от IceStorm]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152208.jpg" />
+</div>
+
+
+###  Подробнее
+
+С планеты Альфа созвездия Кассиопея на Землю были посланы сигналы бедствия. В соответствии с проектом Виктора Середы туда отправляется экспедиция. Команда формируется из подростков не старше 14 лет, чтобы к концу полета экипаж составляли космонавты в самом расцвете сил. Но из-за безответственного поведения космического зайца Лобанова корабль оказывается у конечной (   Читать дальше...   )Производство: СССР / Центральная киностудия им. ГорькогоЖанр: Фантастика, комедия, приключения, семейныйРежиссер: Ричард ВикторовАктеры: Миша Ершов, Саша Григорьев, Владимир Савин, Владимир Басов, Ольга Битюкова, Дима Ледогоров, Ира Попова, Иннокентий Смоктуновский, Игорь Ледогоров, Наталья Фатеева, Анатолий Адоскин, Лев ДуровЯзык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734398093CC7299FE46185CD2A61CE28FA432806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672832   (152209) от 
+
+Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carach Angren — нидерландская симфо-блэк-метал-группа, образованная в 2003 году. Отличительной особенностью коллектива является концептуальность каждого студийного альбома, где лирическая составляющая основывается на хоррор-тематике: легендах о призраках, различных мифах, сказках и рассказах.2008 - Lammendam
+2010 - Death Came Through A Phantom Ship
+2012 - Where The Corpses Sink Forever
+2015 - This Is No FairytaleЖанр: Symphonic Black MetalПродолжительность: 05:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B350C19B51CD0A1C56FB5BD10DB67E2684986D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194963   (152211) от 27.12.2017
+
+Tenebrous Music - Label 3 Releases (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal, Dub Techno, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Clout (06:49)
+ 02. Black Room (09:10)
+ 03. Forbidden Love (07:12)
+ 04. Forbidden Thoughts (05:29)Жанр: Techno, Psy-Trance, Minimal, Dub Techno, Experimental |Продолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206901CB8B90D64C385DD1648DD605671E5785F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518756   (152212) от 21.12.2021
+
+Собачник / Mondocane (2021) HDRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_152212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таранто - город-призрак, в который никто не решается войти. Беднейшим остается борьба за выживание, а банды преступников ведут борьбу за территорию. Два тринадцатилетних подростка, которые росли вместе, мечтают присоединиться к одной из банд.Производство: Италия / Groenlandia, Minerva Pictures, Rai CinemaЖанр: Фантастика, боевикРежиссер: Алессандро ЧеллиАктеры: Алессандро Борги, Людовика Насти, Адриано Новелли, Лавиния Новелли, Деннис Протопапа, Барбара Рончи, Джулиано Сопрано, Федерика Торчетти, Джозафат ВаньиПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:55:26Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968622   (152213) от 24.12.2015
+
+Машина смерти / Death Machine (1994) DVDRip [H.264] [АVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевой робот, запрограммированный только на уничтожение, вышел из-под контроля. Пульт управления этим чудовищем оказался в руках безумца-маньяка, ощутившего полную власть над людьми.
+Перед этим стальным чудовищем нет преград: огневые заслоны, бетонные стены, бронированные двери преодолеваются им без всяких усилий. Противостоять этому стальному монстру может только (   Читать дальше...   )Производство: Великобритания / Fugitive FeaturesЖанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Стивен НоррингтонАктеры: Брэд Дуриф, Эли Пугет, Уильям Хуткинс, Джон Шэриан, Мартин МакДугалл, Андреас Виснивски, Ричард Брэйк, Алекс Брукс, Стюарт Ст. Пол, Джеки СовирисПеревод: Авторский (С.Визгунов, С.Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFB652BCDB6C3F77C8BFF9D0BB6DA17A0A9C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347550   (152214) от 23.12.2019
+
+Ричард Скарри | С утра до вечера в Городе Добрых Дел (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересно, а как устроен аэропорт? А как работает почтальон? Что происходит в огромном супермаркете? Что же взрослые делают на работе? Ричард Скарри помогает маленьким читателям заглянуть в мир самых разных профессий. Пробудить любопытство и интерес. Более полувека книги Ричарда Скарри читают дети во всем мире.
+Не ради одних только знаний пишет и рисует Скарри. Это (   Читать дальше...   )Жанр: Познавательная литература для детей, Развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBB0FD094A4DEB99232A7274D4DA93C83CCAA48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601235   (152215) от 30.12.2022
+
+Queen - A Kind Of Magic (1986) Japanese Edition [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision
+02. A Kind Of Magic
+03. One Year Of Love
+04. Pain Is So Close To Pleasure(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18AD7C20E8467CE9F7A046663E067934C729508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677033   (152217) от 16.11.2023
 
 Юрий Винокуров, Олег Сапфир | Кодекс Охотника (Книга 15) (2023) [MP3, Александр Башков]
@@ -6,7 +185,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152217.jpg" />
 </div>
 
 
@@ -31,7 +210,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152218.jpg" />
 </div>
 
 
@@ -55,7 +234,7 @@ magnet:?xt=urn:btih:2024014A776B4CA20DED7FAD73940D97483B4FA3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152220.jpg" />
 </div>
 
 
@@ -79,7 +258,7 @@ Sonible Plugins 12.2022 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152221.jpg" />
 </div>
 
 
@@ -103,7 +282,7 @@ magnet:?xt=urn:btih:0C39396E133798E59C062F5950CFEC75556A1FA5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152222.jpg" />
 </div>
 
 
@@ -127,7 +306,7 @@ magnet:?xt=urn:btih:3971506B5CDD8750E1EF050272C92EFE16D7EFE0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152224.jpg" />
 </div>
 
 
@@ -154,7 +333,7 @@ magnet:?xt=urn:btih:8D42518D949D137D9D688496B1509608A5E34B65
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152225.jpg" />
 </div>
 
 
@@ -181,7 +360,7 @@ magnet:?xt=urn:btih:AFF2A66DC59D58EE0CAE43B891D4FFA80D88A8DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152226.jpg" />
 </div>
 
 
@@ -206,7 +385,7 @@ magnet:?xt=urn:btih:78212738C6130830E830021C0E08B59245D2598B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152228.jpg" />
 </div>
 
 
@@ -230,7 +409,7 @@ VA - Дискотека 2021 Dance Club Vol. 206 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152229.jpg" />
 </div>
 
 
@@ -257,7 +436,7 @@ Adobe Acrobat Reader для PDF 21.10.0.19961 Mod by Rajat, MixRoot, Valikovrepi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152230.jpg" />
 </div>
 
 
@@ -281,7 +460,7 @@ magnet:?xt=urn:btih:5AB436AC339EA02A8BA86CBD578758684E78B4A9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152232.jpg" />
 </div>
 
 
@@ -305,7 +484,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152233.jpg" />
 </div>
 
 
@@ -332,7 +511,7 @@ magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152234.jpg" />
 </div>
 
 
@@ -356,7 +535,7 @@ Telegram Desktop 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152235.jpg" />
 </div>
 
 
@@ -382,7 +561,7 @@ magnet:?xt=urn:btih:BF619B230FE4A0B0555B94FC75CDEC342BFF5134
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152236.jpg" />
 </div>
 
 
@@ -407,7 +586,7 @@ magnet:?xt=urn:btih:5E10548A1381A7DC32E0568257107180AF8B3F43
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152237.jpg" />
 </div>
 
 
@@ -434,7 +613,7 @@ magnet:?xt=urn:btih:C1BFCB349B538880CA07E84D62944FC4A1EEEF5C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152238.jpg" />
 </div>
 
 
@@ -458,7 +637,7 @@ magnet:?xt=urn:btih:57DB3B79ACE928922465CA5F4DE3A70908642552
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152239.jpg" />
 </div>
 
 
@@ -472,180 +651,6 @@ magnet:?xt=urn:btih:57DB3B79ACE928922465CA5F4DE3A70908642552
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DCB0DD9F0B17741CA9F9BA255D66948D867D188
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194835   (152240) от 27.12.2017
-
-Gоds Оf Silenсе - Neverlаnd (2017) [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods of Silence (Intro) (1:10)
- 02. Army of Liars (5:29)
- 03. Against the Wall (4:15)
- 04. Neverland (5:10)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190BD89C9654382A59DA9DE18EA60D06C4279E54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675938   (152241) от 16.11.2023
-
-Ребенок Розмари / Rosemary's Baby (1968) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая бездетная пара Розмари и Гай Вудхауз переезжают в нью-йоркский Бремфорд. Очень скоро они знакомятся с эксцентричными соседями, Минни и Романом Кастевет, которые то и дело навязываются им в друзья.
-Однажды Розмари видит странное видение, будто она плывет на яхте с Гаем, который превращается в демона и насилует её. Через несколько дней девушка узнает, что беременна. (   Читать дальше...   )Производство: США / William Castle ProductionsЖанр: ужасы, драма, детектив, триллерРежиссер: Роман ПоланскиАктеры: Миа Фэрроу, Джон Кассаветис, Рут Гордон, Сидни Блэкмер, Морис Эванс, Ральф Беллами, Виктория Ветри, Пэтси Келли, Илайша Кук мл., Эммалин ХенриПеревод: Дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английскиеПродолжительность: 02:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997EBEA8508224B5E6B799BEAE9A172A03FB6E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271280   (152242) от 22.12.2018
-
-Сильверадо / Silverado (1985) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильверадо — далекая страна, куда стремится и простой люд, и бесшабашные ковбои, и жестокие бандиты. Но попасть туда дано не каждому — долгий путь таит в себе множество опасностей. Только тот, кто сумеет не сплоховать в трудную минуту, только самый быстрый и смелый сможет увидеть Сильверадо.Производство: США, Columbia Pictures Corporation, Delphi IIIЖанр: Боевик, Вестерн, ПриключенияРежиссер: Лоуренс КэзданАктеры: Кевин Клайн, Скотт Гленн, Кевин Костнер, Дэнни Гловер, Джон Клиз, Розанна Аркетт, Брайан Деннехи, Джефф Голдблюм, Линда Хант, Рэймонд БэйкерПеревод: Многоголосый закадровый, одноголосый авторскийСубтитры: английские (полные)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C21EC360CB671BC2DC79417E664C8BE4D63F85A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347541   (152243) от 23.12.2019
-
-Adguard 2.3.2 (704) (CL-1.5.155) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152243.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdGuard для Mac — это первый блокировщик рекламы, разработанный специально для macOS. Он предлагает гораздо больше, чем любое расширение: блокирует все виды рекламы во всех браузерах и приложениях, защищая ваше право на конфиденциальность.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10 YosemiteЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A087FABA2903759F60FAD3CCE465D7D0B8D8D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601287   (152244) от 30.12.2022
-
-4K Video Downloader 4.23.0.5200 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152244.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5763DD6F4F4BCE22360FF61B95AA6AB00DED90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968590   (152245) от 24.12.2015
-
-Freemake Video Converter 4.1.9.3 RePack by CUTA [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC1109FC94789EB8E90CF97274C70DF75E1CC84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518766   (152247) от 21.12.2021
-
-Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Введение
-  Это курс будет посвящен дизайну фантастических существ для фильмов и видеоигр под руководством профессиональнного художника Милана Николича. Мы начнем с изучения анатомии двуногих и многоногих фанатастических существ. Разберемся с принципами дизайна в соответствии с которыми строится их форма
-Изучим принципы скульптинга в ZBrush и 3D Coat, подберем выразительную (   Читать дальше...   )Производство: Learn SquaredЖанр: 2D, 3D, CG, Creature DesignЯзык озвучки: Русский, АнглийскийПродолжительность: 05:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A173E6D80DBC2D978EB2D2BE5AAA80BE8BCD5E3
 ```
 
 

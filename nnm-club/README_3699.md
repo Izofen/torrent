@@ -1,3 +1,82 @@
+###  Публикация: 1702365   (115856) от 24.02.2024
+
+Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Saxophone>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key West (05:15)
+02. Shadow in the Night (feat. The Motion Epic) (04:34)
+03. Heatwave (04:58)
+04. The Law (04:36)(   Читать дальше...   )Жанр: Synthwave, Retrowave, SaxophoneПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C26ECD983FF0417F232D1131D6DBDFE22376820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702292   (115857) от 24.02.2024
+
+Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rob Tognoni играет на сценах по всему миру в течение последних 40 лет. Он выступал на разогреве у великих: Roy Buchanan, Stevie Ray Vaughan's mentor Lonnie Mack, Joe Walsh из The Eagles, делил сцену с Peter Green, Sting, ZZ Top, Bo Diddley. Он представлял Австралию на королевских свадебных торжествах принца Фредерика и принцессы Марии Датских, выступал на чемпионате (   Читать дальше...   )Список альбомов:
+1995 - Stones And Colours
+1997- Headstrong
+1999 - Live At The TwilightЖанр: Blues RockПродолжительность: 17:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457B648CDE1FE1D3BEC81273162DB56521BCDCB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702083   (115858) от 24.02.2024
+
+Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Dre ft. Snoop Dogg - Still D.R.E. w/Kid Cudi ft. MGMT & Ratatat - Pursuit Of Happiness w/MEDUZA ft. GOODBOYS - Piece Of Your Heartw/ Over Easy - Rockstarw/Eminem - Without Me
+02. Martin Garrix & Sentinel ft. Bonn - Hurricanew/Whitney Houston - I Wanna Dance with Somebody (Who Loves Me) w/Morgan Wallen - Last Night w/Martin Garrix & Sentinel ft. (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702153   (115859) от 24.02.2024
 
 VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance, Techno>
@@ -6,7 +85,7 @@ VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115859.jpg" />
 </div>
 
 
@@ -36,7 +115,7 @@ Kim Wilde - Love Blonde: The RAK Years (2024) 2020 Remastered, 4CD + Digital Boo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115860.jpg" />
 </div>
 
 
@@ -63,7 +142,7 @@ magnet:?xt=urn:btih:E9AF5EF5A7B5662E229693ED2A3831366576DF81
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115861.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Tarja Turunen - Dark Star (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115862.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ Wondershare PDFelement Pro OCR 10.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115863.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ FireAlpaca 2.11.17 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115864.jpg" />
 </div>
 
 
@@ -161,7 +240,7 @@ Super Sound v2.7.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115865.jpg" />
 </div>
 
 
@@ -185,7 +264,7 @@ Sexual Music Collection - Sex for an Aperitif: Erotic Jazz Background Music (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115866.jpg" />
 </div>
 
 
@@ -212,7 +291,7 @@ magnet:?xt=urn:btih:D91AB7A2115BD4F38F8B6A72B212EDA0278DF42E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115867.jpg" />
 </div>
 
 
@@ -236,7 +315,7 @@ magnet:?xt=urn:btih:0D37A53CC6B8BCE5C4A6DBCBDD44F85BD55801FF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115868.jpg" />
 </div>
 
 
@@ -263,7 +342,7 @@ magnet:?xt=urn:btih:EB927B103FC81D3FF16AB5E8F02D599F98537BE8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115869.jpg" />
 </div>
 
 
@@ -287,7 +366,7 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115870.jpg" />
 </div>
 
 
@@ -314,7 +393,7 @@ Nutronic - Futures / Futures (Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115871.jpg" />
 </div>
 
 
@@ -341,7 +420,7 @@ magnet:?xt=urn:btih:D2E74623E5743E3D2D30BA689ACFBAD571DFEF39
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115872.jpg" />
 </div>
 
 
@@ -365,7 +444,7 @@ magnet:?xt=urn:btih:5C407BF62491521A725E902198CE227086D586B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115873.jpg" />
 </div>
 
 
@@ -391,7 +470,7 @@ magnet:?xt=urn:btih:C08A55DB312460ABFD4173EE93EA1FFD3C0E2E5C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115874.jpg" />
 </div>
 
 
@@ -418,7 +497,7 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115875.jpg" />
 </div>
 
 
@@ -445,7 +524,7 @@ magnet:?xt=urn:btih:A9B14F9A3C7CFD3ED443783B2F657A9E97A050E6
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115876.jpg" />
 </div>
 
 
@@ -472,7 +551,7 @@ magnet:?xt=urn:btih:CED2AC5EBD7478C9EDD1BE2929CC15A26DD26816
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115877.jpg" />
 </div>
 
 
@@ -498,7 +577,7 @@ Sexual Music Collection, Cuban Latin Collection - Erótica Nights: Sensual Latin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115878.jpg" />
 </div>
 
 
@@ -525,7 +604,7 @@ magnet:?xt=urn:btih:C1E9D39BE6A8D0EAFFC2B903A5BFFC5E48B0EA7C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115879.jpg" />
 </div>
 
 
@@ -549,7 +628,7 @@ magnet:?xt=urn:btih:7E9E8B118B01AB587E25B31CF6A5DDCC21CC2AA6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115880.jpg" />
 </div>
 
 
@@ -573,7 +652,7 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115881.jpg" />
 </div>
 
 
@@ -586,78 +665,6 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18D202496F435F8F47B90E5DD220C520741467C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697137   (115882) от 24.02.2024
-
-Виолончелист Госю / Cello Hiki no Gauche / Gauche the Cellist (1982) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой виолончелист Госю без ума от Бетховена, но пока он еще недостаточно хорошо играет, чтобы понравиться своим товарищам. До большого концерта остается десять дней, а он по-прежнему не готов, хотя в поте лица тренируется. И вот, каждый вечер к нему начинают приходить животные, которые помогут Госю научиться играть, слушая свое сердце...Производство: Япония / Oh ProductionЖанр: аниме, мультфильм, фэнтези, музыкаРежиссер: Исао ТакахатаПеревод: Одноголосый профессиональный (Юрий Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A69CA5845A9F197E3F492C7EB8DB623A0CC264
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702268   (115883) от 24.02.2024
-
-WPS Office + PDF v18.7.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115883.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.02.2024Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642C1D52C49638E11A38F8145B3B54A817596E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702242   (115884) от 24.02.2024
-
-Голая...если мертвая / Nude... si muore / Naked You Die (1968) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный убийца в черных перчатках душит женщину в ванной комнате. После чего кладет ее голое тело в чемодан и садится на поезд, отправляющийся на юг Франции. Чемодан оказывается в автобусе, принадлежащем частной школе для девочек. И вскоре в школе начинают происходить ужасные вещи. Одна студентка бесследно исчезает, другую обнаруживают убитой в душевой комнате. (   Читать дальше...   )Производство: Италия, Франция / Super International Pictures, BGAAlexandra FilmЖанр: триллер, детективРежиссер: Антонио МаргеритиАктеры: Марк Дэймон, Элеонора Браун, Сэлли Смит, Патриция Вальтурри, Людмила Львова, Лучано Пигоцци, Франко Де Роза, Вивиан Степлтон, Эстер Масинг, Альдо Де КареллисПеревод: Одноголосый любительский (Александр Морозов)Язык озвучки: русский, итальянскийСубтитры: английские, русскиеПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D881B57039D40E9645505BE1FC73DADDC8FC80
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1691140   (123526) от 10.01.2024
+
+Warren Zevon - Excitable Boy (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity Sound Lab, Asylum Records [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123526.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Johnny Strikes Up The Band 2:54
+2. Roland The Headless Thompson Gunner 3:49
+3. Excitable Boy 2:43
+4. Werewolves Of London 3:31(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555A1DA5D654D9E4820041869C8983C0F23541BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691000   (123527) от 10.01.2024
+
+Firefox Browser 121.0.1 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C5C6C69903ACFB409042C5BB712A5E6D858600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691019   (123528) от 10.01.2024
+
+Журнал | Армейский сборник №1 (январь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123528.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: Министерство обороны РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51340B8AA13043A5875F101A8E421AFA2F261D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691072   (123529) от 10.01.2024
 
 Шерлок Холмс в Нью-Йорке / Sherlock Holmes in New York (1976) BDRip [H.264/720p]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123529.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:4999395FC4591DE6F12A259C81AF1ED3802E2D36
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123530.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:3DD23D0E9287D8F6013E4C349A523A4650CD86EC
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123531.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:4379F4C311F82BBE43A49C39BD6B1376AA4BEE4A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123532.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:8B110EC3E48269C1BC525C4588E2B66B17ACA345
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123533.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:D32161F688519EE003F331B5D8E4182E3D2F237C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123534.jpg" />
 </div>
 
 
@@ -152,7 +227,7 @@ magnet:?xt=urn:btih:C090FDCEBD20BB585648674FDD84B4D04FF32FF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123535.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ Stellarium 23.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123536.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Nils Lofgren - Acoustic live (1997) SACD, Remastered, 2016, Analogue Productions
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123537.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123538.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ Windows 10 Manager 3.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123539.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ Microsoft PowerToys 0.77.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123540.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:80DDCFAE41D842B562A73AB16E7B577130878F7A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123541.jpg" />
 </div>
 
 
@@ -326,7 +401,7 @@ Advanced Renamer 3.92.0 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123542.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ magnet:?xt=urn:btih:E7771A27F9DA0099AEEF82213AB61E42C374B27D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123543.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:27B547E122A69AFD9A5D28711688E0CE4D0F9840
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123544.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:DCB5B13AF0C3DDECAF11BF6D56CBECFB171D5C7A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123545.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ ChrisPC Win Experience Index 7.24.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123546.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Vov Sticky Notes 8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123547.jpg" />
 </div>
 
 
@@ -472,7 +547,7 @@ magnet:?xt=urn:btih:FA37D7DADF8007E4F07FA5E40FD57FD1574A1BB4
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123548.jpg" />
 </div>
 
 
@@ -496,7 +571,7 @@ Sumatra PDF 3.6.15936 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123549.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Pr
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123550.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123551.jpg" />
 </div>
 
 
@@ -559,82 +634,6 @@ magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0E0CDC99E2D7AE45333FCC1258871841B37E07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691063   (123552) от 10.01.2024
-
-Снимок / Snapshot (1979) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-пуританка выгоняет 19-летнюю Анжелу из дома за легкомысленное поведение и страсть ко всевозможным тусовкам Девушка не отчаивается и вскоре находит себя в модельном бизнесе. Помимо неплохого заработка новое место работы дарит ей и множество поклонников, одним из которых оказывается её бывший бойфренд, начинающий преследовать Анжелу по всему городу.Производство: Австралия / Australian International Film Corp. (AIFC), Filmways Australasian Distributors, F.G. Film ProductionЖанр: ужасы, триллер, драмаРежиссер: Саймон УинсерАктеры: Шанталь Контури, Роберт Брюнинг, Сигрид Торнтон, Хью Кияс-Бёрн, Денис Дрисдейл, Винсент Джил, Джон Сидни, Жак Гордон, Джулия Блейк, Питер СтрэтфордПеревод: Авторский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские (forced - на песни, full), английские (full, SDH)Продолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772AE9E5639267D06F27B2AA447FDC219437768F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691067   (123553) от 10.01.2024
-
-V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj X-perience - Moon Beat (5:12)
-02. The Black Mighty Orchestra - Ocean Beach (Cybophonia Cinematic Remix)
-03. Le Berry - El Verde Amanacer
-04. Zeb - From The Distance(   Читать дальше...   )Жанр: Chill Out, Downtempo, Nu JazzПродолжительность: 05:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA65035E8432CC5F0C5559A83ADDBA3FBDDD41B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690988   (123554) от 10.01.2024
-
-Joplin 2.13.13 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joplin - это бесплатное приложение для создания заметок и дел с открытым исходным кодом, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
-Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409A5FBC0702A92EEE045B7BF739A5F4F55BD103
 ```
 
 

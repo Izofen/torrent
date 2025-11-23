@@ -1,3 +1,149 @@
+###  Публикация: 1088041   (139911) от 30.12.2016
+
+Расплата / The Accountant (2016) BDRip [H.264/1080p] [handmade 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США / Warner Bros. Pictures, RatPac-Dune Entertainment, Zero Gravity ManagementЖанр: Боевик, Детектив, Криминал, ДрамаРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Язык субтитров: русский (форсированные, полные), английский (полные)Продолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC052FA758099B3ECC8F9B21D539F51418B45C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679092   (139914) от 24.11.2023
+
+Я.И. Герасимов | Курс физической химии [2 книги] (1970 - 1973) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются основы химической термодинамики, термодинамика растворов, учение о химическом и гетерогенном равновесиях, учение о поверхностных явлениях и адсорбции. Книга предназначается для студентов химических факультетов университетов. Она будет также полезна для аспирантов и преподавателей физической химии.Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9FA1473EC3474A5D8BF9FC03CE7D72D0FB1F56E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970369   (139915) от 30.12.2015
+
+Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis Disk Director 12 — это набор мощных инструментов для оптимизации использования дисковых ресурсов и защиты данных. С его помощью можно создавать разделы дисков и управлять ими, чтобы хранить различные файловые или операционные системы на одном диске, быстро восстанавливать потерянные или удаленные данные, сокращать время создания резервных копий образов и (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406E1CBE18E9C77FA2C94867DFA4DBD89AAC00C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271878   (139916) от 29.12.2018
+
+AllWinUSB Constructor by SmokieBlahBlah 28.12.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139916.jpg" />
+</div>
+
+
+###  Подробнее
+
+    Конструктор мультизагрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями по декабрь 2018 (кроме XP и 10 LTSB). Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
+    При установке Windows опционально (ставите нужные галочки) доступны: активация, (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6B0B69F78FCE6A73C0DCFC60E3B7927ABD8DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349067   (139917) от 30.12.2019
+
+Wondershare Recoverit 8 v8.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5712B41C7FB996645D1013A1F1730CB768DB79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086964   (139919) от 30.12.2016
+
+Спецотряд «Форс» 2 / Force 2 (2016) DVDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после событий первой части, неизвестный террорист начинает истреблять агентов индийской внешней разведки, работающих в Восточной Европе. Зам.комиссара Яшвардхан вместе со своей напарницей Кей Кей срочно отправляются в Будапешт, чтобы выйти на след преступника...Производство: ИндияЖанр: Боевик, Детектив, ТриллерРежиссер: Абхинай ДеоАктеры: Джон Абрахам, Сонакши Синха, Тахир Радж Бхасин, Адиль Хуссэйн, Бьорн Фрайберг, Цогбаатар Бацориг, Фредди Дарувала, Боман ИраниПеревод: Профессиональный многоголосыйЯзык субтитров: Русские (неотключаемые,только на песни)Продолжительность: 02:03:42Реклама: рекламы нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA036D4F9027C369FB428D87EE8A6C1A67CB2B4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590878   (139920) от 18.12.2012
 
 Подшивка журналов | Guns Magazine [2012] [PDF] [En]
@@ -6,7 +152,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139920.jpg" />
 </div>
 
 
@@ -30,7 +176,7 @@ magnet:?xt=urn:btih:C089E42AF4FB65FAE42B31B01973191306B2BDE9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139921.jpg" />
 </div>
 
 
@@ -57,7 +203,7 @@ magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139922.jpg" />
 </div>
 
 
@@ -84,7 +230,7 @@ VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139924.jpg" />
 </div>
 
 
@@ -111,7 +257,7 @@ magnet:?xt=urn:btih:53CCE0CE8C74B31BA90279C526DC5950647F99F2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139925.jpg" />
 </div>
 
 
@@ -136,7 +282,7 @@ magnet:?xt=urn:btih:986EBFF963E8A78F80995BFB6CDBF533DE412070
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139926.jpg" />
 </div>
 
 
@@ -160,7 +306,7 @@ magnet:?xt=urn:btih:D5F9B6DEA2FE2752AD3208A9E79C5B7AC0CA0D5F
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139927.jpg" />
 </div>
 
 
@@ -184,7 +330,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139928.jpg" />
 </div>
 
 
@@ -208,7 +354,7 @@ Windows 10 x86 x64 DVD  Present by StartSoft 43-49 2018 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139929.jpg" />
 </div>
 
 
@@ -232,7 +378,7 @@ Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139931.jpg" />
 </div>
 
 
@@ -260,7 +406,7 @@ magnet:?xt=urn:btih:30EE10E0A81E279EB1C7B8FEDBC7305BCB624DB0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139933.jpg" />
 </div>
 
 
@@ -284,7 +430,7 @@ magnet:?xt=urn:btih:73D4AE6F5796C190833493320F6F0FACD5ADACC6
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139934.jpg" />
 </div>
 
 
@@ -308,7 +454,7 @@ Windows x86 x64 Present by StartSoft 50-2018 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139935.jpg" />
 </div>
 
 
@@ -332,7 +478,7 @@ CudaText 1.202.1.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139936.jpg" />
 </div>
 
 
@@ -357,7 +503,7 @@ magnet:?xt=urn:btih:112929F30CB523112F944483BBE5E52F55BD5C3C
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139938.jpg" />
 </div>
 
 
@@ -381,7 +527,7 @@ VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139941.jpg" />
 </div>
 
 
@@ -408,7 +554,7 @@ magnet:?xt=urn:btih:5B84EAD612D2F1FD7AC567816C607CD7704F0154
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139942.jpg" />
 </div>
 
 
@@ -432,7 +578,7 @@ magnet:?xt=urn:btih:DEE261718F2428925869FB52AA79CB1BD0B88CD5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139943.jpg" />
 </div>
 
 
@@ -457,7 +603,7 @@ magnet:?xt=urn:btih:761D3DB61DDA9772CDC7BA2589CEBBC8570CBEDD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139944.jpg" />
 </div>
 
 
@@ -482,7 +628,7 @@ VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139946.jpg" />
 </div>
 
 
@@ -496,153 +642,6 @@ VA - Mode Rap Musical Collection (2019) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C250CA207B9DF432F887662E1811C684BFB7F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088131   (139947) от 30.12.2016
-
-Телеспектакль по пьесе Леонида Филатова "Возмутитель спокойствия" (2016) DVB [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139947.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказке для взрослых Леонида Филатова "Возмутитель спокойствия" о приключениях достославного Ходжи Насреддина. Спектакль снят в феерической среде современного мегаполиса.Производство: Россия / Телекомпания "GOLDMEDIUM"Жанр: Комедия, СатираРежиссер: Александр Яцко, Игорь Золосецкий, Алексей ГоровацкийАктеры: Леонид Ярмольник, Александр Яцко, Александр Адабашьян, Вениамин Смехов, Алла Демидова, Михаил Полицеймако, Михаил Ефремов, Александр Розенбаум, Владимир Качан, Борис ГалкинПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D939DD83DC11B96FB360D9FC3E3E268E2F36F79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272933   (139948) от 29.12.2018
-
-Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153) Repack R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139948.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ryse: Son of Rome» рассказывает историю Мариуса Тита, молодого римского солдата, на глазах которого, от рук варваров, погибает вся его семья. После этого, мечтая о мести, он направляется с римской армии к Британии. Быстро добиваясь успехов, Мариус должен стать лидером войска и защитником Империи.Тип издания: RepackРазработчик: CrytekЖанр: Action (Slasher), 3D, 3d PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEEBC0D1ADE3FDC475DEE40A63F89BBBAA35E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853694   (139949) от 30.12.2014
-
-Отель "У погибшего альпиниста" (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приехав по срочному вызову в отель, инспектор полиции не обнаружил ничего уголовно наказуемого, но подметил происходящие там странности. Снежная лавина не позволила ему уехать в тот же день, и вскоре инспектор обнаружил тело убитого постояльца. Подозрение падает на всех, кто живет в отеле.Жанр: Фантастика, ДетективРежиссер: Григорий КромановАктеры: Улдис Пуцитис, Юри Ярвет, Лембит Петерсон, Микк Микивер, Карлис Себрис, Ирена Кридузайте, Сулев Луйк, Тийт Хярм, Ниоле Ожелите, Тим РидПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC5D619AFFBCDF9A0CB7CA603044F903EC57C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520686   (139950) от 29.12.2021
-
-Пресеты - Creative Market - 200+ Wedding Presets Bundle 2021 - 6172458 [LRTEMPLATE, XMP, DNG, ANT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139950.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комплект 200+ свадебных пресетов входят самые продаваемые коллекции свадебных пресетов, выпущенные Presetrain в 2019, 2020 и 2021 годах. Все, что вам когда-либо понадобится для творческого свадебного рабочего процесса.Формат: LRTEMPLATE, XMP, DNG, ANT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21750BDEA084F802D303FED0E445E2D5C336CCA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679135   (139951) от 24.11.2023
-
-Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Original Album (2023 Remaster)
-Disc 2: Steven Wilson 2014 Remix and Instrumentals
-Disc 3: Rarities (2023 Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F9AD47B6ED88A35E001557C3660E848EFD9591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970566   (139952) от 30.12.2015
-
-Acronis Disk Director 12.0.3270 (Bootable ISO WinPE 10) + Acronis Disk Director 12.0.3270/Acronis True Image 19.0.6027 (Bootable ISO Linux) by Sergei Strelec [Ru]
-
->>След.
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis Disk Director 12 – программа для управления дисками. Если вам нужна максимальная производительность дисков и безопасность данных, этот пакет предлагает лучшие инструменты для создания, изменения размеров, переноса и объединения разделов без потери данных. Acronis Disk Director 12 предлагает новые мощные функции –  поддержку динамических и GPT-дисков, распределение (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2272698202740B95767EAC9F3B5C6589B97EDEF
 ```
 
 

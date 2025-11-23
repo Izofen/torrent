@@ -6,7 +6,7 @@ Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154841.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154883.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155458.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155529.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Juuni Taisen | 12 войн [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156256.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chuubyou Gekihatsu Boy | Outburst Dreamer Boys | Сумасшедшие ребя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156629.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156811.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156814.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156948.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157045.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Izetta, Die Letzte Hexe / Изе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157051.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157129.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157910.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуяшики [2017, TV, 11 эп.] WEB-DL
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158016.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158093.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Ou-sama Game The Animation / King's Game The Animation / Королевская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158119.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158789.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159166.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159170.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A09F8BB4B4EAFAF24EDD6EDF11D7CC8575A38B18
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159205.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159512.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159522.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159524.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159525.jpg" />
 </div>
 
 

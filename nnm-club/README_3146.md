@@ -1,3 +1,81 @@
+###  Публикация: 1822584   (100900) от 07.10.2025
+
+Skill Issue, Skill Issue | Подготовка к Golang собеседованию (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс ориентирован, главным образом, на тех, кто намеревается перейти на язык Go с другого языка программирования, сохраняя при этом свой текущий уровень, а порой даже улучшая его. Он окажется полезным в преодолении синдрома самозванца, особенно если вы давно не проходили собеседования и не знаете, чего от них ожидать и как к ним подготовиться. Также курс пригодится (   Читать дальше...   )Производство: Skill IssueЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66903871E671AC298B7072CA74B7581166F44BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822641   (100901) от 07.10.2025
+
+EchøNova - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the Shadow
+ 02 - Don’t Let Me Go
+ 03 - Unspoken Dreams
+ 04 - Take a Deep Breath(   Читать дальше...   )Жанр: Dance, OtherПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2836DBB3ADE36F6B4CB12AC773F37C274DD749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822644   (100902) от 07.10.2025
+
+EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Golden Sun
+ 02 - Deep Chill
+ 03 - Relaxing Music
+ 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822652   (100903) от 07.10.2025
 
 Telegram Desktop 6.1.4 + Portable [Multi/Ru]
@@ -6,7 +84,7 @@ Telegram Desktop 6.1.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100903.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ magnet:?xt=urn:btih:4377CDBF98B95EB4C793C3B116E60799ABBA3BA0
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100904.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ magnet:?xt=urn:btih:BE4C47C5EF584DCF37ACCD28AB872E0815583682
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100905.jpg" />
 </div>
 
 
@@ -80,7 +158,7 @@ magnet:?xt=urn:btih:292CE449A42EA8FE46C8AB9F811A3C083F1DD04A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100906.jpg" />
 </div>
 
 
@@ -104,7 +182,7 @@ magnet:?xt=urn:btih:5E7799F3695599C782E218C06D2400551A335939
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100907.jpg" />
 </div>
 
 
@@ -129,7 +207,7 @@ magnet:?xt=urn:btih:B62488F1A637FC971E9E7D463E772D1E68C0B275
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100908.jpg" />
 </div>
 
 
@@ -153,7 +231,7 @@ magnet:?xt=urn:btih:6ADE4531A31E22F302C471E9AD8F409F49870AF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100909.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ magnet:?xt=urn:btih:04C5F0C373291CF503144A6B15DDBB11D72D34E5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100910.jpg" />
 </div>
 
 
@@ -201,7 +279,7 @@ magnet:?xt=urn:btih:77BCE14973667C84B908F1D4D3F6ABDC4605DD51
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100911.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ magnet:?xt=urn:btih:DAF392B50D35C402D2E2E9F20405DC1DD0B4CDEF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100912.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ magnet:?xt=urn:btih:D16E1CBF924CB72C61053E2BAD3AC71E4167BFE1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100913.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ magnet:?xt=urn:btih:74AB2CD1A57A91237B4EE4F49DC55B17854C988A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100914.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:C362952F680C84FD2CDA2889696211C72D8F99AC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100915.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ magnet:?xt=urn:btih:C0A5A4A88C1288C83248CF1CD374F26D9A9D4BDC
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100916.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:4B9E1630CD3A5FF8C41FA7A3002C8FDFD990A06D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100917.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ A Killer's Confession - Victim 1-2 (2024, 2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100918.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ VA - 60 minutes. Old School Dance Music vol.27 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100919.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:9876A2EE13304568B62CD23E8D44D5CC6026E9DE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100920.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ magnet:?xt=urn:btih:6AC0D8D12A33B108D2423E6E0F15DB4AE393E14D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100921.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100922.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ magnet:?xt=urn:btih:B0D3D520680FB43353D64D8BB08649F120F412AF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100923.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ magnet:?xt=urn:btih:BA46BCD38241607D9E6261BB15B9D87A44E18FF9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100924.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100925.jpg" />
 </div>
 
 
@@ -562,85 +640,6 @@ DIAZZA - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD5FEF0DD5BE78EB5B0E6F76B1398A16ADE9E15B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822574   (100926) от 07.10.2025
-
-Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс нацелен на глубокое освоение принципов работы системы сборки во Frontend. Полученные на курсе знания помогут улучшить DevEx команды за счет ускорения процесса сборки и повысить вашу ценность как разработчика благодаря уникальным знаниям в инфраструктуре.
-
-После курса вы сможете:
-Анализировать сборку в любом проекте и находить точки для улучшения(   Читать дальше...   )Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:21:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C524F5E907151B8EC12AFF06D4A7E15088FD12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822616   (100927) от 07.10.2025
-
-Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025) [PDF, MOBI, AZW3] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100927.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this book, author Chip Huyen discusses AI engineering: the process of building applications with readily available foundation models.
-The book starts with an overview of AI engineering, explaining how it differs from traditional ML engineering and discussing the new AI stack. The more AI is used, the more opportunities there are for catastrophic failures, and (   Читать дальше...   )Жанр: Компьютерная литература, искусственный интеллектЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, MOBI, AZW3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822615   (100928) от 07.10.2025
-
-VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellinoora - Ahdistuksen Aika (04:53)
- 002. Adekunle Gold - Don Corleone (02:27)
- 003. Akmalov - В зоне прочитанного (03:13)
- 004. Alberto Guta & Ministerul Manelelor - Pupa-Ma Pe Obraz (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
 ```
 
 

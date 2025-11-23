@@ -1,3 +1,84 @@
+###  Публикация: 1756185   (103531) от 19.10.2024
+
+Mojo Man - Love & Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Revolution (3:58)
+02. Happiness (4:11)
+03. Jealousy (5:33)
+04. Some People (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A109C4D9629D189F7717B4F9307DE582F4032BBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756147   (103532) от 19.10.2024
+
+Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doc Payne feat. The Payne Relief Smooth Blues Band - Chris_blues (7:14)
+02. Doc Payne feat. The Payne Relief Smooth Blues Band - Feel Like Breakin_up Somebody_s Home (3:49)
+03. Doc Payne feat. The Payne Relief Smooth Blues Band - Fever (3:56)
+04. Doc Payne feat. The Payne Relief Smooth Blues Band - Footloose and Fancy Free (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4713FF199490A3DA4F5C7EF6AB193A4B649745B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756122   (103533) от 19.10.2024
+
+Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Reality (05:04)
+02. Metal Bound (05:29)
+03. Coming Home (05:12)
+04. Last Breath (03:42)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A37E538D58EAF7B4A4E4E9BC438C145F81AEC76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755680   (103534) от 19.10.2024
 
 Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz, Contemporary Jazz>
@@ -6,7 +87,7 @@ Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103534.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103535.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103536.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103537.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.112 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103538.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Power Battle Watch Car | Лига WatchCar. Битвы чемпионов [2016,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103539.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, Lond
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103540.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ BCee - These Are The Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103541.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ KineMaster - Video Editor & Maker v7.5.2.33832.GP Mod by Shadow_Patcher [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103542.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ PhotoRoom v5.4.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103543.jpg" />
 </div>
 
 
@@ -265,7 +346,7 @@ DJ Nelly - Lose Control (2022) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103544.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ Bounce Enforcerz vs. DJ Oskar - Mr. Vain (2020) [FLAC|Lossless|tracks] <Scouse H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103545.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ magnet:?xt=urn:btih:E773DCAC70761D22274BA86F0A311A0ECE1B56B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103546.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ magnet:?xt=urn:btih:7E5CB4356DA038E2494DF8A181996CBD0EC87161
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103547.jpg" />
 </div>
 
 
@@ -365,7 +446,7 @@ VivaVideo Video Editor v9.21.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103548.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ magnet:?xt=urn:btih:046F5D456F3A3859C0371E37AF15BEB4CB2CA828
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103549.jpg" />
 </div>
 
 
@@ -413,7 +494,7 @@ magnet:?xt=urn:btih:FA9CCEAD7A75B39E4506949EBA585212D9A1A961
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103550.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ magnet:?xt=urn:btih:71E35B13ED0D29CADD3349148A2CEF8583748F91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103551.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ Black D.O.G - It's A Long Way For Rock'N'Roll (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103552.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ magnet:?xt=urn:btih:99AD71D6FE9CFC0999E89DF49B72CEFFEE9F1FF0
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103553.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103554.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ VA - Free To Dance, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103555.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ magnet:?xt=urn:btih:800B3A2CFE1F8E1BC43A11DDB2B564206BFA80BC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103556.jpg" />
 </div>
 
 
@@ -581,81 +662,6 @@ magnet:?xt=urn:btih:800B3A2CFE1F8E1BC43A11DDB2B564206BFA80BC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F98AC0D8F5CDA58C6F5793E19DCC919FA61E3774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756052   (103557) от 19.10.2024
-
-VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Löhr - Everybody (Electro Swing Mix) (3:40)
-02. The Soulmate Project - The Addams Family (Electro Swing Mix) (2:54)
-03. Glenn Gatsby - Somebodys Watching Me (Electro Swing Mix) (2:41)
-04. Ashley Slater - Ghostbusters (Spooky Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB036290BC0AFBB7C6E343BE3D5B8EC34C59911E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756021   (103558) от 19.10.2024
-
-Kekkon Yubiwa Monogatari | Сказание об обручальных кольцах [2024, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сато - старшеклассник, влюбленный в свою лучшую подругу Химэ, неземную красавицу из другого мира. Когда она возвращается на свою родину, чтобы выйти замуж, Сато не раздумывая отправляется за ней и срывает свадьбу. Химэ решает поцеловать его вместо своего жениха, что по местным законам связывает их с Сато магическими узами брака! Но она - принцесса Кольца Света, а (   Читать дальше...   )Производство: Студия Staple Entertainment, ЯпонияЖанр: приключения, фэнтези, романтика, эттиРежиссер: Такаси НаояЯзык озвучки: ЯпонскийСубтитры: Русские (CrunchyRoll)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC26C5FC39E7AA66A4FCBB338C19EBF68EE38B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756128   (103559) от 19.10.2024
-
-Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103559.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом стремительном роуглайте вы станете Ember Knights, последней искрой надежды для погрузившейся в хаос вселенной. Безумный чародей Праксис похитил жизненные силы Горящего древа и бежал через четыре Начальных Мира, попутно заразив их своей скверной. В одиночку или в совместном режиме до 4 игроков используйте мощное оружие и навыки, чтобы прорубиться через орды (   Читать дальше...   )Тип издания: RepackРазработчик: Doom TurtleЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
 ```
 
 

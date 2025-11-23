@@ -6,7 +6,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9904.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Luto (2025) [Ru/Multi] (Build 19401226) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9905.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:49F88D5D6D73134DF0A43786DB3B3DA66F1F9666
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9906.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ My Garage (2021) [Ru/Multi] (0.836) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9907.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0510) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9908.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9909.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:54FCD9589995F64C859C2FB3CEEAE329D36A2904
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9910.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ History: Кевин Костнер: Запад / Kevin Costner's the West (2025)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9911.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.105/dlc) Repack Wanterlude 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9912.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:929D4602BFAC56A020AB6280713063F937C8BDDD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9913.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:591452AA0274F8F125F5A8CA1B662E921F962F3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9914.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4086C8EE479A060271968BA3CD99614B288709E5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9915.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.526.0.0/dlc) Repack Wanterlude [Digit
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9916.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ No Rest for the Wicked (2024) [Ru/Multi] (23939) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9917.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9918.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9919.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ WinRAR 7.13 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9920.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:628AFD02E1FB32C8FC163FEEC26AC82427EFD9AB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9921.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9922.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9923.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Navitel / Навител: Официальные карты релиза Q3 2025
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9924.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:CBFD51DC870C8AFC2E486411E6D40034D974FAE0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9925.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9926.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9928.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:77A9172E605442E08EF64102D43B266F83237C85
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9929.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9930.jpg" />
 </div>
 
 

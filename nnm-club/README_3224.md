@@ -1,3 +1,84 @@
+###  Публикация: 1755848   (103505) от 20.10.2024
+
+Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpio Rising [7:02]
+02. Why Not? [8:35]
+03. Sweet and Lovely [7:40]
+04. It Never Entered My Mind [8:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576E8204A31209715A5CB9D7EFFD7CC95EB3D3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756395   (103506) от 20.10.2024
+
+Beltane - Jera (2007) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Dawn [04:15]
+02. Aij/A.S. [05:21]
+03. Seasons [07:06]
+04. E.O.S [05:38](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B9FA9FC27FAA4AB24A8E1BDB177ADE72B1522D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756257   (103507) от 20.10.2024
+
+Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Spring [3:44]
+02. Over the Rainbow [4:25]
+03. Like Someone in Love [3:08]
+04. Minor Blues [5:33](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756334   (103508) от 20.10.2024
 
 НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (19.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -6,7 +87,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103508.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103509.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103510.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103511.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103512.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103513.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103514.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ Burna - Live Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103515.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ magnet:?xt=urn:btih:C71D204D727CEAF61DAAD354317956268C7C2C4D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103516.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ Fate - Reconnect 'N' Ignite (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103517.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ Eric Bibb - In The Real World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103518.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ Stan Silver and the Brave Puppies - All In (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103519.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ magnet:?xt=urn:btih:F001E3CBE5C64169C21392537FE1B07ABDA61BF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103520.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103520.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ magnet:?xt=urn:btih:F001E3CBE5C64169C21392537FE1B07ABDA61BF3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103521.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103522.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Killagodzilla - Синхродавинчи (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103523.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ Riot V - Mean Streets (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103524.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103525.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ MotoGP. Этап 17 из 20. Гран-при Австралии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103526.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103527.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103528.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103529.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ Fantastic Negrito - Son of a Broken Man (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103530.jpg" />
 </div>
 
 
@@ -601,87 +682,6 @@ Fantastic Negrito - Son of a Broken Man (2024) [FLAC 24/48|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:091692FD5B1018D5702A4DE0380257F9FCB4888F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756185   (103531) от 19.10.2024
-
-Mojo Man - Love & Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Revolution (3:58)
-02. Happiness (4:11)
-03. Jealousy (5:33)
-04. Some People (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A109C4D9629D189F7717B4F9307DE582F4032BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756147   (103532) от 19.10.2024
-
-Doc Payne - Totally Unconventional (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doc Payne feat. The Payne Relief Smooth Blues Band - Chris_blues (7:14)
-02. Doc Payne feat. The Payne Relief Smooth Blues Band - Feel Like Breakin_up Somebody_s Home (3:49)
-03. Doc Payne feat. The Payne Relief Smooth Blues Band - Fever (3:56)
-04. Doc Payne feat. The Payne Relief Smooth Blues Band - Footloose and Fancy Free (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4713FF199490A3DA4F5C7EF6AB193A4B649745B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756122   (103533) от 19.10.2024
-
-Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Reality (05:04)
-02. Metal Bound (05:29)
-03. Coming Home (05:12)
-04. Last Breath (03:42)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A37E538D58EAF7B4A4E4E9BC438C145F81AEC76
 ```
 
 

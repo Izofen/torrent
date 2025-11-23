@@ -6,7 +6,7 @@ Ella Fitzgerald - The Moment Of Truth (1967) 2025, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66294.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Big Head Todd And The Monsters - Midnight Radio (1990) CD, Album, Reissue 1994 [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66296.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2CFEDCEAF48E688488B7EEB47B00392367B275C0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66297.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:FE7E5F9848484EC75BDF837C78AA4CCA09D3852A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66298.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 4: Oboe / Flute (1956) 1991, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66299.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Daff Moon Phase (Фазы Луны) v3.47 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66300.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:8744BC9D5D476535EE4DF3CE1C32442398F9ABC1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66301.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3ED2CDDE3C9AA84EFD5F0DC2D171B7C69BFEE595
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66302.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:B36B6247A3D8EBDD35C5914A2D224BBEE27D567E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66303.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Душевный шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66304.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:9BA8B497224EB9B51C91AC0B98342821BF5E4E87
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66305.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:1C2182EC94575F62902B32058D0700EDCB7CC7E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66306.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Русская 30-ка хитов 14 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66307.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ IQ - Dominion (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66308.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:BE0B3AF7888DAC25A029DBE908D010A54270982D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66309.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66310.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:D1AE5B98CCE04C6F3E0CFFD890F38B7DAE8FB72E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66311.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Новые хитовые песни 2025, Часть 5 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66312.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:61079DE32517EAA80A41C511263FB28C18D6D844
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66313.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C47268E86992EA441E3188A91D7733D8685484B1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66314.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Neurotech - Exo Escapism (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66315.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66316.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66317.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66318.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66319.jpg" />
 </div>
 
 

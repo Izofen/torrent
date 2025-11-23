@@ -6,7 +6,7 @@ Diablo 2 Resurrected / Diablo 2 Remaster (2021) [Ru/Multi] (1.6.84219) Repack We
 >>47
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14374.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lynda.com | CSS с LESS и SASS (2012) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14375.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Let'sРlay [Premium Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 06.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14377.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8FF178F08BB9D81607F06AC0FD99D5CC550CF571
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14378.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Rufus 4.9 (Build 2256) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14379.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows 11 24H2 (26100.4351) x64 by Bruxer [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14380.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A7050411756F6D053F25C3728A1AA68B8E213584
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14381.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ The Long Dark (2017) [Ru/Multi] (Build 2.44 157357 S/dlc) Repack Let'sРlay [Qui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14382.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ CorelDRAW Graphics Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14383.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C5E47D3AFA715F6BDEB85A902F8E44992E318581
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14384.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Hero of the Kingdom: The Lost Tales 3 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14385.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:B11ACFA0426540894DB3D05E4428266B0CF7AAA7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14386.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:808B7EF882581A51029F8B24474991171AF658A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14387.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14388.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:023B1B19729EAEFA78E3D27E42A96B70BC5D54CE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14389.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adobe Acrobat Pro 2025.001.20531 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14390.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Mindseye (2025) [Ru/Multi] (4598223) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14391.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5564DB41CD11D1616141BD37A3A81A2BD8D1D469
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14392.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:FF20C60789D8F8349B6BF8C29C87D40D37A1F47E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14393.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Black Hole Trance Music 06-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14394.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:26328EE99AF25863827F9F376EF31AB481E82122
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14395.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:8F46F2993A72BCD8E6A5DC5606F13CFC25621766
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14396.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - 25 Years Of Anjuna Mixed By Qrion (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14397.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Black Hole House Music 06-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14398.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14399.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1733084   (107380) от 27.06.2024
+
+Eve Gallagher - Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Murdoch - Lovin You Again (3:55)
+02. Looking Down (4:17)
+03. Everybody Knows (3:09)
+04. You Cared (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FACA5C4023CA3E8BC6D912402A13CE82373BB5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732919   (107381) от 27.06.2024
+
+Карнавал душ / Carnival of Souls (1962) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автомобильная катастрофа. Машина с тремя девушками падает с моста в реку. Когда полиция уже и не надеялась найти хоть кого-нибудь в живых, на берег выбирается Мэри Генри. Оправившись от шока, девушка переезжает в маленький городок и устраивается органисткой в местную церковь. Ещё по дороге Мэри начал мерещиться жуткий бледнолицый тип, а вскоре происходят и более (   Читать дальше...   )Производство: США / Harcourt ProductionsЖанр: ужасы, детективРежиссер: Херк ХарвиАктеры: Кендес Хиллигосс, Фрэнсис Фейст, Сидни Бергер, Арт Эллисон, Стэн Левитт, Том Макгиннис, Форбс Колдуэлл, Дэн Палмквист, Билл Де Жарнетт, Стив БузерПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0E439B8E9394CD34225B79B5AD5D93067104C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732886   (107382) от 27.06.2024
+
+Masha Ray - Masha Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bei Mir Bistu Shein (Electro Swing Mix) (3:32)
+02. Levan Polka (Dancing Donkey Mix) (2:55)
+03. Sway (Neo Swing Mix) (2:47)
+04. Bang Bang (Electro Swing Mix) (3:19)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D88171450BDD26BAF4E8E6A0C8C4038FA7C79C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732982   (107383) от 27.06.2024
 
 Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +84,7 @@ Anvil - One And Only (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107383.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ VA - Roaring Halloween (Electro Swing 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107384.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ magnet:?xt=urn:btih:293FE2D19C3C4AE128602B4367DCD7F89701BBF7
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107385.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:1968FF542963E74B4D0B53E059288B0ABFB38391
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107386.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The Fabulous Thunderbirds - Struck Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107387.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:276909FB902F226A899A80E7853B5BC3A8BE6DE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107388.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ magnet:?xt=urn:btih:AB6D8DC894EFFC2C3DEFEC3F40310057AC998EA5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107389.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ Peter Hammill - Been Alone So Long (2024) The Naked Songs - Tour, Bremen 1985 [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107390.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ VA - DJ Hits Vol. 112 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107391.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Nothing More - Carnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107392.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Deus Vult - Wege Dieser Welt (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107393.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ The Death Bed Confessions Collective - DBC, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107394.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Dolly Baker - All Waves (1993) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107395.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Sammy Kershaw - Cross Road Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107396.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|image + .cue] <Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107397.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Orquesta del Desierto - Dos (2003) Remastered, 2023, Heavy Psych Sounds [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107398.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ magnet:?xt=urn:btih:508AF64EAB17147B2DCD3248B5DCE66F57FE87D5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107399.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ magnet:?xt=urn:btih:D548EA0F6E0B3CC9E65734886CBF011E5C5765FF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107400.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ MusicBrainz Picard 2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107401.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ magnet:?xt=urn:btih:E0761194E1285565F3A5AAFDC1ACE43660D3DA2B
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107402.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ magnet:?xt=urn:btih:4418880ED29F1D8369211C70F8CB7583E72B8D4F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107403.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ magnet:?xt=urn:btih:A7F80C326D73A22574800FB3DAD10089B3C5E105
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107404.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Quique Gomez and Little Charlie Baty featuring Kid Andersen and Alex Pettersen -
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107405.jpg" />
 </div>
 
 
@@ -594,81 +672,6 @@ Quique Gomez and Little Charlie Baty featuring Kid Andersen and Alex Pettersen -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6BB838F649C0B4B02AAC5B1FE72721DC5A18D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732614   (107406) от 27.06.2024
-
-Borne of Ash - From the Dark, They Came (2024) [MP3|320 Kbps] <Atmospheric Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Dark, They Came
-02. The Age Of Fire
-03. The Bells Of Awakening
-04. Asylum(   Читать дальше...   )Жанр: Atmospheric Death, Doom MetalПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300AFFC14A610B428666F456F54D8C63C6656974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732962   (107407) от 27.06.2024
-
-Заключенная / Skazana (2023) WEBRip [H.264/1080p] (сезон 3, серии 1-7 из 7) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судья Алисия Мазур славится суровым отношением к подсудимым - она рассматривает дела участников преступных группировок, и все они получают от неё максимальный срок. Но в какой-то момент Алисия сама оказывается в тюрьме, практически без суда и следствия, по ложному обвинению в убийстве. Она не просто должна там выжить, что само по себе непросто, а для судьи - тем (   Читать дальше...   )Производство: Польша/ TVNЖанр: драма, криминалРежиссер: Бартек Конопка, Филип ЗыльберАктеры: Агата Кулеша, Александра Адамская, Михал Чернецкий, Мартына Бычковска, Бартломей Топа, Marta Malikowska, Давид Завадзки, Йоанна Гоншорек, Марта Цислович, Monika Dawidziuk и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6635657A32CF0268736A52F77449319951C4A458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732943   (107408) от 27.06.2024
-
-Газета | Оракул №7 (363) (июль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета эзотерических знаний "Оракул" - астрологические прогнозы, гадания, сонники и многое другое. Газета открывает читателям возможность по-новому видеть и думать, помогает понять себя, окружающий мир и найти путь к гармонии.Жанр: Магия, эзотерикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDC36B0D4F13D989B8A7BAD32B2FA5E19CABC71
 ```
 
 

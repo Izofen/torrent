@@ -6,7 +6,7 @@ Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154362.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154369.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ernie Watts, Pete Christlieb, Rickey Woodard - The Tenor Trio (1997) JVC [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154397.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dollar Brand Duo - Good News from Africa (1973) 2008, Enja [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154408.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Yusef Lateef - Prayer To The East (1957) 1993, Savoy Jazz [WavPack|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154411.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eric Legnini - Six Strings Under (2019) Bendo Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154412.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Claudio Roditi - Three For One (2003) Nagel Heyer Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154457.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Amy Cervini - No One Ever Tells You (2018) Anzic Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154549.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chance Hayden - Get Somethin' (2018) Ropeadope Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154557.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Cassius Lambert - Symmetri (2018) Laborie Jazz [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154581.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Christian Artmann - Our Story (2018) Sunnyside Records [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154611.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Claude Hopkins - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154616.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Oscar Peterson - The Best Of The MPS Years (1968 - 1971) 2022, MPS [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154640.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jeff McMillan - Howlin' At The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154666.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pat Martino - Footprints (1972) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154688.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Willis Jackson - Nuther'n Like Thuther'n (1963, 1964) 2002, Prestige [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154705.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gare du Nord - Lifesexy: Live in Holland (2012) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154706.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - A Merry Jazzmas (1992) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154733.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154840.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ John Coltrane - Blue Train (1957) Remaster, 2014, Universal[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154903.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:51D24C9029E54402E48E1D3D303C6C33855AB068
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154931.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Lula Galvao - Alegria de viver (2019) [FLAC|Lossless|tracks + .cue] <Latin Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154961.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Charlie Mingus - Epitaph (1946-1959) 2CD, 2009, Le Chant Du Monde[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154968.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Saxes, Inc. - Saxes, Inc. (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154971.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mike Nock - Piano Solos (1978) Remaster, 2015, Solid Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154982.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154996.jpg" />
 </div>
 
 

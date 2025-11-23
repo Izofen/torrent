@@ -1,3 +1,75 @@
+###  Публикация: 1517056   (164505) от 13.12.2021
+
+Valentina Studio Pro 11.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDF46E716F064348959E8F6FEA3F46BC0B60027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432362   (164508) от 17.12.2020
+
+Any RecScreen 2.0.55 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any RecScreen - это простая в использовании утилита записи экрана для Mac, которая позволяет записывать происходящее на  мониторе в полноэкранном режиме или в настраиваемой области. Вы можете записать веб-камеру для создания видео «картинка в картинке», добавив веб-камеру в область записи. Также может быть записан звук в ваших видео с микрофона или системного звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5922812672832984D6099846B2B3864C1021465F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432567   (164512) от 17.12.2020
+
+ImageRanger Pro Edition 1.7.8.1685 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164512.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 16.12.020Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15661795406DF4178D0BBB3E6DEFE84EC0B3BF35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516997   (164515) от 13.12.2021
 
 Super PhotoCut Pro 2.8.4 [En]
@@ -6,7 +78,7 @@ Super PhotoCut Pro 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164515.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Hype 4 Pro v4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164517.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ PhotoDirector - Редактор фото 18.7.0 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164519.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ High-Logic FontCreator Professional 15.0.0.2948 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164523.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ AudioSwitcher 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164524.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Wattagio 1.12.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164525.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ CorelDRAW Technical Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164528.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Disk Xray 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164529.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ System Dashboard Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164531.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ iCollections 6 v6.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164533.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ LaunchBar 6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164534.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Adobe Illustrator 2023 27.1.1.196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164535.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Andre 3000 & Madlib - Otis Benjamin 2.0 (MadStacks) (2019) [FLAC|Lossless|Web-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164537.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164538.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ NCH WavePad Mater 11.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164539.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Duplicate Photos Fixer Pro 2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164541.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164543.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ SSH Config Editor Pro 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164544.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Cookie 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164549.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ SideNotes 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164550.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Atmosphere - Whenever (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164552.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ Smultron 12.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164553.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164560.jpg" />
 </div>
 
 
@@ -562,83 +634,6 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A605B75753D42755C83585EBAB74453D16FBEE97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346215   (164562) от 18.12.2019
-
-A.S.M. (A State of Mind) - Color Wheel (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Alternative Rap, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sesame (1:36)
-02. Grape (4:36)
-03. Burgundy (3:09)
-04. Champagne (3:11)(   Читать дальше...   )Производство: Chinese Man Records - CMR048DIGЖанр: Hip-Hop, Alternative Rap, Electronic, R'n'BПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9296F1A4BF6050B1EA3D79C3A5CBECFB74BAEAE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673756   (164563) от 02.11.2023
-
-iPulse 3.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
-Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2023Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D596F0C290C73FFAFC7B6DCDAC999ED9A367862F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517021   (164564) от 13.12.2021
-
-BusyCal 2021.4.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164564.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2021Разработчик: © 2021 BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4F84FFC6F48B5351A72415EA83BB7FE6939E76
 ```
 
 

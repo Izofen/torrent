@@ -6,7 +6,7 @@ DELTARUNE (2025) [Multi] (1.01A) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15281.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dark Souls III (3) (2016) [Ru/Multi] (1.15.2/dlc) Repack seleZen [Game of the Ye
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15291.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rune Factory: Guardians of Azuma (2025) [Multi] (1.0.3/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15292.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15293.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Felvidek (2024) [Ru/Multi] (1.04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15299.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15302.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3.1plus6d76582b76/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15303.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Nova Drift (2019) [Ru/Multi] (1.2.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15306.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15308.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15312.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15317.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (1.1010742/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15323.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15324.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15326.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ InfraSpace (2021) [Ru/Multi] (1.52.450) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15329.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15383.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (Build 14218760) Repack FitGi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15384.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15394.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dying Light 2: Stay Human (2022) [En] (1.22.4/dlc) Scene Tenoke [Reloaded Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15403.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15407.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15415.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15419.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15420.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15426.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Symphony of War: The Nephilim Saga (2022) [Ru/Multi] (1.10.23/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15429.jpg" />
 </div>
 
 

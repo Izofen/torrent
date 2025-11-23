@@ -6,7 +6,7 @@ Kobra And The Lotus - Studio Albums (7 releases) (2009-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109331.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109336.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cocteau Twins - Treasure (1984) [FLAC 2.0|24/192|tracks|Vinyl-Rip|image + .cue] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109343.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Metal Massacre 04 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109391.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Metal Massacre 03 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109393.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109425.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109455.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109682.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109702.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Foo Fighters - Studio Albums (12 releases) (1995-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109791.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nancy Martinez - Not Just The Girl Next Door (1987) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109902.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110038.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110212.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110218.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110228.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110246.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110386.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110392.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110454.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110483.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110558.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110570.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ U.D.O. - Dominator (2009) Reissue, 2017, AFM Records [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110635.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110821.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Giuffria - Giuffria (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110824.jpg" />
 </div>
 
 

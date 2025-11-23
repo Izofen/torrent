@@ -6,7 +6,7 @@ Ignitor - Horns and Hammers (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103648.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Just Rock (Cool Badass Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103651.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - You Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103669.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Rockklassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103670.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - XX. Трибьют группе Артерия (2024) [MP3|320 Kbps] <Heavy
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103678.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Jem Records Celebrates Jagger/Richards (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103680.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Iron Echo - Forged In Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103683.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - timeless rock & new cuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103685.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Winter - Keeping The Flame Alive (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103717.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kalandra - A Frame of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103720.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reverber - The Satan Creation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103725.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103747.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103762.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103795.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103796.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103845.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ KDRR - Деконструкция (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103851.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Iterum Nata - From the Infinite Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103903.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Champlin Williams Friestedt - CWF3 (2024) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103937.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Midnight Force - Severan (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103941.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jimi Jamison - Jimmy Wayne Jamison (2024) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103944.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Mike Tramp - Songs Of White Lion Vol. II (2024) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103953.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103972.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103983.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:DE07B5CCDC7E5F5B13ADAB722CEC9393656FEC1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103986.jpg" />
 </div>
 
 

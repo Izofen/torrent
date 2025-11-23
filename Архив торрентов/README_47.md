@@ -6,7 +6,7 @@ MetaProducts Offline Explorer Enterprise 8.7.0.4996 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B0835601BFC7292CB21FF8F87F6BD9D0CC8EF5F1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15975.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Windows Manager 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15979.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15984.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16000.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16001.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:21AF79B5E9DB400126678B8A4D8CDB299E9F30C4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16039.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:208214819E680EED9C7995779354BB8BEA676696
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16043.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D0A0AD72E0A0060DD20C1DC1E643695C134F3AC9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16064.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ PictureThis - Plant Identification v5.4.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16069.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Daily Yoga (Ежедневная йога) v8.69.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16070.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Shazam v15.23.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16072.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ HiPER Calc Pro v11.1.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16076.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Smart AudioBook Player Pro v11.4.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16082.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows Manager 2.1.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16099.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16100.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Device Info / Информация об устройстве v3.3.9.1 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16103.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Vanced Tube v5.3.81.312 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16107.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Internet Download Manager 6.42 Build 40 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16124.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wondershare PDFelement 11.4.20.3548 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16133.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Mindroid: AVS, Mind machine v8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16138.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ RUTUBE - видео, шоу, трансляции 30.2.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16139.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ AOMEI Partition Assistant Technician Edition 10.8.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16154.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Internet Download Manager 6.42 Build 40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16159.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Archicad 28.2.0 Build 5000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16194.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Photo Sherlock v1.127 Mod by Mixroot  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16212.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127394.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127397.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2390E9F99547C8F93FAA9535139DF752B25D3FE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127398.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127416.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Babooshka - Чёрный список (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127438.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Raven Age - Conspiracy (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127539.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Raven Age - The Raven Age (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127540.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Thragedium - Lisboa Depois de Morta (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127541.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Olshanoe - What a Great and Sad World It Is (2023) [FLAC|Lossless|image + .cue] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127544.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Nawabs Of Destruction - Rising Vengeance (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127546.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sigyn - Dehumanized (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127550.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wake Arkane - Awakenings (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127551.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Steel Rhino - In Rhino We Trust (2023) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127552.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Solitary Sabred - Temple of the Serpent (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127554.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Colliding Worlds - Colliding Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127555.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Raven Age - Darkness Will Rise (2017) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127557.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ The Raven Age - Exile (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127558.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127559.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Swarm Chain - Looming Darkness (2022) [FLAC|Lossless|image + .cue] <Epic Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127560.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:38796F5F88ACACF3AA40A6AF1995B620EC72B242
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127562.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Asia - Live at the Pabst Theatre, Milwaukee, Wi, USA, 23 April 2008 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127566.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127568.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic De
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127569.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127572.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127574.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Lee Gallagher - The Falcon Ate the Flower (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127575.jpg" />
 </div>
 
 

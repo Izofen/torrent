@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35427.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DB2E34D048C3DB43409BBCC38F83875EB3D46FBD
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35428.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9C38D68035F190F1953F758E5527DDE1C7563B72
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35429.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2CC937FD600CCB65555338198EEA25045C52D1A2
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35430.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5EFBD1AF93A6B6DB2D9BC97AF42BB598996BD966
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35431.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:56A488E57CBC18694C5A2346AD78E0EC50C84849
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35432.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4B5AEB3B77E78066C11ECAE75EBFB016487AA317
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35433.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35434.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35435.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Japan, WPZR-30320
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35436.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:1021B13B9931B5C9F04E4E04CBD9F43B0E61020C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35437.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ V.A. - LoFi Jazz (Holiday Chill Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <LoF
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35438.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Trance In Motion Vol.383 (2024) [MP3|320 Kbps|image + .cue] <Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35439.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Asterius - Выхода Нет (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35440.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35441.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35442.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:3B88C552674F358E8DD3AF463EF49B4B8FF134FA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35443.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:83DAD8B3D14E3ECEE4A0011751D88F688FC3F8D4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35444.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B3641FE62F88A6E1AB2964060AB4C05216A56914
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35445.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:503F8B63BCF1CCA0496A46A193C1522458D7A285
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35446.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:26139219C637F220A9BD5F62532CA16FF02EEE8F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35447.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7BAF7A29573340F179B8F513D7CF93A93E963FB2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35448.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:DD4453E60A9B1DFA6428ABA038381B0D59B6A7C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35449.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:A4FCFA402BB4AF6080CF4E9C1C99B47B5A03D715
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35450.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:1AC52131553A39EEAE1452E574A8DAFB9E3CBC59
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35451.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:A35101C21FB01956C967483E9432C502B77E38B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35452.jpg" />
 </div>
 
 

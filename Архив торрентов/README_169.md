@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 129.0.6668.90 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firefox Browser ESR 128.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41460.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ KStars 3.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41463.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.2 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41464.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2136CE185DE7B8901188BDB99CA37BA40C707413
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41466.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Firefox Browser 131.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41469.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ O&O DiskImage Professional 19.1 Build 175 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41475.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Macrorit Disk Scanner 6.8.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41477.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bandizip Pro 7.36 Build 68355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41483.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Glary Utilities Pro 6.16.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41487.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Display Driver Uninstaller 18.0.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41490.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IsMyLcdOK 5.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41496.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41498.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:918273B289611D9643DEF282776C7A733FB7EE08
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41499.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ PotPlayer 240827 (1.7.22319) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41502.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ NirLauncher Package 1.30.14 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41503.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Topaz Gigapixel AI 7.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41505.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ StartAllBack 3.8.10.5173 (3.6.16.4729) StartIsBack 2.9.20 (2.9.1) / 1.7.6 / 2.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41506.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ OCCT 13.1.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41508.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PotPlayer 240930 (1.7.22332) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41509.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Native Instruments - Kontakt 8.0.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41511.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VueScan Pro 9.8.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41512.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Krita 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41513.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TreeSize Professional 9.2.0.1905 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41515.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AOMEI Backupper Technician Plus 7.4.1 WinPE by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41522.jpg" />
 </div>
 
 

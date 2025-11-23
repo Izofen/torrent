@@ -1,3 +1,57 @@
+###  Публикация: 1619873   (201107) от 18.03.2023
+
+VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro-Disco, Synth-Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_201107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chain Reaction - Dance Freak
+002. Marianne Faithfull - Sex With Strangers
+003. Jesse Gould - Out Of Work
+004. Strawberry Station - Future Funk(   Читать дальше...   )Жанр: Nu-Disco, Indie Dance, Euro-Disco, Synth-PopПродолжительность: 12:06:31 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07102C9616F29E1708F030DDF2E36B184DB9184D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829678   (201786) от 26.10.2025
+
+Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_201786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Smile, My Sunshine
+ 02 - Amore Mio
+ 03 - Come Stai, Tesoro? (Version 1)
+ 04 - È Una Meraviglia!(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7D8E25852555CACAED546E2096AA692382ABB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829263   (202006) от 25.10.2025
 
 Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, Vocal, Pop Ballad, Other, Sunoai>
@@ -6,7 +60,7 @@ Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202006.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202006.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202187.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202187.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ VA - Новогодние песни Vol.1 (2022) MP3 [320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203930.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203930.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204404.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204404.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205126.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_205126.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205740.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205857.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207811.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208796.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208796.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ VA - Pop Hits (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208825.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208825.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ VA - Вечеринка 'Ласковый Май' (2022) [MP3|320 Kbps] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208873.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208873.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208925.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208925.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209308.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209308.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Yaki-Da - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211668.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211668.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211892.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211892.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ VA - Лето на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212755.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212755.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_213877.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_213877.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ VA - Pioneer Studio 33,5 - Disco Evolution (2016) [MP3|160 Kbps] <Italo Disco, N
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214318.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214318.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ VA - Disco - The BIGGEST 80s Disco Dance Music (vol. 1-32) (1990) [MP3|192 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214409.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214409.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ VA - Музыкальные Новинки Интернета. Зимний Вы
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214477.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214477.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ VA - Дискотека- Апокалипсис (2012) [MP3|320 кб/с]<Pop,Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215378.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215378.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ VA - Новый Год вдвоём (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215595.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215595.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ No Angels - Compilation Part 2 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215647.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215647.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218469.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218469.jpg" />
 </div>
 
 
@@ -647,60 +701,6 @@ VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3DE8311E304917BD08507E130C74BEF8E376E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084624   (218818) от 19.12.2016
-
-VA - Попсовая соточка на Hit fm. Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218818.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Пьер Нарцисс - Просто Набери 3:37
-002.Indila - Run Run 3:45
-003.Medas Feat. Кейс - Рутина 3:27
-004.Mainstream One - Танцы В Ночи 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D901F30F5C24D07FB1C8F9FFDAEEEA52459A8BEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585779   (218833) от 24.10.2022
-
-Michael Jackson - Playlist Halloween (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thriller [05:57]
-02. Blood On The Dance Floor [04:13]
-03. Behind the Mask [05:02]
-04. Dirty Diana [04:41](   Читать дальше...   )Жанр: PopПродолжительность: 03:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84D5FBCAF287FE6E0265CD850893DA5D0EABCEC
 ```
 
 

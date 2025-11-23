@@ -1,3 +1,75 @@
+###  Публикация: 1202770   (138374) от 30.12.2018
+
+Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPHET
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Tactics: Blades of the Shogun, основанная на скрытности игра, в которой вам предстоит выполнять нелегкие поручения во главе отряда наемных убийц. Shadow Tactics – изометрическая тактическая стратегия, в которой вам предстоит провести свой отряд по Японии начала XVII века, выискивая самые изощренные способы убийства высокопоставленных жертв.Тип издания: LicenseРазработчик: Mimimi ProductionsЖанр: Strategy (Real-time, Tactical), 3D, Isometric, StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCB6D1364075943BD50281E7CC94D793D8A548A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740316   (138375) от 31.12.2013
+
+Поговори с ней / Hable con ella / Talk to Her (2002) BDRip [720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках интересного персонажа для статьи журналист Марко встречается со знаменитой женщиной-тореро Лидией. Их знакомство перерастает в страстную любовь, но все надежды рушит трагедия на корриде: удар разъяренного быка повергает Лидию в кому. Проводя дни и ночи в больнице, Марко знакомится с медбратом Бениньо. Он не первый год заботится о впавшей так же в кому Алисии, (   Читать дальше...   )Производство: ИспанияЖанр: Драма, МелодрамаРежиссер: Педро АльмодоварАктеры: Паз Вега, Росарио Флорес, Дарио Грандинетти, Мариола Фуэнтес, Феле Мартинес, Хавьер Камара, Джеральдин Чаплин, Фернандо Гильен Куэрво, Чус Лампреаве, Леонор УотлингПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084E0C3CEE7FBDD7F78D1ADE062DDAFD4452E973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436057   (138376) от 30.12.2020
+
+Афоня (1975) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весело и беззаботно жил слесарь-сантехник Афанасий. Не гнушался левыми заработками, любил выпить, поволочиться за девушками. Так проходил день за днем, но однажды... О том, что случилось с Афоней, рассказывает фильм признанного мастера комедии Георгия Данелии.Производство: СССР / МосфильмЖанр: Драма, Мелодрама, КомедияРежиссер: Георгий ДанелияАктеры: Леонид Куравлёв, Евгения Симонова, Евгений Леонов, Борислав Брондуков, Валентина Талызина, Владимир Басов, Николай Парфёнов, Готлиб Ронинсон, Нина Русланова, Раиса КуркинаСубтитры: Русские, английскиеПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA29F6B7ED8FAB119D87F6B2007A8D127BE8EC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966922   (138377) от 31.12.2015
 
 Среди коршунов / Unter Geiern (1964) BDRip [H.264/720p-LQ]
@@ -6,7 +78,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138377.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:A69404CBFC8418E7F136A26A981A786B40A9BCD3
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138378.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:1028F1492B638FB53D77B799371F4E2FBB10AA29
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138380.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:176C26A762F304E04AEC37283776AB0531680D3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138381.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138383.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Daum PotPlayer 1.6.57875 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138384.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:6326029E40E69A10BAE28D02F94E50BCACDC203C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138385.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:28F82F2B468D2B5F8E9336ED67395AE205125709
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138386.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:1AF26C757218CC8341F4E259E00F755230C16A97
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138387.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:84DFC0FF5BA5D97BD6D0E0CDDC55841422113DA8
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138388.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:A090A2333FF5F9A13D23DE7F03C922EAA48D92F0
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138389.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ Anvir Task Manager 9.1.12 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138390.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:7E527F08D94AD37783DB8FAA8D2A128D5561CDFD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138391.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:97592E8D47AEF1E11FC70C6910D9FDFB8EDF4BEF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138392.jpg" />
 </div>
 
 
@@ -349,7 +421,7 @@ magnet:?xt=urn:btih:DE4C4EDE6FD00BAE36FC3A9720816805230B5D1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138393.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Stellarium 0.17.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138395.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:1338F896DAA84A092D4BAE57189231B8D36E799F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138396.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:AFC8FE97C658B5E88F1533AFF3C60E217AEB6E0D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138397.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:D81B423EF3C98016072462AF8CFACC56CD5E9759
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138399.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ magnet:?xt=urn:btih:88301351A7E36EB732A28F923A1ABDADDFEDE133
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138400.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ magnet:?xt=urn:btih:F53D9BF5E6745EBE7A754DC6194D938F1A26C2F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138401.jpg" />
 </div>
 
 
@@ -519,7 +591,7 @@ magnet:?xt=urn:btih:78113F3FB7EFC3A4D842E0614E4A02FAC4D830A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138404.jpg" />
 </div>
 
 
@@ -543,7 +615,7 @@ magnet:?xt=urn:btih:A68B3968C8E72AC21DC0436D402AF849C7BD2158
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138405.jpg" />
 </div>
 
 
@@ -554,78 +626,6 @@ magnet:?xt=urn:btih:A68B3968C8E72AC21DC0436D402AF849C7BD2158
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:201AD5648D46C3034882DE7772CEEE5796AE9562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436183   (138406) от 30.12.2020
-
-Александр Зайцев | Отражение (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный персонаж – военный корреспондент с опытом работы в горячих точках и страстью к фехтованию, которую привила ему жена, мастер спорта. Герой погибает в самом начале книги и попадает в тело подростка, обитающего в ином мире. Подросток непрост. Он рейг – воин излома. Иными словами, он способен перемещаться в параллельное пространство, в котором становится для (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, ПопаданцыПродолжительность: 12:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AB7B256ECAD332BDE8D7276A66A64B51EBADC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196062   (138407) от 31.12.2017
-
-Орел и решка. Звёзды (2017.12.31) WEB-DL [H.264/1080p-LQ] (Люксембург)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65686B2E953540D69B2D286F982E9224E456343B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970913   (138408) от 31.12.2015
-
-Skype 7.17.0.106 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7F8C03520E68B10659CC065AB4C2E25C7AAA0C
 ```
 
 

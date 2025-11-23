@@ -6,7 +6,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40446.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shogun Showdown (2023) [Ru/Multi] (1.0.2.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40447.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4E6D929925CCB566B2E54C73D538277F5987C67C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40448.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KMSAuto++ Portable 1.9.9 b03 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40449.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DFF278520650B5B9CF903FBE8A4E73EAFB067CAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40450.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ SnapEdit - AI photo editor v7.0.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40451.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F5F04A6B2B594178ECF9F5FAEB8041AB1E7284FF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40452.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40453.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Bria Mobile: VoIP Softphone v6.17.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40454.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A971CE86A0BA9A2D08916E7E869DDCA92824AE3A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40455.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:79A137EBE61F0FBC5D8199DD851094ED73A87E9D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40456.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9A7FD4E94202A261B70B8D9D6C6DA59C0FFD3471
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40457.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:69FF00F478117B75C84C794037FE73BEB7A1300F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40458.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:7920B652FE9A950C9B9FAF18AFCC9194241925AC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40459.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40460.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:EBA97EAE0C99E14C041D1A3376D4089948F3BBB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40461.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SnapEdit - AI photo editor v7.0.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40462.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:3B104415E9DC70D9421D3901EE56D81AB03509BF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40463.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:2EBC6105CDCBD2CBC74B3283944926D9D8664336
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40464.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:24A50DC2D640FFA3E73C9D12B33B61AA6437F3C5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40465.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:0508FCD3D9C4F66E1D13755D9A7FF1A1BFD0A1F3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40466.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Infornal FuckЪ - Музыка Категории Бэ (2024) [MP3|320 Kbps] <Pa
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40467.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:AD13077FC9F5A69345A4B1C79971D6E349D023DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40468.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40469.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:EC393508DF651E28CC3522BEC47BA9502BFFBD7C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40470.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:A3D6E99D2753C138FF8F0805B83C36B3CCC4CCAE
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40471.jpg" />
 </div>
 
 

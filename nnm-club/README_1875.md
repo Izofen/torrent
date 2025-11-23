@@ -6,7 +6,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49105.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49106.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49107.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49108.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4D9CE382FDBA9CF75157D90621F08BB15ED36459
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49109.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6A8187854639419440323B5163044A67E7466426
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49110.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PassMark RAMMon 3.3 Build 1000 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49111.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7C31F274E111B1D3A173DC7616AA1CA6DF47C525
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49112.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FDC0C772379EF88C1247177DD64E4D19A2362558
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49113.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Adobe Illustrator 2024 28.6.0.709 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49114.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Songs of Steel: Hispania (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49115.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Veeam Backup & Replication 12.1.2.172 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49116.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:67AD8091FCBECFE5845777CA3C0212967C4DE7C0
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49117.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Zet Zillions (2024) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49118.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:76FFD0200424987153027FA08AC330FABD7C8B5E
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49119.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:EE0ECE7B931242E44AC8F7C7A7377D8CE9F33362
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49120.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ FotoJet Collage Maker 1.3.0 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49121.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AF39B27872755EB82A3729A9FAA59DC43C176AFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49122.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ RizomUV Virtual Spaces / Real Space 2024.0.100 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49123.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D5237747AD7EAA472C36999A12F94BAB06D8B242
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49124.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:EABAF4ABB5A01078A2E2AAE1486794C97AA4E262
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49125.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:654E41E6CB827BA8941F17B5844C23AF3D8A3BC1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49126.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:EDC8A52EC11867110C7C5DA9F97AACC201D62AF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49127.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49128.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:566BFAFBA782FDC196A99AB909CF98BE5C4E69E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49129.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Adobe Substance 3D Sampler 2024 4.5.0 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49130.jpg" />
 </div>
 
 

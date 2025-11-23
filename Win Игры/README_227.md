@@ -6,7 +6,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122690.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122863.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RUN: The world in-between (2022) [Ru/Multi] (1.3.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123001.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123009.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123011.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123034.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123038.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ MotoGP 22 (2022) [Multi] (1.0.8.0/dlc) Scene DINOByTES
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123191.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123200.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123231.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123290.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123337.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123356.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123374.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123460.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123473.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123477.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123494.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123497.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123538.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123604.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123679.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123701.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123766.jpg" />
 </div>
 
 

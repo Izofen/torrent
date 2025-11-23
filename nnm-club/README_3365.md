@@ -1,3 +1,79 @@
+###  Публикация: 1734113   (107172) от 02.07.2024
+
+Lennie Tristano, Lee Konitz & Warne Marsh - The Complete Atlantic Recordings (1954 -1961) 6CD, 1997, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Not One [5:34]
+02. There Will Never Be Another You [4:48]
+03. Donna Lee [6:17]
+04. Don't Squawk [7:20](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 06:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C5713FA0F83F351E010E1E0A1CEA752F67323D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734259   (107173) от 02.07.2024
+
+Жизнь человеческая / Et menneskeliv (1910) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой ролик иллюстрирующий извечные вопросы. Что важнее в жизни? Жизнь конечна и силы наши ограничены, на все не хватит. Особенно, если начинаешь с низов. На что их тратить? Карьера или любовь женщины? Упорное движение к поставленной цели или простые житейские радости? А если вдруг решишь поменять приоритеты, не будет ли слишком поздно?
+Сохранились не все эпизоды.Производство: Дания / Regia Kunstfilms Co.Жанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Клара Понтоппидан, Адам Поулсен, Эксел СтрёмПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0AA15C41F80AA8AF4DDF027D76E5BC920C3734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734049   (107174) от 02.07.2024
+
+Как починить велосипед (2022) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Сарыал, сломав велосипед, боится, что его накажут. Он убегает из дома и попадает в неожиданные приключения.Производство: Россия / Sanaa CinemaЖанр: драмаРежиссер: Эр Санаа Ох-ХоторАктеры: Вадим Саввинов, Айсен Федоров, Валерий Андросов, Аким Федоров, Афанасий Лугинов, Дархан ТорговкинСубтитры: Русские (hardsub)Продолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D24D2FD73FD7FB083C86463ED94BED9AD0D1EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734274   (107175) от 02.07.2024
 
 EarthView 7.9.9 RePack (& Portable) by elchupacabra [Ru/En]
@@ -6,7 +82,7 @@ EarthView 7.9.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107175.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ Derek Harvey | Smithsonian. Did You Know? Animals (2021) [PDF] [EN]
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107176.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ magnet:?xt=urn:btih:22EB03348F49657ECDDE8BE589F7470ED049033E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107177.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ Opera One 111.0.5168.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107178.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:2D06B6B9AD24D130F2DE5F4AAFEF4E006C447FE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107179.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ ApowerREC 1.7.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107180.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ magnet:?xt=urn:btih:6103C628C2223A35826AE5C97C1503801BDECB44
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107181.jpg" />
 </div>
 
 
@@ -175,7 +251,7 @@ Shaila Brown (editor) | Smithsonian. Ocean (2015) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107182.jpg" />
 </div>
 
 
@@ -202,7 +278,7 @@ James Mitchem (editor) | My Encyclopedia of Very Important Animals (2017) [PDF] 
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107183.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107184.jpg" />
 </div>
 
 
@@ -256,7 +332,7 @@ magnet:?xt=urn:btih:B729216E3EAEF12045700CBB3BF4DA8F075D2742
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107185.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ magnet:?xt=urn:btih:F560FD7B2D5DBCC1E1C13D60DA2BF7D0818EB64C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107186.jpg" />
 </div>
 
 
@@ -307,7 +383,7 @@ Sandboxie 5.69.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107187.jpg" />
 </div>
 
 
@@ -331,7 +407,7 @@ magnet:?xt=urn:btih:A99146C7AE84EBA322CC315F64F183F9755B5840
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107188.jpg" />
 </div>
 
 
@@ -358,7 +434,7 @@ magnet:?xt=urn:btih:354C3A420118A5832CAAE9971A520F75C2C15A6E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107189.jpg" />
 </div>
 
 
@@ -384,7 +460,7 @@ Archie Shepp - 5 Original Albums (1964 - 1968) 5CD, 2018, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107190.jpg" />
 </div>
 
 
@@ -411,7 +487,7 @@ magnet:?xt=urn:btih:6237A40B737B08F5FD52C53E2BBDFA7D55FC5354
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107191.jpg" />
 </div>
 
 
@@ -440,7 +516,7 @@ Pallas - Arrive Alive (1981) Remaster, 2024, Esoteric [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107192.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ magnet:?xt=urn:btih:75F1029AF93F49E0596B6346C5F9442A18C5F064
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107193.jpg" />
 </div>
 
 
@@ -491,7 +567,7 @@ magnet:?xt=urn:btih:3626024B101C90D8A19921BDF17D841DEB4714DF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107194.jpg" />
 </div>
 
 
@@ -518,7 +594,7 @@ magnet:?xt=urn:btih:BB567D9BC86ED339F4C7189A1EFA06B8DA229708
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107195.jpg" />
 </div>
 
 
@@ -542,7 +618,7 @@ Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107196.jpg" />
 </div>
 
 
@@ -569,7 +645,7 @@ magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107197.jpg" />
 </div>
 
 
@@ -583,83 +659,6 @@ magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE0801230FE8371220E1E0DD4507CC38AFC44A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733875   (107198) от 01.07.2024
-
-Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melancholic Drone, Drone Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer [00:19:42]
-02. Distance [00:16:42]
-03. Return [00:02:39]Жанр: Melancholic Drone, Drone AmbientПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733911   (107199) от 01.07.2024
-
-Джозеф Шугерман | Искусство создания рекламных посланий (2021) [MP3, Jo]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся американский копирайтер, стоящий в одном ряду с такими рекламными личностями, как Дэвид Огилви, Джон Кейплс, Лео Барнетт, совершенно справедливо утверждает, что несмотря на технологические перемены, несмотря на развитие телевидения, Интернета, основные рекламные подходы остаются неизменными. Как остаются неизменными потребители – это, прежде всего, сами (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 04:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245084FCF5E306F480843E99854324BD4989C226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733908   (107200) от 01.07.2024
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Испания - Грузия (30.06.2024) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Испания - Грузия (30.06.2024)
-СУДЬЯ Летексье Франсуа (Франция)
-Судья на линии 1: Мюнье Сириль (Франция)
-Судья на линии 2: Рамуни Меди (Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE169C16CD9EAB8D92C6792416B6803FB2332B2
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86350.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86359.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86362.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86372.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86373.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86390.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86417.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dolphin является открытым исходным кодом Nintendo G
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86425.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86426.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86427.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86433.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86435.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86437.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86449.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Glass-Folders RocketDock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86451.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Glass-Folders RocketDock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86454.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86474.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0A9632FAF3F159628F3294A9E45C40876A1E6563
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86483.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:405A353CAA8B5C38397B83EA9F2B6D1CD1A431A3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86485.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:18EED5FE456B2C82A8AA7C1FC696305D6E15EF66
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86493.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4C873F318D87718A5A835D8D7C134C0A3E8EF15F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86496.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86500.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DF0707692BAB8D07D6A0C31740071854313A7316
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86503.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9FF83C3952A84A0729CD96C05051CA3715C834C2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86505.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FA59A8C9868D3846EB7F404A8D1FD724AF3ABCEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86516.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86519.jpg" />
 </div>
 
 

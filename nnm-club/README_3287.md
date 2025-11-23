@@ -1,3 +1,76 @@
+###  Публикация: 1745399   (105144) от 25.08.2024
+
+Balabolka 2.15.0.878 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
+Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260909533B0B591ECC9FD8BD2A33ADE2FE820ECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745212   (105145) от 25.08.2024
+
+AR Plan 3D: Линейка, Рулетка v4.8.13 Mod by srajawwal09 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105145.jpg" />
+</div>
+
+
+###  Подробнее
+
+AR Plan 3D – инновационное приложение, использующее дополненную реальность (AR) для быстрого измерения комнаты. Технология дополненной реальности AR позволяет использовать виртуальную линейку вместо обычной измерительной ленты-рулетки, делая процесс измерения и составления 3D плана помещения намного более удобным и быстрым.Тип издания: PremiumРелиз состоялся: 25.08.2024Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52383FFDAAEC2654F17791530D7528054677DB00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745309   (105146) от 25.08.2024
+
+Ба / The G (2023) WEB-DLRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочная пожилая женщина строит план мести для коррумпированного опекуна, который разрушил ее жизнь.Производство: Канада / 3Buck ProductionsЖанр: криминал, триллерРежиссер: Karl R. HearneАктеры: Dale Dickey, Romane Denis, Daniel Brochu, Richard Chevolleau, Greg Ellwand, Kathleen Fee, Jonathan Koensgen, Roc Lafortune, Anthony Jones Nestoras, Bruce Ramsay, Joe Scarpellino, Tanya van BloklandПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:25Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745239   (105147) от 25.08.2024
 
 Бой на вылет / EFC (2024) WEB-DLRip  [MVO] [AD]
@@ -6,7 +79,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105147.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ R-Studio Network 9.4 Build 191349 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105148.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:A4341173B1B0F53AB13AE19F944EFC24BDE61BE0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105149.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:F065CA03646167BBA2D41B0FEFD6D4E2DE2A233A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105150.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:655B73DF3711035330BD4CAD498283072FE65202
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105151.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ magnet:?xt=urn:btih:6F6370BD106E745EA025FF32262F9A5802A8F0E2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105152.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ NetLimiter 5.3.17.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105153.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ KORG - ARP 2600 1.0.6 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105154.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ CrystalDiskInfo 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105155.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ Human Fall Flat (2016) [Ru/Multi] (20240605) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105156.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105157.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105158.jpg" />
 </div>
 
 
@@ -303,7 +376,7 @@ Furnace - Trojan Hearse (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105159.jpg" />
 </div>
 
 
@@ -330,7 +403,7 @@ Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105160.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105161.jpg" />
 </div>
 
 
@@ -384,7 +457,7 @@ Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105162.jpg" />
 </div>
 
 
@@ -409,7 +482,7 @@ Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105163.jpg" />
 </div>
 
 
@@ -436,7 +509,7 @@ magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105164.jpg" />
 </div>
 
 
@@ -463,7 +536,7 @@ Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dru
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105165.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105166.jpg" />
 </div>
 
 
@@ -517,7 +590,7 @@ VA - Balearic Bar & Beach Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105167.jpg" />
 </div>
 
 
@@ -544,7 +617,7 @@ Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105168.jpg" />
 </div>
 
 
@@ -571,7 +644,7 @@ magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105169.jpg" />
 </div>
 
 
@@ -582,84 +655,6 @@ magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0545C2CB06C931FC5CEA12CC392FC937E29C4BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745042   (105170) от 24.08.2024
-
-Михаил Иноземцев - 1/4 века с поэтами (2024) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Колесо любви [00:04:20]
-02 - Пятый лепесток сирени [00:03:37]
-03 - Поздняя любовь [00:04:00]
-04 - Аллея опять в цвету [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745086   (105171) от 24.08.2024
-
-Екатерина Яшникова - Кончается лето (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завтра
-2. В танце
-3. История
-4. Мелочи(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F9EB2032DFEA5DC2496C6AB2DF230F59A34E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744965   (105172) от 24.08.2024
-
-PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 23.08.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E20568B0C4604F9760D743AC75E33CB9F9847D3
 ```
 
 

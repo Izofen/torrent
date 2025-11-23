@@ -6,7 +6,7 @@ Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42293.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42294.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:93B4AB659631AA93A33F65852C6B0E29B2BA90BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42295.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A557EF31D9AE6A6F43C5BD04111ABB32EA156CF3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42296.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Brenda Lee - Greatest Hits of Brenda Lee (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42297.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:373451FCDA225EDCD4BA1663DA89EDEF39AF30AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42298.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C386800ED7C6E60A8DCC0D9E1976A73AC75B9862
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42299.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Italian Restaurant Lounge Music (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42300.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Wise Care 365 Pro 7.0.5.686 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42301.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3DD8B5F809BE7F621F3739A1AE084CDA85D80B4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42302.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Richie Kotzen - Nomad (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42303.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42304.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42305.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42306.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42307.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:37E5A48AE0D4A43133C744E38B624CA55CE49738
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42308.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42309.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42310.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42311.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Luna Sol - Vita Mors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42312.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0.0.316/dlc) Repack Wanterlude
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42313.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:485219350486B5EE464507CFBAEE850FEC80FABC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42314.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:485219350486B5EE464507CFBAEE850FEC80FABC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42315.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:755BF531A274B42D2CD11E221418700C01EF7B30
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42316.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Rocking The Globe (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42317.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:742DF4D326E123334186CA9C2A469B6C3214BA4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42318.jpg" />
 </div>
 
 

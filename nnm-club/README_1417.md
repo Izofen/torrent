@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37196.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Watercolor Melodies (2024) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37197.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:43A422643DD034CDA83149E1E11906E0AA2B7136
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37198.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Musical kaleidoscope part 13 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37199.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:508E8EEEC70B25144516A0FC44663ACEA6414758
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37200.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Deep House 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37201.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Rockets - The Final Frontier (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37202.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:52BAB929786F0E603F54BDE698821A303600ADD9
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37203.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:1B3235D96CA315128353D9063E2759F708636DED
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37204.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gwen Stefani - Bouquet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37205.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tiesto - Live @ PRISMATIC, Forest Hills Stadium New York, United States (2024-10
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37206.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ eX-Driver the Movie | Экс-драйвер: фильм [2002, Movie + 3 SP] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37207.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:2A7938ECEA485A793A502D789209BDA50A17F569
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37208.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Linkin Park - From Zero (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37209.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ OCCT 13.1.11 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37210.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ES File Explorer File Manager v4.4.2.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37211.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SIV (System Information Viewer) 5.78 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37212.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Linkin Park - From Zero (Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37213.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B0FA7423FE340BF39A5AC3784A048D3E116005CD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37214.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E882B41E36FCF1951ACA22B94A081D36FE009E31
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37215.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:274032700C276C2B65438D587F7133ECCD47378F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37216.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2DEEE1AC88BC6F57FBA9DFC283DA1B62F0A5098C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37217.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0326CDF2C6D3DC51F3B8C0D3291927FD8D4FA54B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37218.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Shazam v15.0.0-241107 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37219.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Desktop Calendar 3.19.210.6795 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37220.jpg" />
 </div>
 
 

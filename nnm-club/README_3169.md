@@ -1,3 +1,84 @@
+###  Публикация: 1764671   (101502) от 08.12.2024
+
+Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Woman (4:05)
+02. Love Me Right (2:13)
+03. Love Ain't Nothin' but the Blues (3:43)
+04. Keep it to your Darn Self (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2724CFF845BB9D9BC217380B7C8D22ACBC5D2DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764704   (101503) от 08.12.2024
+
+Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got It Good (3:26)
+02. Time Lost (3:05)
+03. It Just Is (3:12)
+04. Flowers Die (3:24)(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764702   (101504) от 08.12.2024
+
+Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Food (0:52)
+02. Get The Dough Off (3:42)
+03. Panama Sun (feat. Marv Won) (3:29)
+04. Stones (3:46)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764703   (101505) от 08.12.2024
 
 Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
@@ -6,7 +87,7 @@ Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101505.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101506.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101507.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ magnet:?xt=urn:btih:015E1704D42BE4A56732672515A30355CB9E7EC3
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101508.jpg" />
 </div>
 
 
@@ -109,7 +190,7 @@ The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101509.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101510.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101511.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101512.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101513.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:9837E34E0B885FA76128198683C0A2D04D57795A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101514.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ Seefeel - Everything Squared (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Dub, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101515.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ Fighter V - Heart Of The Young (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101516.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ Fate - Reconnect 'n Ignite (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101517.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ magnet:?xt=urn:btih:BC5D90226CAFAE3E3961B1B46D5A8959C7A579AD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101518.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ magnet:?xt=urn:btih:83E563791602AB9A6BBE33DB2A7B43B9048F83F1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101519.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Powell-Payne - Voilà (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101520.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ King King Kings - Can't Keep from Crying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101521.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ Sly & The Family Stone - The Best of Sly & The Family Stone (2024) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101522.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ magnet:?xt=urn:btih:3AC534737EF7ABB1562BB2CFB2D3EFC92E059CFB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101523.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101524.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ The Old Dead Tree - Second Thoughts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101525.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ Brazen Abbot - Bad Religion (1997) Remastered, 2024, Frontiers Records s.r.l. [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101526.jpg" />
 </div>
 
 
@@ -583,7 +664,7 @@ magnet:?xt=urn:btih:962A7069B255BE2DDE5A79D97F71F3F6CE05D0BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101527.jpg" />
 </div>
 
 
@@ -595,83 +676,6 @@ magnet:?xt=urn:btih:962A7069B255BE2DDE5A79D97F71F3F6CE05D0BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C0831C3FE25F709CBF06B2C13224857F8E8AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764487   (101528) от 07.12.2024
-
-НХЛ 2023-2024. Питтсбург Пингвинз - Нью-Йорк Рейнджерс (06.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101528.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 октября 2024, четверг. 02:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 190 зрителей (97% при вместимости 18 673)
-Главный судья: Джейк Бренк (Детройт Лейк, США); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0309F63055A76E19AC722DF3546F863A6BA48F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764505   (101529) от 07.12.2024
-
-Живая еда с Сергеем Малозёмовым (07.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашняя паста и лапша — итальянская, китайская, узбекская и японская: правда ли сделанная своими руками лучше магазинной? Шеф-повар из Италии раскрыл секреты идеальной пасты и рассказал о тонкостях приготовления в комбайне и руками.
-  Действительно ли пальмовое масло опасно, что говорят о нем диетологи и правда ли, что в Россию привозят грязное техническое пальмовое (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA7CDC2F1FC17EE7CE8BBD8C22E4490E6C18DC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764477   (101530) от 07.12.2024
-
-Scarred For Life - Scarred For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Mutha Fucka 03:53
-02. Hung Like Jesus 04:39
-03. Good Question 04:25
-04. 9 Times Out Of 10 03:34(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1E8CC8BE6FB3A41DA8DD0674A9D4C8B260C3CA
 ```
 
 

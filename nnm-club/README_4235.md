@@ -1,3 +1,78 @@
+###  Публикация: 1525154   (130087) от 19.01.2022
+
+PSPaudioware - PSP Plugins Bundle 01.2022 VST, VST3, AAX (x64) RePack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор VST плагинов от PSPaudioware для обработки звука и мастеринга.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E2155242F663A7CFCCF6662914CA4E3BCA914D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525257   (130088) от 19.01.2022
+
+Российский аудиофонд | Коллекция "Старое Радио" [Е] (2022) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции сайта  "Старое Радио" по состоянию на январь 2022 года.Жанр: РадиозаписиПродолжительность: 217:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AF1A5DCE772899957CF1D5C024F96E87F573B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525114   (130089) от 19.01.2022
+
+The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Honey (Live) (03:33)
+ 02. The Living End (Live) (02:20)
+ 03. Taste the Floor (Live) (03:34)
+ 04. The Hardest Walk (Live) (02:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED32CE9BA8C61FB6B6006FC47319FB7BC34BD9A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525135   (130090) от 19.01.2022
 
 Комната №13 / Zimmer 13 (1964) BDRip [H.264]
@@ -6,7 +81,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130090.jpg" />
 </div>
 
 
@@ -31,7 +106,7 @@ Sketch 82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130091.jpg" />
 </div>
 
 
@@ -55,7 +130,7 @@ Nomad Factory - 80s Spaces 1.0.2 VST, VST3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130092.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ Twelve Foot Ninja - Vengeance (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130093.jpg" />
 </div>
 
 
@@ -107,7 +182,7 @@ Adobe Photoshop CS6 13.0 RePack by MarioLast (32-bit) [Русский, Укра�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130094.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130095.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130097.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:3D4AA4173199464449BB655B2C6C4EF2200490DB
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130098.jpg" />
 </div>
 
 
@@ -208,7 +283,7 @@ magnet:?xt=urn:btih:749A826A1EA83FD5284F6DD4B0D150DE8D33247B
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130099.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ SUMo Pro 5.14.9.516 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130100.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130101.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ magnet:?xt=urn:btih:8D2DBD29B81A8E0988A954E271A7BE9ED7E60548
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130103.jpg" />
 </div>
 
 
@@ -307,7 +382,7 @@ magnet:?xt=urn:btih:8D2DBD29B81A8E0988A954E271A7BE9ED7E60548
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130105.jpg" />
 </div>
 
 
@@ -331,7 +406,7 @@ TreeSize Professional v5.5.5.816 Final Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130106.jpg" />
 </div>
 
 
@@ -355,7 +430,7 @@ TreeSize Professional - данная программа показывает д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130108.jpg" />
 </div>
 
 
@@ -379,7 +454,7 @@ magnet:?xt=urn:btih:475698DDE659447B2A573992D262E5111F70C8D8
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ magnet:?xt=urn:btih:5D62303D6899536334C74533BD68EF1EAC74883F
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130110.jpg" />
 </div>
 
 
@@ -429,7 +504,7 @@ RadioBOSS Advanced 6.1.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130111.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:192B910752373E8D38C215672FDCFA3EDD6755D9
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130112.jpg" />
 </div>
 
 
@@ -479,7 +554,7 @@ magnet:?xt=urn:btih:0F06130065E86E818F1DD0DD4CC025EF86A19ECB
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -503,7 +578,7 @@ Global Operations [Ru] (RePack) 2002 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130114.jpg" />
 </div>
 
 
@@ -528,7 +603,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130115.jpg" />
 </div>
 
 
@@ -552,7 +627,7 @@ Windows and Office Genuine ISO Verifier 11.10.24.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130117.jpg" />
 </div>
 
 
@@ -564,78 +639,6 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2227242D043F404281635A89CC611281A595E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525285   (130118) от 19.01.2022
-
-Sandboxie 5.55.8 / Sandboxie Plus 1.0.8 RePack by Umbrella Corporation [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песочница Sandboxie повышает уровень безопасности Вашего ПК при интернет-серфинге, предотвращает проникновение вирусов, Spyware и других угроз.Язык интерфейса: Русский, Английский, и другие ...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA262A8A4D876E190A79A447C30F7C466EA3D29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491171   (130120) от 02.05.2012
-
-Adobe Audition CS6 5.0 build 708 RePack by MKN [Английский]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Audition – профессиональный инструмент для работы с аудио-файлами, предназначенный для специалистов в области обработки аудио и видеопродукции. Adobe Audition предлагает неограниченные возможности микширования, редактирования, создания мастер-копий и обработки звуковых спецэффектов. Продукт совмещает гибкость технологического процесса с предельной простотой в использовании и позволяет создавать разнообразную аудио-продукцию высочайшего качества.Название программы: Audition CS6Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525225   (130121) от 19.01.2022
-
-Яндекс.Браузер 22.1.1.1543 / 22.1.1.1544 (x32/x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE057F64A0A4DB2E68E9B64DA94A8B66E67521C
 ```
 
 

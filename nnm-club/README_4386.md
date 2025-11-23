@@ -1,3 +1,78 @@
+###  Публикация: 593137   (135211) от 23.12.2012
+
+Буссенар Луи, Лагун Павел | Капитан Сорви-голова (4 книги) [1900-2004] [FB2]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Жана Грандье насыщена приключениями. Открыв золотые россыпи в Клондайке, он вернулся на родину во Францию сказочно богатым. Не обошла его стороной и военная Крымская компания. Но, одержимый жаждой путешествий, Жан не может жить спокойно. Создав отряд добровольцев, состоящий из таких же мальчишек, каки он, Жан отправляется в Южную Африку сражаться против английских (   Читать дальше...   )Издательство: РазныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082C4EA137261A37B6FC1BA7CE99E00F76F3A171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679531   (135212) от 26.11.2023
+
+Glenn Hughes & Robin George - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying [00:04:24]
+02. Overcome [00:04:04]
+03. I Want [00:03:51]
+04. Haunted [00:03:56](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B136B8A42779544968D1CAE14C4BFD2F558E78D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593224   (135213) от 23.12.2012
+
+Espresso 2.0.5 [Eng]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_135213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Espresso - программа для веб-разработчиков и веб-дизайнеров, которая в будущем может составить серьезную конкуренцию известной программе Coda от компании Panic. Espresso соединяет в себе текстовый редактор с подсветкой синтаксиса большого количества языков разметки и программирования (html, xml, php, javascript и т.п.), FTP-клиент и продвинутый редактор файлов CSS.Название программы: EspressoРелиз состоялся: декабрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679786   (135214) от 26.11.2023
 
 Necronomicon - Screams (1994) Reissue, 2019, Metal Command Records [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +81,7 @@ Necronomicon - Screams (1994) Reissue, 2019, Metal Command Records [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135214.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135217.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135217.jpg" />
 </div>
 
 
@@ -66,7 +141,7 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135218.jpg" />
 </div>
 
 
@@ -90,7 +165,7 @@ Corel AfterShot Pro 1.1.0.30 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135220.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135220.jpg" />
 </div>
 
 
@@ -114,7 +189,7 @@ Vehemence - Helping The World To See (2004) [APE|Lossless|image + .cue] <Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135221.jpg" />
 </div>
 
 
@@ -141,7 +216,7 @@ Lucky Patcher 11.0.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135222.jpg" />
 </div>
 
 
@@ -165,7 +240,7 @@ magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135223.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ magnet:?xt=urn:btih:5168D72D39E4B6CECB531EBF6AC64A3AAF3E2700
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135224.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ Pan-Pot - Forte (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronica, Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135225.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ The Concert For Sandy Relief 12-12-12  (2012) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135226.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135226.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ The Concert For Sandy Relief 12-12-12  (2012) HDTVRip
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135227.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ Aiseesoft DVD Software Toolkit Ultimate 6.3.60 Repack by Casper03 [Мульти/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135228.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135228.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ Aiseesoft DVD Software Toolkit Ultimate - мощный пакет програм
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135229.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ magnet:?xt=urn:btih:CAA0E3E959BD4CF18C613FD737F0F87DC7B6FD1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135230.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ Seal 1.11.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135231.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ Super-AI Photo Enlarger for Mac 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135232.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:F3D73A56437DB22272FDF39821F133FDC440169F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135234.jpg" />
 </div>
 
 
@@ -432,7 +507,7 @@ magnet:?xt=urn:btih:54A775174763C24327561B99FA7D798D986BA175
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135235.jpg" />
 </div>
 
 
@@ -456,7 +531,7 @@ Spoonful Of Blues - Songs From Notodden Norway (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135237.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:9DB375DEC1C1CCB5CEAFEC7AEB37FFAA0A4EFDE0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135239.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ magnet:?xt=urn:btih:088CA6DB92B5CA38B842EA104D8712EF5AF6DF90
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135241.jpg" />
 </div>
 
 
@@ -533,7 +608,7 @@ magnet:?xt=urn:btih:0D5A1348C7FA31B383EA8B17DE9FDBD97D3C9E45
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135243.jpg" />
 </div>
 
 
@@ -560,7 +635,7 @@ ROSA 2012 GNOME - Alpha (Национальная программная пла�
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135244.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135244.jpg" />
 </div>
 
 
@@ -573,81 +648,6 @@ GNOME Edition стал уже очередным продуктом, котор�
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679749   (135245) от 26.11.2023
-
-SuperDuper! 3.8 ARM [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135245.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.09.2023Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007A2EA7991FC62280B639488B85797FA2F4957D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583589   (135246) от 23.12.2012
-
-Эта замечательная жизнь / It's a Wonderful Life (1946) 2xDVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135246.jpg" />
-</div>
-
-
-###  Подробнее
-
-По книге "Величайший подарок" Филипа Ван Дорена Стерна. Действительно лучший праздничный подарок на все времена. Эта согревающая сердце фантазия, один из самых популярных фильмов за всю историю кино, начинается с того, что ангелы обсуждают Джорджа Бэйли (Джеймс Стюарт), жителя небольшого городка, настолько расстроенного бесчисленными проблемами, что он подумывает о самоубийстве в канун Рождества. Ретроспекцией дается жизнь Джорджа, мы узнаем, что он всегда хотел уехать из родного города, чтобы повидать мир, но обстоятельства и его собственное доброе сердце не дали ему покинуть Бедфорд Фоллз. Он пожертвовал собой ради образования брата, он копил каждый цент, чтобы поддерживать семью на плаву, брал взаймы, защищал городок от злого банкира Поттера (Лайонел Бэрримор), он женился на девушке, которую любил с детства (Донна Рид) и содержал и эту семью. И вот, в настоящем, Джордж готовится прыгнуть с моста, но вместо этого спасает своего ангела-хранителя, Клэренса Оддбоди (Хенри Трэверс), который явился отрабатывать (   Читать дальше...   )Жанр: Фэнтези, МелодрамаРежиссер: Фрэнк Капра / Frank CapraАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчел, Генри Треверс, Бела Бонди, Фрэнк ФэйленПеревод: Многоголосый закадровый DVD RONEe'S, Многоголосый закадровый SomeWax, Многоголосый закадровый DVD Магия, Многоголосый закадровый ОРТПродолжительность: 02:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8733245CF8CC73D5DB747CFE6C1C3A5D97611D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679560   (135247) от 26.11.2023
-
-Walter Wolfman Washington - Feel So At Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel So At Home Here (4:42)
-02. Without You (5:14)
-03. Along About Midnight (5:15)
-04. Lovely Day (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676473BD081CE34B523D7C7844A88E273248D5B9
 ```
 
 

@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151321.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:C0AFC5E8FA06CAA3F477D4BA5BC298CB89307CA4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151419.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151472.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Disco-Light Orchestra - Disco Sensation (1979) 2LP [MP3|320 Kbps] <Disco, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151473.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Captain Mustache - 2 Albums (2023, 2025) [FLAC|Web-DL|tracks] <Indie Dance, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151598.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Captain Mustache - 2 Albums (2023, 2025) [MP3|320 Kbps] <Indie Dance, Disco, Hou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151607.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Anne Murray - The Ultimate Christmas Collection (2020) [MP3|320 Kbps] <Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151651.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151731.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151735.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Workout Body Fitness 2018 (2018) [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151743.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:7DD20328D84C6416767195EC6C049F27D92C6690
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151988.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Si
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152030.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152427.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152437.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Li
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152469.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - 538 - Hitzone - Best Of (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152482.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - La Chanson de l'Annee 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152494.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152526.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Thomas Anders - Christmas For You (2012) Deluxe Edition [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152543.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152548.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Sarah McLachlan - Wonderland (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Ch
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152588.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - ADE 2018 (2018) 2CD [MP3|320 Kbps] <Dance, House, Funky, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152624.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Jeanette - 3 Albums (1976-1984) LP [MP3|320 Kbps] <Latin, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152657.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - RTL Weihnachten (2014) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152689.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:1D2B9715F1B61BEF586F7D37A7937EA17A91C580
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152738.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:06D7A4A1FC0A4E4F15AD8DDFF3CBBCE46B3B9B1F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152761.jpg" />
 </div>
 
 

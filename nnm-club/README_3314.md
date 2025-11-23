@@ -1,3 +1,75 @@
+###  Публикация: 1740500   (105846) от 02.08.2024
+
+Журнал | Главбух №15 (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9ECF6FB1395074F6B174343109D88B215576636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740498   (105847) от 02.08.2024
+
+Журнал | Главбух №14 (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42383541A1F3F566E277D07DFF3C37AD6AEC9A14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740380   (105848) от 02.08.2024
+
+Неспокойной ночи / Nightman (2023) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс вместе с мужем переезжает в дом его детства в небольшой городок. Вскоре она замечает, что в городе происходят странные вещи, а муж начинает ходить во сне — девушке кажется, что она сходит с ума. Тогда Алекс решает разобраться, что происходит на самом деле.Производство: Бельгия, Beside Productions, Black Swan Tales, Entre Chien et LoupЖанр: ужасыРежиссер: Мелани ДеллойАктеры: Зара Девлин, Оуэн Даффи, Марк Хуберман, Джейс Бэйли Кеннеди, Миб Леонард, Миб Магуайр, Элизабет Мойнихан, Айн Ни ЛаогэрПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740333   (105849) от 02.08.2024
 
 Отпуск на колесах / Prazdniny s Brouckem / Holiday On Four Wheels (2024) WEB-DLRip [H.264/1080p] [DVO] [AD]
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105849.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105850.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105851.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ VA - Electronica Confessions, Vol. 6 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105852.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ VA - Electronica Confessions, Vol. 8 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105853.jpg" />
 </div>
 
 
@@ -138,7 +210,7 @@ VA - Electronica Confessions, Vol. 9 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105854.jpg" />
 </div>
 
 
@@ -165,7 +237,7 @@ magnet:?xt=urn:btih:1689716FD3C981B429B1A801F19DA9ADC03AEC9A
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105855.jpg" />
 </div>
 
 
@@ -189,7 +261,7 @@ magnet:?xt=urn:btih:4CD304946F3A70BC2D7E7A2020344F5C7B1F45DD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105856.jpg" />
 </div>
 
 
@@ -213,7 +285,7 @@ magnet:?xt=urn:btih:B05CEAC1BB3B5377A011B033106AE496B64715CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105857.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ magnet:?xt=urn:btih:D2EA659D20343F9403191909C73259CDC70FA1A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105858.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ magnet:?xt=urn:btih:C4F1AB3AF11B52C44B41E3C18505A1864C77E9A5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105859.jpg" />
 </div>
 
 
@@ -288,7 +360,7 @@ magnet:?xt=urn:btih:E81B0B1DBFE552B017FD658CFE5CD85A6D277CE6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105860.jpg" />
 </div>
 
 
@@ -312,7 +384,7 @@ magnet:?xt=urn:btih:EC3CEB85FC4F588262B822AA290A481D7D3C0759
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105861.jpg" />
 </div>
 
 
@@ -336,7 +408,7 @@ magnet:?xt=urn:btih:713ECA13384FD8171BCCF6D32E062E1A5B1A0033
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105862.jpg" />
 </div>
 
 
@@ -360,7 +432,7 @@ magnet:?xt=urn:btih:A2622E4802693A1541860EB016602D71A19F1AEC
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105863.jpg" />
 </div>
 
 
@@ -384,7 +456,7 @@ magnet:?xt=urn:btih:A85806E2F5D827A609BC91FDDE2DA23C184C73BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105864.jpg" />
 </div>
 
 
@@ -408,7 +480,7 @@ magnet:?xt=urn:btih:A1566F42DA7A1270C6D44DBD0B35C47750B268A1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105865.jpg" />
 </div>
 
 
@@ -432,7 +504,7 @@ The Crystal Method - The Trip Out (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105866.jpg" />
 </div>
 
 
@@ -459,7 +531,7 @@ magnet:?xt=urn:btih:80F72CCCEC4A4380734A4EE8BC2C6349FC125F10
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105867.jpg" />
 </div>
 
 
@@ -483,7 +555,7 @@ magnet:?xt=urn:btih:A5A637CCEDED97AAA9457864B72B76C4DE2BCC81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105868.jpg" />
 </div>
 
 
@@ -507,7 +579,7 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105869.jpg" />
 </div>
 
 
@@ -531,7 +603,7 @@ magnet:?xt=urn:btih:99F3713DD9DC5FE983558EECD82D2B041756976F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105870.jpg" />
 </div>
 
 
@@ -555,7 +627,7 @@ VA - Про жуликов и воров (2012) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105871.jpg" />
 </div>
 
 
@@ -569,81 +641,6 @@ VA - Про жуликов и воров (2012) [MP3|320 Kbps] <Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:109A3CDE7667C57B765B99845E23CFF4BCA3DD57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740363   (105872) от 02.08.2024
-
-Клинок сомнения / Fang (Pang) huang zhi ren / Hovering Blade (2024) WEB-DLRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охваченный яростью и горем, мужчина разыскивает убийц своей дочери. После того как его дочь была жестоко изнасилована и убита группой несовершеннолетних, отец-одиночка Ли Чан Фэн решает лично отомстить за её смерть. Погружаясь в мир насилия и мести, он вступает в опасную игру не только с преступниками, но и с полицией. Его путь становится все более кровавым и отчаянным, (   Читать дальше...   )Производство: КитайЖанр: детектив, триллер, криминалРежиссер: Чэнь ЧжоАктеры: Ван Цяньюань, Ван Цзинчунь, Алан Аруна, Ци Си, Ван Тяньчэнь, У Шуан, Чжан Юхао, Чжоу ЧжэнцзеПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:42Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2B473180F4BCD0A5D79C7D6D472CA574E4F779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740446   (105873) от 02.08.2024
-
-Йорш - Счастье! Конец (2024) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105873.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как у Кобейна
-2. Глава 7. Синяя пустошь
-3. Журавли
-4. БуревестникЖанр: Punk RockПродолжительность: 00:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3963CB154C36F3D3F4AC54B5C130DAE61A8C84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740599   (105874) от 02.08.2024
-
-Б.Н. Чичерин | О народном представительстве (1899) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Б.Н. Чичерин относится к числу тех, кто способствовал обоснованию идеи парламентаризма в России, и среди его работ в этом плане сыграла значительную роль книга "О народном представительстве", выпущенная товариществом Сытина в серии "Библиотека для самообразования" в 1899 г. Окончив юридический факультет Московского университета, в 1853 г. он защитил (   Читать дальше...   )Жанр: МонографияЯзык: Русский (дореформенный)Издательство: Типография Товарищества И.Д. СытинаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D2A80867C24B61E1398B9F3D29D22A33E0A7E2
 ```
 
 

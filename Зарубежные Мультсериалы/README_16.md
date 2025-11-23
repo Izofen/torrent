@@ -6,7 +6,7 @@ Off the Air (2011-2021) WEBRip [H.264/1080p] (сезон 1-11, серии 1-42 �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165704.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CF3F1CA1D9A4A169B197490C5BDF52198F71494D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166466.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166466.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B333629A2D932284726E883B9A323DE624AE0578
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166640.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F7538C7D629CC4C0B90906EEA0FB4E969A5D7A53
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166817.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AAA274655B0F0F3B7C8BAD15734D87E45B81AB57
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166834.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:17B5C8E9C3B01669D1DD3C80D95F993575929488
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167003.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:38BA37156348DA19C7F3AFA7A268271F7233B05F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167435.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:538E2A15067B341324C50450AE6E77F877AF6190
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167560.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EF33EAAF7A200FCA37A28484C5FD39CFA9D27B01
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168550.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169691.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169735.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1C90136DFCA512BCA3206133578C688511E40360
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169879.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EEEAF6C87945CC3D892D5DBCD0ACB520BC6C3FC4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169936.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:92CE582F5C1B208E9E71D511CF1DA6DA73D26F01
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170130.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:30683DB439D02DB11DC13ED9D6AC585F8BE0D064
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170257.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:77908C1579AC23C3B3BD6FED2DD12946951A3069
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170773.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:997B0EC81FCF495CCF21DEF81A3888C18D506206
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170779.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:4935FA74E642200AAF9922F86072EF200EB67265
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171331.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:5791D3204BDE641E8090F7A322B7958F741D505F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171365.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:52C6C198A2B4DBBE3420D88A0B89CCE2D15B00CD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172773.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:DD44D95BE37D3B54C081D5A3E3A92D3D1BE50C3C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172951.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:64F78F71CE4DF9E85BFDA6A054F52B8A5F5839D7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172963.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:9B7436FE0AF7D168E8995BC64168B70368BAEB37
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173487.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BF5AFAA0AA2653FA27C048DA5C0A6184BDB3C022
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173541.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:A163B648308382A68699C8A1B580616B69DA0032
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173655.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_173655.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:A9AF67FF7460E2B8DE1C90A574F94B97C3D7FD2C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173681.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1733002   (107302) от 28.06.2024
+
+Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LOST (3:32)
+02. Restored (4:41)
+03. Live Without (4:21)
+04. Lifeline (feat. McRocklin) (4:00)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C03EEE2794D08E9B7311D3B308A88B0D7EDC58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733165   (107303) от 28.06.2024
+
+VA - Redux Selection Vol. 7 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryn Whiting - We Are Home (Extended Mix) (07:35)
+02. James Kitcher & Adam Taylor - Starlight (Extended Mix) (05:51)
+03. Matthew Dreamer - Back To Me (Escea Extended Remix) (06:19)
+04. NickXTG - Karma (Extended Mix) (07:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C45E3EE587053199A6F386E125370152CAAD628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733407   (107304) от 28.06.2024
+
+MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (2024-06-21) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. HELLMATE & Santiago & Carlitos & Chantal Lewis-Brown - Show Me Love
+03. Marshall Jefferson & Solardo - Move Your Body
+04. Jerry Ropero & Denis The Menace ft. Jaqueline - Coraçao(   Читать дальше...   )Жанр: HouseПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6379562532FFB0BCB7D5B5E10089C408A2C33917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733228   (107305) от 28.06.2024
 
 Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +87,7 @@ Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107305.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Pryne - Gargantuan (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107306.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107307.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107308.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:9BF0CE5F0C7C64C5CC7CE8F4F9597CBC0337482D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107309.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107310.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107311.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107312.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107313.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ PrivaZer Pro 4.0.88 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107314.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Anims - Good 'n' Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107315.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ magnet:?xt=urn:btih:C76EFCCB317D114153AEEF27FCA77331D785A06B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107316.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ Fort Firewall 3.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107317.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ VA - Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107318.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ magnet:?xt=urn:btih:92C76124876EB55F8DFF4E80664B7868BEA5A38D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107319.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ Skype 8.122.0.205 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107320.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ magnet:?xt=urn:btih:6BC4679AC290AEE3B1C6F2270B32333D8AF92DE8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107321.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ Opera One 111.0.5168.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107322.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ magnet:?xt=urn:btih:4B7EDCCCFE57AAA295F19F9248EBFA3B41203A7B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107323.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ magnet:?xt=urn:btih:AED27FE3E4EB3ABBA2370854D94C501443B91E92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107324.jpg" />
 </div>
 
 
@@ -518,7 +599,7 @@ magnet:?xt=urn:btih:AED27FE3E4EB3ABBA2370854D94C501443B91E92
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107325.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ magnet:?xt=urn:btih:E0CDB58109CF694C439B71DA85A92C8EF0E192E2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107326.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ magnet:?xt=urn:btih:1B36C5A2720DED208CC24EC0E988EE475C65DEE1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107327.jpg" />
 </div>
 
 
@@ -579,87 +660,6 @@ magnet:?xt=urn:btih:1B36C5A2720DED208CC24EC0E988EE475C65DEE1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C49F91670E197F01F452F283A581D959BCC6C5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733145   (107328) от 28.06.2024
-
-Изумрудный Город - Дуэль (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дуэль
-2. Украду
-3. Стенка
-4. Русская рулетка(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00EAE4EC9D1C02736908584DA236D7F0A38F200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733150   (107329) от 28.06.2024
-
-para bellvm - Это я (2024) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это я (Вас задел)
-2. Что я буду делать завтра (1998 Version)
-3. На реке
-4. Тоннель (1999 Version)(   Читать дальше...   )Жанр: Gothic Rock, Dark RockПродолжительность: 00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842B728FD21ED5E6F9E464EC294C36E6007DEF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733172   (107330) от 28.06.2024
-
-Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atlantic [FLAC 24/96,192|Lossless|WEB-DL|tracks] <Progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Original Album Remastered
-Disc 2: Remixes & Instrumentals
-Disc 3: Rarities(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 4CD, 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595B09B6BB4FA6C83BC8D36BBE7D2A9FDBCC2A46
 ```
 
 

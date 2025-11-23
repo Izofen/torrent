@@ -6,7 +6,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115526.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115528.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115530.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115531.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I'm in Love with the Villainess | Я влю
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115535.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115536.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Klutzy Witch | Rakudai Majo: Fuuka to Yami no Majo | Ведьма-неуда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115540.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115542.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь гл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115552.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115557.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115561.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tensei Kizoku no Isekai Boukenroku: Jichou o Shiranai Kamigami no Shito | Пут
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115576.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115639.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gekijouban Psycho-Pass: Providence | Психопаспорт: Провиден�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115881.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115885.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115895.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115901.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115912.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115913.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115914.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117280.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117819.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Buta no Liver wa Kanetsu Shiro / Heat the Pig Liver / Разогревай св�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119063.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023)
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122765.jpg" />
 </div>
 
 

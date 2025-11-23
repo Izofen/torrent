@@ -1,3 +1,75 @@
+###  Публикация: 1658529   (191236) от 08.09.2023
+
+Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frolomuse - бесплатный музыкальный плеер, с мощным эквалайзером, стильным дизайном и другими функциями, которые сделают прослушивание музыки удобным и приятным. Огромное количество опций для просмотра и прослушивания музыки заставит вас полюбить это приложение. Наслаждайтесь музыкой с музыкальным плеером Frolomuse!Тип издания: PremiumРазработчик: FroloAppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCA6952521C9707121183B4953F52FECD835146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588569   (191266) от 05.11.2022
+
+Jellify - Живые фотографии v1.4.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_191266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jellify – приложение которое может накладывать забавные фотоэффекты. Но помимо этого, вы сможете создавать забавное изображение, так еще и сможете анимировать готовую фотографию. После ваших внесенных исправлений она оживет, и те части, которые вы исправили, будут двигаться. Вы можете сделать это как с фотографией из вашей галереи, так и с только что сделанной фотографией. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.10.2022Разработчик: Vacuapps s. r. o.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1743FF752E449E1BB62F71E5D23F0FB67E2FFE21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658531   (191275) от 08.09.2023
+
+Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frolomuse - бесплатный музыкальный плеер, с мощным эквалайзером, стильным дизайном и другими функциями, которые сделают прослушивание музыки удобным и приятным. Огромное количество опций для просмотра и прослушивания музыки заставит вас полюбить это приложение. Наслаждайтесь музыкой с музыкальным плеером Frolomuse!Тип издания: PremiumРазработчик: FroloAppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658317   (191430) от 07.09.2023
 
 µTorrent® Pro - Torrent App 7.6.7 Mod by ModdingUnited [Ru]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191430.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191430.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191485.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191485.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ BSPlayer Pro 3.19.247-20230828 Mod by ferhad.necef [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191777.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191777.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ ibis Paint X 10.2.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191801.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191801.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191814.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191814.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191851.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192116.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192116.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ VPN Inf - Security Fast VPN 7.5.824 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192215.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192215.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192248.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ Unified Remote v3.21.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192250.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192250.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Windy.com - Weather Forecast 39.1.5 Mod by Jenny66 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192363.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192363.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Windy.app: погода и ветер 40.0.6 Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192378.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192378.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192513.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192513.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192530.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192530.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192543.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192543.jpg" />
 </div>
 
 
@@ -371,7 +443,7 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192546.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192546.jpg" />
 </div>
 
 
@@ -395,7 +467,7 @@ magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192553.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192553.jpg" />
 </div>
 
 
@@ -419,7 +491,7 @@ Flibusta Downloader v4.5.1 Test [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192569.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192569.jpg" />
 </div>
 
 
@@ -443,7 +515,7 @@ magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192596.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192596.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ FFmpeg Медиа-кодер v6.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192664.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192664.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192762.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192762.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:3C1934C23C1F1F96F85FE22573B792F834B4EBE2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192815.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192815.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192918.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192918.jpg" />
 </div>
 
 
@@ -553,79 +625,6 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11FA63D23C59B24BA83010243533284988C1F697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657114   (192955) от 02.09.2023
-
-iTranslate  v5.10 Mod by Dymonyxx [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192955.jpg" />
-</div>
-
-
-###  Подробнее
-
-iTranslate – один из лучших переводчиков и словарей. С ним вы сможете легко и быстро переводить тексты и общаться с людьми на 100 языках. А новый режим работы без подключения к интернету позволит не волноваться о расходах на роуминг.Тип издания: ProРелиз состоялся: 22.08.2023Разработчик: iTranslateПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657159   (193002) от 02.09.2023
-
-DIGI Clock Widget Plus 3.3.2 (build 25412) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193002.jpg" />
-</div>
-
-
-###  Подробнее
-
-DIGI Clock - отличный способ персонализировать виджет часов на рабочем столе мобильного устройства. Проект предлагается широкий выбор размеров, внешнего вида, цветов, шрифтов, форм и всего прочего, что поможет получить идеально подходящий вариант. Что будет целиком и полностью отвечать запросам самых требовательных людей. При этом сама программа во многом может быть (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 21.07.2023Разработчик: ForestTreeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066A338F78B4455D1023F739D770122B9B1A93C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456914   (193042) от 29.10.2022
-
-Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193042.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Калькулятор схем» - это автономный инструмент проектирования электроники для инженеров. Удобство, наглядность и возможность найти оптимальное решение за минимальное время. 140+ топологий аналоговых схем, 40+ электронных калькуляторов, 20+ замечаний по применению, логический решатель.
-Этот инструмент для проектирования электроники разработан инженером для инженеров (   Читать дальше...   )Тип издания: Full с Маркета (Paid)Релиз состоялся: 16.10.2022Разработчик: vdvПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский + русификация
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C312F887E1CB8806EEBB8CD77833A8C5AD558E
 ```
 
 

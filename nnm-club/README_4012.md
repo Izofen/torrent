@@ -1,3 +1,75 @@
+###  Публикация: 1690569   (123994) от 07.01.2024
+
+Волшебное приключение Да Винчи / The Inventor (2023) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художник и изобретатель Леонардо покидает Италию, чтобы присоединиться к французскому двору, где он сможет свободно экспериментировать, придумывать механизмы мощных машин и летающих аппаратов и изучать человеческое тело и его возможности. Вместе с отважной принцессой Маргаритой Да Винчи пытается понять, в чем смысл жизни.Производство: Франция, США, Ирландия / Leo and King, Aerial Contrivance Workshop, AlignЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Джим Капобьянко, Пьер-Люк ГранжонАктеры: Стивен Фрай, Дейзи Ридли, Марион Котийяр, Мэтт Берри, Натали Паламидес, Аарон Хеффернан, Крис Гордон, Джим Капобьянко, Бен Стрэнахен, Джейн ОсборнПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73E7341B2DE0112BAF5B6542D76F5AEE7040F22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278242   (123995) от 07.01.2024
+
+Ги де Мопассан | Новеллы (2006) [MP3, Семён Ярмолинец, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл. Все его произведения написаны ярким и простым языком. Его новеллы переведены на множество языков мира, и всюду они находят живой отклик в сердцах читателей. В кратких новеллах Мопассана человеческая драма обычно схвачена по необходимости лишь в (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: МедиаКнигаПродолжительность: 09:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EFA02891B9C2A4976CF197A9F5B3775A570895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690435   (123996) от 07.01.2024
+
+Уральские пельмени. Сборник Эксклюзивов 2023 (2023) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти номера не показывали в телеэфире. Привидение, Выпускник 2030, Рок-группа, Ромео и Джульетта – эти и другие весёлые сюжеты в нашем эксклюзивном сборнике.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B5DE742BB650DAB3143A37CCD851686FAFDC17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686295   (123997) от 07.01.2024
 
 За спичками (1980) WEBRip [H.264/1080p] [Handmade upscale AI]
@@ -6,7 +78,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123997.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0C5E7C6EAAFE9660EF48A4AF210A62A45713829D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123998.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:98FD549A3065FB5CD025C4AFC2FBD9B03BE6DCC8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123999.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:98732D5D3C0D0A2E84E550AFC2DD417BA56B292E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124000.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:1A957887CB7A13DBFA083A4DC24198CA2452BDA6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124001.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:AB955863F68E5AB99E118B3FF342EA6268C6B01F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124002.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:9AD1331239B9D70213398DF8429207B1570A1EAD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124003.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:6C5DCD90A6E1858E9D893D95D4531B709FB5051E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124004.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ Ozi Explorer for Android OS v1.37 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124005.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:C48A37C301C0033731D848810A886CE6010D22C8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124006.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:E8758F1780899F942A5E683B95B558A88E0F91C6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124007.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ magnet:?xt=urn:btih:B63DCC3CE5D98A3583C6937B89FF57420637E1D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124008.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:C679760CB9F1CCA64E9D451E63D6252900FBA3FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124009.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:DAEB1EF8666B9F820C91B02B578EF421F30351C2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124010.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:87F9D8976E24492B952DE946E8BAC0A20EC8250B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124011.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.5 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124012.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:C79E9D7C71C4D687026D4B7A52932F084D8A575B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124014.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:4C669929EFC254EA6DD8AC13BA6D52C0721E2FC4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124015.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:5EFF1E1765D270AFDF139EA915C83C35C15CA8F7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124016.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124017.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ Lucifer's Friend - 13 Albums (1970 - 2019) 18 CD [FLAC|Lossless|image + .cue|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124018.jpg" />
 </div>
 
 
@@ -550,7 +622,7 @@ VA - Лучшие песни Наше радио за 2023 год (2024) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124019.jpg" />
 </div>
 
 
@@ -564,79 +636,6 @@ VA - Лучшие песни Наше радио за 2023 год (2024) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DC2F2F9C9A53801BFF4B984F8052EE1804DA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690582   (124020) от 07.01.2024
-
-В погоне за камнем (2023) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный ювелир города Хан решает устроить роскошное мероприятие — показ самого драгоценного бриллианта в России. Однако его планы рушатся, когда трое отчаянных, столкнувшихся с финансовыми трудностями, решают украсть это великолепие.
-В процессе поиска грабителей выясняется, что дочь самого ювелира оказалась вовлечена в этот интригующий заговор. Теперь злоумышленники (   Читать дальше...   )Производство: Россия / 136 StudioЖанр: Криминал, боевик, триллерРежиссер: Ибрагим УрсановАктеры: Магомед Магомедов, Ахмедхан Абунивайсов, Сулеймам Алиев, Ибрагим Урсанов, Папум МуржаидоваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D921D0A340D48332AB8ABBB2535BBE1F8E44C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690421   (124021) от 07.01.2024
-
-Мумия / The Mummy (1999) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124021.jpg" />
-</div>
-
-
-###  Подробнее
-
-На бескрайних просторах египетской пустыни компания сорвиголов разных национальностей рыщет в поисках несметных сокровищ фараона, над которыми тяготеет жуткое древнее проклятие. Рядом с кладом покоится мумия коварного жреца, жестоко казненного за ужасное убийство могущественного правителя Египта. Золотоискатели потревожили многовековой покой гробницы, и мумия встает (   Читать дальше...   )Производство: США / Universal Pictures, Alphaville FilmsЖанр: фэнтези, приключения, боевикРежиссер: Стивен СоммерсАктеры: Брендан Фрейзер, Рэйчел Вайс, Джон Ханна, Арнольд Вослу, Кевин Дж. О’Коннор, Джонатан Хайд, Одед Фер, Эрик Авари, Стивен ДанэмПеревод: Дублированный (AlexFilm), многоголосый профессиональный (Лицензия), двухголосый профессиональный (Premier Video Film)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099A0A0653A516916678E4600712E65CDCD1EAD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689953   (124022) от 07.01.2024
-
-Россия и Китай впервые совместно протестировали квантовую спутниковую связь
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_124022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия и Китай впервые провели совместные испытания системы квантовой связи, передав информацию на расстоянии около 3800 км.Для эксперимента использовался китайский спутник Mozi, а в России специально для этого была построена первая в стране наземная станция спутниковой квантовой связи.Усилиями большой коллаборации ученых и инженеров создана уникальная приемная станция, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

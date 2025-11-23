@@ -1,3 +1,76 @@
+###  Публикация: 1271996   (147575) от 25.12.2018
+
+Дарья Домрачева. Женщины и спорт (2018) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многократная олимпийская чемпионка, двукратная чемпионка мира, обладательница Кубка мира 2014/15, обладательница 5 малых Хрустальных глобусов Кубка мира по биатлону, заслуженный мастер спорта Республики Беларусь Дарья Домрачева.Телекомпания: Беларусь 1Жанр: Документальный, спортСубтитры: ОтсутствуютПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6068D52893C7AD60FF54D5A7665F71B15A130
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347870   (147579) от 25.12.2019
+
+AweEraser 4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147579.jpg" />
+</div>
+
+
+###  Подробнее
+
+AweEraser - это безопасный «ластик» данных Mac. Он может безопасно и навсегда удалить данные с жесткого диска / носителя, окончательно удалить файлы Mac, стереть жесткий диск и стереть уже удаленные данные в Mac OS. Он также предлагает инструменты для пакетного удаления приложений на вашем Mac и очистки истории браузеров, кэшей, конфиденциальности и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8DE25DD3795DAC3768374CF5C033339146920E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678048   (147580) от 20.11.2023
+
+Sublime Text 4.0 Build 4166 Dev for Mac [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2023Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A7B16F5F4B7A57FDF5E989C7CEA55200431711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086951   (147592) от 26.12.2016
 
 Расплата / The Accountant (2016) HDRip [H.264] [Line]
@@ -6,7 +79,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147592.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Wattagio 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147598.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Postbox 6 v6.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147604.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Scanitto Pro 3.14 RePack (& Portable) by Trovel (Upd. 26.12.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147605.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Animals as Leaders - The Madness of Many (2016) [FLAC|Lossless|image + .cue] <In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147619.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Aiseesoft Screen Recorder 2.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147629.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ DVD X Studios CloneDVD 6.0.1.2 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147651.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Gonimoblast - Gonimoblast Live (2017) 2CD, Limited Edition [FLAC|Lossless|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147655.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ magnet:?xt=urn:btih:B414CBEA0786ADAFFB4B832EB33E89C2E395E4DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147657.jpg" />
 </div>
 
 
@@ -230,7 +303,7 @@ UltraEdit 20.00.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147662.jpg" />
 </div>
 
 
@@ -254,7 +327,7 @@ Paint.NET 4.0.13 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147664.jpg" />
 </div>
 
 
@@ -278,7 +351,7 @@ Permute 3 v.3.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147665.jpg" />
 </div>
 
 
@@ -302,7 +375,7 @@ Mac DVDRipper Pro 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147678.jpg" />
 </div>
 
 
@@ -328,7 +401,7 @@ JR Writer - Writer's Block 5 (2007) Mixtape [FLAC|Lossless|tracks + .cue] <Hip-H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147685.jpg" />
 </div>
 
 
@@ -355,7 +428,7 @@ Mac FoneLab Android Data Recovery 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147693.jpg" />
 </div>
 
 
@@ -379,7 +452,7 @@ TG Pro (Temperature Gauge Pro) 2.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147704.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:C16E7B6D8800E87D1A419528DC4DB6F0B6359D0D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_147713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_147713.jpg" />
 </div>
 
 
@@ -430,7 +503,7 @@ Haste The Day - Best Of The Best (2012) Solid State Records [FLAC|Lossless|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147714.jpg" />
 </div>
 
 
@@ -457,7 +530,7 @@ NIUBI Partition Editor 7.4.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147718.jpg" />
 </div>
 
 
@@ -482,7 +555,7 @@ magnet:?xt=urn:btih:5107974438B8D5AD66B6508B10A086346409E245
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147722.jpg" />
 </div>
 
 
@@ -509,7 +582,7 @@ magnet:?xt=urn:btih:1B26B0AA9941E65BE89DC851D1A953BB3AB389D2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147723.jpg" />
 </div>
 
 
@@ -534,7 +607,7 @@ magnet:?xt=urn:btih:880AF54D6279E90D24DF7D1A5912CDBD4219CD28
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147731.jpg" />
 </div>
 
 
@@ -558,7 +631,7 @@ Ummy Video Downloader 1.7.2.4 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_147740.jpg" />
 </div>
 
 
@@ -570,84 +643,6 @@ Ummy Video Downloader (   Читать дальше...   )Язык интерф
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B78C913600C9B08DA61AC58963C1A1FFCE225075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588292   (147744) от 15.12.2012
-
-Avkeys 1.3 [Русский, английский ]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avkeys - данное приложение служит для сброса пробного периода использования антивируса или автоматического поиска и установки лицензии для него (в зависимости от антивируса).Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968174   (147748) от 27.12.2015
-
-Woodtekr - Best In Me EP (2015) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Bring Out The Best In Me (Original Mix) (05:47)
-02. You Bring Out The Best In Me (Actraiser Remix) (05:41)
-03. Going The Distance (Original Mix) (05:22)
-04. Something New (Original Mix) (05:26)Жанр: Drum & BassПродолжительность: 00:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDA5CCB83DCB7BDC2CD0EFBCE9510AC155C2937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272000   (147749) от 25.12.2018
-
-VA - Sound Check No. 99 (2009) [FLAC|Lossless|tracks + .cue] <Punk, Pop Rock, Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral for a Friend - The Sweetest Wave (Live at Air Studios) (06:12)
-02. Bad Religion - Honest Goodbye (02:50)
-03. Circa Survive - The Difference Between Medicine and Poison Is in the Dose (04:14)
-04. Shaped by Fate - They Told Me You Were Dead (05:01)(   Читать дальше...   )Жанр: Punk, Pop Rock, Heavy MetalПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C603BD612ED35F604F38CFD8FA9A35614454118
 ```
 
 

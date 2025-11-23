@@ -1,3 +1,76 @@
+###  Публикация: 1687091   (125974) от 25.12.2023
+
+TweakPower 2.048 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125974.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AF7FDFC2D5545E67CE6D71677AE5154C7F92C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687081   (125975) от 25.12.2023
+
+Sense V2 Flip Clock & Weather 6.49.0-BETA Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sense V2 Flip Clock & Weather - одно из самых известных и популярных погодных приложений, что удачно совмещает в себе сразу несколько функций. Проект в стандартных настройках представляет собой крупный виджет часов срощенный с минималистичным прогнозом. Ну а перейдя на основную страницу программы можно найти огромный поток информации, что обеспечивает любопытных (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.12.2023Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471D4FA7FC4F262833136EA1658AAFCE332B5A2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687036   (125976) от 25.12.2023
+
+Вова Бо | Роркх (Книга 6) (2023) [MP3, Максим Суслов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роркх – виртуальный мир, безопасный днём и смертельно опасный ночью. Именно потому в тёмное время суток играют только самые смелые, самые отчаянные. Нюансом является то, что в этом мире смерть игрового персонажа фатальна, а новый стоит больших денег.
+Главный герой, потеряв своего персонажа, или, как говорят, ханта, берёт в аренду чужого и с его помощью оказывает (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGИздательство: 1С-ПаблишингПродолжительность: 08:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF81AFB27B010B2442E47E787B4B838E31E069F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687189   (125977) от 25.12.2023
 
 Ваша честь / Vostro onore (2022) HDTVRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +79,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125977.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:A6A4C95EA946CA938FBD3F4FEBB863C8229BB5A4
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125978.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125979.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125980.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Optimizer 16.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125981.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Maria Zeee | Maria Zeee Podcast (2021-2024) [OPUS] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125982.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ magnet:?xt=urn:btih:7D0340EDB92D6C02121B20F11B40F47B48336FE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125983.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ LibreWolf 121.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125984.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ magnet:?xt=urn:btih:F911A27212CB3261CF791006237DAB9AEEE5FD5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125985.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ magnet:?xt=urn:btih:8B764B45190D67FCACD818E904290ED523C64927
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125986.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ VA - RAP NNM 2023 [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125987.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ LosslessCut 3.59.1 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125988.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ magnet:?xt=urn:btih:0C2B7D7EB33E163DEDE19A805960022858072397
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125989.jpg" />
 </div>
 
 
@@ -329,7 +402,7 @@ magnet:?xt=urn:btih:20F2054A5C865DECD07C292C5CB2136FA0DD37CE
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125990.jpg" />
 </div>
 
 
@@ -353,7 +426,7 @@ Rainbow - Transmission Impossible (2022) [MP3|320 Kbps] <AOR, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125991.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ HDCleaner 2.062 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125992.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:AABAA54198D103AA6DF2565E0C6EB513EA16726E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125993.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ WSCC (Windows System Control Center) 7.0.7.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125994.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ magnet:?xt=urn:btih:F6543ACC412CB238045E26E076D1D229D529B30F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125995.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ magnet:?xt=urn:btih:E2E97CECB4E4286195DD76855836A08B0FB1B5F2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125996.jpg" />
 </div>
 
 
@@ -503,7 +576,7 @@ magnet:?xt=urn:btih:6B734DD30AAC91C29750F8DD8CA94FB5810FF5D0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125997.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ magnet:?xt=urn:btih:66F2C0A04E9007965DDD4BE9919E37C10F7EEE41
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125998.jpg" />
 </div>
 
 
@@ -557,7 +630,7 @@ magnet:?xt=urn:btih:43D4D78BEAC542D89D5698D411A5604380724367
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125999.jpg" />
 </div>
 
 
@@ -568,78 +641,6 @@ magnet:?xt=urn:btih:43D4D78BEAC542D89D5698D411A5604380724367
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03435D89341996F87DB7558B40F12CED47F21C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687133   (126000) от 25.12.2023
-
-Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DL [H.265/1080p] [HDR10, Dolby Vision Profile 8, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126000.jpg" />
-</div>
-
-
-###  Подробнее
-
-В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США, Венгрия, Швеция, Дания, Великобритания / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: Эд Скрейн, София Бутелла, Чарли Ханнэм, Энтони Хопкинс, Кэри Элвес, Джена Мэлоун, Михил Хёйсман, Клеопатра Коулмэн, Джимон Хонсу, Кори СтоллПеревод: Дублированный (Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, SDH)Продолжительность: 02:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FF51357B39D35C10CB446D31E80B535F8C7B9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687027   (126001) от 25.12.2023
-
-Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на воде (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Knight Cats. На Кэтстаун совершено нападение! Пираты собираются разграбить город, но охотятся они не только за товарами. Пропал агент под прикрытием, который занимался расследованием контрабанды. Только такой храбрый рыцарь, как вы, может его отыскать. Однако все не так, как кажется поначалу, когда речь заходит о семи морях. Вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D146BF871B329536B6CB2E6484C671F9AAB69528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687123   (126002) от 25.12.2023
-
-Брежнев, которого мы не знали (2013) IPTVRip [H.264] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти всю жизнь его недооценивали. Но все, кто над ним посмеивался, кто считал его недалёким - все куда-то разлетелись. Кто на пенсию, кто послом в далёкие края, кто приземлился на обидно мелкой должности. А Леонид Ильич Брежнев руководил нашей страной восемнадцать лет. Как ему удалось так долго продержаться на государственном Олимпе? История стремительного взлёта (   Читать дальше...   )Телекомпания: Россия / ТВ ЦЕНТРЖанр: документальный, биографияРежиссер: Игорь МаксимчукУчастники: Леонид МлечинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:38:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C77F072252A2D08E0076097CCC29DED8BE2794
 ```
 
 

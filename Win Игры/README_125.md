@@ -6,7 +6,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35771.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35772.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35779.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (0.10.6) Repack Wanterlude [Early A
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35789.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35793.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35796.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ASKA (2024) [Ru/Multi] (1.4.2711242013) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35816.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Shredders (2022) [Ru/Multi] (Glacier/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35851.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Town of Light (2016) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35858.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (Build 780639323/dlc) Repack Let'sРlay [Th
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35865.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35876.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35882.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35887.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0.0.15) Repack Let'sР
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35892.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35895.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35914.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35957.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16538909) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35991.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36001.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36009.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36013.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36036.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36059.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36061.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36070.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36073.jpg" />
 </div>
 
 

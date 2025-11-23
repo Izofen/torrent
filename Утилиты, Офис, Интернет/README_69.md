@@ -1,3 +1,76 @@
+###  Публикация: 1625732   (255293) от 11.04.2023
+
+True Launch Bar 8.0 + portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глядя на множество ярлыков на рабочем столе, трудно найти нужный? Вы часто ищете ярлык для запуска, тратя на это свое время? True Launch Bar поможет облегчить ваши повседневные задачи, решив многие проблемы, связанные с быстрым доступом к содержимому вашего ПК!
+Все тот же рабочий стол Windows, который вы знаете и любите, но с True Launch Bar рабочее пространство (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45FB4C55808CD801E0F6349A690415724766F6E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836933   (255577) от 13.11.2025
+
+MassTube Ultra 21.2.1.179 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255577.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C997F4B66AD49E0A9406945577946409F19F2157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836916   (255586) от 13.11.2025
+
+AnyDesk 9.6.5 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_255586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B6A2F250CC3C55BC9BBDA783197794E9305045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836852   (255634) от 13.11.2025
 
 O&O Defrag Professional + Server 30.5 Build 1211 RePack by KpoJIuK [Ru/En]
@@ -6,7 +79,7 @@ O&O Defrag Professional + Server 30.5 Build 1211 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255634.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255634.jpg" />
 </div>
 
 
@@ -32,7 +105,7 @@ magnet:?xt=urn:btih:204FDBCCB171B3BA7E4B09B4502DE362C4483336
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255642.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@ IObit Driver Booster Pro 13.1.0.171 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255643.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255643.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ YT Downloader 9.18.3 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255644.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255644.jpg" />
 </div>
 
 
@@ -104,7 +177,7 @@ magnet:?xt=urn:btih:40404387138C92AA5A0F444682321356D038E16E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255645.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255645.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 06.11.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255646.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ TreeSize Professional 9.6.2.2158 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255653.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255653.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ Chromium 142.0.7444.163 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255679.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255679.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ Double Commander 1.1.30 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255695.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255695.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:9ABC6770AA6A4E77FED01C83094B773FC97FDE30
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255852.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255852.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ Opera One 124.0.5705.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255865.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255865.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ Vivaldi 7.7.3851.48 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255866.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255866.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ Adobe Acrobat Pro 2025.001.20918 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255871.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255871.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ Eclipse Community - r3dfox 144.0.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255896.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255896.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ RAM Saver Professional 25.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255914.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255914.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:EE0FBE235613198EDDC1C7D8BBFA5B7EEB54CA4E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255917.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ Office Installer & Office Installer+ 1.32 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255920.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255920.jpg" />
 </div>
 
 
@@ -418,7 +491,7 @@ YT Downloader 9.18.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255921.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255921.jpg" />
 </div>
 
 
@@ -442,7 +515,7 @@ Firefox Browser ESR 115.30.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255928.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255928.jpg" />
 </div>
 
 
@@ -466,7 +539,7 @@ Adobe Acrobat Pro 2025.001.20918 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255929.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255929.jpg" />
 </div>
 
 
@@ -490,7 +563,7 @@ magnet:?xt=urn:btih:00058A3789979D8B334E728C26BA134C287A7CC3
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255939.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255939.jpg" />
 </div>
 
 
@@ -514,7 +587,7 @@ Windows Manager 2.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255943.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255943.jpg" />
 </div>
 
 
@@ -539,7 +612,7 @@ ExamDiff Pro 16.0.1.11 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255945.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255945.jpg" />
 </div>
 
 
@@ -550,80 +623,6 @@ ExamDiff - мощная и легкая в использовании прогр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A544E45062DE89BC8F74166991011442E6592313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836958   (255947) от 13.11.2025
-
-Process Lasso Pro 17.0.0.13 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FE3340F623EBEA543A62805A11ACDC98EB5365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498639   (256220) от 20.05.2012
-
-Paragon Drive Copy 11 Pro 10.0.16.12846 Portable [Русский]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Drive Copy 11 Professional - это оптимальное решение для любого вида миграции! Перенести систему на новый жесткий диск или раздел, чтобы использовать привычный набор программ на обновленном компьютере - задача, которая требует много времени , терпения и внимания. Единственный на рынке продукт, созданный специально для решения этой проблемы - Paragon Drive Copy 11 Pro.
-Paragon Drive Copy - Вам больше не придется тратить кучу времени на повторную установку программ и приложений, после модернизации вашего компьютера. Выбирайте все лучшее с вашей старой системы и просто перенесите все это на новый жесткий диск. Вам не придется перезагружать систему, а операция полностью безопасна для всех ваших данных. Вы можете продолжать работать на старом компьютере, пока идет процесс миграции. В итоге вы получите новый жесткий диск, который будет точной копией старого, а все программы будут готовы к работе! В программу входит удобный мастер, который поможет быстро и надежно мигрировать вашу ОС Windows на новый твердотельный (   Читать дальше...   )Название программы: Paragon Drive Copy 11 ProЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837210   (256577) от 
-
-Activation Program 1.15 Portable by Ratiborus [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для off-line "активации" лицензий продуктов M$, в том числе и лицензий ESU/OCUR на Windows 7. Программа НЕ "активирует" Office 2010-2019 на Windows 7.
-В программе использован код от группы MASSGRAVE "TSforge (c) MASSGRAVE 2025".Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C03648688D8E1178395AFB035825CF7D92619D2
 ```
 
 

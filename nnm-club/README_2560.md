@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67308.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67309.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Cla
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67310.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:037622EA6732DFA29AA35B958B23A15131B31A8D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67311.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B24A8708035920CC54651256BBCDD8CEEFA6B335
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67312.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7D2C54F0B9484637EF1D141C7CBCDD4682D2D1D0
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67313.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9F21662633FF6CF2337D5C1A940DD24DE2FEEB1F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67314.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:70CC4E9C44E0B8E332F5AAB8F0696C93AAE5ECCA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67315.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:1B1C2F396A8405374A453D5ACD33068ACE816272
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67316.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67317.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9A6458A3354B9683E31997B122D8EB67AED552C6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67318.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:3B7B429CD96C012DC0AECE23ECAB331179EB1578
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67319.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B5E81239D84DF15359CEA85E8D0E323859EE9A6F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67320.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:4768A3926B23F6B4620AA4CC1A33708F4262BA24
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67321.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3CB078E9C941565FA7F514B509DC70115559CE57
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67322.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:CC8870833B567A2EB362B3438FBCFD08EF0802AA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67323.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:7E91275D2C266C61970713227D2539FC31B2E62F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67324.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67325.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:6A223F401AF040E32B97808020136468DD5BF5C0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67326.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:C4F2A514B601EB207F911207CB30386A01DF3926
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67327.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:017EDA6C4DBA4F7179C00CC2B7999756ECF0C5F5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67328.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A1ACDDA34C2FC37B93BB0EA6F4EC53357DE39CEB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67329.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67330.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Musical kaleidoscope part 38 Easy listening (2025) [MP3|320 Kbps] <Instrume
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67331.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Tablacus Explorer 25.4.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67332.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67333.jpg" />
 </div>
 
 

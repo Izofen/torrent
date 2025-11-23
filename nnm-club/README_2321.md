@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2BD65DCA0898458701070F39954E47CED0188932
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ECFBB3627660E94337989505CFEB09557CB12288
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60713.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:65E7C2B5D2337674EBC2194B7FD8596AD3ABB883
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60714.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60715.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0E152536E6363B447C4A60924F47B2AA894E1EBE
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60716.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BD72D5A59B4506FEBEF5C43CBD5C0FEE16BDAB5C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60717.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F8761EB4D9F226DBE0D55D5EA01CF79C4DA17418
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60718.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D2132C16D870FD4757B39AC80C3BA6E3296EB61B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60719.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8B5D53057AC0D7C28AEE8AB2274E66D6EEB16396
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60720.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60721.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60722.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ JetBrains PyCharm Professional 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60723.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:97E7A02246E3C99D627C16C5CFE5BAF9580D254F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60724.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:295150300484B0274EFFDEE92EB51D264C299DD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60725.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:E762E583BBAABA44997CD87E6463FB3A31D57D9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60726.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:3D3408DFB1F3D404CEE56B3D107DBBD0FDE3A432
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60727.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60728.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Uninstall Tool 3.7.4 Build 5725 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60729.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E3C8FFC79677FAD83B8BCF2BF4A59EAB59A6694F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60730.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:3F4070E736E4B316263D83E15F050CA88137069C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60731.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0.11) Repack Cheshire28 [Multilang
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60732.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:D1452549CC32AB60034A8881C42A3CC1C9A7F48A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60733.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:8CA45A2A1AE07E55D2A2DC3232D8AA4CCC604C60
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60734.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:276EEF970E84AA34F99810F1FDF56E9966FCEE56
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60735.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:22ECAA4A6D45FEB219F970C639C1BEE79AB5E40F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_60736.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1684152   (127951) от 14.12.2023
+
+Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Трех Радостей» (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед образом Пресвятой Богородицы Трёх радостей принято молиться о семейном счастье, его дарят на свадьбу, как родительское благословение. Родители молятся о благополучии детей, особенно о том, чтобы, когда они вырастут, их семейная жизнь сложилась счастливо. Также у этого образа молятся об оправдании несправедливо обвинённых, об освобождении из плена, о возвращении (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10A2141218970387803A607298E7738E772E8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684117   (127952) от 14.12.2023
+
+Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phase I: Singularity
+A-a - Prologue: The Blackboard
+A-b - The Theory Of Everything Part 1
+A-c - Patterns(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992D7A28717DCB9723207EC0D9AEBE42858DE70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684247   (127953) от 14.12.2023
+
+Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Trevy - I Found A Way w/David Guetta vs. Benny Benassi - Satisfaction (Hardwell & Maddix Remix)
+02. Hardwell & Quintino - Sloopkogel
+03. 7 Skies - Tokyo777
+04. Felguk & KVSH & Yass vs. Hypaton & David Guetta - Rhythm Of The Night vs. Be My Lover (Martin Trevy Mashup)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1467F24DAA3859DD262BAF0920D8F7B0600B10B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684155   (127954) от 14.12.2023
 
 Благовест | Акафист преподобным Оптинским старцам (2017) [PDF]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127954.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ magnet:?xt=urn:btih:3F637059420610FB7ACF6057E17E124252DBABCA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127955.jpg" />
 </div>
 
 
@@ -56,7 +134,7 @@ Louis van Dijk With The London Chamber Orchestra - Merry Melodies (1997) PolyGra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127956.jpg" />
 </div>
 
 
@@ -83,7 +161,7 @@ magnet:?xt=urn:btih:59D3824FC1B4B292FD74643B52239A3B84E15D45
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127957.jpg" />
 </div>
 
 
@@ -107,7 +185,7 @@ Phil Woods - This Is How I Feel About Quincy (2004) Jazzed Media [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127958.jpg" />
 </div>
 
 
@@ -134,7 +212,7 @@ magnet:?xt=urn:btih:F3083B868803031F1A3C8A5F8432FA7B0F31C892
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127959.jpg" />
 </div>
 
 
@@ -158,7 +236,7 @@ magnet:?xt=urn:btih:6A99AC28CE79794E70A3D2F33DA3CE287C1FE71C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127960.jpg" />
 </div>
 
 
@@ -182,7 +260,7 @@ magnet:?xt=urn:btih:ECAC4429E284C4C2022FD702336659C3BCCAD1FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127961.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ VA - Music News vol.323 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127962.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ magnet:?xt=urn:btih:AFEDF404103F98CE3F80A34F3E72167142430AA4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127963.jpg" />
 </div>
 
 
@@ -257,7 +335,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127964.jpg" />
 </div>
 
 
@@ -281,7 +359,7 @@ magnet:?xt=urn:btih:6D6589279626B36DFB581F84126017F952344223
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127965.jpg" />
 </div>
 
 
@@ -308,7 +386,7 @@ magnet:?xt=urn:btih:52E0240B4175F4A4029496040E3C50B9948FA111
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127966.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127967.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127968.jpg" />
 </div>
 
 
@@ -389,7 +467,7 @@ magnet:?xt=urn:btih:445DD6C55317A9F798448969F953A005EB1D5E96
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127969.jpg" />
 </div>
 
 
@@ -413,7 +491,7 @@ Chill Guitar Cafe - Guitar Chillosophy (2023) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127970.jpg" />
 </div>
 
 
@@ -440,7 +518,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -467,7 +545,7 @@ magnet:?xt=urn:btih:A3FD30F9F739E0D75E1F1AC74A4E2CABB7262092
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127972.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ magnet:?xt=urn:btih:78860FAEE8D3997DB5414AF29589552A1BCC02EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127973.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127974.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127975.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127976.jpg" />
 </div>
 
 
@@ -584,84 +662,6 @@ VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0056C80D48105F9A03E9C179EFC211A84FFD5091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684204   (127977) от 14.12.2023
-
-Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Helsinki Ice Hall 2019 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Grass Clover (4:04)
-02. Platitudes And Barren Words (4:21)
-03. In Your Face (4:07)
-04. Shovel Knockout (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E733483D89687A7F585F8E216D860B24B87507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684216   (127978) от 14.12.2023
-
-1Tap Cleaner Pro 4.46 Lite-Mod by Balatan [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127978.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете "навести полный порядок" всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно (   Читать дальше...   )Тип издания: Pro (Lite-Mod)Релиз состоялся: 08.12.2023Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B087BA11C5CDC4F7C1D1ADA6F80FBBF6C3B3A18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684197   (127979) от 14.12.2023
-
-Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Out The Dark (Live Version) (5:10)
-02. Where August Mourns (Live Version) (5:39)
-03. My Allied Ocean (Live Version) (4:29)
-04. A Touch Of Blessing (Live Version) (5:53)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797A8E79018B87EBA3F7D552D6D7F87937A76145
 ```
 
 

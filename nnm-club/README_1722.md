@@ -6,7 +6,7 @@ Atlantis Word Processor 4.4.0.8 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45127.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shotcut 24.08.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDF24 Creator 11.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45129.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D5A8EDAEA6F9A388FF6D6585249E1D4D6B8085C9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45130.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:727AEFA0F232DBD98F907771AE81C24219E89909
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45131.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ UltraSearch Professional 4.4.0.1010 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45132.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Shotcut 24.08.29 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45133.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:704A4265593B265871166E0D639C3DE1A3B0D391
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45134.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:9D64EB0003A274F97575D2ADD2F3153096005C6D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45135.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ ExamDiff Pro 15.0.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45136.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Aiseesoft Blu-ray Player 6.7.68 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45137.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ EMIN - Столько лет спустя (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45138.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ KeepStreams 1.2.3.3 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45139.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ R-Wipe & Clean 20.0.2471 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45140.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4B981CC59228FC21B5BC0A0FCE103126020E4E30
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45141.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:B172683732D264FA2B5647FD0000D6A4444C3ADC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45142.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Classical Winter (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45143.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:0EEBE9FAF4932B3A8CDCF462184D75BEF44512EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45144.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:0EEBE9FAF4932B3A8CDCF462184D75BEF44512EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45145.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ProfiCAD 12.4.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45146.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45147.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:A4A4500569D1D762914EAB0B0A7A65A7CA99C43E
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45148.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D73F6242F4436857C6DC9C8BD4699183A348D99C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45149.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:DCAA41301580653AAB7A98A56D30C8DD7B3EAC66
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45150.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ MailWasher Pro 7.15.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45151.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Erotica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45152.jpg" />
 </div>
 
 

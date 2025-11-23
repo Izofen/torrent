@@ -1,3 +1,84 @@
+###  Публикация: 1703650   (114790) от 01.03.2024
+
+Лица - Коллабы (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лица - Подкаст 1
+2. Лица/Кукрыниксы - По тротуарам
+3. Лица - Подкаст 2
+4. Лица/Денис Клементьев - Сантанакокс(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311378A1E4C664178C2C663ED0BE7936E269828E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703666   (114791) от 01.03.2024
+
+Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blue Moon (Larsson–Hjalmarsson)
+02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
+03. Dance, Dance (Larsson–Hjalmarsson)
+04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703790   (114792) от 01.03.2024
+
+Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100,000 Voices [00:04:44]
+02. She Put Sunshine [00:03:30]
+03. Little Blue [00:04:25]
+04. WELLLL [00:02:38](   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8254C200CAAA233BADC4E8D4F90A192C4A068A71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703657   (114793) от 01.03.2024
 
 Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic rock, synthpop>
@@ -6,7 +87,7 @@ Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114793.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:5E8DFB22826DAB89DD0E57E3A80F3847F9BF7EFE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114794.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114795.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ magnet:?xt=urn:btih:8AB1C4CA6C24839E3F793561872720B53B26D11F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114796.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ magnet:?xt=urn:btih:424730064026302BADE5E222B4C63FE1811CA74D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114797.jpg" />
 </div>
 
 
@@ -134,7 +215,7 @@ David Reece - Baptized By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114798.jpg" />
 </div>
 
 
@@ -161,7 +242,7 @@ Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114799.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114800.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ magnet:?xt=urn:btih:1A5A48D0777C63D587DEA52F79E53C4E3D4422A1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114801.jpg" />
 </div>
 
 
@@ -236,7 +317,7 @@ Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114802.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114803.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114804.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114805.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114806.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114807.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114808.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114809.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114810.jpg" />
 </div>
 
 
@@ -473,7 +554,7 @@ magnet:?xt=urn:btih:189ACCE5A9843A6AA700DDE6DC3D4571697EF5D4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114811.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ Privacy Eraser Free 6.4 Build 4856 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114812.jpg" />
 </div>
 
 
@@ -523,7 +604,7 @@ magnet:?xt=urn:btih:801C81B7EC2922D0C0B04337FA25E08AB1DE3509
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114813.jpg" />
 </div>
 
 
@@ -547,7 +628,7 @@ Beatrice Egli - Alles in Balance - Leise (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114814.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ magnet:?xt=urn:btih:706E31C4F6C06669ACB3865DC7DF443711A6767A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114815.jpg" />
 </div>
 
 
@@ -585,87 +666,6 @@ magnet:?xt=urn:btih:706E31C4F6C06669ACB3865DC7DF443711A6767A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1F0FA2A1248FC3A41D665A0F71EAFF79099E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703794   (114816) от 01.03.2024
-
-AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Down
-02. Dog Eat Dog
-03. Let There Be Rock
-04. Bad Boy Boogie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703710   (114817) от 01.03.2024
-
-VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROYALÈ (US) - City Nights (Zy Khan Remix) [5:26]
-02. Dmitry Kostyuchenko - Caldera (Original Mix) [4:16]
-03. Luke Bathwine - APE (Original Mix) [4:00]
-04. Ari Grey feat. Maya Woloszyn - We Own The Night (NOMADsignal Remix) [4:27](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5605A117CFD75CF95B82BFD95C4AE93DBACBE52B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703515   (114818) от 01.03.2024
-
-Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Mani Padme Hum [5:43]
-02. Bohemia After Dark [3:41]
-03. Companionship [4:17]
-04. Stoned Ghosts [5:04](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Hard BopПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E30036D030046FC74544338CB178C626A56DA0
 ```
 
 

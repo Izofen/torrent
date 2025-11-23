@@ -6,7 +6,7 @@ Privacy Eraser Free 6.4 Build 4856 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114812.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TreeSize Free 4.7.2.526 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114828.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ BurnAware Professional 17.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114830.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ashampoo UnInstaller 14.00.12 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114838.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Brave Browser 1.63.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114841.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ K-Lite Codec Pack Update 18.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114843.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ XYplorer 25.60.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114844.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ AutoHideDesktopIcons 6.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114846.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ TikTok 33.6.3 Lite-Mod by Dmitry Nechiporenko + Plugin 1.28 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114848.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TreeSize Professional 9.1.2.1873 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114850.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ashampoo UnInstaller 14.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114852.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Photoshop Express 12.8.317 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114855.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Shotcut 24.02.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114856.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0225) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114857.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Topaz Video AI 4.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114861.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Joplin 2.14.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114862.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ DiskDigger 2.0.1.3877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114863.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ EssentialPIM Pro 11.8.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114867.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Spotify 1.2.31.1205 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114870.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VueScan Pro 9.8.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114875.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Topaz Photo AI 2.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114876.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ LDPlayer 9.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114883.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VMware Workstation Player 17.5.1 Build 23298084 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114889.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ ASAP Utilities for Excel 8.5 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114891.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ UnHackMe 15.80.2024.0220 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114901.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Windows 11 Manager 1.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114902.jpg" />
 </div>
 
 

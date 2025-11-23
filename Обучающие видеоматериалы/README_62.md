@@ -6,7 +6,7 @@ Slurm (Слёрм), Александр Лукьянченко, Георг Гаа
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156635.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JUG Ru Group | HolyJS 2023 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156636.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skillbox, Анна Шепелева, Нина Олейникова  | Анали
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156918.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156932.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Dharmendra Giri | Learn and Master IN Nuke X VFX (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156954.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157025.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157042.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0A791D5E4FCC781D09A59265679E2A7D5263756E
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157483.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Dream and travel, Сергей Позлевич | Курс по съемке и 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157727.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4ECC7BFB632A656D1F190A4263A6C0CC6B8026C8
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157922.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:2C24D78997A199C92BB6EA0033AE05556859960C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157989.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:B4D8EB72F5BAD363798C5EC723E299C5186905CA
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158031.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Lynda.com | Foundations of Programming: Code Efficiency (2013) PCRec [H.264/720p
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158124.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ ProfIT | PHP7 - что нужно знать уже сейчас (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158551.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:4C8BB6B11EB739858BE9AB8C1C09ECE6A38166BD
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158758.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Profileschool, Никита Чесноков | Моушн дизайн (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158777.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Slurm (Слёрм), Роман Панин | Основы информацион�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158780.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B7167AE28D9078E6DC6F111348C9C01F238EF942
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158809.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:57361CC38016351E9E4C43D1CCDD211E7D2D0253
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158814.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Udemy, Frank Anemaet | Python Desktop Apps with Tkinter (2018) WEB-DL [EN, RU / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158816.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ CGMA, Behnam Shafiebeik | Nuke Compositing for 3D Artists (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158820.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158828.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Thinknetica Pro, Алексей Матюшкин | Разработка на Eli
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158850.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158868.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158886.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158887.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1599307   (159731) от 23.12.2022
+
+MiniTool Power Data Recovery 11.4 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159731.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E62C0578D362C9827D77A253CA20B4A6BC291D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599428   (159737) от 23.12.2022
+
+MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159737.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8789117E7CE5E9B1EA64A1B217008A1D556F5101
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599433   (159738) от 23.12.2022
+
+MyLanViewer 6.0.3 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159738.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EFF8FEDFF63114AF955D73B8FFD2B1B39AD26C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599338   (159740) от 23.12.2022
 
 Яндекс.Браузер 22.11.5.709 (x32) / 22.11.5.715 (x64) Portable by Cento8 [Ru]
@@ -6,7 +78,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159740.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Master PDF Editor 5.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159742.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ AIMP 5.10 Build 2418 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159747.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ GOM Player Plus 2.3.82.5349 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159748.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ TreeSize Pro 8.5.2.1715 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159750.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ YT Downloader 7.19.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159751.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ Windows and Office Genuine ISO Verifier 11.12.33.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159752.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:03474C611BF923B75B546245D6E738959A41B6CB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159754.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Topaz Photo AI 2.1.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159759.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ TreeSize Free 4.6.3.520 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159760.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159761.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ IObit Uninstaller Free 12.2.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159762.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Ant Download Manager Pro 2.10.6 Build 86573 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159770.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ MediaInfo 22.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159771.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ NIUBI Partition Editor 9.3.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159772.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ VPN Russia - VPN сервера в России 1.182 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159774.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ Opera One 104.0.4944.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159780.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159782.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ JetBrains WebStorm for Mac 2023.2.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159784.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ Capture One 23 Pro 16.3.1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159790.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159793.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Opera One 104.0.4944.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159798.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159802.jpg" />
 </div>
 
 
@@ -549,79 +621,6 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE11DEF4927093DB66BA14EB1A7602DC0B3F1E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599423   (159803) от 23.12.2022
-
-VueScan Pro 9.7.96 (22.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159803.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E0D3063E5CA53EA787BC008C5A09FF49A632B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599313   (159805) от 23.12.2022
-
-RSS Guard 4.2.7 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159805.jpg" />
-</div>
-
-
-###  Подробнее
-
-RSS Guard — простое C++ / QT графическое приложение для чтения новостных лент (RSS-каналов).
-RSS Guard предоставляет строгий и лаконичный пользовательский интерфейс (есть возможность изменения темы оформления), поддерживаются все наиболее распространённые форматы лент новостей (RSS, Atom, PDF и др) и предоставляет функциональные возможности присущие большинству RSS-агрегаторов, (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAB4F906D9AEB15BC46A3C8F7105BC0FA2386D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599425   (159809) от 23.12.2022
-
-AIMP 5.10 Build 2418 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159809.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E81C6A891D21E7518EF43EA8264E33CBA1C9B90
 ```
 
 

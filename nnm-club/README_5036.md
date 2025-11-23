@@ -1,3 +1,183 @@
+###  Публикация: 1600749   (155834) от 28.12.2022
+
+Сарко Ли | Экспедиция Жизни и Смерти (2022) [MP3, Екатерина Бабкова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хмурые, мрачные слуги тьмы. Они не спят ночами и едят мертвечину. У них холодная кровь и полное отсутствие моральных принципов. Так говорят о некромантах в далёком Солнечном крае. Да и в Туманных землях, на родине, их порой побаиваются. Но что делать самим некромантам, которые любят свою работу, не мыслят себя без неё и искренне не могут понять, почему этим ярко (   Читать дальше...   )Жанр: Героическое фэнтези, Магические академии, ПопаданцыПродолжительность: 10:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1917910F4400B6998CF17A3086CC7909FAECD495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085790   (155835) от 22.12.2016
+
+Журнал | Системный администратор №12 (декабрь 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155835.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
+Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьтерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B17B3244DB96A382D518816B0C127E87BF0CB72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194459   (155836) от 25.12.2017
+
+Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Ambient, Electro, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:38)
+ 02. The Ascent (06:37)
+ 03. Out Of The Spirit World (04:24)
+ 04. Across A Dark River (05:01)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental/Electro/Ambient/IndustrialПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29759F01AF6499CF13819528A5BADD76EDEC8B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433301   (155837) от 21.12.2020
+
+Не вижу смерти / Blind (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ослепнув после неудачной операции по коррекции зрения, бывшая кинозвезда пытается смириться с новой жизнью во тьме. Её дни в особняке на Голливудских холмах разбавлены общением с подругой Софией и новым поклонником Люком, но скоре за ней начинают следить ещё чьи-то глаза.Производство: США / Silent PartnersЖанр: Ужасы, триллер, драмаРежиссер: Марсель ВальцАктеры: Сара Френч, Джед Роуэн, Кэролайн Уильямс, Тайлер Галлант, Томас Хейли, Бен Каплан, Джессика Галетти, Шери Дэвис, Кевин Купер, Майкл Ст. МайклсПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE43FD9091E9E203BD8B4FCDC4186D65C08CC31F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588683   (155838) от 13.12.2012
+
+WinTools.net Premium 13.0.1 [MULTi / Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155838.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.
+
+(   Читать дальше...   )Название программы: WinTools.net PremiumЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085724   (155839) от 22.12.2016
+
+Comodo Internet Security Premium 10.0.0.6086 Final [Multi/Ru] [Web Installer]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных.
+
+Решение сочетает мощный антивирус, эффективный фаервол с корпоративным уровнем фильтрации пакетов и модуль Comodo Защита+, включающий продвинутую систему поведенческой блокировки и предотвращения вторжений.
+(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D364A74767AB1B746EEF526825E036FFDA3D059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676671   (155840) от 14.11.2023
+
+No Man Eyes - Harness The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Heavy Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Altar Of Science 02:04
+02. Craving Tomorrow 03:52
+03. Isaac 05:25
+04. Harness The Sun 04:26(   Читать дальше...   )Жанр: Prog Heavy Metal, Male Female VocalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96217BFC1B62B6C23722E5A61115CB436E25FE6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600688   (155841) от 28.12.2022
 
 FonePaw Android Data Recovery 5.4.0 [En]
@@ -6,7 +186,7 @@ FonePaw Android Data Recovery 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155841.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:5A6F196FE6456B47AA6FED8012BBA361BB4BA5A2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155842.jpg" />
 </div>
 
 
@@ -54,7 +234,7 @@ magnet:?xt=urn:btih:330B1693BD400DB667BE3ED609F5C496F027C23D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155843.jpg" />
 </div>
 
 
@@ -78,7 +258,7 @@ magnet:?xt=urn:btih:28989EBB0168C70AC3C5103512072D623E149EDB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155844.jpg" />
 </div>
 
 
@@ -105,7 +285,7 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155845.jpg" />
 </div>
 
 
@@ -132,7 +312,7 @@ magnet:?xt=urn:btih:78921B7EB76F43677B16E2EE1EA51C30AE7494A6
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155846.jpg" />
 </div>
 
 
@@ -157,7 +337,7 @@ Haunted [Ru/En] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155847.jpg" />
 </div>
 
 
@@ -181,7 +361,7 @@ Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155848.jpg" />
 </div>
 
 
@@ -208,7 +388,7 @@ Ancient Trail - The Ancient Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155849.jpg" />
 </div>
 
 
@@ -235,7 +415,7 @@ Translatium 10.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155850.jpg" />
 </div>
 
 
@@ -259,7 +439,7 @@ magnet:?xt=urn:btih:7A2022B0BD9FE6577B635BAD6ACCBD62E449B004
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155851.jpg" />
 </div>
 
 
@@ -285,7 +465,7 @@ The Ritual Aura - Heresiarch (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155852.jpg" />
 </div>
 
 
@@ -312,7 +492,7 @@ WifiInfoView 2.10 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155853.jpg" />
 </div>
 
 
@@ -336,7 +516,7 @@ magnet:?xt=urn:btih:09BC46522365822F17E1E05030DE3FF6B74DAECC
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155854.jpg" />
 </div>
 
 
@@ -360,7 +540,7 @@ VA - Billboard Hot 100 Singles Chart 22.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155856.jpg" />
 </div>
 
 
@@ -387,7 +567,7 @@ Dark Fortress - Ylem (2010) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155857.jpg" />
 </div>
 
 
@@ -414,7 +594,7 @@ The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155858.jpg" />
 </div>
 
 
@@ -441,7 +621,7 @@ Frammer X 1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155859.jpg" />
 </div>
 
 
@@ -465,7 +645,7 @@ magnet:?xt=urn:btih:BAF04034E596664AED91164BE8AF4445E776BD30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155860.jpg" />
 </div>
 
 
@@ -477,185 +657,6 @@ magnet:?xt=urn:btih:BAF04034E596664AED91164BE8AF4445E776BD30
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270692   (155861) от 20.12.2018
-
-Хоккей. Еврохоккейтур 2018-2019. Кубок Первого Канала 2018. Чехия — Швеция (16.12.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155861.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 декабря 2018 года, воскресенье. 14:00 МСК
-Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
-Кубок Первого Канала 2018.
-Чехия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AC051D0CD113D91B3EBB07B78A05A4355F2A55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676764   (155862) от 14.11.2023
-
-Quercus - Kverulant & Nenia (2018) 2CD [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ravine Burden Thorns (12:47)
-02. Ignis Fatus (11:50)
-03. Darkening of God's Gifts (8:18)
-04. Alogia (3:44)(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A202B9266E83B4625BC5324353895FADF7DEF67E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346767   (155863) от 21.12.2019
-
-Optimage 3.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Optimage - это продвинутый инструмент оптимизации изображений, позволяющий минимизировать изображения без потерь для веб-сайтов, приложений, хранилищ и обмена. Он использует расширенные метрики для автоматической настройки качества изображения для файлов изображений меньшего размера, в 10 раз визуально воспринимаемых как оригиналы. Максимальный коэффициент сжатия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2019Разработчик: OptimageПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202228ACCF0937C6FCAFC06F2C85F56474575EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085732   (155864) от 22.12.2016
-
-Проекты - VideoHive - Ink Slideshow - 18983366 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink Slideshow - интересный вариант слайд-шоу, использующий эффект размывания чернил.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57DB867E79E255DF1B83896EC27E6D639A19AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588538   (155866) от 13.12.2012
-
-Бригада: Наследник (2012) DVDRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм является идейным продолжением жизни героев телесериала «Бригада». Однако акцент смещен в историю сына Александра Белова — Ивана. Это Кино о современной России. О том, что у всех на устах: политике, коррупции, цинизме крупного бизнеса и спецслужб. О новом поколении, которое, узнав правду о нечистом бизнесе родителей, не идет по их стопам, а выбирает новый путь. Для них дороги понятия чести, любви и Родины. Герой, комфортно живший за границей, тем не менее, выбирает Россию (в отличие от сериала) и остается жить в ней, надеясь привнести эти идеалы в жизнь своих близких и страны в целом.Жанр: Боевик, КриминалРежиссер: Денис АлексеевПродюсер: Александр Иншаков, Леонид Лебедев, Екатерина ПанфиловаАктеры: Иван Макаревич, Екатерина Гусева, Кирилл Нагиев, Владислав Демин, Александр Иншаков, Анна Попова, Валерий Золотухин, Игорь Жижикин, Юрий Чурсин, Наталия ГуслистаяПеревод: Не требуется (русский)Продолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA3BDEF7A98B12023C8DAE74DBA970812194404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967962   (155867) от 23.12.2015
-
-MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155867.jpg" />
-</div>
-
-
-###  Подробнее
-
-MTV Video Music Awards 2015 — 32-я церемония вручения музыкальных наград, прошедшая 30 августа 2015 года в Microsoft Theater в Лос-Анджелесе, Калифорния. Тейлор Свифт была заявлена в 10 категориях, став лидером по числу номинаций; за ней последовал Эд Ширан, который получил 6 номинаций. Кендрик Ламар получил 4 номинации за свой клип на песню «Alright». Однако видеоклипы (   Читать дальше...   )• Ники Минаж / Тейлор Свифт — «Trini Dem Girls» / «The Night Is Still Young» / «Bad Blood»
-• Macklemore и Райан Льюис / Foxy Shazam / Melle Mel / Kool Moe Dee / Grandmaster Caz — «Downtown» (Live from Orpheum Theatre)
-• The Weeknd — «Can’t Feel My Face»
-• Деми Ловато / Игги Азалия — «Cool for the Summer» (Live from Orpheum Theatre)(   Читать дальше...   )Производство: США, MTV HDЖанр: Церемония награждения, концертПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84804C2E719608629427E1E59F8E8FE6E45ABE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346795   (155868) от 21.12.2019
-
-Alfred 4 Powerpack 4.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32279E23921C42539633B4707E6B91F82ED8DB33
 ```
 
 

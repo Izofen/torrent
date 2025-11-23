@@ -1,3 +1,76 @@
+###  Публикация: 1824162   (128575) от 14.10.2025
+
+Братушка / Войникът от обоза (1975) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из эпизодов освобождения Болгарии советскими солдатами в сентябре 1944 года. У следующей в тыловом обозе конной повозки Алеся Казанка ломается колесо и ему приходится завернуть в ближайшую деревню. Жители деревни давно уже ждут освободителей и устраивают Алесю торжественную встречу. Местные мастера ставят на его телегу новое колесо – красивое, расписное. Казанка (   Читать дальше...   )Производство: СССР, Болгария / Беларусьфильм, Boyana Film, Sofia Film StudiosЖанр: драма, военныйРежиссер: Игорь ДобролюбовАктеры: Анатолий Кузнецов, Светлана Тома, Стефан Данаилов, Владимир Басов, Иван Гайдарджиев, Иван Григоров, Владимир Давчев, Никола Тодев, Милка Туйкова, Николай КлисуровПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AABF6AA6523A4B543C700F0EA98FC310D21FBE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824165   (128576) от 14.10.2025
+
+Мастер / A Working Man (2025) BDRip [AV1/1080p-LQ] [10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший британский спецназовец Левон Кейд оставил войну в прошлом и теперь работает бригадиром на стройке. Он всегда поможет в трудную минуту и не допустит несправедливости, за что его уважают коллеги. Однажды у близких ему людей бандиты похищают 19-летнюю дочь. Полиция бездействует, и Левон по просьбе родителей решает самостоятельно найти девушку и вернуть её домой.Производство: Великобритания, США / Amazon MGM Studios, Balboa ProductionsЖанр: боевик, криминалРежиссер: Дэвид ЭйрАктеры: Джейсон Стэйтем, Максимилиан Осински, Мераб Нинидзе, Чиди Аджуфо, Кокей Фалкоу, Эммет Джей Скэнлэн, Ив Мауро, Джейсон Флеминг, Дэвид Харбор, Арианна Ривас, Майкл ПеньяПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские (forсed, full)Продолжительность: 01:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38EE409929644F3CFD3676ED0C285BE09FB34EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824152   (128577) от 14.10.2025
+
+Flyoobe 1.31 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
+После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823867   (128578) от 14.10.2025
 
 Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] DVD9 raw+rus
@@ -6,7 +79,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128578.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:18DE4D44DCE2EF7D4FBA99AD2F8FCD578601628A
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128579.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128580.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128581.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128582.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128583.jpg" />
 </div>
 
 
@@ -154,7 +227,7 @@ magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128584.jpg" />
 </div>
 
 
@@ -178,7 +251,7 @@ magnet:?xt=urn:btih:1B54F6D52B86E33ED8CE0230849CB2FD965FAAD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128585.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ magnet:?xt=urn:btih:8A7C82B3558DD2F6F4D3F053DF1AEF8A83B003A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128586.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Freemake Video Converter 5.0.0.16 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128587.jpg" />
 </div>
 
 
@@ -250,7 +323,7 @@ magnet:?xt=urn:btih:C485D8DA9999F02BB52A72FBACB36F0C7D1EA266
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128588.jpg" />
 </div>
 
 
@@ -274,7 +347,7 @@ magnet:?xt=urn:btih:E6F69DCBCC73D4AB832285568987F84369B48630
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128589.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ magnet:?xt=urn:btih:4CC468564BE831EEC92B3EB423CA6B825A9E9C1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128590.jpg" />
 </div>
 
 
@@ -322,7 +395,7 @@ magnet:?xt=urn:btih:AA7746A011E37B74C654F9F532A0E3095D722F99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128591.jpg" />
 </div>
 
 
@@ -346,7 +419,7 @@ Frayle - Heretics & Lullabies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128592.jpg" />
 </div>
 
 
@@ -373,7 +446,7 @@ TechSmith Camtasia 25.2.4 Build 12581 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128593.jpg" />
 </div>
 
 
@@ -397,7 +470,7 @@ CPU-Z 2.17.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128594.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Lacey 3.08 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128595.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:8BB959E7A659CC0BD9298C477F6D1EAFCCE76551
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128596.jpg" />
 </div>
 
 
@@ -470,7 +543,7 @@ magnet:?xt=urn:btih:CA724F4DD23A69BDB269A08A87775213320B4B8F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128597.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ magnet:?xt=urn:btih:9BE93AEFB6720F185A053C248FDC206BD4ADA0AC
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128598.jpg" />
 </div>
 
 
@@ -519,7 +592,7 @@ Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128599.jpg" />
 </div>
 
 
@@ -546,7 +619,7 @@ magnet:?xt=urn:btih:CC691BE2D78780C73F280404D32B9F135ED8820A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128600.jpg" />
 </div>
 
 
@@ -557,78 +630,6 @@ magnet:?xt=urn:btih:CC691BE2D78780C73F280404D32B9F135ED8820A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4CBD8976E31D139D36C67CE4F445FED8E9BE5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824132   (128601) от 14.10.2025
-
-Это сладкое слово — свобода! (1972) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из стран Латинской Америки 70-х годов. В основе фильма — всего лишь один эпизод революционного движения. Освободить из тюрьмы вождей революции было почти невозможно. И тогда было принято решение — пробить туннель к камере политзаключенных...Производство: СССР / МосфильмЖанр: драмаРежиссер: Витаутас ЖалакявичюсАктеры: Регимантас Адомайтис, Ирина Мирошниченко, Ион Унгуряну, Бронюс Бабкаускас, Юозас Будрайтис, Лоренц Арушанян, Михаил Волонтир, Родион Нахапетов, Саят Алиева и др.Субтитры: отсутствуютПродолжительность: 02:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7534C2E676937ED763CE700B50D4D47A9061F012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824124   (128602) от 14.10.2025
-
-Гиперболоид инженера Гарина (1965) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128602.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале мая 192...года на заброшенной даче под Ленинградом происходит убийство. Сотрудник уголовного розыска Василий Шельга обнаруживает зарезанного человека со следами пыток. В просторном подвале дачи проводились какие-то физико-химические опыты. Возникает предположение, что убитый - некий инженер Петр Петрович Гарин. Между тем, настоящий инженер Гарин, тщеславный (   Читать дальше...   )Производство: СССРЖанр: фантастика, детективРежиссер: Александр ГинцбургАктеры: Евгений Евстигнеев, Всеволод Сафонов, Михаил Астангов, Наталья Климова, Владимир Дружников, Михаил Кузнецов, Юрий Саранцев, Николай Бубнов, Виктор Чекмарев, Павел Шпрингфельд, Бруно Оя, Алеша Ушаков, Артем Карапетян, Анатолий Ромашин, Степан Крылов, Владимир Балашов, Константин Карельских, Валентин Брылеев и др.Субтитры: отсутствуютПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCE5B403A76124D82AB90E6B70D5859732DA65A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824116   (128603) от 14.10.2025
-
-Чудаки из Балтимора / The Baltimorons (2025) WEB-DLRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балтимор, канун Рождества. Прямо на пороге дома родителей своей девушки Клифф, бывший стендапер и алкоголик в завязке, спотыкается и выбивает себе зуб. Он находит единственного работающего в это время стоматолога — уже немолодую разведённую женщину Диди. Получив медпомощь, Клифф выходит на улицу и видит, что его машину увёз эвакуатор, тогда Диди предлагает его подвезти. (   Читать дальше...   )Производство: США / Duplass Brothers ProductionsЖанр: драма, комедия, мелодрамаРежиссер: Джей ДюплассАктеры: Майкл Штрасснер, Оливия Луккарди, Крис Штрасснер, Лиз Ларсен, Льюис Петерсон, Роб Феникс, Джесси Коэн, Майкл Чандлер, Зои Штрасснер, Брайан МендесПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: русские (full - AI), английские (full, SDH), французские, испанскиеПродолжительность: 01:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEBC9C336AAA929A6A91FF16281BD5FAADD645B
 ```
 
 

@@ -6,7 +6,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59229.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Lil Doll House (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59230.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Cent Browser 5.1.1130.82 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59231.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:17317671E4D3DF0BDC7DF31CE5A91BA8DCDAB69F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59232.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ R-Studio Network 9.4 Build 191303 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59233.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C5DC65A5F8E325600303BE2317B2196B12A30867
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59234.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:E1F90AE7937536775ED4A9D36FEDFAAF417813E8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59235.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A4EF0886BB96249CF210F93D634EEE919AE67061
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59236.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Sword Art Online: Last Recollection (2023) [Ru/Multi] (1.21/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59237.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:40757B8A5D0ECD5021743DA7778D85310F6DDA2B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59238.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.0.415) Repack FitGirl [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59239.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:7E0BC705D49789B0F8050A982A2608D759172F40
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59240.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Demon - 14 albums, 28 CD (1981-2020) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59241.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59242.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (Spider's Thread/dlc) Scene Rune [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59243.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:139A3DB1A2F92CBC23925C362366AB4F478CC2AF
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59244.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59245.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3214CC0D8F8F34C0B9FFFE3E8B007775EDD5A752
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59246.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3214CC0D8F8F34C0B9FFFE3E8B007775EDD5A752
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59247.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:D1764853041FBF89999E63BC4D9426E1A4696EE7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59248.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:387B496A88ABD79A28065F9D5533816FC9BC9558
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59249.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Hasleo Windows ISO Downloader 2.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59250.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:5A2475FB5C323244BB2EB6DA1437CC0CBC4DD843
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59251.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:22EBBEAC49F2A02B4254324AF7A0D3E575F896C5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59252.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:7CA669CC012813C8E5F7E6201075D00607CB8FFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59253.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:7CA669CC012813C8E5F7E6201075D00607CB8FFF
 >>19
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59254.jpg" />
 </div>
 
 

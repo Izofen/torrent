@@ -1,3 +1,76 @@
+###  Публикация: 1678508   (145458) от 21.11.2023
+
+Firefox Browser ESR 102.15.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C42244CC9299F58517D37997B18C82835FF4484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678297   (145465) от 21.11.2023
+
+Apowersoft Screen Capture Pro 1.5.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apowersoft Screen Capture Pro – многофункциональная программа для создания снимков экрана.
+Программа предоставляет широкий выбор режимов скриншотов, начиная с полноэкранного снимка и заканчивая снимком окон прокрутки. При необходимости, вы можете редактировать скриншот с помощью встроенного мини-редактора или полнофункционального редактора изображений. Кроме этого, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7280116B1446D4F715C9F82CE000A43833119AB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678301   (145475) от 21.11.2023
+
+Cyberlink ColorDirector Ultra 12.0.11.3503 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145475.jpg" />
+</div>
+
+
+###  Подробнее
+
+CyberLink ColorDirector Ultra 11 - профессиональные инструменты коррекции видео. ColorDirector дает возможность регулировать цвета и их оттенки, настраивать интенсивность и «температуру» тонов, изменять цвета отдельных областей изображения с учетом движения на картинке. Доступны предварительно настроенные цветовые темы, и пользователь может загружать дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6193932878BC2695AA31A307F891572C037A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678337   (145482) от 21.11.2023
 
 PDF Reader Pro 3.0.1.0 [Multi/Ru]
@@ -6,7 +79,7 @@ PDF Reader Pro 3.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145482.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ FBackup 9.8.840 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145491.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Sandboxie 5.55.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145508.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Movavi Video Editor 15 Business 15.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145517.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ DxO OpticsPro for Photos 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145520.jpg" />
 </div>
 
 
@@ -128,7 +201,7 @@ Before Their Eyes - 5 Альбомов (2007-2015) [FLAC|Lossless|tracks + .cue|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145538.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ SimpleMind Pro 1.30.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145544.jpg" />
 </div>
 
 
@@ -180,7 +253,7 @@ Firefox Browser ESR 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145556.jpg" />
 </div>
 
 
@@ -204,7 +277,7 @@ Soft Organizer Pro 8.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145575.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ RegCool 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145582.jpg" />
 </div>
 
 
@@ -253,7 +326,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 26.12.2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145584.jpg" />
 </div>
 
 
@@ -277,7 +350,7 @@ Incubite - Collision Course (EP) (2012) [MP3|320 kbps] <Dark Electro / Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145585.jpg" />
 </div>
 
 
@@ -308,7 +381,7 @@ magnet:?xt=urn:btih:B1DD9A5AA930166B68B175623BCB37F48A914D72
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145610.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ magnet:?xt=urn:btih:F29B2FD7CA7861C50DF00E64F2FF2727E4AA02E3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145611.jpg" />
 </div>
 
 
@@ -357,7 +430,7 @@ Adguard 7.3.3048.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145637.jpg" />
 </div>
 
 
@@ -381,7 +454,7 @@ magnet:?xt=urn:btih:BA61AC611799B302804B94C019BCA59B9E36ABF7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145639.jpg" />
 </div>
 
 
@@ -405,7 +478,7 @@ Easy Data Transform 1.23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145652.jpg" />
 </div>
 
 
@@ -429,7 +502,7 @@ magnet:?xt=urn:btih:C333A18EA32BE251897C69CE2600755FF6F746E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145653.jpg" />
 </div>
 
 
@@ -453,7 +526,7 @@ Total Commander 9.0a Final MAX-Pack Extended 2016.12.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145676.jpg" />
 </div>
 
 
@@ -477,7 +550,7 @@ VA - Fear FM Hardstyle Top 40 January (2012) Unmixed [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145681.jpg" />
 </div>
 
 
@@ -504,7 +577,7 @@ Substance Painter 2.4.1 build 1383 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145687.jpg" />
 </div>
 
 
@@ -528,7 +601,7 @@ Cocktail Monterey Edition 15.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145689.jpg" />
 </div>
 
 
@@ -552,7 +625,7 @@ magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145696.jpg" />
 </div>
 
 
@@ -563,97 +636,6 @@ magnet:?xt=urn:btih:669C7AFB7BD1849E505948D8EF8428D325CB4F83
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969994   (145702) от 28.12.2015
-
-Михаил Прудников | Особое задание (1986) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145702.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе Героя Советского Союза М. С. Прудникова  «Особое задание» рассказывается  о трудной и почетной службе чекистов в годы Великой Отечественной войны.
-В книге нарисованы яркие образы разведчиков, подрывников, коммунистов-подпольщиков, правдиво показаны тяжелые будни партизанской жизни.Жанр: О войнеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA30AAD484C1D76EF14461FA35DB413739925C2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590299   (145703) от 16.12.2012
-
-Пьердоменико Баккаларио | Секретные Дневники Улисса Мура (9 книг) [2010-2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145703.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас в руках первый секретный дневник Улисса Мура, найденный сотрудником нашего издательства на старинной вилле «Арго». Сам Улисс Мур исчез при невыясненных обстоятельствах, но оставил ключи и подсказки для тех, кто сможет их прочесть. Наградой станет невероятное путешествие через время и пространство, полное опасностей и риска.
-Серия Секретные дневники Улисса Мура придётся по вкусу всем любителям книг «Спайдервик. Хроники» и «Гарри Поттер», тем, кто обожает разгадывать тайны и любит приключения.
-Список книг:
-1. Ключи от времени
-2. Лавка забытых карт
-3. Дом зеркал
-4. Остров масок
-5. Каменные стражи
-6. Первый ключ
-7. Затерянный город(   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BE1619F3339EE59252D09AC5CC2D757E62EFF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590146   (145712) от 16.12.2012
-
-VA - Dubai Chill Lounge Vol.1,2,3 (Сomplеte Сollection) (2007) [MP3|320 кб/с]<Lo-Fi, Chillout, Lounge, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kid Coconutz - Take On Me
-02 Skyway - Golden Memories
-03 Patrick Marsh Vs. Michael Steep - My Lovin
-04 Citrus Jam - Indian Lounge
-05 Deeparture - Point Of No Return
-06 Sofa Sweeper - Broken Romance
-07 Chillwalker - Sentimental Sunshine
-08 Kid Coconutz - Needed Moonlight
-09 Calido - El Calor
-10 Deeparture - Only Tears(   Читать дальше...   )Жанр: Lo-Fi, Chillout, Lounge, DowntempoПродолжительность: 03:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607DDADACF0F6B816FE27689BABFD6D6B30CBA74
 ```
 
 

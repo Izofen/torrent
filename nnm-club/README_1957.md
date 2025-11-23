@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51237.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4AEC52196D644763D138DE540C097B5D1BB5F781
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51238.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8BD6430CDC2B281621D801769CCA2E21B3D8CA27
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51239.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:31A6FC7E0F731590A1C2AE0EB44A370C50C8120D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51240.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sprint-Layout 6.0 DC 13.06.2024 RePack (& Portable) by NikZayatS2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51241.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B51EC9DFC058343A3BD8413D95E486A939A0F155
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51242.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AD302C5E736CDFCAADDAEB0867A841FA56BC6509
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51243.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:AD302C5E736CDFCAADDAEB0867A841FA56BC6509
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51244.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D075E233135A2BCF7DEF7DB0EBE30C5EF45FBFFE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51245.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Auslogics Anti-Malware Pro 1.23.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51246.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BE425524426F62DCF8D34F54862C62213C92CF4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51247.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:25594F3980D560ECA46D8FA7BF4E40DE15CEA1A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51248.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ CG Boost, Martin Klekner | Master 3D Environments in Blender (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51249.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:52C3588AE7A0BE482E38721ECDDE14F819103F4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51250.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:37BA52AF5ECC65BA0B370F839FFD89FE20D348F1
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51251.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AEFA70F38BF11D488A0234857D942A9A4857EBF6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51252.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:54220387ED8C8D5C8513C918608D5E0301DE47F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51253.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:BD7528810988901E3BA7C291444C8A9A329896B6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51254.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ LiveClasses, Константин Тимофеев | Основы моделир
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51255.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:48EDF26CF9A9E91D67C55EA69F077FD7011801D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51256.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ SideFX Houdini 20.0.547 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51257.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cent Browser 5.1.1130.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51258.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6E7AF6B0D972236231ABBC7A71704BEAB617ECC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51259.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Piriform Utilities Pro (Defraggler 2.22.995, Recuva 1.54.120, Speccy 1.33.079) R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51260.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:941A28A26236F537F83CA54957321C9E2224E65C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51261.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:5F6023B8C9548DA740927E042E08BF8C74255418
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51262.jpg" />
 </div>
 
 

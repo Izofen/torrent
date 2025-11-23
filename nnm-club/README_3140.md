@@ -1,3 +1,81 @@
+###  Публикация: 1822422   (100743) от 06.10.2025
+
+Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yellow Brick Veneer (6:10)
+02.  Don't Want to Follow You (4:48)
+03.  Watching You as You Fall (4:55)
+04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822420   (100744) от 06.10.2025
+
+Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100744.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1595BC7A574BB7FF97E75C1961A2A4AEA234B3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822419   (100745) от 06.10.2025
+
+Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul Brass (3:22)
+02.  CITY COLLECTIVE (3:10)
+03.  Piano Strumming (3:11)
+04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822418   (100746) от 06.10.2025
 
 Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +84,7 @@ Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100746.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100747.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100748.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100749.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100750.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100751.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100752.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100753.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100754.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100755.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100756.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100757.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100758.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100759.jpg" />
 </div>
 
 
@@ -369,7 +447,7 @@ magnet:?xt=urn:btih:F7CF0EA00F6BD5232DAB3AEEFA7DFE5B39390D6C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100760.jpg" />
 </div>
 
 
@@ -393,7 +471,7 @@ magnet:?xt=urn:btih:BD4CD0C496C3B3339F3E8B89E1484AA160550E29
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100761.jpg" />
 </div>
 
 
@@ -417,7 +495,7 @@ magnet:?xt=urn:btih:014305697C1D4BCCE7FEBDF03A821E8974E3CF4F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100762.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ magnet:?xt=urn:btih:BEBF79B8C4886A8B0542AD759015B605A32C6583
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100763.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ magnet:?xt=urn:btih:38E54D6C7C2CF492AB6A96D419AA4D716BD4367C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100764.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ magnet:?xt=urn:btih:EB06915A149B0C54DEDED5BF1285E0D1E6BAFD7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100765.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100767.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100768.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ reaConverter Pro 8.0.141 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100769.jpg" />
 </div>
 
 
@@ -576,81 +654,6 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822374   (100770) от 06.10.2025
-
-Формула 1. Сезон 2025. Этап 18. Гран-при Сингапура. Гонка (05.10.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100770.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 октября 2025 воскресенье 15:00 МСК этап 18. Арена: Городская трасса Марина Бей. Гран-при Сингапура. Гонка (62 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4A72D1F90AFE057B5E39B8CF35F51322814478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822376   (100771) от 06.10.2025
-
-Жадан і Собаки - Бийся за неї (2025) [FLAC|lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Інтро (01:48)
-02. Бюджет (03:36)
-03. Безробітні (03:55)
-04. Країна (03:30)(   Читать дальше...   )Продолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822375   (100772) от 06.10.2025
-
-Оверлеи - GoGivo - 10 Rose Flower Overlays Transparent [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100772.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 красивейших оверлеев с розами. Файлы можно использовать в любом графическом редакторе, поддерживающем слои, просто наложив наложение поверх фотографии.Формат: PNGРазрешение файлов: 4000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
 ```
 
 

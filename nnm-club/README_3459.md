@@ -1,3 +1,84 @@
+###  Публикация: 1722851   (109616) от 13.05.2024
+
+Al Lerman - Country-Fried Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Backbug Song (3:57)
+02. Big Bill’s Blues (3:27)
+03. How High Is Up (3:53)
+04. How Much Longer Can A Broken Heart Last (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEA18F7DDB9F030671510943B05EB8D91E4FC3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722844   (109617) от 13.05.2024
+
+VA - Delightful Cozy Smooth Inviting Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Together We Fly (4:08)
+02. Love Suggestions - Little Talks (4:59)
+03. Kool&Klean - Into the Unknown (4:13)
+04. Chillaxing Jazz Kollektion - Live & Tell (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854E6C9F43F04DDC9AD1A0C834394FFB6666ECAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722666   (109618) от 13.05.2024
+
+Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Piece of Cake (3:45)
+02. Welcome to the Mirrorland (3:46)
+03. I'm the King, I'm the Sun (4:56)
+04. The Key: Will (1:08)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B0C16FEC3D4EFA6C749FD81E2A93DAB958EEEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722824   (109619) от 13.05.2024
 
 El Moono - The Waking Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -6,7 +87,7 @@ El Moono - The Waking Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109619.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:FE211EC28B888703D4671751049DD2695A43C0BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109620.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Bal-Sagoth - The Chthonic Chronicles (2006) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109621.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Sails of Serenity - Eternal Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109622.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:953E04FE28524D5EE10CE9E589F10001609C544D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109623.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ Wavesequencer - Hyperion 1.53 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109624.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ magnet:?xt=urn:btih:AE172F4158ED80D9261F1F227B511E22643A6ADD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109625.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Audio Damage - Other Desert Cities 1.0.11 VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109626.jpg" />
 </div>
 
 
@@ -212,7 +293,7 @@ Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109627.jpg" />
 </div>
 
 
@@ -239,7 +320,7 @@ PhotoDirector - Редактор фото 19.2.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109628.jpg" />
 </div>
 
 
@@ -263,7 +344,7 @@ Wavesequencer - Theia 1.10 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109629.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Гонка (12.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109630.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109631.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ magnet:?xt=urn:btih:90803CA53979AABF908B19879716591DF236BD3D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109632.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109633.jpg" />
 </div>
 
 
@@ -391,7 +472,7 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109634.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109635.jpg" />
 </div>
 
 
@@ -445,7 +526,7 @@ Andy Lindquist - Resuscitated (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109636.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109637.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109638.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109639.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109640.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109641.jpg" />
 </div>
 
 
@@ -592,83 +673,6 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3F63F23BA60D5A9DB35B2B69C553E0F3834DB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722653   (109642) от 13.05.2024
-
-Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Die Young [00:04:31]
-02. Into the Fire [00:04:28]
-03. Eternal Speed Death [00:02:55]
-04. War [00:03:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355074262AAED080B07F6BA58D512B6BB46375FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722953   (109643) от 13.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 3-й матч) Ванкувер Кэнакс - Эдмонтон Ойлерз (12.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109643.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 мая 2024, понедельник. 04:30 МСК. 1/2 финала - Запад. 3-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
-Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8432DED961439D23A91586209856EED5C0A1F80E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722811   (109644) от 13.05.2024
-
-Дмитрий Силлов | S.T.A.L.K.E.R. Снайпер 2. Закон снайпера (2019) [MP3, Серафим Новиков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он не помнит, как попал в Зону. Но Зона помнит о нем и всеми силами пытается уничтожить. Но он – Снайпер и он идет к цели, несмотря ни на что. Его цель – Монолит, который даст ответы на все вопросы. Если только Снайпер доберется до цели и останется жив, ведь это не удавалось никому, даже знаменитым Легендам Зоны.
-Главная особенность произведения от других романов (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBD1BE85E293596BA47A2511351CFD9B77D90A6
 ```
 
 

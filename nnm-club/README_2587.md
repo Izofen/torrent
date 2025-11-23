@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68011.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68012.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68013.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Smart AudioBook Player Pro v11.2.2 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68014.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68015.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68016.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - El mes del Rock - Abril 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68017.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Trance Fusion, Vol. 09 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68018.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68019.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Deafheaven - Lonely People With Power (2025) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68020.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68021.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68022.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68023.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Eternal Thirst - The Nesting of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68024.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68025.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Voice Of The Beehive - Honey Lingers (1991) Remastered and Expanded, 2025, Becau
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68026.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ A.J. Croce - Heart of the Eternal (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68027.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68028.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68029.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68030.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:D7F36D9A390A7E62F7F31FC2112A9EC4BB5BDE90
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68031.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:663B6901DEAF961493AF298E92A0ABB13320E777
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68032.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:B2B63A66354AA786BC8041E0BEF8C63E5654B594
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68033.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:7AA6721D95CF070A27BD63C8EB8F7AC677EADED8
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68034.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:5CB0B94FA8F475A7F4007B1F32BB271BD0B5957A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68035.jpg" />
 </div>
 
 

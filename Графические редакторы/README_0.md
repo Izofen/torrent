@@ -6,7 +6,7 @@ AliveColors 10.0.4823 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2873.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FireAlpaca 2.13.25 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3011.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Topaz Photo AI Pro 4.1.0 RC Portable by 7997 + Models [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3369.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Capture One 23 Enterprise 16.6.6.3111 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3495.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Illustrator 2025 29.8.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3670.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3775.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PhotoFiltre Studio X 11.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3902.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Franzis FOTO projects 3D #1 Pro 1.12.04285 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3923.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ AMS ФотоМОНТАЖ 4.5 Portable by 7997 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3937.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AMS ФотоМОНТАЖ 4.5 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4151.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ FOTO projects 3D professional 1.12.04285 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4200.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ FOTO projects 3D professional 1.12.04285 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4201.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4208.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AMS PhotoDiva 5.0 RePack by KaktusTv [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4690.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Hallmark Card Studio 2023 Deluxe 23.0.1.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4980.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Radiant Photo 2.1.0.756 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5002.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ PhotoFiltre Studio X 11.7.0 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5007.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ AMS ФотоМАСТЕР 21.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5048.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Wise ImageX 1.5.1.17 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5234.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ CorelDRAW Technical Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5270.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ AMS ФотоМАСТЕР 21.0 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5275.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5282.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Light Image Resizer 7.3.0.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5385.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Perfectly Clear WorkBench 4.8.0.2846 + Addons [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5395.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ DigiKam 8.7.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5409.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Photoshop Lightroom Classic 2024 14.5.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5650.jpg" />
 </div>
 
 

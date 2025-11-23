@@ -6,7 +6,7 @@ Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98793.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98793.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Distance Call - Distance Call (2011) [FLAC|Lossless]<Melodic Metal, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98842.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98867.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98867.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ministry - Relapse (2012) [FLAC|Lossless]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98885.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98885.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98961.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Evadne - The Shortest Way (2012) [FLAC|Lossless]<Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98977.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98977.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Ten Years After - Ten Years After (1967) [APE|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99018.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99018.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99029.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99031.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99078.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:1BF582C42533626C232D03331F27C66D909BDEF1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99107.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99107.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99173.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99199.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99203.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99256.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Robert Lamm - Living Proof (2012) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99375.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99375.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99491.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99499.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99584.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99670.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99670.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99720.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99760.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99869.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99907.jpg" />
 </div>
 
 
@@ -782,7 +782,7 @@ Naglfar - Teras (2012) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99937.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99937.jpg" />
 </div>
 
 

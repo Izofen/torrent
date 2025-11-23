@@ -1,3 +1,82 @@
+###  Публикация: 1824529   (128861) от 15.10.2025
+
+Lil'Magic Sam - Tired Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LEAVING TOWN (4:12)
+02.  I'M COMING BACK (3:52)
+03.  LOOKING SO FINE (3:57)
+04.  ACTION LADY (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE44F9DEC27E1EE17C3759641E2D495FB9E00BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824525   (128862) от 15.10.2025
+
+Kristina Train - County Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Singer-Songwriter>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  County Line (3:49)
+02.  99 Floors (3:15)
+03.  Hard Road To Travel (3:41)
+04.  Believe (3:59)(   Читать дальше...   )Жанр: Blues, Rock, Singer-SongwriterПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04A036DE49CE6338F1F6BB38BA9E96D05FC0C14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 55427   (128863) от 15.10.2025
+
+Русалка (2007) WEB-DL 1080p
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса - хроническая неудачница. Но в одном ей сказочно повезло - Алиса умеет говорить с морем и обладает даром влиять на происходящие в мире события. Достигнув 18-летия, Алиса решает попытать счастья в Москве. В столице Алису поджидают новые неприятности и первая в жизни влюбленность… без взаимности.
+Могут ли волшебные способности Алисы помочь ей завладеть сердцем (   Читать дальше...   )Производство: Россия, Централ ПартнершипЖанр: ДрамаАктеры: Мария Шалаева, Евгений Цыганов, Мария Сокова, Анастасия Донцова, Вероника Скугина, Наталья Рычкова, Ирина Скриниченко, Игорь Яцко, Нана Кикнадзе, Артур Смольянинов, Нелли Уварова, Игорь Урываев, Марина Николаева, Сергей Юркин, Инга Сметанина, Иван Николаев, Сергей Алдонин, Сергей Чирков, Алексей Гущин, Антон Ескин, Максим Коновалов, Виктор Перевалов, Альбина Евтушевская, (   Читать дальше...   )Продолжительность: 01:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300D74845987C5EDCE283B57A5DABF53EFF6222C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824523   (128864) от 15.10.2025
 
 Шрифты - YouWorkForThem - Rough Streak Font - T28359 [OTF]
@@ -6,7 +85,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128864.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ magnet:?xt=urn:btih:44211F133A0A5BB2E94D2B5C9AFC0B11CCFB3D7D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128865.jpg" />
 </div>
 
 
@@ -56,7 +135,7 @@ Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128866.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ magnet:?xt=urn:btih:864ACB15B81C720A3ABAA93224E21534A524A4DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128867.jpg" />
 </div>
 
 
@@ -105,7 +184,7 @@ magnet:?xt=urn:btih:A209DA1B33F1FC2E3A5DD361F770B23F566744B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128868.jpg" />
 </div>
 
 
@@ -129,7 +208,7 @@ magnet:?xt=urn:btih:30E873AC545092D4F58992E2DDACED3D19E81B6F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128869.jpg" />
 </div>
 
 
@@ -155,7 +234,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128870.jpg" />
 </div>
 
 
@@ -180,7 +259,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128871.jpg" />
 </div>
 
 
@@ -207,7 +286,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128872.jpg" />
 </div>
 
 
@@ -234,7 +313,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128873.jpg" />
 </div>
 
 
@@ -258,7 +337,7 @@ magnet:?xt=urn:btih:F72580CFDC842AF6E3C086A01E6890600ADD2534
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128874.jpg" />
 </div>
 
 
@@ -282,7 +361,7 @@ magnet:?xt=urn:btih:4A6153FABE4A1DA887CECA05E3050E2B0364F0E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128875.jpg" />
 </div>
 
 
@@ -309,7 +388,7 @@ Baldur's Gate: BiG World Project (2017) [Ru] (X1) Repack/Mod SubZero400
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128876.jpg" />
 </div>
 
 
@@ -333,7 +412,7 @@ magnet:?xt=urn:btih:F46E08A14B16617C2BD7C97BEC56C99FCC17246B
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128877.jpg" />
 </div>
 
 
@@ -357,7 +436,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128878.jpg" />
 </div>
 
 
@@ -384,7 +463,7 @@ magnet:?xt=urn:btih:0524233D86D5C90AFA7660ADA654EAE3723E020B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128879.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ magnet:?xt=urn:btih:36D6BFA58C2C3AC16395BA65CFA021CB35289C28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128880.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ magnet:?xt=urn:btih:0E46A2023F9E9BEB9A934A79E22AA21CED92AC61
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128881.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128882.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ magnet:?xt=urn:btih:604B6892FA574E4C02077794618AAFEF7DA3DBD9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128883.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ Purvpn 10.0 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128884.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ magnet:?xt=urn:btih:966DA72173AAFB22386EB4B327A4311E8DCC026C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128885.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ magnet:?xt=urn:btih:AA1ACC566F07B2A0FD3527EB44D21D805DDCBDB4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128886.jpg" />
 </div>
 
 
@@ -566,78 +645,6 @@ Facers™ предлагает 25 стилей, охватывающих 5 ва�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09250EE46D136373CA5A99396E14489EA8BD6019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824475   (128887) от 15.10.2025
-
-Chimeras 14: The Lost Film / Химеры 14: Потерянный фильм (2025) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Chimeras. Это мечта каждого киномана! На экраны вышел давно забытый фильм, и поклонница кино Ванесса Росси намерена присутствовать на первом показе после так называемой "проклятой” премьеры 20-летней давности. Но когда гаснет свет и начинается фильм, становится понятно, что проклятие реально существует! Теперь Ванесса должна (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D70C8A2C76B46B060A34C5926D5240D3A2429E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824478   (128888) от 15.10.2025
-
-Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Пересечение стен любви с тобой [2025, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда старшеклассница Мари сталкивается с другим опоздавшим учеником, она с удивлением обнаруживает, что он — представитель расы зверолюдей, который будет учиться в ее школе! В конце концов, зверьки нередко сосуществуют с людьми, но все же это редкость, учитывая предвзятое отношение и все такое. Сначала Мари нервничает при встрече с ним, но вскоре понимает, что за (   Читать дальше...   )Производство: Millepensee / ミルパンセЖанр: романтика, фэнтезиРежиссер: Итагаки СинПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB53883A225E5BD2C307AE8E51CE2CF1BA649AC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824477   (128889) от 15.10.2025
-
-Большое смелое красивое путешествие / A Big Bold Beautiful Journey (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара и Дэвид не были знакомы до встречи на свадьбе общего друга. Вскоре они отправляются в большое смелое красивое путешествие, в ходе которого им предстоит заново пережить важные моменты из своего прошлого. Это помогает им понять, как они оказались в точке, где находятся сейчас, и, возможно, даст шанс изменить будущее.Производство: Ирландия, США / 30West, Columbia Pictures Corporation, Original FilmЖанр: фэнтези, драма, мелодрамаРежиссер: Сет РейссАктеры: Колин Фаррелл, Марго Робби, Фиби Уоллер-Бридж, Хеймиш Линклейтер, Лили Рэйб, Билли Магнуссен, Yuvi Hecht, Шелби Симмонс, Джоди Тёрнер-Смит, Сара ГадонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD149D9A9DFBA338E8D264BB7102A25B9A5A481
 ```
 
 

@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6868.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9A93326EFBD0B3E8C32A270F69DCF46457476C5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6869.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6870.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4ADE204B2B8A3F4ADA447F9144FD45748936BD6B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6871.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:08EC3A83E26ED32AFBE93895D81B09A4FC11559C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6872.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляема�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6873.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6874.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D7EC50B1D271657562075CD9189E5A3C183FCC48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6875.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:38B2075C8C467A6FBF6470D49404F083426E7086
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6876.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6878.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5CEF54A2D9089EC7E58664EE9FD90543AF353BD7
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6879.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:9451736FFFB7BFFC6F02760C48AC7B8646F5F1C4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6880.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:AE060F3ABAB0A14D58DA46A11B0A1A3C4FCE6549
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6881.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C6BE27DD01F8BD3B9FF99BA2EE9E6F0575D2CB6F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6882.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:C6BE27DD01F8BD3B9FF99BA2EE9E6F0575D2CB6F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6883.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C6BE27DD01F8BD3B9FF99BA2EE9E6F0575D2CB6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6884.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Microsoft Windows 10 [10.0.19045.6216], Version 22H2 (Updated August 2025) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6885.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:27190EFB94549D644B2B3F040731B8CFDD0083F7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6886.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B91047EA49A0911D0BEF05E4CC82345BBD180EB2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6887.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B91047EA49A0911D0BEF05E4CC82345BBD180EB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6888.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:1B34A5FFB5BF34D2EA0C570E100856DC4DA3099D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6889.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black Knight - The Tower (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6890.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:A61541BD655F57571ED2D56A2051B94E378DD965
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6891.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Throne Of Time - Emperor Of The Universe (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6892.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6893.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Gil Evans - The Complete Pacific Jazz Sessions (1958, 1959) 2006, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6894.jpg" />
 </div>
 
 

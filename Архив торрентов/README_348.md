@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84243.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:785420C746426C581FEF3759258DC8B1D61DD17F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84245.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:AF3D5FF7CEB465267CB094A36D6D99F3DC1ECEAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84247.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:F92CA1F84EE8593E29FC4BBB476554DE97309C03
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84251.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:E08A2E03A50B8CA3ED1452872B939E1AE8D3BFD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84252.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F37775FFECD07F43DBAF8D2470F599AE71F69568
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84253.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:519ADA56CC407971D904A3E940420E88080B10D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84254.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84255.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84262.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84264.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84266.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84267.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84276.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84277.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:C2E5693FFA379E2E8EFCC3C2C8E36B8C26AFAF2F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84280.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:1EAEDDD569E69C5E735C40501B0437AA9FA4CF01
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84285.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:1EAEDDD569E69C5E735C40501B0437AA9FA4CF01
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84287.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:55C99BCB8454F9F0BA0325D76DC986E81C2EBDEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84290.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:55C99BCB8454F9F0BA0325D76DC986E81C2EBDEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84294.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:55C99BCB8454F9F0BA0325D76DC986E81C2EBDEC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84301.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84305.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84314.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84318.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:87A5A04569788C188EFDECE475B449A1D8850549
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84322.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:87A5A04569788C188EFDECE475B449A1D8850549
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84323.jpg" />
 </div>
 
 

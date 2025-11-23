@@ -1,3 +1,174 @@
+###  Публикация: 1085568   (153506) от 24.12.2016
+
+Алан Силлитоу | Ключ от двери (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизненная достоверность — характерная черта произведений "рабочих романистов", к которым можно отнести и А.Силлитоу. Объясняется это тем, что все они — выходцы из рабочей среды, нравы которой столь правдиво и воспроизводят в своих книгах. Постоянный мотив этих произведений — стремление главного героя вырваться из беспросветного, отупляющего существования (   Читать дальше...   )Жанр: Современная проза РоманПродолжительность: 14:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CD9B08435DA2D86AB442D06A73FBBE69DA81AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434071   (153507) от 23.12.2020
+
+Последняя женщина Шан / Da ji / The Last Woman of Shang (1964) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжоу - император династии Шан, завоевывает новые земли и облагает покоренных данью.Тань Цзи, дочь убитого царя царства Цзи, дает клятву отомстить Чжоу. Она влюбляет в себя императора и становится новой императрицей. Чжоу выполняет любые ее прихоти, тратя при этом огромные деньги и людские ресурсы. План Тань Цзи в том, чтобы собственный народ возненавидел императора, (   Читать дальше...   )Производство: Гонконг, Корея Южная, Shaw Brothers, Shin FilmsЖанр: ДрамаРежиссер: Ин-хён Чхве, Фен ЮеАктеры: Щин Ён-гюн, Даи Лин, Чжэн Пэйпэй, Ким Сын-хо, Чхве Ын-хи, Чэнь Юньхуа, Квонг Чи Чунг, Пинг Чин, Миао Чинг, Фэнг ЙингПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FBA6DB4AC26A4D74DCC523EBCE8583111BAA25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347154   (153508) от 22.12.2019
+
+Экшены - GraphicRiver - Splatter Photoshop Action - 24941739 [ATN, ABR, PAT, ASL, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splatter - экшен фотошоп с эффектом брызг и подтёков, креативный подход в оформлении ваших фотографий. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.Формат: ATN, ABR, PAT, ASL, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2633FC7CBF08267AD66708A6E0A6C0C33E91D17F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968618   (153509) от 24.12.2015
+
+Право голоса. "Мягкая сила уходит в прошлое?" (24.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153509.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Эксперты говорят об ослаблении концепции "мягкой силы". По их мнению, эффект от неё сегодня значительно меньше, чем от ударов бомбардировщиков или от военных учений у чьих-либо границ. Так ли это на самом деле? Каким должно быть государство, и как ему стоит позиционировать себя в мире?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4F715D5B7D90FF4AC0D329DC127D44A53BF5D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194807   (153510) от 26.12.2017
+
+Андрей Буторин | Метро 2033: Хозяин города монстров (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Метро 2033: Мутант» из межавторского цикла «Вселенная Метро 2033».
+
+«Метро 2033» Дмитрия Глуховского – культовый фантастический роман, самая обсуждаемая российская книга последних лет. Тираж – полмиллиона, переводы на десятки языков плюс грандиозная компьютерная игра! Эта постапокалиптическая история вдохновила целую плеяду современных писателей, (   Читать дальше...   )Жанр: Боевая фантастика, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97E4EC824E4848042D8AFB0BF8065A5412932B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085235   (153511) от 24.12.2016
+
+Акиф Пиринчи | Кошачьи (2005) [MP3, koshkinm]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот Фрэнсис, которому природа подарила невероятное самообладание и любопытство, а судьба - туповатого и добродушного хозяина, попадает в самый захудалый из домов в незнакомом районе. Исследуя окрестности, Фрэнсис сталкивается с ужасным явлением - серийными убийствами местных кошек. Прибегнув к помощи своих новых знакомых, кот-сыщик берет след убийцы. Замечательная (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 08:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35A772FB3211D743BDED5E0DB294175EEF84243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518243   (153512) от 20.12.2021
+
+Мониторинговый проект OONI выпустил подробный технический отчет о российских блокировках Tor
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_153512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отчет суммирует все, что мы с вами наблюдаем с начала декабря, с красивыми графиками, ссылками на измерения и описанием методологии тестов.▪️ Доступ к сети Tor в России блокируется с 1 декабря.
+▪️ У OONI есть достаточно измерений из 65 российских автономных сетей (AS). Из них блокировки наблюдаются только в 15 AS, в том числе принадлежащих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434180   (153513) от 23.12.2020
 
 Восток / The East (2020) WEBRip [H.264/2160p]
@@ -6,7 +177,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153513.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:DC63ADEFE50AB329BACBA8E7EA4787D5BF206C12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_153514.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_153514.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ magnet:?xt=urn:btih:DC63ADEFE50AB329BACBA8E7EA4787D5BF206C12
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153515.jpg" />
 </div>
 
 
@@ -81,7 +252,7 @@ magnet:?xt=urn:btih:D07987C091DF178F56CEABC756EDE5BC6F887DDE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153516.jpg" />
 </div>
 
 
@@ -107,7 +278,7 @@ Dave Hole - Outside Looking In (2001) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153517.jpg" />
 </div>
 
 
@@ -134,7 +305,7 @@ magnet:?xt=urn:btih:88FDF6ACAC5BAE338B13EB4C99E68AFE0D932E67
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153518.jpg" />
 </div>
 
 
@@ -158,7 +329,7 @@ Rob Orlemans & Half Past Midnight - Libertyville (2007) [APE|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153519.jpg" />
 </div>
 
 
@@ -185,7 +356,7 @@ magnet:?xt=urn:btih:D593573B128F5C48791C74F8EC54FC537E9B3545
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153520.jpg" />
 </div>
 
 
@@ -209,7 +380,7 @@ magnet:?xt=urn:btih:0DB0A833330D506FFD3AA2AFD10B48C9B83C6CD9
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_153521.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_153521.jpg" />
 </div>
 
 
@@ -233,7 +404,7 @@ Autumn's Child - Angel's Gate (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153522.jpg" />
 </div>
 
 
@@ -260,7 +431,7 @@ magnet:?xt=urn:btih:B27308700829081DD1E6B85798CFF510EF715901
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153523.jpg" />
 </div>
 
 
@@ -284,7 +455,7 @@ magnet:?xt=urn:btih:686685FC31F2C21616C5F46693F473E0D046942C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153524.jpg" />
 </div>
 
 
@@ -308,7 +479,7 @@ LaserPipe - робот-змея, который может сваривать т
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_153525.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_153525.jpg" />
 </div>
 
 
@@ -332,7 +503,7 @@ LaserPipe - робот-змея, который может сваривать т
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153526.jpg" />
 </div>
 
 
@@ -356,7 +527,7 @@ magnet:?xt=urn:btih:E4E81D7D7FD42B1C84D22E4D512ADB6E79A50680
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153527.jpg" />
 </div>
 
 
@@ -381,7 +552,7 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153528.jpg" />
 </div>
 
 
@@ -407,7 +578,7 @@ magnet:?xt=urn:btih:7A6A1821C2B6CE506671210A57B94FDF31A3E10D
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153529.jpg" />
 </div>
 
 
@@ -431,7 +602,7 @@ magnet:?xt=urn:btih:F1D97E74E2C2653F47C448A8A5C8AC92CAEBB149
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153530.jpg" />
 </div>
 
 
@@ -455,7 +626,7 @@ magnet:?xt=urn:btih:AB93A24AA285A44E69151CF5363442BE64010BEA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153531.jpg" />
 </div>
 
 
@@ -469,183 +640,6 @@ magnet:?xt=urn:btih:AB93A24AA285A44E69151CF5363442BE64010BEA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8650F82ED36E1AF02A899C19B4A88E77F5216571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518502   (153532) от 20.12.2021
-
-Шуба (2016) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой видит обнажёнными всех женщин вокруг, но собственную супругу он видит в шубе.Производство: Россия / August ProductionЖанр: Короткометражный, комедияРежиссер: Василий ВоротовАктеры: Сергей Фролов, Ирма Шейн, Игорь Гаспарян, Максим Коваленко, Сергей ПетровПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C5AB99D72128791BF03EB62699714E4534DEB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968448   (153533) от 24.12.2015
-
-Apparent Symmetry - Enveloping White Noise (2015) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conscious Infusion (06:19)
-02. Lacerate (05:39)
-03. Lights (Over Treetops) (06:21)
-04. Breaking DownЖанр: IDM, Ambient, IndustrialПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198D00763BF7C44DA2DACB1AA278696D57BACF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434120   (153534) от 23.12.2020
-
-Firefox Browser 84.0.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA251483DB37009AD53AEFF0E5E439110A9146B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968543   (153535) от 24.12.2015
-
-VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logophilia - Igualmente
-02. Midnite Tiger - Deeper Trouble
-03. Laurent de Paris - Leaving the Dark
-04. Aqua Mundi - Simple ou double(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB0429E4DE80E3DCCFE6938CC6570DC7A8751B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086346   (153536) от 24.12.2016
-
-VA - How Low Can You Go? (1993) Timeless Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop, Jazz Fusion, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Houdini's - Headlines [04:23]
-02. Denise Jannah - Fragile [06:34]
-03. Scapes - Hatchback [06:46]
-04. Surinam Music Ensemble - P.D. (Patrick and Deborah) [04:23](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Jazz Fusion, Vocal JazzПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1149FA4B7DFC892CF0D40ECD3A0382420A5506DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518675   (153537) от 20.12.2021
-
-Рождество на двоих / Last Christmas (2019) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом.Производство: Великобритания, США / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Мэдисон Инголдсби, Эмма Томпсон, Борис Исакович, Люси Миллер, Эмилия Кларк, Макс Болдри, Маргарет Клуни, Джон-Люк Робертс, Мишель Йео, Билал ЗафарПеревод: Дублированный (Лицензия)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F80AF4130E30CBCB8F31B1C321B4DCD6DD63C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434171   (153538) от 23.12.2020
-
-Yuki – Ad Blocker+ for YouTube 1.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yuki – Ad Blocker+ for YouTube - приложение для блокировки  рекламы на канале  «YouTube».Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: My PheakdeyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046FA119E2B6919E8C40363FBE9BCAA39651588
 ```
 
 

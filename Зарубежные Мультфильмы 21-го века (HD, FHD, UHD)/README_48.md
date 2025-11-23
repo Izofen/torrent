@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253271.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253271.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:11B4EC25509FBDD97FE8536C6914BDAA3FBFB142
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253461.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E8AB881C4282B19599270FEC6238D2C87B07CBE8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254604.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254604.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:62D7A4B9893785AC4800789FE38DD2969E259A99
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254650.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254650.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7A91324DC9E633FF73BE526B91954401F475FF71
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254993.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254993.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9DD4E874F410BAF15D4013FF279680538F06FD6F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255539.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255539.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3FDB9762A8A540D883FFA5E35C2A084FE31EECF2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255683.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5462ADC7A9DE505DC21585F34DDB1847FF10B256
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255684.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255684.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:5CD73335C3DC144F3EA9D862C6805CFE859E1136
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255713.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255713.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:435D0ADEF13174E0404B090CDF6BE14B98790545
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255946.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255946.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0A93A1386A845318655DA4E1C1B0E00A90F38EF8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256067.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256067.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D578D320B8EEA50EA77491E5D94A441BFA884C04
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256101.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256101.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:74AEA06DC87134CCBAD844D55AF85DA311DE5E12
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256398.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256398.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1E953632121A8FC6ECF9E94D63E49774959C0E02
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256406.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256406.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:990E0CE6436F04C06E7E67341682554F84DC9649
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256658.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256658.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:3656BA339B153E872383DB442EDCD869AB0C9493
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256698.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256698.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7DFC1814F655E46D6E7FB5A5A8788389C316B00C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257556.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257556.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3DC43EDF994652E205A87BB1B30E44081BF71B4F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257557.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:BF8048ADCAD9C876702239C02B48E1E816AA7031
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257558.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257558.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A1E62671044697B74B61328410FBD7EA6B6AA9F8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257559.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257559.jpg" />
 </div>
 
 
@@ -476,6 +476,151 @@ magnet:?xt=urn:btih:A1E62671044697B74B61328410FBD7EA6B6AA9F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B50C2B373B29B5BC15988C8BB06F1C5696DD74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500654   (258176) от 24.05.2012
+
+Тор: Легенда викингов / Hetjur Valhallar - Por / Legends of Valhalla: Thor (2011) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоуверенный подросток, в арсенале которого находятся магическое оружие присоединяется к борьбе против злой королевы и ее армии гигантов.Производство: Германия, Исландия, ИрландияЖанр: Комедия, Приключения, Семейный, МультфильмРежиссер: Оускар Йоунассон, Тоби Генкель, Гуннар КарлссонАктеры: Джастин Грегг, Пол Тайлак, Николя Кохлан, Лиз Ллойд, Алан Стэнфорд, Эммет Скэнлэн, Дж. Дрю Лукас, Мэри Мюррэй, Леса Турман, Гари ХецлерПеревод: ДублированныйПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BAF1B092CE4048F5575E49C8A86F974852292C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501710   (258514) от 26.05.2012
+
+Рыбалка с Сэмом / Fishing with Sam (2009) [H.264/720p-LQ] HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ловля рыбы на Северном полюсе может стать целым испытанием. Некоторые в этом деле более удачливы чем другие. Те, кого удача обходит стороной, нуждаются в другом подходе к ловле рыбы. Здесь придётся поработать головой...Жанр: Короткометражная анимацияРежиссер: Atle Solberg BlaksethПерсонажи: Белый медведь, тюлень и три пингвинаПеревод: Без слов / НемойПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D40B18AF88948D8431F94752B55F7449BA6848B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501541   (258676) от 26.05.2012
+
+Осмосис Джонс / Osmosis Jones (2001) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — герой новой породы. Одноклеточный герой нашего времени. Он — Осмосис Джонс. Этот заразительный мультипликационный боевик начинается с того, что Фрэнк проглатывает злодейский вирус по имени Трэкс.
+Теперь, глубоко внутри удивительных мультипликационных внутренностей города Фрэнк, одинокий полицейский — белая кровяная клетка по имени Осмосис Джонс и его упорный (   Читать дальше...   )Жанр: Мультфильм, Семейный, ПриключенияРежиссер: Бобби Фаррелли, Питер ФарреллиПерсонажи: Крис Рок (Osmosis Jones, озвучка), Лоренс Фишбёрн (Thrax, озвучка), Дэвид Хайд Пирс (Drix, озвучка), Брэнди Норвуд (Leah, озвучка), Уильям Шетнер (Mayor Phlegmming, озвучка), Рон Ховард (Tom Colonic, озвучка), Кид Рок (Kidney Rock, озвучка), Кенни Олсон (Kidney Rock, озвучка), Джейсон Краузе (Kidney Rock, озвучка), Джо С. (Kidney Rock, озвучка), Stefanie Eulinberg (   Читать дальше...   )Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205AA254687C08828041D9CD3B1D9F50F4D7A8BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502262   (258880) от 27.05.2012
+
+Союз зверей / Die Konferenz der Tiere (2010) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда веселых зверей нашла зеленый оазис посреди засушливой африканской пустыни, чтобы там поселиться. Но их жизнь оказалась под угрозой — река Окаванго стала быстро пересыхать. Друзья выясняют, что в этом виноваты люди, которые построили дамбу. Звери, — такие разные, — от льва до трусливого суслика, — объединяются в союз, чтобы бросить вызов людям и спасти долину! (   Читать дальше...   )Производство: ГерманияЖанр: Семейный, Комедия, ПриключенияРежиссер: Райнхард Клоосс, Хольгер ТаппеПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107010BA9DC021CD2FF6040EFED3A794F6A4974E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502085   (258953) от 27.05.2012
+
+Симпсоны в кино / The Simpsons Movie (2007) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_258953.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Гомер сбросил отходы в водохранилище, Спрингфилд объявили карантинной зоной и накрыли гигантским стеклянным колпаком, а местные жители ополчились на Симпсонов, за то что их отрезали от остального мира…Жанр: Комедия, Приключения, МультфильмРежиссер: Дэвид СилверманПерсонажи: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Марсия Уоллес, Билли Джо Армстронг, Тре Кул, Майк Дирнт, Тресс МакНилл, Памела Хейден, Джо Мантенья, Альберт Брукс, Русси Тейлор, Карл Видерготт, Мэгги Росвэлл, Том Хэнкс, Фил РозентальПеревод: ДублированныйПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E6FC289D8E311FBF2C968121D01E906C1EB5A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500234   (259101) от 28.05.2012
+
+Консоль / Consoul (2009) [H.264/720p-LQ] WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259101.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и смерти одного человека, рассказанная в духе восьмибитных видеоигр. Талантливое видео с хорошим саундтреком, показывает ненужность трёхмерных спецэффектов для того, чтобы рассказать впечатляющую историю... Хотя на самом деле немного 3D там имеется.Жанр: короткометражный анимационный фильмРежиссер: Лассе ГертсенПеревод: Без слов / НемойПродолжительность: 00:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A4D36852E8752DA8248F545898FC1442D88301
 ```
 
 

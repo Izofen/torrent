@@ -6,7 +6,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26712.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26712.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26713.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D90BE42E0DB6E4A94D774DDD12C76730A1C0E7AA
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26714.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26714.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VueScan Pro 9.8.45 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26715.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:56629FBAE3671955A29EC8F628D48F8F01CF9BD1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26716.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F3031C2F26D9C096A0E923EEF49FF8E8B566BCCA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26717.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26717.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:491EFAF52034F201C44033D9BB1D90D7E65D8AA6
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26718.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26718.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:12F61DE5433F1AE7C8E510376BF2E8B9E6E8409F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26719.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26719.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B5B18A6BBFCB7471E18C23BC03BE1CAE678585ED
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26720.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26720.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26721.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3703E87AE71130C85C5E743A739C0FB71D84EFC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26722.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9B6914E4E936CB37FEE578DE6AF4FB4C7E66DA84
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26723.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26723.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:9B6914E4E936CB37FEE578DE6AF4FB4C7E66DA84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26724.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26725.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26725.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26726.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Smushi Come Home (2023) [Multi] (1.1.0.4.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26727.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26728.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26728.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ CCleaner 6.33.11465 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26729.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26729.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2E9542CD14BFFEEDC12F124012680077BA401F0C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26730.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26730.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:672753B8FE5F79138F91D28680F9A68BF343B5EC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26731.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D621AF373800934366F68837F5B0D3FEC4FE1AC7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26732.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26732.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26733.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26733.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26734.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26734.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ WARRIORS: Abyss (2025) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26735.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26736.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26736.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack Pioneer
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26737.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26737.jpg" />
 </div>
 
 

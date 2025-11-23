@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81408.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:B64D91C9A3CCF38F49C96DE2FF7AC0E5813E9637
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81411.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3F9FD6012E882CB21E487A5718015829F3030BFF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81413.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Save2pc Ultimate 5.11 Build 1377 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81418.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ save2pc - программа для загрузки и конвертирова
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81431.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ save2pc - программа для загрузки и конвертирова
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81432.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:65EE6166D6452B4A41CB89327CBEE428151D1E8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81433.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:65EE6166D6452B4A41CB89327CBEE428151D1E8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81436.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Second Guest [Ge] (P) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81440.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E106DD9D2BE02220783684F6FB8A40D635D4D1AB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81441.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:CAA83515D18A3402F9FADD4033D5D338F1D9CA3E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81446.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:30342278639455C8BE1C7EB5E681E13CBFB6358B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81447.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Blood-C / КРОВЬ-С [2011, TV, 12 серий] BDRip 1080 raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81455.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:90D306FC25B1A1BEA24D762B41939D696F50F3DD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81456.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Snap - Greatest Hits (2008) [MP3|320 кб/с]<Electronic,Techno,Hip Hop,Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81465.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:54380544841C588D330795BE931D7D8D2524FAC8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81486.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:260342D2C869371E5751C22ED87226383169AC4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81489.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:6B5205C874D79F314D79A1D280445B1606D2ADD6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81493.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:510C76B34A262F13A733AC4397922A350FAF18C9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81502.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ NNM | Кулинарная книга NNM (объединенная) [2007-2011]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81503.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:A1D6CE003E308ADA2201A7EAFF97C9767DB6A25B
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81504.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3E8959DF7F196CA202AAFA0890DAFC1ED99A1121
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81508.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9457198D5FAE041EA64341396D031352402A4D5B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81514.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ MCS Drivers Disk v.9.0.40.450 revision 111220 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81516.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MCS Drivers Disk v.9.0.40.450 revision 111220 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81517.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:531100A41CBDD2BB2F7F8E6CEC1F9021DDB36F9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81525.jpg" />
 </div>
 
 

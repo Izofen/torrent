@@ -1,3 +1,28 @@
+###  Публикация: 1628257   (181693) от 30.09.2023
+
+Жертвенная принцесса и владыка зверей | Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts [2023, TV, 24 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто лет назад между людьми и зверолюдьми разразилась великая война, которая унесла множество невинных жизней и закончилась перемирием сторон. Однако, одним из условий хрупкого равновесия стало ежегодное человеческое жертвоприношение Царю зверей. Вот уже век продолжается кровавый ритуал и уже девяносто восемь девушек было отдано на съедение, и теперь та же участь (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Романтика, фэнтези, сёдзёРежиссер: Кон ТиакиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Cleo-chan, HectoR, NastyhaGrizli, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серии по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BFA5CBA13121EAE3EB38DFC5C9418A20D8742C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648716   (181753) от 30.09.2023
 
 Шпионский класс [ТВ-2] | Spy Kyoushitsu (2023) | Spy Classroom (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +31,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181753.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_181753.jpg" />
 </div>
 
 
@@ -31,7 +56,7 @@ magnet:?xt=urn:btih:D3D0953D2498D594135B6027489F4CCFDDD4FB56
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182148.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182148.jpg" />
 </div>
 
 
@@ -56,7 +81,7 @@ magnet:?xt=urn:btih:5B22789CD739E147AE80995A1BE9E7F065A9F2AA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182634.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182634.jpg" />
 </div>
 
 
@@ -81,7 +106,7 @@ magnet:?xt=urn:btih:45DC0BBE47B80D373D95FB88748D1D6708245494
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182676.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_182676.jpg" />
 </div>
 
 
@@ -105,7 +130,7 @@ magnet:?xt=urn:btih:5731E385BD82C991297C0514D0E98BF230444E65
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185626.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185626.jpg" />
 </div>
 
 
@@ -130,7 +155,7 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185654.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_185654.jpg" />
 </div>
 
 
@@ -154,7 +179,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Влады�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186306.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186306.jpg" />
 </div>
 
 
@@ -179,7 +204,7 @@ magnet:?xt=urn:btih:E0F929D7B14F8B03A9EFDCBC326B12BF8A3FEB21
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186497.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186497.jpg" />
 </div>
 
 
@@ -204,7 +229,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186556.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186556.jpg" />
 </div>
 
 
@@ -228,7 +253,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186613.jpg" />
 </div>
 
 
@@ -253,7 +278,7 @@ magnet:?xt=urn:btih:3A4099538853351998BF4E1BC57AFA6E601368CB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186922.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186922.jpg" />
 </div>
 
 
@@ -278,7 +303,7 @@ C Danchi | Жилой комплекс „Си“ | Housing Complex C [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186962.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_186962.jpg" />
 </div>
 
 
@@ -302,7 +327,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187061.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187061.jpg" />
 </div>
 
 
@@ -326,7 +351,7 @@ magnet:?xt=urn:btih:F1B19B3CD282AFA75BC927FA7A81963FB1DC6042
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187084.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187084.jpg" />
 </div>
 
 
@@ -351,7 +376,7 @@ magnet:?xt=urn:btih:C4C90670BF713624BE5076058A11712EA7541F5F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187411.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187411.jpg" />
 </div>
 
 
@@ -376,7 +401,7 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188216.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188216.jpg" />
 </div>
 
 
@@ -401,7 +426,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188933.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188933.jpg" />
 </div>
 
 
@@ -425,7 +450,7 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189569.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189569.jpg" />
 </div>
 
 
@@ -449,7 +474,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189842.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189842.jpg" />
 </div>
 
 
@@ -473,7 +498,7 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189845.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189845.jpg" />
 </div>
 
 
@@ -497,7 +522,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189847.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189847.jpg" />
 </div>
 
 
@@ -521,7 +546,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192113.jpg" />
 </div>
 
 
@@ -545,7 +570,7 @@ magnet:?xt=urn:btih:EB9B118C00AAF7FFD3F35342BF476CA2E2E2AA29
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192199.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192199.jpg" />
 </div>
 
 
@@ -570,7 +595,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193706.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193706.jpg" />
 </div>
 
 
@@ -594,7 +619,7 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193832.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193832.jpg" />
 </div>
 
 
@@ -605,30 +630,6 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C0AB746752F0300BF544C8002AA73C730B9A197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638915   (193911) от 22.08.2023
-
-Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Дзюн Сакурада совсем отбился от рук - в то время, как родители работают за границей, он забросил школу, не обращая внимания на робкие протесты заботливой старшей сестры Нори. Дни напролёт Дзюн сидит у компьютера, развлекаясь тем, что заказывает через Интернет разные предметы, связанные с магией и колдовством. Однажды среди массы почтовых посланий он находит (   Читать дальше...   )Производство: Япония, NomadЖанр: Экшен, комедия, драма, магияРежиссер: Мацуо КоСубтитры: Русский и английскийПродолжительность: ТВ, 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB99E47BF17AD6ED652A9030148A6B4821E4FD6
 ```
 
 

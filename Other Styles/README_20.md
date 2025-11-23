@@ -1,3 +1,111 @@
+###  Публикация: 290832   (185846) от 25.11.2020
+
+Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_185846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
+Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
+С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
+02. Alane (3:43)
+03. Kekana (3:19)
+04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224151   (185858) от 25.11.2020
+
+VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_185858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethera - The Mountain Side (3:56)
+02. Kieran - Drowning (5:48)
+03. Conner O'Reilly - Hear The Angels Call (5:07)
+04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591297   (187179) от 18.11.2022
+
+Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longing
+02. RadianceЖанр: New AgeПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591262   (187518) от 17.11.2022
+
+VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. POLINA - Что-то пошло не так
+2. Люся Чеботина - Главная причина
+3. Николай Ростов - Где ты была вчера?
+4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590974   (187537) от 17.11.2022
 
 Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Cinematic Rock>
@@ -6,7 +114,7 @@ Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187537.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187537.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Elane - Blackvale (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Gothic, Fantasy 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187816.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187816.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187895.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187895.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ VA - Adult Smooth Jazz: Sax for Sex, Erotic Music, Ultra Sensual Mind (2023) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188742.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188742.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Cliff Martinez & VA - Drive (Original Motion Picture Soundtrack) (2011) [FLAC 24
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188762.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188762.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Gregorian - Pure Chants II (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambien
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189002.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189002.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189133.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189133.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Stephen Parsons & Francis Haines - Считанные секунды / Split Sec
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189242.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2CD, Remastere
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190357.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190357.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Laibach - Iron Sky: The Coming Race (The Original Soundtrack) (2023) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190524.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190524.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ magnet:?xt=urn:btih:18DBD59FADC28A70FF0ADF8C44372DAE9B16004B
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190893.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190893.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191048.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191048.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191061.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191061.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191063.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191063.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191432.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191432.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Anuvida & Nik Tyndall - 3CD (1995-2005) [FLAC|Lossless|tracks +.cue] <New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191532.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191532.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ The Monks of Sherab Ling Monastery - Sacred Tibetan Chant (2003) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191601.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191601.jpg" />
 </div>
 
 
@@ -464,7 +572,7 @@ VA - Nature's Magic The Voyage of the Whale (1996) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192009.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192009.jpg" />
 </div>
 
 
@@ -491,7 +599,7 @@ Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192137.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192137.jpg" />
 </div>
 
 
@@ -515,7 +623,7 @@ Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192608.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192608.jpg" />
 </div>
 
 
@@ -542,7 +650,7 @@ Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celt
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192676.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192676.jpg" />
 </div>
 
 
@@ -569,7 +677,7 @@ Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192680.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192680.jpg" />
 </div>
 
 
@@ -583,114 +691,6 @@ Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587245   (192928) от 30.10.2022
-
-Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перебор серебром...
-02. Догорает свеча в руке...
-03. Мне приснился страшный сон...
-04. Полночь оплачет...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828010   (193262) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Clouds
-02. Guitarra Poeta
-03. Romance De La Luna
-04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828051   (193639) от 23.10.2025
-
-Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1:
-01. Ballade Pour Adeline
-02. Belle
-03. Comme Ils Disent(   Читать дальше...   )Жанр: Instumental |Продолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828014   (193752) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Passion
-02. Breathless
-03. Guitanova
-04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
 ```
 
 

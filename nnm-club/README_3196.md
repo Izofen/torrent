@@ -1,3 +1,84 @@
+###  Публикация: 1764076   (102777) от 05.12.2024
+
+The Weekend Blues Band - Misunderstood (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Lounge Blues (3:40)
+02. Guilty of Love (3:48)
+03. Misunderstood (4:01)
+04. Too Nice to Rock (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676ED28EDB957093FA4049B87B78B6557111E92E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763857   (102778) от 03.12.2024
+
+Michael Lington - Everything Must Change (2002) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off the Hook (3:57)
+02. In the Shade (4:26)
+03. Through the Fire (4:44)
+04. The Moment (4:03)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E342F1DEA326AB0DBB188589B1057EB08E843322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763824   (102779) от 03.12.2024
+
+VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AdrianoMaria - Trio Elètrico (7:51)
+02. AdrianoMaria - Isn't She Lovely (6:29)
+03. Afronauti - Ghost Friends (4:26)
+04. Apollo Beat - Luna 22 (2:50)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763822   (102780) от 03.12.2024
 
 Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Wave, Darksynth, EBM>
@@ -6,7 +87,7 @@ Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102780.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102781.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Uni Debess - Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102782.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ The Coffee Sergeants - Racing Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102783.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Strix Revival - Heartfelt Harmonic Journeys (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102784.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Allsiders - No Further Questions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102785.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Amarok - Blasphemous Edictum (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102786.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ Beggars Blue - Busting My Tail (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102787.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ Eddie 9V - Saratoga (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102788.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Pepe Ahlqvist & Jukka Gustavson - Stovall, Coahoma - A Tribute to Eddie Boyd (20
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102789.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Dirty Deep - Rust Of My Knees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102790.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Hussy Hicks - Swimming in Uncertainty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102791.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Bassment Displacement - Bassment Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102792.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:75CD4F9A9795AB5527422FE502F14F5C2BC1C516
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102793.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ Jackie McLean - It's Time! (1964) 2006, Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102794.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ magnet:?xt=urn:btih:115D1A5EC8253ED97492DF855BBD8D37291B6D64
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102795.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ Danny Wright - Curtain Call (1993) [FLAC|Lossless|tracks + .cue] <New Age, Conte
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102796.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ magnet:?xt=urn:btih:5857EDE7A4FEFB4F9DE34943D3D9C1EA67BE1FF2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102797.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102798.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ Linkin Park - Meteora (Tour Edition) (2003) Taiwan, 9362 48842-2, 2004 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102799.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Interface - Zero Sum Equation (2024) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102800.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ magnet:?xt=urn:btih:387E9BAE4389FEA003139E85CB4E07B3FC0D8B71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102801.jpg" />
 </div>
 
 
@@ -591,7 +672,7 @@ Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102802.jpg" />
 </div>
 
 
@@ -605,86 +686,6 @@ Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBE1D42D6F945FC94769CBC6F17BECC3B61F405
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763463   (102803) от 01.12.2024
-
-Чудо техники с Сергеем Малозёмовым (01.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эликсир долголетия от животных: поможет ли это людям и когда появится эликсир молодости?
- Новая угроза для любителей выпить по выходным.
- Реклама обещает, что контейнер для еды из инновационного материала не царапается, не впитывает запахи и прослужит сотню лет — так ли это и, главное, достоин этот товар маркировки «чудо»?
- Роботов, возможно, придется меньше программировать: (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B218DB9FA53A6EDEFFB51B7DC67C4D1B21314489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763484   (102804) от 01.12.2024
-
-Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On a Clear Day You Can See Forever
-02. Young and Foolish
-03. Whatever Lola Wants
-04. My Brazil(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7694EB1CF4B32CF492FBABAB7B5180C605D12FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763451   (102805) от 01.12.2024
-
-Первая передача на НТВ. Автомобильная передача (01.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инспектор ДПС подставил водителя, на которого повесили чужой долг в 1,5 млн. Мужчина доказал свою невиновность в суде, но как быть с упрямой системой, не признающей ошибки сотрудника?
- Баня в салоне: испытание средств против запотевания стекол и боковых зеркал.
- Тряпка с узлом справа: кто и зачем устраивает подобные трюки? И что водителю нельзя делать, заметив обмотанное (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08D3A3748BFF670599E733E175FA2381978FF12
 ```
 
 

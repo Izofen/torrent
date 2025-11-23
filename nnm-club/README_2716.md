@@ -6,7 +6,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71364.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71365.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:313EB0633F2010469A0A2BEC86F2D7B1B70F70B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A096546349E20E79B2694F9CC98A333929532FEB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71367.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6FED367DAC671C13218739E9A8160DD5F5FBC93D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71368.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71369.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8B69AA60CF8D120E640E92514F8D21DF40E5CF87
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71370.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71371.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71372.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71373.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71374.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Keep It Trance Vol. 25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71375.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71376.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71377.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71378.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71379.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Jakob Dinesen - Slow Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71380.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71381.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Terrortory - The Black Prism (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71382.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Hvalfugl - Bag Vore Øjne Strømmer Drømme Sagte Forbi (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71383.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Atmospheric Trio - Following Polaris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71384.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Andy Middleton Quartet - Water and Sky (2025) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71385.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fontamar Consort - Ramour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71386.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:2B337FFCA0407FF5559459C88350B827E66111AD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71387.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <I
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71388.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:6AD24A9C8F462E2D835FA942B405FB391FCE60BF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71389.jpg" />
 </div>
 
 

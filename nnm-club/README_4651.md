@@ -1,3 +1,148 @@
+###  Публикация: 1087690   (144149) от 28.12.2016
+
+Проекты - VideoHive - 30 Minimal Clean Titles - 19180148 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144149.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 Minimal Clean Titles - набор из 30-ти креативных текстовых эффектов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61315DFE876CFB96E33596BD11FB8F0BA6854DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519610   (144150) от 26.12.2021
+
+Матрица: Воскрешение / The Matrix Resurrections (2021) WEBRip [H.265/2160p] [4K, HDR, 10-bit] [MVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144150.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Многоголосый закадровый (Jaskier)Язык озвучки: РусскийСубтитры: русские, английскиеПродолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C305C1E990D0E2B3ACD859CB605DE38808A84F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435457   (144151) от 28.12.2020
+
+Wise Registry Cleaner Pro 10.3.3.692 RePack (& portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C85739E3A2BF566512BB4A936F8D2BBE3D49417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348357   (144152) от 27.12.2019
+
+Китайский лётчик / Zhong guo ji zhang (2019) WEBRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144152.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 мая 2018 года на внутреннем рейсе компании «Сычуаньские авиалинии» на высоте чуть меньше 10 километров пассажирский самолёт теряет одно из ветровых стёкол. Происходит разгерметизация кабины, одного из пилотов чуть не утягивает наружу, сквозняк и шум стоят такие, что пилоты не слышат по радио голоса диспетчеров. И вдобавок из-за сильных вибраций самолёта показания (   Читать дальше...   )Производство: Китай / Bona Film Group, Alibaba Pictures, Huaxia Film DistributionЖанр: Биография, боевик, триллерРежиссер: Эндрю ЛауАктеры: Чжан Ханьюй, Охо Оу, Ду Цзян, Юань Цуань, Чжан Тяньай, Ли Цинь, Чжан Ямэй, Ян Цижу, Гао Гэ, Хуан ЧжичжунПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: Китайские, английские (хардсаб)Продолжительность: 01:49:28Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DD0D681D8680D10354173F09FEBC1196990CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272134   (144154) от 27.12.2018
+
+Игорь Прокопенко | Незримая битва сверхдержав (2018) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного телеведущего Игоря Прокопенко посвящена явным и тайным угрозам России со стороны различных мировых держав начиная с давних времен и заканчивая сегодняшним днем. Традиционный баланс сил СССР и Америки рухнул вместе с советским строем, но холодная война не прекратилась, а перешла в новую, не столь явную фазу.
+Оружием в ней на сегодняшний день может (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2178A30058A9AAC3625FA1655E60FBD2329AD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678593   (144155) от 22.11.2023
+
+Apeaksoft DVD Creator for Mac 1.0.56 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите создать DVD-диск в качестве подарка для любимой или хотите сохранить классический фильм на DVD-диске, чтобы сохранить его навсегда, даже если вы хотите сделать различные DVD-диски для своего клиента, DVD Creator будет вашим лучшим выбором.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 Apeaksoft Studio.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE16FA884E425E2942E50BA1321D80E26A0BA6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272428   (144156) от 27.12.2018
 
 Журнал | Советы профессионалов №1 (2019) [PDF]
@@ -6,7 +151,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144156.jpg" />
 </div>
 
 
@@ -30,7 +175,7 @@ magnet:?xt=urn:btih:D6480CDE858FB762D529FA08B8CAD1951D0D44ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144158.jpg" />
 </div>
 
 
@@ -54,7 +199,7 @@ magnet:?xt=urn:btih:B18F02FE66005749DC36A58434ABDB2AE2A3B96F
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144159.jpg" />
 </div>
 
 
@@ -78,7 +223,7 @@ Veronica Unlimited - The Best Of The Singles Collection 1977-1982 (2003) [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144160.jpg" />
 </div>
 
 
@@ -105,7 +250,7 @@ GoodbyeDPI.0.1.7. Launcher-4.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144161.jpg" />
 </div>
 
 
@@ -132,7 +277,7 @@ magnet:?xt=urn:btih:F702EA54D37F6B8295B0918BE06EF6AB73959EEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144162.jpg" />
 </div>
 
 
@@ -156,7 +301,7 @@ magnet:?xt=urn:btih:4D3D5C9931365A0C33CAD2733E08D71D02E5A8DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144163.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144165.jpg" />
 </div>
 
 
@@ -204,7 +349,7 @@ magnet:?xt=urn:btih:95CECF57103E92C9281C23D3677DF802D269B020
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144166.jpg" />
 </div>
 
 
@@ -228,7 +373,7 @@ magnet:?xt=urn:btih:5F9C074953455E99B8DEE1FA08D3BDEA0D5F0177
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144167.jpg" />
 </div>
 
 
@@ -252,7 +397,7 @@ Starry Night Pro Plus 8 v8.1.1.2078 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144168.jpg" />
 </div>
 
 
@@ -277,7 +422,7 @@ magnet:?xt=urn:btih:C184FB69ACA6400B6DBFBF8D2868C11196B21078
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144169.jpg" />
 </div>
 
 
@@ -301,7 +446,7 @@ magnet:?xt=urn:btih:F880CEF2680CC8DD187281D4A5E0F770553AF847
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144171.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ magnet:?xt=urn:btih:9A5131262FC0064F076C04F7E0354C2190B12F82
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144173.jpg" />
 </div>
 
 
@@ -349,7 +494,7 @@ HandBrake 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144174.jpg" />
 </div>
 
 
@@ -374,7 +519,7 @@ Interitus - Návrat (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144175.jpg" />
 </div>
 
 
@@ -401,7 +546,7 @@ magnet:?xt=urn:btih:F8D62339EDCDDCBB7A09A323D102A569ED09F2EB
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144177.jpg" />
 </div>
 
 
@@ -425,7 +570,7 @@ magnet:?xt=urn:btih:8EA69816DDA011CB1F1E9EEE2E0A3F74C312B7E9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144178.jpg" />
 </div>
 
 
@@ -449,7 +594,7 @@ magnet:?xt=urn:btih:1742E7227CF880A5A12C4547182F8E68307686E6
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144179.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ magnet:?xt=urn:btih:9633C5A8B515C88AAA00AAB96B7176CB9DB8E6CA
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144180.jpg" />
 </div>
 
 
@@ -484,156 +629,6 @@ magnet:?xt=urn:btih:9633C5A8B515C88AAA00AAB96B7176CB9DB8E6CA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:538CD3A0F57F004CBC77C1A5DE615BDA875A5017
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502652   (144181) от 26.12.2021
-
-Лучший в мире ассасин, переродился в другом мире аристократом | Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei suru [2021, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайший убийца на Земле умел только выполнять заказы своих работодателей, пока они не решили избавиться от него. Однако богиня предложила убийце сделку: он должен устранить сверхсильного героя, из-за которого наступит конец света, если его не остановить. Приняв предложение богини, он переродился в мире мечей и магии в семье потомственных убийц под именем Лью Туата (   Читать дальше...   )Жанр: Приключения, фэнтезиРежиссер: Тамура МасафумиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E62BDE36F63CE058BF6AF7136375CE0DD1A837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087591   (144182) от 28.12.2016
-
-Картина маслом (2015) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай — честный, принципиальный парень средних лет. Офицер запаса с богатым опытом сложно адаптируется в гражданской жизни, то и дело подрабатывая в охране. Не найдя общего языка с очередным боссом, Николай увольняется с работы, едва заступив на службу. Однако на следующее утро на пороге его дома появляется супруга бывшего работодателя, со странным предложением (   Читать дальше...   )Производство: Россия, США, Арго ФильмЖанр: КомедияРежиссер: Олег Тактаров, Александр МосинАктеры: Николай Кудряшов, Юлия Лонгинова, Том ’Тайни’ Листер мл., Олег Тактаров, Александр Мосин, Александр Баширов, Юлия Гришина, Денис Козлов, Сергей Литвинский, Жуль СанчесПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:22:48Реклама: Есть реклама от спонсора показа.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27EDBDE634ACA2EDC4A760BFF3FABB434D087B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348401   (144183) от 27.12.2019
-
-Джокер / Joker (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced, full Enigma, full iTunes), английскиеПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED5C6D27FB41508E854F846F848FD960C392A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678742   (144184) от 22.11.2023
-
-Panda Kingdom - Panda Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal opera, symphonic king-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Majestic Procession [00:06:06]
-02. Thy Castle [00:05:11]
-03. Thy Decree [00:04:19]
-04. Thy Bejeweled Crown Of Unspeakable Honor And Might [00:04:47](   Читать дальше...   )Жанр: heavy metal opera, symphonic king-metalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766E0EBCF79BFD37C3964CB58002EDE7565DF6B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348061   (144185) от 27.12.2019
-
-Затерянные в космосе / Lost in Space (2018) WEB-DL [H.265/2160p] [HDR, 10-bit] (сезон 1, серии 1-10 из 10) [Пифагор]
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144185.jpg" />
-</div>
-
-
-###  Подробнее
-
-2046 год. Космический корабль теряется в космосе и терпит крушение на планете на расстоянии нескольких световых лет от планируемого места назначения. Его обитатели, семья Робинсонов, вынуждены приспособиться и выжить в новых условиях. Джон и Морин Робинсоны не слишком хорошо ладят друг с другом, но отчаянно пытаются не замечать своих проблем ради сохранения хотя (   Читать дальше...   )Производство: США / Applebox Pictures, Clickety-Clack Productions, Legendary Television, Synthesis EntertainmentЖанр: ФантастикаРежиссер: Тим Соутэм, Дебора Чоу, Стивен СерджикАктеры: Мина Сандвол, Молли Паркер, Тоби Стивенс, Паркер Поузи, Макс Дженкинс, Тейлор Расселл, Игнасио Серричио, Амелия Берстин, Раза Джеффри, Аджай Парих-ФризеПеревод: Дублированный (Пифагор)Субтитры: Русские, английскиеПродолжительность: ~ 01:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB4BA856541E3A1AD015490A2FB4E3330B5D6E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195104   (144186) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Эхо любви  3:39
-02.  Евгений Мартынов  -  Алёнушка  3:29
-03.  Мария Лукач  -  Я шаги твои слышу  2:46
-04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
 ```
 
 

@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22621.3447], Version 22H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59541.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:82A119CD4D36807A0210AF4A8D80AB47D2056838
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59542.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BF27085DBE6AA9D848A150297DC44CD7D5A6B664
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59543.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BF27085DBE6AA9D848A150297DC44CD7D5A6B664
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59544.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B02AEE19EC5541AC685FD2BDE63D9007D8CEF036
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59545.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3839C82B4D4377FD42F6D6F4F3410CC628119F6C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59546.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Anomaly Loop (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59547.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E0AD180DF1CF33F389B701E2879C532F57342976
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59548.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:37BD18814D27BA25D41C6FE517F53C42E45616F7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59549.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8720FFB5A690970892C45F8023845E0720A0ACCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59550.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cent Browser 5.1.1130.82 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59551.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ IObit Smart Defrag Pro 9.4.0.342 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59552.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:0483CDF13B828EA54F75BF01A4925DCD9A022AF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59553.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59554.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Windows Server [10.0.25398.830], version 23H2 (Updated April 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59555.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:DAEE6FB45C45BB62C4E7EFC0DFD2C5597072FA22
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59556.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Microsoft Windows 11 [10.0.22631.3447], Version 23H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59557.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.17) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59558.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:6230695E71D337DED32E6155851784C2252D06D8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59559.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Navicat Premium 16.3.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59560.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ BMX Streets (2024) [En] (1.0.0.109.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59561.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:8EE537EB39104A856954D3B486BD77FB48D4719E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59562.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:0C32431882DC1EADF9ABB2364FB4B42DA805BD52
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59563.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ vpnify - Безлимитный VPN 2.1.8 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59564.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59565.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Microsoft Windows 10 [10.0.19045.4291], Version 22H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59566.jpg" />
 </div>
 
 

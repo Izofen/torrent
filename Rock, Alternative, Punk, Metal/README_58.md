@@ -6,7 +6,7 @@ Volbeat - God of Angels Trust (2025) [MP3|320 Kbps] <Heavy Metal, Groove Metal, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66048.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66060.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Khold - Du Dommes Til Dod (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66066.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66067.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nostrum - Infernal Tomb (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66070.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66075.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ritos Paganos - Eternal Hate (2025) [MP3|320 Kbps] <Death, Thrash Metal, Hardcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66079.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Ca
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66103.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:57A7307C22F2516E5E67BCA5705D3B74D4E69E32
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66121.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66129.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nerascesi - Nerascesi (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66158.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4C10774D73106E1B88FA30B7ED39E8511013194B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66164.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66166.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The B-52's - Good Stuff (1992) CD, Album, Club Edition, Denon Pressing [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66170.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Exies - Head for the Door (2004) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66174.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Cure - Mixes Of A Lost World (2025) [MP3|320 Kbps] <Alternative Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66187.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Metallica - World Tour '93 (1993) Unofficial Release [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66202.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Redemption - The Hard Way (2025) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66206.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Phyrxian Sun - Overlord (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66209.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bladewolf - Enter the Nightmare (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66212.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|image + .cue] <Gothic Metal, Dark Wave,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66230.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66239.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The B-52's - Cosmic Thing (1989) CD, Album, Club Edition, Columbia House [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66267.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66284.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Gemma Hayes - Night on My Side (2003) CD, Club Edition, Enhanced [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66286.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rage - Secrets In A Weird World (1989) Reissue, 2002, Sanctuary [FLAC|Lossless|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66288.jpg" />
 </div>
 
 

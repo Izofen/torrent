@@ -6,7 +6,7 @@ VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119395.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121907.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Лучшие песни Love Radio за 2023 год (2024) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124291.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124946.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125838.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126015.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126545.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126659.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126762.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127265.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127478.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127799.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127827.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128268.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128742.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Весенняя волна хитов к празднику (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129079.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129098.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129747.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_129871.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130439.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130835.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130898.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131542.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131645.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131651.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132627.jpg" />
 </div>
 
 

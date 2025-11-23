@@ -6,7 +6,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MobiOffice: Word, Sheets, PDF Premium v15.5.56413 Extra Mod by Balatan [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65801.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BDF92C17D856DD727952DC707B81B7CF7BAA027C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65802.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BDF92C17D856DD727952DC707B81B7CF7BAA027C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65803.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65804.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65805.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65806.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:532A1BD75213ED872ED54A7220BD8DCDB7F4AE4A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65807.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65808.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65809.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65810.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65811.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65812.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65813.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65814.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65815.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65816.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B72CE63FA49FF5F9E8E6DA46361E490036BF2836
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65817.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65818.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65819.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65820.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65821.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FF0CD34732E45FA53764E30189A669F8AA8DEFA8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65822.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65823.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65824.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65825.jpg" />
 </div>
 
 

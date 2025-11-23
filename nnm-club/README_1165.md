@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30643.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:785A8F23BA16C2AC2205950BCE09F9ABAA23292A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30644.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED3B752C6CB18541017F6933A37AF13708C0F963
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30645.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30645.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:56ADF1716773123ABC122299DD9650B2E48DF509
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30646.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30646.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:56ADF1716773123ABC122299DD9650B2E48DF509
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30647.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30647.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:02D059E5187BB677CF6E5210A33CF6800B0BBBCB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30648.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30648.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3EB4533924806E277B375E5ECEC9F1BC05F648D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30649.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CDE9B49F030B269A83D71908537F4CB3927C05F8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30650.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30650.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9FDBAB5AB18D75853AD60F964BB57B30D0F59232
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30651.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30651.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CA01AECFCBFA2FCE845DE328C6F11033FD3F92C8
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30652.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30653.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30653.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:8BCCD1E2629EC683C305E5657D2D8F23CCA95B72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30654.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30654.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ NoMachine 8.15.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30655.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30655.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:CAB7DE75E5871B7A2CD44C7DEFE585589A8C0F1D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30656.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30656.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:605B40152F37095F9182DA3FBB21B8A96CF0DB35
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30657.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30657.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:547D4B0B100DC1FA3681B96760DF18D1E7D73A0A
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30658.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30658.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:FD90EF4CB726549ECF4CC12EBE4EE0156A1FB044
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30659.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30659.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:DEC4E1F17209B71C77ED6CF1DBFC4FA16BB3BCAE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30660.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30660.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30661.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30661.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30662.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30662.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Blue Origin Джеффа Безоса впервые запустила раке
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30663.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30663.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Blue Origin Джеффа Безоса впервые запустила раке
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30664.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Blue Origin Джеффа Безоса впервые запустила раке
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30665.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30666.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30666.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:6955F79C38F39EB7A3AA9ADE2C90419C41D4E74B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30667.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:0475AE5F9DE0AF2AAE8B0C240EFFF402D6F3FD88
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30668.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30668.jpg" />
 </div>
 
 

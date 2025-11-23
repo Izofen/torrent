@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23971.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23971.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ABViewer Enterprise 15.2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23972.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cataclismo (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23973.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23973.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Smart Tools v2.1.15 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23974.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:34A46F1062E54E2ED029F0919C16ADB087D4492B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23975.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23976.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23976.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:826EACD73BF2C6117A0BA008A8E643A28DFA8901
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23977.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A377B9E654701D482A16EF948C5C4EBF60594B34
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23978.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23978.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dread Tomb (2025) [Multi] (1.16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23979.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23979.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23980.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23980.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23981.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23981.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:8B1EE93D35A5A103749B653C89C0ED4AA6CE9458
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23982.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EF564A2E7751AF3E48F59769CC808EB224C313FC
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23983.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23983.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:1CC72FA396330670DD971438115EB0C464715E14
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23984.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23984.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3C389E91A3B9F6029A0F9DD1B70481D3D07DEF77
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23985.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:36BCF3EC74576D67BFB4BA80CAAB92640E5DBC83
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23986.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23986.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7B9B8DF0BD9786D846C25F1DF88D67A943A08E1E
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23987.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23988.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23988.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.9.40 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23989.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23989.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23990.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23990.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:62E5D358CB2045F62E15292A1D1C3E2A9FEC5058
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23991.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:5B1297665BF0A5D15D2FFD8311CF65EA29B74485
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23992.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23993.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23994.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:D3A7A666D9C7234BE6D96AAC8A96441B0673ABBE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23995.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:C97A282A721CD303B8515D4E2A13F946007C004B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23996.jpg" />
 </div>
 
 

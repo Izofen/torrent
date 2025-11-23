@@ -6,7 +6,7 @@ Kylie Minogue - Tension Tour//Live 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_982.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barbra Streisand - A Collection-Greatest Hits ... And More - 1989, FLAC (image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1517.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - cool hits and cosy music 100 songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1842.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1983.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3322.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Teddy Swims - I've Tried Everything But Therapy (Part I) (2023) [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3328.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4697.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ V.A. - The Best Female Vocalists (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4969.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6012.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - LOVE - Love Songs - Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6918.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7769.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8680.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8936.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9735.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9739.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10060.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10073.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10079.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10357.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10362.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10364.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10395.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11530.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12007.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12135.jpg" />
 </div>
 
 

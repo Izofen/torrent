@@ -1,3 +1,75 @@
+###  Публикация: 1398666   (117104) от 17.02.2024
+
+Основание Китая / Jian guo da ye / The Founding of a Republic (2009) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпическая историческая драма, посвящённая шестидесятилетнему юбилею основания Китайской Народной Республики. Фильм посвящен событиям между 1945 и 1949 годами, когда коммунисты под руководством Мао Цзэдуна боролись с националистами Чана Кайши после неудачной попытки создать демократическое коалиционное правительство. Мы увидим как в 1948 году впервые было проведено (   Читать дальше...   )Производство: Китай / China Film Group Corporation (CFGC)Жанр: Драма, Военный, ИсторияРежиссер: Хань Саньпин, Хуан ЦзяньсиньАктеры: Тан Гоцян, Чжан Голи, Сюй Цин, Лю Цзинь, Чэнь Кунь, Ванг Вуфу, Ван СюэциПеревод: Одноголосый любительскийСубтитры: АнглийскиеПродолжительность: 02:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EABEEE956D8C8590AF2CC41727D449896F0842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700525   (117105) от 17.02.2024
+
+Сказания Земноморья / Gedo Senki / Tales from Earthsea (2006) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земноморье в опасности, мир волшебства на грани исчезновения. Вселенское равновесие нарушено: драконы, обитающие в западном пределе сказочной страны, неожиданно появляются на востоке во владениях людей. Верховный маг Гед отправляется на поиски первопричины беды. В пути он встречает Аррена, принца Энлада, который после убийства отца бежит из родного края, преследуемый (   Читать дальше...   )Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, фэнтези, приключенияРежиссер: Горо МиядзакиПеревод: Дублированный (Ruscico)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D186123EE90B277BA1D458485D9A268F306CCB3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700480   (117106) от 17.02.2024
+
+Тела студентов / Student Bodies (1981) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В колледже появляется серийный убийца по прозвищу Дробильщик. Маньяк убивает студентов, которые занимаются сексом. После чего звонит в полицию и рассказывает о своих преступлениях. Девушка Тоби становится главной подозреваемой в совершении этих преступлений. Чтобы снять с себя подозрения, Тоби должна вывести на чистую воду настоящего убийцу.Производство: США / Allen Smithee Classic Films, Paramount Pictures, Universal Southwest CinemaЖанр: ужасы, комедия, детективРежиссер: Мики Роуз, Майкл РитчиАктеры: Кристен Риттер, Мэттью Голдсби, Джерри Белсон, Джо Флуд, Джо Таларовски, Мими Уэдделл, Карл Джейкобс, Пегги Купер, Джэнис Э. О’Мэлли, Кевин МэннисПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E35BB2B4C1D791264A9D8BE8FBF9023119D8062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700630   (117107) от 17.02.2024
 
 Дмитрий Найдёнов | Наследие древних (Книга 5). На обломках Империи (2024) [MP3, Сергей Ермилов]
@@ -6,7 +78,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117107.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0F894B7547D61EADDC1398F7B0283D87459DD1F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117108.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:DD4C8CB7618B37A2F544778ACC5A37B113E6849D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117109.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:BDC1CB28C444BDFC94804856B6F3C9E3F1772A46
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117110.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:BDC1CB28C444BDFC94804856B6F3C9E3F1772A46
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117111.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117112.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:994A2223E488B426B24CA4C2F39020BCC20E9AB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117113.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:CB078E5A9921FC10187F7C95534D9BA52495F5ED
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117114.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:7883A529FB6B998B420D9DB4329B1A618F7FF01A
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117115.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ CyberLink PowerDirector 2024 Ultimate 22.1.2.2605.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117116.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Grime (2021) [Ru/Multi] (1.3.5/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117117.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:487FF7B2F356C04576BE91F0FE8F2D632018E356
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117118.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:81F73E2FD4E555976ACCA1E6A408D0290BBA41B3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117119.jpg" />
 </div>
 
 
@@ -321,7 +393,7 @@ magnet:?xt=urn:btih:4059B9B3EE3016051E7D3A254D5764679479E271
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117120.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117121.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ magnet:?xt=urn:btih:10DC0B6C15BF7DC80B3B896DB15665B06772103A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117122.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ SolidWorks 2024 SP1.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117123.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:43B62B4685BB4717FB0FE7EB5183760D8C61852E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117124.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117125.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117126.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.0) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117127.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:6ABA7D49EF568F373721E1D813B8A1EA6CF2C27A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117128.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:3B2F4C3E696DAD79C1B3042359D49F88D73D3665
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117129.jpg" />
 </div>
 
 
@@ -549,78 +621,6 @@ magnet:?xt=urn:btih:3B2F4C3E696DAD79C1B3042359D49F88D73D3665
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2A8AE4A1D5D00C2976385645F4DB6ECF3B28045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700541   (117130) от 17.02.2024
-
-Последний наёмник / In the Land of Saints and Sinners (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный наемный убийца Финбар решает, что он уже не так хорош и ему пора отойти от дел. Но однажды в город, где он залег на дно, наведывается банда и начинает беспредел. Финбару ничего не остается, как встать на сторону правосудия и снова взяться за оружие. И на этот раз он рискует не только собой, но и всеми, кто ему дорог.Производство: Ирландия / Facing East Entertainment, Jumpy Cow Pictures, London Town FilmsЖанр: боевик, триллер, криминалРежиссер: Роберт ЛоренцАктеры: Лиам Нисон, Керри Кондон, Джек Глисон, Киран Хайндс, Сара Грин, Колм Мини, Десмонд Иствуд, Нив Кьюсак, Конор Макнил, Шеймус О’ХараПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), английские (Full, SDH)Продолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29D00CD3AFF2FE6CE3D1674367F3927C3CA87F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700589   (117131) от 17.02.2024
-
-Adguard for Mac 2.13.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2023Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4953A3733173E2FFE087C627A2602C9321594AB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700561   (117132) от 17.02.2024
-
-Бешеные псы / Reservoir Dogs (1992) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это должно было стать идеальным преступлением. Задумав ограбить ювелирный магазин, криминальный босс Джо Кэбот собрал вместе шестерых опытных и совершенно незнакомых друг с другом преступников. Но с самого начала все пошло не так, и обычный грабеж превратился в кровавую бойню.Производство: США / Dog Eat Dog Productions Inc., Live EntertainmentЖанр: Криминал, драма, триллерРежиссер: Квентин ТарантиноАктеры: Харви Кейтель, Тим Рот, Майкл Мэдсен, Крис Пенн, Стив Бушеми, Лоуренс Тирни, Рэнди Брукс, Кирк Балц, Эдвард Банкер, Квентин ТарантиноПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый, закадровый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x4), английские (full, SDH)Продолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F941422BDB6EE77D5726438006649A3BAAB5DB1
 ```
 
 

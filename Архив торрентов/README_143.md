@@ -6,7 +6,7 @@ Double Commander 1.1.21 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35528.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 5.5.1 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35531.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jigsawscapes® - Пазлы v1.4.15 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35532.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Email Aqua Mail - Fast, Secure v1.54.0 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35533.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ocean Match / Рыбки: Три в ряд v2.6.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35537.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AR Ruler App: Линейка Рулетка v2.8.9 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35538.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ TapScanner v3.0.48 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35545.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ YT Downloader 9.11.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35556.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ashampoo Photo Optimizer 10.0.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35558.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ PrivaZer Pro 4.0.96 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35565.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Macrorit Partition Expert 8.4.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35566.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Office Tab Enterprise 16.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35606.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Digiarty AIArty Image Matting 2.0 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35653.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Daff Moon Phase (Фазы Луны) v3.42 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35668.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35680.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35711.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Firefox Browser ESR 128.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35713.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ventusky: Прогноз погоды v39.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35714.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Subtitle Workshop 6.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35717.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Firefox Browser ESR 128.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35720.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Icecream Slideshow Maker PRO 5.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35722.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ PhotoRoom v5.6.4 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35729.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Duplicate Cleaner Pro 5.24.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35737.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ FastStone Capture 10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35744.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Icecream Video Editor Pro 3.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35752.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ EF Commander 24.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35755.jpg" />
 </div>
 
 

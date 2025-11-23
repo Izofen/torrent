@@ -6,7 +6,7 @@ Advanced Renamer 4.15 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7311.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7312.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DA12F107E42090495C1191C17B2CCB59B4430D07
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7313.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E1C93D55923759F793D0F09505BC2B378ED72F8B
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7314.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9BD9AD9F68F4F884C490FC6A16FE401FC9E9BA4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7315.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8D1369DC88C6C78D5B45AD99289D8B13BF38C529
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7316.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7317.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AIDA64 v2.11 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7318.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36928) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7319.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Jetbrains WebStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7320.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:36A9CDAEC06152D2917FF0B1B06DC54E3B4411F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7321.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:7C7BC7A1F2DC6CF021927AC5FEED28470701B20B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7322.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ ID Photos Pro 8.16.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7323.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B6C6F167B43AC310E91BADD1472DEAF737CA01D2
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7324.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ TweakNow WinSecret Plus! 7.1.5 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7325.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ JetBrains Rider 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7326.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F1A64B71B21E398041F97728C29DFE124D493C50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7327.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Flyoobe 1.2.152 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7328.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9CA88355A55057B93919E063DC3AF6246EFE2F91
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7329.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7330.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:CEA32F5FD685E70468BC3E1F9FE3DBF76B658920
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7331.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7332.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7333.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7334.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:49710D2F1D769FCF1A8ADDF86C0DD37F4248C976
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7335.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7336.jpg" />
 </div>
 
 

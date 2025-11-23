@@ -1,3 +1,76 @@
+###  Публикация: 1703761   (114868) от 01.03.2024
+
+Дэдпул / Deadpool (2016) BDRip [H.264/1080p-LQ] [handmade AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США / Twentieth Century Fox, Marvel Entertainment, Kinberg GenreЖанр: фантастика, боевик, комедияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Аггамс, Джед Риз, Каран СониПеревод: Дублированный (Custom)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B865DCA73D35DC3EC14BE7580FE51C68F44BBE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696836   (114869) от 01.03.2024
+
+Сестра Джеки / Nurse Jackie (2009) HDRip [H.264/720p-LQ] (сезон 1, серии 1-12 из 12) NewStudio
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медсестра Джеки - волевая и талантливая, но очень испорченная и грубая женщина. Она пытается отыскать хоть какой-нибудь баланс между своей тяжелой работой, в центральной нью-йоркской больнице, и сложной личной жизнью. Католичка, отошедшая от своей церкви, которая не может побороть слабость к таким обезболивающим как Аддеролл и Викодин, вершит в госпитале свою справедливость. (   Читать дальше...   )Производство: США / Showtime Networks, Jackson Group Entertainment, Madison Grain ElevatorЖанр: комедия, драмаРежиссер: Пол Фиг, Джесси Перец, Брендан УолшАктеры: Иди Фалько, Мерритт Уивер, Пол Шульц, Доминик Фумуса, Руби Джеринс, Стивен Уоллем, Анна Дивер Смит, Питер Фачинелли, Маккензи Аладжем, Ив Бэст и др.Перевод: Двухголосый профессиональный (NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF58B7CBB60D237155511A762737C9FA1A36AC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703644   (114870) от 01.03.2024
+
+Spotify 1.2.31.1205 (Repack & Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
+Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23926D11BD8C79225425503416B8177ABB6ADA94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703810   (114871) от 01.03.2024
 
 Звериный рейс / Noah's Ark (2024) WEBRip [H.264] [звук с ТS] [AD]
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114871.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114872.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:49FDE3CDCE7F616D8814998C5CABD8CC2763980F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114873.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:9E282DAB88BF9903B2DD8BC6DFC61CFC23F62148
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114874.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ VueScan Pro 9.8.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114875.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ Topaz Photo AI 2.4.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114876.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:9D5883C30455C1DC3BF0CA416AA5FE17B51B39C6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114877.jpg" />
 </div>
 
 
@@ -176,7 +249,7 @@ DesktopClock3D 1.93 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114878.jpg" />
 </div>
 
 
@@ -200,7 +273,7 @@ magnet:?xt=urn:btih:468392C10DC548968B4AC644AE44A72D85BC3045
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114879.jpg" />
 </div>
 
 
@@ -224,7 +297,7 @@ magnet:?xt=urn:btih:467B0C56A9006487C2ADE7559A08E5F5D8F99A61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114880.jpg" />
 </div>
 
 
@@ -248,7 +321,7 @@ magnet:?xt=urn:btih:D3040FEDA79E069D6CF5208C884F3FCE33A9493E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114881.jpg" />
 </div>
 
 
@@ -272,7 +345,7 @@ magnet:?xt=urn:btih:A6C0DA7694C65FF955F215ECFBA34E7A2C164EEB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114882.jpg" />
 </div>
 
 
@@ -296,7 +369,7 @@ LDPlayer 9.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114883.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ Stand Up (2024.03.01) SATRip (сезон 11, выпуск 16)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114884.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ VA - Dancing in Your Soul (2024) 2CD [MP3|320 Kbps] <Native American, New Age, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114885.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:7B6C0F5A03C50C0EF52380F5DAEFEBDE300E7104
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114886.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:7B6C0F5A03C50C0EF52380F5DAEFEBDE300E7104
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114887.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Wireless Network Watcher 2.41+  Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114888.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ VMware Workstation Player 17.5.1 Build 23298084 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114889.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:FEBB4786505AF2D6B88109C36E2618A0BA5DBFCE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114890.jpg" />
 </div>
 
 
@@ -496,7 +569,7 @@ ASAP Utilities for Excel 8.5 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114891.jpg" />
 </div>
 
 
@@ -521,7 +594,7 @@ magnet:?xt=urn:btih:96C7A211B9EA5E5ADA7F6CDDA8ABBB9BDD2DC75F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114892.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ magnet:?xt=urn:btih:6F7DF7C19A63A0CF69D31F324891BC0E583967D4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114893.jpg" />
 </div>
 
 
@@ -556,78 +629,6 @@ magnet:?xt=urn:btih:6F7DF7C19A63A0CF69D31F324891BC0E583967D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4812771D904F05DD6B4974CEE8EDA745EE716686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703658   (114894) от 01.03.2024
-
-Моё прекрасное несчастье 2 / Beautiful Wedding (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если вы поженились в Вегасе после одной безумной ночи? Конечно же, устроить себе отвязный медовый месяц в жаркой Мексике! Вещи собраны, а друзья уже в пути, ведь Эбби и Трэвис доказали всем, что они - идеальная пара. Но готовы ли они к браку, или же всё закончится ещё одним прекрасным несчастьем?Производство: США / Voltage PicturesЖанр: мелодрама, комедияРежиссер: Роджер КамблАктеры: Дилан Спроус, Вирджиния Гарднер, Остин Норт, Либэ Барер, Роб Эстес, Стивен Бауэр, Алекс Айоно, Эммануэль Кабонго, Деклан Майкл Лэйрд, Тревор Ван УденПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, full)Продолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378FD0F665A69032A2257C633D07C044B41F7322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703655   (114895) от 01.03.2024
-
-Моё прекрасное несчастье 2 / Beautiful Wedding (2023) WEB-DLRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если вы поженились в Вегасе после одной безумной ночи? Конечно же, устроить себе отвязный медовый месяц в жаркой Мексике! Вещи собраны, а друзья уже в пути, ведь Эбби и Трэвис доказали всем, что они - идеальная пара. Но готовы ли они к браку, или же всё закончится ещё одним прекрасным несчастьем?Производство: США / Voltage PicturesЖанр: мелодрама, комедияРежиссер: Роджер КамблАктеры: Дилан Спроус, Вирджиния Гарднер, Остин Норт, Либэ Барер, Роб Эстес, Стивен Бауэр, Алекс Айоно, Эммануэль Кабонго, Деклан Майкл Лэйрд, Тревор Ван УденПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (Forced, full)Продолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583543795BE8012AA96DBD621C4F386BD7842AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703668   (114896) от 01.03.2024
-
-Penny’s Big Breakaway (2024) [Ru/Multi] (1.1.20240131) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penny's Big Breakaway - это яркий 3D-платформер с инновационным геймплеем. Игроки берут на себя роль Пенни, уличной исполнительницы с уникальным видением звездной славы, и ее динамичного компаньона Йо-Йо. По сюжету Пенни неожиданно проходит прослушивание в придворные артисты императорского дворца, где случайная встреча с космической струной превращает йойо в живое (   Читать дальше...   )Тип издания: RepackРазработчик: Evening StarЖанр: Arcade, Third-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
 ```
 
 

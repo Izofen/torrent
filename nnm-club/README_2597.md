@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6860C21B59C7945A1F12E0F1CC663E963CEBEFE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68271.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D89735962C8AC9D12E07ED07FE7FE665115C22A1
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68272.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:9691318C98BAA86F4399EB51D4D89311FA3AE26D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68273.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A09D733EB91A8AF18C85B1599AA01211EDB7AA3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68274.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Elton John & Brandi Carlile - Who Believes In Angels? (2025) [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68275.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:7CAE149A9B453DBDA9E039A9B8413EDCE88F6302
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68276.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:48B7117060605BE975B6BE7E96F7BA768860A83D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68277.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:48059D1DA672947BB13142F3C1DF2B1937C1A877
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68278.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:84535EB15B839531D6D5A64B705E70BBA8B36C44
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68279.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F751CA45794100C44C9BA01A4DDF0DE3014104D8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68280.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - 40 Jahre Disco - Dance The Disco (2010) 2 CD [OGG Vorbis|480 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68281.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MediaHuman YouTube Downloader 3.9.9.99 (0504) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68282.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Moon+ Reader Pro v9.9 (build 909000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68283.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:36CF2D87B8077A2413864187E83B3D0452FBF990
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68284.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ TikTok Private Plus v39.4.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68285.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9ED42A3DA790AA7FEB961C59D57F90996D6581D3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68286.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:70CDF7FCBB69D3F6A6CA97039980F181B7322002
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68287.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Electrical Calculations Pro / Электрические расчеты v10.4.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68288.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:5D39F6944227455D589D15958C72AD7138C50190
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68289.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ StaxRip 2.46.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68290.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ U2 - How To Dismantle An Atomic Bomb (2004) CD, Album [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68291.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:010B14E68F19F99CAC04BAE18FFC7AE689F8AF9B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68292.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E42E7D648D1D8CEED5E1E25600D65DE296C1D25A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68293.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:5729020DDB42D77056A66E1EBB9E1CE6E824EAE8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68294.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:656AE890F980DC048C601047FEE53CD5A5DEFDDC
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68295.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10769.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3DD210C5C61341E115EEBEC3868F01D28EE34609
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10770.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10771.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ italo Brutalo - Second Horizon (2025) Radio Version [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10772.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F500D3966BED1D0469E475D8B7CEECEDCAC41593
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10773.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:42BCCB388584D02D826C256286CFBA3FB0CA3C3C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10774.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:446FF98287D862BE0FC8EB7FFA393F1EA4BE2C4C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10775.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E71DC7A24E1230B7D08C6EB6EA6D778E88B8E1F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10776.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:80A7D617A1A0666DC03D8EFC61F3AE22CFDEF2E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10777.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:ABFCAEF78E7CDF33FF51B5E6277EAC024EECE4DF
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10778.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:174094118A465D04428C82869F8FFFC57D895E00
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10779.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:729FF7780F6DDF0FE5287C925C93420B62C3E61C
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10780.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:C9F94352930B8029C8CC804CD049BB9FB874A6B4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10781.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5AE5E5B6A3FB61C7A8A107CC250DE50E22D45F17
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10782.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MobiPDF: Редактор и сканер PDF  v11.7.1.267211 Mod by Balatan [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10783.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CF62BE9CEA3A8210699C906CFDDEFCED9D1967B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10784.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E8E5DAA71C1F6FC748F83AD95864C1EE6144B056
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10785.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:3FADD9D951A04D364A9EF68CD45C920D0CBB1823
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10786.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9F9C1C71D5077CFE1A3F4940CF7BE90BD6350045
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10787.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:A8B5C0BFE7279C2CED1A5AA4F75E58DD3ECB445D
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10788.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:ECAFF300371B4E08955128465B59D75C41BE5176
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10789.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:3F87C868620C52CA95EECE7372D531A1B56F5591
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10790.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Stive Morgan - Transformation Of Consciousness (2025) [MP3|320 Kbps] <Electronic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10791.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:30122F993F89A060CBB3654B819AC97A50372245
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10792.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:CB22ED3A35EEB3EE1635205A6C8AA452299F2D91
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10793.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.21.6 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10794.jpg" />
 </div>
 
 

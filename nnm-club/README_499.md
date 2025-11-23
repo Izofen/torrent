@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13243.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Motorhead - The Manticore Tapes (1977) Reissue, Remastered, 2025, Sanctuary Reco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13244.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13245.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Balkan Connection Summer 2025 (2025) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13246.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ploho - Почва (2025) Deluxe Edition [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13247.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Defenders of the Faith - Odes To The Gods (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13248.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:3B630578AB92F4C67D57DFFF9CFA929F44608D17
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13249.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:5738979B7ED05ABEA18B3E959E2154689F2E141C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13250.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Armin van Buuren - A State Of Trance 1231 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13251.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Petula Clark - Solitude & Sunshine -The Songs of Rod McKuen (2025) Expanded Edit
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13252.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13253.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13254.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1E669A8B0FD8DEE84D6737545D72FF0728688AE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13255.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Redux Selection, Vol. 7 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13256.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:1588B1328F5B0EE280AE6CF93CC16C38F0B2BE00
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13257.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13258.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13259.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13260.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Crystal Viper - The Live Quest (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13261.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13262.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13263.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Yunus Guvenen - Red Pilot / Ways Of Life (2001) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13264.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13265.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Ori Uplift - Uplifting Only Episode 646 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13266.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:1C66A0B97BD0D77D008863FFCA9428C90CE17C76
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13267.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:4B597445BFFE54E530A7A08725C26E53677E1BCC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13268.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MD5 Checksum Tool 4.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Comfort Keys Pro 9.5 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12381.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CPU-Z 2.16.0 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12388.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Macrium Reflect Free Edition 8.0.7783 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12389.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ MSI Afterburner 4.6.6.16591 Beta 6 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12393.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5E9723660031F6E483556259160020AF820B715E
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12660.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12672.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ qBittorrent 5.1.2 Portable by stalkerok (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12695.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12786.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ qBittorrent 5.1.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12799.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bulk Crap Uninstaller 5.9.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12808.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ TweakPower 2.075 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12974.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MediaHuman mTube 2.9.9.14 (0615) RePack (& Portable) by elchupacabra [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13001.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Master PDF Editor 5.9.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13058.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ CoolUtils Total Mail Converter Pro 11.1.0.698 RePack (& Portable) by elchupacabr
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13151.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ NetLimiter 5.3.25.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13212.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Auslogics Driver Updater 2.0.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13309.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ iTop Easy Desktop 3.0.1.92 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13310.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13317.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ WinRAR 7.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13322.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Total Commander 11.55 LitePack & PowerPack + Portable 2025.6 by SamLab [Multi/Ru
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13444.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Windows Manager 2.1.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13632.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Xreveal 2.8.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13703.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Altus 5.7.1 (Альтернатива WhatsApp Desktop) [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13762.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Exiland Backup Professional 6.9 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13791.jpg" />
 </div>
 
 

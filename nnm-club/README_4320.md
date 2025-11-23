@@ -1,3 +1,75 @@
+###  Публикация: 1681256   (132983) от 02.12.2023
+
+Полтергейст Энфилда / The Enfield Poltergeist (2023) WEB-DLRip (сезон 1, серии 1-4 из 4) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интригующий документальный сериал-реконструкция в четырёх сериях, который в необычной манере повествования расскажет захватывающую историю одного из самых знаменитых случаев столкновения человека с потусторонним. Леденящая душу история, ставшая достоянием британской прессы, стартовала в 1977 году, когда непримечательная семья из обычного муниципального дома некоторое (   Читать дальше...   )Производство: Великобритания / Concordia Studio, MetFilm ProductionЖанр: документальный, ужасыРежиссер: Джерри РотуэллАктеры: Olivia Booth-Ford, Кристос Лоутон, Daniel Lee, Paula Benson, Чарли Блэквуд, Грэйс ЭвансПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F43C1584976700388A871E00E5963450D84AF76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595027   (132984) от 27.12.2012
+
+Джек Ричер / Jack Reacher (2012) CamRip [EN]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снайпер убивает пять случайных прохожих, но все улики указывают на человека, заключенного под стражу. На допросе подозреваемый умоляет об одном — найти Джека Ричера.Жанр: Боевик, Триллер, КриминалРежиссер: Кристофер МакКуорриПродюсер: Том Круз, Дэвид Эллисон, Дэна ГолдбергАктеры: Том Круз, Розамунд Пайк, Ричард Дженкинс, Вернер Херцог, Дэвид Ойелоуо, Роберт Дюваль, Джей Кортни, Владимир Сизов, Джозеф Сикора, Майкл Рэймонд-ДжеймсПеревод: ОтсутствуетПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681289   (132985) от 02.12.2023
+
+Гроза (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В привычный мир простого деревенского мужика, большую часть жизни проработавшего обходчиком железнодорожных путей, словно бешеный поезд ворвалась война. Он уже очень стар, он испуган и растерян. Ненависть к новой реальности в его израненной душе копится, словно наэлектризованные капли в огромной черной туче. Кажется, вот-вот должна разразиться гроза. Но каковы будут (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, военный, драмаРежиссер: Владимир КимАктеры: Станислав СальниковСубтитры: отсутствуютПродолжительность: 00:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5422554EC141765BF32CCA89D426B91559F6062
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595020   (132986) от 27.12.2012
 
 Книжная серия | "Современный фантастический боевик" (5 книг)[2012-2013] [FB2]
@@ -6,7 +78,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132986.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132987.jpg" />
 </div>
 
 
@@ -58,7 +130,7 @@ magnet:?xt=urn:btih:9795CC4FD2E3B27B82F365398ED5E453B1A886C8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132988.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:C08F12F249DE12A79A3E3346354DC6C2F69818A7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132989.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:2E3111BC36D315B7AC0A570B33E2C65C8942DFE3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132990.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Legend of Grimrock [En] (L/1.3.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132992.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ AirReceiver AirPlay Cast DLNA v5.0.6 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132994.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:CAB84E9ECBB8F58DB47E0012743A94A64C0994D1
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132995.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ magnet:?xt=urn:btih:22222B6E0D0B3476C5F1DB7CCBE46ABA15A31CA0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132996.jpg" />
 </div>
 
 
@@ -235,7 +307,7 @@ OmniReader Pro for Mac 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132997.jpg" />
 </div>
 
 
@@ -259,7 +331,7 @@ Teorex Inpaint 10.2.3 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132998.jpg" />
 </div>
 
 
@@ -284,7 +356,7 @@ magnet:?xt=urn:btih:73CB3A0E31370872E58EABE1ED75131CAC82AEE0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132999.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:73CB3A0E31370872E58EABE1ED75131CAC82AEE0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133000.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ Baldur's Gate: Dark Alliance II [PS2] [English] [PAL] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133001.jpg" />
 </div>
 
 
@@ -363,7 +435,7 @@ VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133002.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133003.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133004.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ magnet:?xt=urn:btih:F6AA428FD06E8C7D83F147C9343F37D53E2176B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133006.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:B26420275D6A6FBF2AD4F9A28E9B86F78470A29F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133008.jpg" />
 </div>
 
 
@@ -497,7 +569,7 @@ magnet:?xt=urn:btih:AF6DE775DE41E3E27FA0E7B60BB0EA1E623920F1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133009.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Paul Lidel’s Scream Therapy - Paul Lidel’s Scream Therapy (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133010.jpg" />
 </div>
 
 
@@ -548,7 +620,7 @@ Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hous
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133012.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ magnet:?xt=urn:btih:F4B46BCF5A66B283F744E10E41965AA44BB461EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133013.jpg" />
 </div>
 
 
@@ -586,87 +658,6 @@ magnet:?xt=urn:btih:F4B46BCF5A66B283F744E10E41965AA44BB461EE
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681204   (133014) от 02.12.2023
-
-iA Writer 7.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2010–2023 Information Architects GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A624D4EA2E4683984C0C7173B31E90EB40B42E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594303   (133015) от 27.12.2012
-
-Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2002 - Lazy Sunday Afternoon
-2004 - A Piece Of My Heart
-2006 - Travel...
-2007 - Beautiful Day
-2008 - Selection: Songs For A Beautiful Day
-2011 - Lucent TouchЖанр: Jazz Lounge |Продолжительность: 06:06:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681335   (133016) от 02.12.2023
-
-Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тариф Необходимый минимум (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия мастер-классов сочетает в себе теорию и практику масляной живописи. Принимая участие в серии, Вы освоите разные техники, примените их и напишите 4 картины.
-
-Какие результаты вы получите после прохождения серии?
-- Научитесь строить перспективу, правильно размещать композицию(   Читать дальше...   )Производство: Bazanova ArtЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 08:18:54Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 ```
 
 

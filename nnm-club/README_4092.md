@@ -1,3 +1,75 @@
+###  Публикация: 1823945   (126078) от 13.10.2025
+
+То, что ты убиваешь / The Things You Kill (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Али, турецкий профессор философии, работающий в США, возвращается в родной город после смерти матери, страдавшей от тяжелой болезни. Подозревая, что ее кончина не была естественной, он винит отца, с которым не общался годами из-за старых обид. Горе и гнев толкают Али на встречу с Резой, загадочным садовником, чьи мотивы не ясны. Вместе они разрабатывают план мести, (   Читать дальше...   )Производство: Франция, Польша, Канада, Турция / Band With Pictures, DESMAR, Fulgurance, Lava Films, Remora FilmsЖанр: драмаРежиссер: Алиреза ХатамиАктеры: Экин Коч, Эркан Колчак Кёстендил, Хазар Эргучлу, Эрджан Кесал, Серхат Налбантолу, Селен Куртаран, Айсен Сумеркан, Ипек Турктан, Сертан Мюселлим, Онур ТаньериПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, турецкийСубтитры: русские (full - AI), английские, французские, персидскиеПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEDFB69E2549E1C97019BA078B6F37B052469C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823946   (126079) от 13.10.2025
+
+Антонина Брагина (1978) WEBRip [H.264/1080p] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонина Брагина работает мастером в литейном цехе. Опытный специалист, добрый и чуткий человек, она пользуется большим уважением у товарищей по работе. Но ее личная жизнь не сложилась, муж - Степан - уходит из семьи. Стойко переносит Антонина семейные невзгоды. Степан Брагин, поняв какого друга он потерял, возвращается в семью.Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Юрий ДубровинАктеры: Ксения Минина, Леонид Дьячков, Галина Радкевич, Александр Мартынов, Иван Дмитриев, Луиза Кошукова, Анатолий Салимоненко, Петр Юрченков ст., Сергей Ляхницкий, Анна ДубровинаСубтитры: отсутствуютПродолжительность: 01:03:36 + 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE9DAE9DDCD42B02752E10A59281C08E3AEC4CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823937   (126080) от 13.10.2025
+
+Честь дракона / Tom yum goong (2005) BDRip [H.264/1080p] (Extended cut) [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126080.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета лежит история о том, как у одной крестьянской семьи из Таиланда перекупщики похитили слона и слоненка, которые были затем нелегально переправлены в Сидней. Молодой парень отправляется в Австралию, где вступает в схватку с преступным синдикатом.Производство: Таиланд, США, Гонконг, Франция, Австралия / Baa-Ram-Ewe, Golden Network, Sahamongkolfilm Co. Ltd., TF1 InternationalЖанр: боевик, триллер, драма, криминалРежиссер: Прачья ПинкаюАктеры: Тони Джа, Петчтай Вонгкамлау, Бонгкой Кхонгмалай, Цзинь Син, Нэйтан Джонс, Джонни Нгуен, Латиф Кроудер, Джон Фу, Дэмиан Де Монтема, Дэвид АсаванондПеревод: Одноголосый, многоголосый (''Favvora Film'')Язык озвучки: Русский, узбекскийСубтитры: Русские, английскиеПродолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BD563A2920B1C73BC0455FBEFA9FF1FA5FCCBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823892   (126081) от 13.10.2025
 
 Шрифты - Peter Wiegel - Peter Ivanowitsch [TTF]
@@ -6,7 +78,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126081.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ magnet:?xt=urn:btih:E27756C206194507AC4E0D3251A6BBB3DFE5AD4C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126082.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:323994E394B305CD7132EB787E354A676492661A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126083.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ VA - Бархатный шансон 2025, Часть 2 (2025) [FLAC|Lossless|WE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126084.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ VA - Бархатный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126085.jpg" />
 </div>
 
 
@@ -133,7 +205,7 @@ magnet:?xt=urn:btih:5CD51CBF8D078891F80DC169E1099A7CD3D7F95B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126086.jpg" />
 </div>
 
 
@@ -157,7 +229,7 @@ PanoramaStudio Pro 4.1.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126087.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ magnet:?xt=urn:btih:F691DA0499C3DF7ADD31921B80931F03DCA42E2D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126088.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ Minimal Firewall 2.5.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126089.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ magnet:?xt=urn:btih:123717242D4F6E26D425AC6DBB36E9F6A4BD3267
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126090.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126091.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:CD0D9FB255FD76A247420EC6508644046DAEFEB2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126092.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ Synology отменила запрет на жёсткие диски WD и Seag
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126093.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Synology отменила запрет на жёсткие диски WD и Seag
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126094.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ magnet:?xt=urn:btih:2D8EA800B0814D194191D03C768423F8A11FF33F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126095.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:82020151624D06AD1AC04E787B78FED1DFB4ACCA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126096.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ magnet:?xt=urn:btih:5894F9E1EA6027FF447528D08E01179A12BEEDD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126097.jpg" />
 </div>
 
 
@@ -425,7 +497,7 @@ magnet:?xt=urn:btih:9C5674069058ED2A10B81526D850A799E5014301
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126098.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126099.jpg" />
 </div>
 
 
@@ -476,7 +548,7 @@ magnet:?xt=urn:btih:C46BF5949D0047651852225D658D7BC90B5DBDD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126100.jpg" />
 </div>
 
 
@@ -500,7 +572,7 @@ Joakim Karlsson | The trio (2020) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126101.jpg" />
 </div>
 
 
@@ -524,7 +596,7 @@ magnet:?xt=urn:btih:C9A18FD9AB054EF6AFE28E9D46B267483B31D44F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126102.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126103.jpg" />
 </div>
 
 
@@ -560,79 +632,6 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0F59480269C2C9D7C77CF6A6E96B4C008FDC92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823907   (126104) от 13.10.2025
-
-Заклятие 4: Последний обряд / The Conjuring: Last Rites (2025) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи паранормальных явлений Эд и Лоррейн Уоррен берутся за самый страшный случай в своей практике. Семья переезжает в новый дом, но вскоре жилище начинает проявлять признаки демонической активности, превращая жизнь новых жильцов в кошмар.Производство: США, Великобритания, Канада / Atomic Monster, New Line Cinema, Warner Bros.Жанр: ужасы, драмаРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Миа Томлинсон, Бен Харди, Стив Култер, Ребекка Калдер, Эллиот Кауэн, Бо Гадсдон, Кила Лорд Кэссиди, Джон БразертонПеревод: Дублированный (Movie Dubbing / Bravo Records Georgia)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BB44F3D12D77E2C064C2F70A27004AB354E0E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823753   (126105) от 13.10.2025
-
-Книжная серия | Очевидец. Обо всём на свете [32 книги] (1995-2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия познавательных иллюстрированных энциклопедий от транснационального издательства, созданного в 1974 году, в сотрудничестве с Британским музеем. Серия «Eyewitness ® Guide» была разработана издательством «Дорлинг Киндерсли Лимитед» совместно с издательством «Галлимар».Жанр: ЭнциклопедииИздательство: Дорлинг КиндерслиФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A079EDDB48C50E9355855F3BF50EDED9CED4F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823832   (126106) от 13.10.2025
-
-Чужой против Хищника / AVP: Alien vs. Predator (2004) BDRip [H.264/1080p] [Extended cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши дни. Группа ученых отправляется в Антарктиду, чтобы отыскать колыбель цивилизации, царившей на Земле многие тысячелетия назад. Под толщей льда они находят пирамиды, в которых обнаруживают человеческие скелеты и следы жизнедеятельности чужих.
-Однако они еще не знают, что уже находятся под колпаком у хозяев этого города - хищников, и их дни сочтены. Человеческая (   Читать дальше...   )Производство: Чехия, Великобритания, Германия, Канада, США / 20th Century Fox Film Corporation, Brandywine Productions Ltd., Charenton Productions LimitedЖанр: ужасы, фантастика, боевик, триллер, приключенияРежиссер: Пол У. С. АндерсонАктеры: Санаа Лэтэн, Рауль Бова, Лэнс Хенриксен, Юэн Бремнер, Колин Сэлмон, Томми Флэнаган, Джозеф Рай, Агат Де Ла Булае, Карстен Нёргор, Сэм ТротонПеревод: Дублированный (BD CEE) / со вставками многоголосого, / многоголосый  (Kinomaniya), (Kinoteatr TV), авторский (Гаврилов)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC41A78CB6FC4C573D2E88AEA57FB978A0FDECC5
 ```
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63363.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63364.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63365.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6A3C0FBA62F555D468C82A804B3F8EC263D8C380
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63366.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63367.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8D987A5F2FB949B9787DF2BFAF5E4CA8AB9D9EB1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63368.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D729E574F12F14823670263A83AECB82C3246B11
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63369.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FE68D1968AD0840BB872964921B6553B50BCB715
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63370.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A434DCCF5080D604D864C96C0664CCA75D8C5F0A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63371.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:553786AD04C80DA2CC6BD904689A1F3434E1971B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63372.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FB83DE456513C991843542748AEFD31B0D263CC8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63373.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ HiBit Uninstaller 3.1.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63374.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:526082E2E37F8D762C71DF3C8D27F553DCB71282
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63375.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Music News vol.349 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63376.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:CF9C13773C8998819C742E9CAE313C364D93BF9D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63377.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.7.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63378.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EBEDC081824A2F77E0976DC8FC7E8F32A31C3F64
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63379.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:7EFA446150B23356F0EC7272720FBACB772BCBEF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63380.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63381.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63382.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Amaranthe - The Catalyst (2024) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63383.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Music Collection 3.6.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63384.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FCAB9CCE8495BD0C1CA0099D9B768C95864735F6
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63385.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:87DA9521E5E95950A368E45A77F43D536B190941
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63386.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Telegram Desktop 4.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63387.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:0CF3DFCA5E941977AA27886004552A4D6776AAF9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63388.jpg" />
 </div>
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1753659   (103791) от 06.10.2024
+
+PrivaZer Pro 4.0.94 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103791.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0079FCC6BEFD443E00973E69A180EE61C3445C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753712   (103792) от 06.10.2024
+
+Однажды в России (27.09.2024) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1231903E675E1BF39F43547FA582822B18A29DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753749   (103793) от 06.10.2024
+
+VA - Deep House Essentials: Edition 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eigenart - Moonrise [06:44]
+02. Claus Pieper - Reincarnate [06:50]
+03. Alex Lo Faro - I'm Feeling Good [04:47]
+04. Juan Domecq - Whispers of the Wind [06:40](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0422E958F81BD899DA16C60296AC8AAA97D21926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753717   (103794) от 06.10.2024
 
 Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy metal>
@@ -6,7 +81,7 @@ Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103794.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103795.jpg" />
 </div>
 
 
@@ -59,7 +134,7 @@ VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103796.jpg" />
 </div>
 
 
@@ -86,7 +161,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103797.jpg" />
 </div>
 
 
@@ -113,7 +188,7 @@ Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103798.jpg" />
 </div>
 
 
@@ -140,7 +215,7 @@ CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103799.jpg" />
 </div>
 
 
@@ -167,7 +242,7 @@ Waldorf - Microwave 1 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103800.jpg" />
 </div>
 
 
@@ -192,7 +267,7 @@ VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103801.jpg" />
 </div>
 
 
@@ -219,7 +294,7 @@ Catfish John Tisdell - I Hear the Blues Calling Me (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103802.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ VA - Suanda Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103803.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:35F7F9892081FFBC99CE3FCD827ED54233681240
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103804.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ VA - Dancewood Records - Six Years (2024) [MP3|320 Kbps] <Trance, Progressive, E
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103805.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:5CF6DFE27FB79F4809BFB0133F897F0D4891578C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103806.jpg" />
 </div>
 
 
@@ -351,7 +426,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Спринт (05.10.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103807.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103808.jpg" />
 </div>
 
 
@@ -399,7 +474,7 @@ magnet:?xt=urn:btih:40F8F97155C58C9A0A81B45931D7CDE554F8402F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103809.jpg" />
 </div>
 
 
@@ -423,7 +498,7 @@ Blue Moon Marquee - New Orleans Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103810.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ Doctor Velvet - New Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103811.jpg" />
 </div>
 
 
@@ -477,7 +552,7 @@ Daniel Morais - Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103812.jpg" />
 </div>
 
 
@@ -504,7 +579,7 @@ Carta Oro - Make a Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103813.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ John Scofield - Live (1977) 2020, Solid [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103814.jpg" />
 </div>
 
 
@@ -558,7 +633,7 @@ Anov Blues One - Self Titled 2019 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103815.jpg" />
 </div>
 
 
@@ -585,7 +660,7 @@ magnet:?xt=urn:btih:F086EC3858AE0737A41160CE55AFC458BB23D73C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103816.jpg" />
 </div>
 
 
@@ -599,84 +674,6 @@ magnet:?xt=urn:btih:F086EC3858AE0737A41160CE55AFC458BB23D73C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C39C09E9EEC77CE999F78BC57F99F5C22370E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753566   (103817) от 05.10.2024
-
-Andy Peake - Pocket Change (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Good As It Gets (3:20)
-02. The Scuffle (3:45)
-03. Somebody's Gotta Do It (3:37)
-04. One Fine Day (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FC93C98B5A7311E417A0F3C6D24DF478A57C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753564   (103818) от 05.10.2024
-
-Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Supreme (3:44)
-02. Money On 7 (4:08)
-03. Baby Come Back (3:18)
-04. If I Was King (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA5F3A6430CFA6C671A9AB074A6921160CB5C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753563   (103819) от 05.10.2024
-
-Война в доме / The War at Home (1996) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация пьесы Homefront Джеймса Даффа (1984)... В 1972 году молодой ветеран войны во Вьетнаме возвращается в семью, но не может адаптироваться к мирной жизни и находится в состоянии тяжелейшего психологического кризиса. Его девушка ушла к другому, он в отчаянии и не находит взаимопонимания с родителями и сестрой, направляя на них свою озлобленность... Это не обычная (   Читать дальше...   )Производство: США / Motion Picture Corporation of America (MPCA), Touchstone PicturesЖанр: драмаРежиссер: Эмилио ЭстевесАктеры: Эмилио Эстевес, Кэти Бэйтс, Мартин Шин, Кимберли Уильямс, Корин Немек, Энн Хирн, Карла Гуджино, Маркус Х. Нельсон, Майкл Уайзмен, Джена Краус, Чад Морган, Пенелопа Аллен, Джеффри Блэйк, Рене Эстевез, Туан ТрэнПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8C57E8B040DED48BAB87DB7B522570028B5896
 ```
 
 

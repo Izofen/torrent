@@ -6,7 +6,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33295.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A794FCA8F37317714BA2A8340982A8D6803C4F1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33296.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33297.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33298.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EE0A32E3175B1F9F328313687AE67ADFC98B614E
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33299.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Volume2 1.1.9.468 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33300.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F40EFB9F58B41352091DA47CDC63D888C3C2B70C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33301.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33302.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33303.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Atomix VirtualDJ 2025 Pro Infinity 8.5.8472 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33304.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E95150F87BFDD1079864D55334D4E451B6B459EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33305.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:91700E572716FB2B2DA16D5B9BC820E476BCA236
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33306.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F4496FE3B023E0081675123D1CC929A316954565
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33307.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kabushikigaisha Magilumiere | Magilumiere Co. Ltd. | Компания Маги-�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33308.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Hoshi Furu Oukoku no Nina | Nina the Starry Bride | Нина в королевс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33309.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:C65F6079FB5E999F7D963FCA3EF96DC7D6CA0F1A
 >>31
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33310.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.15.24357.8705766150) License GOG (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33311.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:4017F7CB613059250990BAD13E1C9F9C0CB7698E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33312.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:0C9142FAAD5F6EC6D45F126E3D031199A9B41FB6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33313.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (1.6.81914) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33314.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:48CA6BE9BB9F4FE1FCF7FD998DB080067E6D53E1
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33315.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33316.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33317.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.7/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33318.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:1AD18EF2D4C04CC5B8644E576CA9210E80FEC983
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33319.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:2FB570F33CF983B88C7ED9BBFB3E424120033C57
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33320.jpg" />
 </div>
 
 

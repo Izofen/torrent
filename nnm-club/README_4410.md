@@ -1,3 +1,77 @@
+###  Публикация: 591645   (136455) от 19.12.2012
+
+К.В.Силаева (сост.) | Блюда к Новому году и Рождеству [2007] [Pdf]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год и Рождество, пожалуй, наиболее любимые во всем христианском мире праздники. Отмечать их принято в кругу семьи, среди самых близких и дорогих людей. Рождественская елка, праздничный стол — непременные атрибуты этих радостных дней.
+ В нашей книге вы найдете рецепты традиционных блюд, которые готовят в разных странах на католическое и православное Рождество, а также на Новый год.Жанр: КулинарияФормат: Pdf
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591306   (136456) от 19.12.2012
+
+Топор 2 / Hatchet II (2010) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136456.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как Мэрибет чудом вырывается из рук безумного маньяка Виктора Кроули, она узнает, что же связывало ее семью с этим страшным человеком. Узнав всю правду, она полна решимости вернуться на болота с целой армией, жестоко отомстить мяснику и вернуть тела своих близких.Жанр: ужасы, триллер, слэшер, комедияРежиссер: Адам Грин / Adam GreenАктеры: Даниэль Харрис, Тони Тодд, Кэйн Ходдер, Парри Шен, Том Холланд, R.A. Mihailoff, Ай Бауэн, Алексис Питерс, Эд Экерман, Дэвид Фой, Колтон Данн, Рик МакКаллум, Джон Карл Бюхлер, Кэтрин Фиоре, Эрика Хэмилтон, Мерседес МакНаб, Джолей Фиореванти, Райли Вандербилт, Чарлэйн Девилльер, Сара Агор, Шон Эшмор, Стивен Бартон, Эмма Белл, Маркус Данстэн, Адам Грин, Ллойд Кауфман, Джо Линч, Б.Дж. МакДоннел, Майк Мендез, Джейсон Ричард Миллер, Джоэль Мюррэй, Лаура Ортиз, Дэйв Паркер, Ник Принсип, Blake Reigle, Райан Шифрин, Коуди Блу Снайдер и др.Перевод: Любительский |двухголосый закадровый|Продолжительность: 01:25:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591652   (136457) от 19.12.2012
+
+О.В.Аксакова (сост.) | Блюда к Новому году и Рождеству [2008] [Pdf]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_136457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы предлагаем вам кулинарные рецепты блюд русской и украинской кухни, а также кухонь других народов. Вы можете воспользоваться и старинными кулинарными рецептами, чтобы сделать ваш праздничный стол незабываемым!
+ Не бойтесь экспериментировать и заряжаться бодростью и хорошим настроением на весь год вперёд. Вкусив сладость творчества и заметив, какую радость доставили близким, вы непременно почувствуете себя волшебницей. И пусть это замечательное ощущение не покидает вас.Жанр: КулинарияФормат: Pdf
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591314   (136458) от 19.12.2012
 
 Призраки дома Уэйли / The Haunting of Whaley House (2012) [720p] BDRip
@@ -6,7 +80,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136458.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ Wise Care 365 Pro 2.15.166 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136460.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ Wise Care 365 Pro 2.15.166 Final [MULTi / Русский]
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136463.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ magnet:?xt=urn:btih:B44681F23D92553D4A89BE75A880A561FFE63791
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136464.jpg" />
 </div>
 
 
@@ -102,7 +176,7 @@ magnet:?xt=urn:btih:5685AE5AA15D01FB961FB5C6A03130281E4346D3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136466.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136466.jpg" />
 </div>
 
 
@@ -126,7 +200,7 @@ magnet:?xt=urn:btih:5685AE5AA15D01FB961FB5C6A03130281E4346D3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136469.jpg" />
 </div>
 
 
@@ -150,7 +224,7 @@ magnet:?xt=urn:btih:AA28A2EE7F0C457685F21BAC9D0607D8253BC4DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136472.jpg" />
 </div>
 
 
@@ -175,7 +249,7 @@ Data Flow Accelerator 4.5.3.37 Beta [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136473.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136473.jpg" />
 </div>
 
 
@@ -199,7 +273,7 @@ Data Flow Accelerator - менеджер обмена данными, прогр
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136480.jpg" />
 </div>
 
 
@@ -223,7 +297,7 @@ EZ CD Audio Converter 1.0.4 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136483.jpg" />
 </div>
 
 
@@ -249,7 +323,7 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136486.jpg" />
 </div>
 
 
@@ -282,7 +356,7 @@ magnet:?xt=urn:btih:F437E7EC0540DB15FDF8E7CFFC6FD7313B145F10
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136487.jpg" />
 </div>
 
 
@@ -306,7 +380,7 @@ magnet:?xt=urn:btih:59E817CB28DCDC4FA9BAD31D605D65FC6D8AE5C5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136489.jpg" />
 </div>
 
 
@@ -330,7 +404,7 @@ magnet:?xt=urn:btih:D67E8EE337D792ADF2419901B44D8B7F4480A97E
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136490.jpg" />
 </div>
 
 
@@ -359,7 +433,7 @@ Billy McLaughlin - Lifescapes: Relaxing Guitar (2009) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136496.jpg" />
 </div>
 
 
@@ -387,7 +461,7 @@ Abyssphere - Снова и снова (2012) 3 EP [MP3|320 кб/с]<Dark Metal, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136497.jpg" />
 </div>
 
 
@@ -420,7 +494,7 @@ magnet:?xt=urn:btih:BB495259D588DBE84DEBFC0A4328465B3BF304BC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136502.jpg" />
 </div>
 
 
@@ -446,7 +520,7 @@ magnet:?xt=urn:btih:81BDCD81AA34F7C5D4D7243AB56AE902A5EE94B3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136511.jpg" />
 </div>
 
 
@@ -470,7 +544,7 @@ magnet:?xt=urn:btih:38B5427AFAA71BBFDCA10D2FC0F76F17B2C63056
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136513.jpg" />
 </div>
 
 
@@ -494,7 +568,7 @@ magnet:?xt=urn:btih:665EC4635683F023171E2ED7D280F4CF4EDDFBEB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136516.jpg" />
 </div>
 
 
@@ -518,7 +592,7 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136517.jpg" />
 </div>
 
 
@@ -551,7 +625,7 @@ magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136518.jpg" />
 </div>
 
 
@@ -575,7 +649,7 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136519.jpg" />
 </div>
 
 
@@ -589,78 +663,6 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591392   (136523) от 19.12.2012
-
-Лия Лин | Упади семь раз [2012] [RTF,FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги - популярная певица Андре, известная художница Надин и многодетная мать Лия неожиданно попадают в сложную и запутанную ситуацию. На пороге мастерской художницы они находят труп мужчины, похожего на их знакомого Стаса. Ситуация ухудшается, когда убивают и самого Стаса - сына губернатора города. Убийства, предательства и подстерегающие даже во дворе собственного дома опасности меняют привычный уклад жизни подруг. Им приходится не только буквально бороться за выживание, но и разгадать причину невзгод, обрушившихся на них...Формат: RTF,FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591663   (136525) от 19.12.2012
-
-Журнал | Загадки истории №21 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136525.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» - теперь отдельный ежемесячный журнал! Он расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1AA6DA6B59352B8332D6AFA6D5E4BED18A6DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591621   (136526) от 19.12.2012
-
-Журнал | ID Interior Design №12-1 [декабрь 2012-январь 2013] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный журнал о дизайне и архитектуре. Все новое в декоре интерьеров, уникальное в архитектуре, эксклюзивное в интерьере, что создается в стране и мире, находит свое отражение в журнале, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0CBF9F3D421BB07BFBAD9A7BD38D5F3CACE93B
 ```
 
 

@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6326AF5210CAD48092D6A6D581E5D3FD1201CBD7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53848.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53849.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7FF02D9781A2BDEA3C29D8510E2374FFA289D10E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53850.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2DE6BBC84CAE3B1D379EDFF83C9EAAC660530D1E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53851.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:413D8842F402F7A1233F8949E307E572DA2EC8B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53852.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Topaz Video AI 5.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53853.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Square Home Launcher 3.0.13 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53854.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2B20E46D611BDE49E14A29A1BE9027871BCE8C30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53855.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:281016C3193CC211FFF8AEA04DED95E7C73E63CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53856.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CF23E0A46C1841364883D549715D007BBCEEDE1A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53857.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Wise Care 365 Pro 6.7.3.648 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53858.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53859.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:67D3CC24026D34013F91BA06DCA2052113467E36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53860.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:2E67DBB76E2968E82E896A57C03310C5D26C97E1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53861.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4CD8DC6EDF0953468C18394645C1FACBFA85C5EF
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53862.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53863.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53864.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:652FF358298D0893DB800630195421842B627B8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53865.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53866.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:17FE982594CDFB8ADF290163713DF8C0F7BAA1A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53867.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Okean Elzy - This Is Okean Elzy (2024) [MP3|320 Kbps] <Rock, Folk Rock, Indie Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53868.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53869.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53870.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53871.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F5A4B7300AD8FCB45FB76CCA24A9B3E7414F0F02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53872.jpg" />
 </div>
 
 

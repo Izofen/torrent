@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17949.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:620CA8F7D9518D379B22FC1D2261D8A791F2DFF1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17950.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E10B922476B6326796510C3DDC9585E25B5BBC35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17951.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:60DCF820EE4C9BEF186424BCCF1639AA007F6D94
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17952.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.2) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17953.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Windows 10 Pro 22H2 19045.5737 x64 by SanLex [Lightweight] [Ru/En] (2025.05.05)
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17954.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D7B02A1152815732B9CE6BB5A438FC3BBB24F534
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17955.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:139831D2650AB45995D073F4764C27CEA5D1E263
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17956.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6A470CF5B863A8AD0353A38A18CA711F94CFE5CD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17957.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:610EE81D98FD70DC3700532AC1E01EB73A33A388
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17958.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:8E2FD4EB0D93F328C57DD80F501228E3B1854F42
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17959.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D26FE9D201ED873FD79B7D8422B3161D9FAE694D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17960.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:BE16240BC66B43ED72F7917AA0E60BA78FB71E76
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17961.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Adobe Photoshop 2025 26.6.1.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17962.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:17D397300B8068C81DE6D01DD00D9E7EE96590BA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17963.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17964.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ HEU KMS Activator 62.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17965.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17966.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:DAC386844D4BE4864BE9B28DF0BC531313DC50A5
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17967.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D5CDB4A9FE3913A03FE3D8AFE04C2D9FBFA3BE20
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17968.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:E59C771A967A70CBAA0677F5C131DBA97588F4F1
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17969.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17970.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WeNote: заметки блокнот планер v6.33 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17971.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:437B38F21A284F29B5056280B4F6C42F4D920BD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17972.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17973.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17974.jpg" />
 </div>
 
 

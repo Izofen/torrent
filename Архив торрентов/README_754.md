@@ -1,3 +1,79 @@
+###  Публикация: 1077527   (155969) от 22.12.2016
+
+Люди / Humans (2016) HDTVRip / WEB-DLRip [H.264] (сезон 2, серии 1-8 из 8) LostFilm [MP4|1280x720]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала развернется в параллельном мире, где чрезвычайную популярность приобрели новые гаджеты — высокотехнологичные роботы-слуги, которые внешне пугающе похожи на людей. Одного такого «помощника по хозяйству» приобретает живущая в пригороде семья. Вскоре они осознают, что совместная с машиной жизнь повлечет за собой жуткие последствия.Производство: Великобритания, США, Швеция / Kudos Film and Television, Channel 4, AMC StudiosЖанр: Фантастика, ДрамаРежиссер: Льюис Арнольд, Сэмюэл Донован, Чина Му-ЕнАктеры: Джемма Чан, Том Гудман-Хилл, Кэтрин Паркинсон, Люси Карлесс, Колин Морган, Эмили Беррингтон, Нил Мэскелл, Рут Брэдли, Иванно Джеремайя, Дэниэл Уэбб и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:46:00 серияРеклама: Присутствует заставка и логотип LostFilm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE08D820E75BDB10ED123645DC97AB9AD46CD95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518360   (155981) от 19.12.2021
+
+Loopback 2.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синхронизация аудио между приложениями на вашем Mac.
+Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2021Разработчик: © 2021 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEB08D478A25BC2564139D609D8BAAAAE61CF08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194447   (155986) от 25.12.2017
+
+Фигурное катание. «Ростелеком-Чемпионат России» 2018. Санкт-Петербург (Россия). 1 День (21.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155986.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 декабря 2017 года, четверг
+«Ростелеком-Чемпионат России» 2018 года по фигурному катанию на коньках. Санкт-Петербург (Россия)
+День 1:
+1. Мужчины - Короткая программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:05—01:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3086A7FF3E8603BB7B07C0C981ADFA1B5DE4EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518498   (155990) от 19.12.2021
 
 Disk Xray 2.8.1 [Multi]
@@ -6,7 +82,7 @@ Disk Xray 2.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155990.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:A9AF2CC585AD1645818839F5C27B173948C165D8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155991.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ magnet:?xt=urn:btih:21045F4026E0C744FDB44B726A988F0F257F4BB6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155994.jpg" />
 </div>
 
 
@@ -84,7 +160,7 @@ magnet:?xt=urn:btih:B3140F4920A492B70A8561C5FC18A533380B59DC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156001.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ Live Home 3D Standart 3.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156002.jpg" />
 </div>
 
 
@@ -134,7 +210,7 @@ Cacheman 10.0.3.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156006.jpg" />
 </div>
 
 
@@ -158,7 +234,7 @@ Reptant - Freq Accident (2018) Planet Euphorique [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156010.jpg" />
 </div>
 
 
@@ -185,7 +261,7 @@ magnet:?xt=urn:btih:00DDAAB5F5570B82FCD14407067527556AE993C6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156011.jpg" />
 </div>
 
 
@@ -212,7 +288,7 @@ LibreOffice 5.2.4 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156016.jpg" />
 </div>
 
 
@@ -236,7 +312,7 @@ Vitreous Humor - The Vitreous Humor Self-Titled E.P. (1995) EP [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156024.jpg" />
 </div>
 
 
@@ -263,7 +339,7 @@ magnet:?xt=urn:btih:6CB0ED3CF69235701976C250B0C04EE015107A5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156029.jpg" />
 </div>
 
 
@@ -287,7 +363,7 @@ Soundgarden - Spoonman (1994) Single [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156033.jpg" />
 </div>
 
 
@@ -312,7 +388,7 @@ Adobe Acrobat Pro 2023.006.20380 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156037.jpg" />
 </div>
 
 
@@ -336,7 +412,7 @@ Comodo IceDragon 50.0.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156046.jpg" />
 </div>
 
 
@@ -360,7 +436,7 @@ magnet:?xt=urn:btih:190523BF328FFC45475423DDBD68A2BF4E08F906
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156070.jpg" />
 </div>
 
 
@@ -384,7 +460,7 @@ EdgeView 3 v.3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156085.jpg" />
 </div>
 
 
@@ -408,7 +484,7 @@ magnet:?xt=urn:btih:C400BEAB80AC2C6ED11C48183836032E43FDC006
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156087.jpg" />
 </div>
 
 
@@ -432,7 +508,7 @@ Oneyed Jack - Prepare To Reactivate Sampler (2001) Single [FLAC|Lossless|tracks 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156115.jpg" />
 </div>
 
 
@@ -459,7 +535,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11629 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156117.jpg" />
 </div>
 
 
@@ -483,7 +559,7 @@ YouWave for Android Home 4.0.1 [Английский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156131.jpg" />
 </div>
 
 
@@ -509,7 +585,7 @@ iCompta 6 v.6.0.60 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156132.jpg" />
 </div>
 
 
@@ -533,7 +609,7 @@ Music Tag Editor 5.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156133.jpg" />
 </div>
 
 
@@ -559,7 +635,7 @@ Wallpaper Engine 1.4.140 RePack by Komoliddin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156134.jpg" />
 </div>
 
 
@@ -570,81 +646,6 @@ Wallpaper Engine позволяет устанавливать живые обо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD5E82862E770BE3CB3DA7B9B8CBCE4F4CEF6FC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085651   (156142) от 22.12.2016
-
-Фитнес-план 30 дней Pro 1.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физические упражнения для дома, выполнять которые может кто угодно и где угодно. Разработанный профессиональным тренером по фитнесу на основе научных рекомендаций, фитнес-план 30 дней поможет вам улучшить свою физическую форму и состояние здоровья. Следите за своим прогрессом: результаты вас удивят!
-Фитнес-план 30 дней позволяет постепенно наращивать интенсивность (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 5 ноября 2016Разработчик: NorthPark.AndroidПоддерживаемая ОС: Android 4.0 +Жанр: Здоровье и фитнесЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D234A7C6471C14981AC69B138D0902504BB6D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518499   (156150) от 19.12.2021
-
-Viper FTP 6.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярный протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
-Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Grzegorz StaszczykПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F074389253BE066AEA1DF3171DE6F2EC1A33CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346366   (156151) от 20.12.2019
-
-Minecraft / Майнкрафт 1.14.0.9 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft — это строительная игра жанра «песочница» созданная Маркусом Перссоном, основателем Mojang AB.
-Игра позволяет игрокам создавать и разрушать различные блоки и использовать предметы в трёхмерной окружающей среде. Игрок управляет человечком, который может разрушать или устанавливать блоки, формируя фантастические структуры, создания и художественные работы (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 14.12.2019Разработчик: Mojang ABПоддерживаемая ОС: Android не ниже 4.2Жанр: Аркада, приключенияЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461D400AA7E0AEECB0BF0BEEEE6F2533C2FE7234
 ```
 
 

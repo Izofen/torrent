@@ -6,7 +6,7 @@ Nancy - 4 Releases (2018-2021) Digital release [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1277.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1521.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dead End Tragedy - Electrical Impulses Of Hate (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2605.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2738.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2924.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3303.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kasabian - 10 альбомов (2004 - 2024) 15 CD [FLAC|Lossless|tracks + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3416.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Offspring - Running & Cycling with The Offspring (2025) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4424.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4640.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 202
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4666.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4773.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5339.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5441.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Linkin Park - From Zero (2024) U.S., 093624838807, Amazon Alternate Cover [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6908.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7046.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Linkin Park - A Thousand Suns + (2010) Brazil, 9362495889, AB0002000 Pressing, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7048.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Linkin Park - Papercuts (Singles Collection 2000-2023) (2024) Brazil, 0936248460
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7071.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Asking Alexandria - Collection (2009 - 2023) 9CD [FLAC|Lossless|image + .cue|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7200.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Architects - Сollection (2006 - 2025) 13CD [FLAC|Lossless|tracks + .cue] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8471.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11276.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12122.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13262.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14416.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14656.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14724.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15580.jpg" />
 </div>
 
 

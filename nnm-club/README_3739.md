@@ -1,3 +1,78 @@
+###  Публикация: 1700711   (116896) от 18.02.2024
+
+Журнал | Linux Format №312 (2024) [PDF][En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6AD79F8942AB2C3FD43D0A90B11D88528544C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700812   (116897) от 18.02.2024
+
+PingPlotter Pro for Mac 5.24.3.7253 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116897.jpg" />
+</div>
+
+
+###  Подробнее
+
+PingPlotter Pro – приложение, которое предоставляет пользователю широкий спектр возможностей в процессе сетевого мониторинга и устранения возникающих неполадок. Программа способна выводить графический отчет об эффективности маршрута, тестирует производительность сети в течение заданного периода времени и уведомляет пользователя при возникновении сбоев в работе. PingPlotter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 1998-2024 Pingman Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4412161750AF9359117C4FD7B2DA5B9D3CDDC66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700506   (116898) от 18.02.2024
+
+VA - Song Keepers: A Music Maker Foundation Anthology (2024) 4CD [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cary Morin - You Were There With Me (3:51)
+02. Spencer Branch - Blown Back with the Breeze (3:25)
+03. Big Ron Hunter - Going for Myself (3:24)
+04. Patrick Sky - Many A Mile (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1C243DB78A33C4C8DB79C100748DDFEB9B8D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700802   (116899) от 18.02.2024
 
 VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
@@ -6,7 +81,7 @@ VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116899.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ VA - Serene Vibrations: Deep House Mix (2024) [MP3|320 Kbps] <Deep, House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116900.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ magnet:?xt=urn:btih:0B5ACCBED383F8E6C5026823208A17CB7DEB4E25
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116901.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ WPS Office + PDF v18.7.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116902.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:8773E5395AF52D14259704C36AE709C043AD93D7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116903.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:EDF247199101999B7C212316B305ABE2B5AF552E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116904.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ Darktable 4.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116905.jpg" />
 </div>
 
 
@@ -183,7 +258,7 @@ magnet:?xt=urn:btih:1F9091896845EA5078C203C342E481BE25FAEC90
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116906.jpg" />
 </div>
 
 
@@ -207,7 +282,7 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116907.jpg" />
 </div>
 
 
@@ -234,7 +309,7 @@ Kasra - Dream Metal (2024) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116908.jpg" />
 </div>
 
 
@@ -261,7 +336,7 @@ magnet:?xt=urn:btih:DCBAD59CDE49762999F7BC226ADE0A7FD1039BEA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116909.jpg" />
 </div>
 
 
@@ -285,7 +360,7 @@ FBackup 9.9.855 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116910.jpg" />
 </div>
 
 
@@ -309,7 +384,7 @@ Draw.io 23.1.5+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116911.jpg" />
 </div>
 
 
@@ -333,7 +408,7 @@ FreeFileSync 13.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116912.jpg" />
 </div>
 
 
@@ -357,7 +432,7 @@ magnet:?xt=urn:btih:AECDF46FAC1C4E20040BA02B4D5EAE57E28971A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116913.jpg" />
 </div>
 
 
@@ -381,7 +456,7 @@ VA - Incendiary Disco (2024) [MP3|320 Kbps] <Disco, Dance, Remixes>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116914.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ magnet:?xt=urn:btih:80E7F18BEF55109405FFDEB7E5AAFAF182310BF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116915.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ magnet:?xt=urn:btih:F776C467D4405DDAACDEBAC36AD8BAE4BF0C8812
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116916.jpg" />
 </div>
 
 
@@ -458,7 +533,7 @@ Topaz Gigapixel AI 7.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116917.jpg" />
 </div>
 
 
@@ -483,7 +558,7 @@ magnet:?xt=urn:btih:97E4C3BF2F9120510FE0C3FE68A40FC56C31FB60
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116918.jpg" />
 </div>
 
 
@@ -507,7 +582,7 @@ magnet:?xt=urn:btih:6C483D8DA9322CB46195EBFE2CFD09EACC8A916C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116919.jpg" />
 </div>
 
 
@@ -531,7 +606,7 @@ magnet:?xt=urn:btih:1CBCBF37A2BE8608BD7BF40CB741759658D7C3AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116920.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ AIDA64 1.98 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116921.jpg" />
 </div>
 
 
@@ -566,82 +641,6 @@ AIDA64 1.98 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAEA8E56047966B808E9CCBC10108F75BD925067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700890   (116922) от 18.02.2024
-
-Призрачная станция / Oksuyeok gwisin / The Ghost Station (2022) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив иск из-за опрометчиво сделанной фотографии, журналистка популярного интернет-издания спешит реабилитироваться в глазах начальства и берётся за расследование самоубийства на старой платформе станции метро «Оксу». Её приятель, сотрудник метрополитена, утверждает, что видел в тот день сидящего на рельсах ребёнка. Вскоре начинают происходить ещё более странные (   Читать дальше...   )Производство: Корея Южная, Япония / Studio & NewЖанр: ужасыРежиссер: Чон Ён-гиАктеры: Ким Бо-ра, Ким Джэ-хён, Щин Со-юль, О Джин-сок, Ким Ган-иль, Ким Су-джин, Ким Гван-хён, Пак Чэ-хан, Ким Гюн-ха, Ким На-юнПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DC556EFC76537D09599619337AE044A27077A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700893   (116923) от 18.02.2024
-
-Валерий Шарапов | Контрразведка (Книга 5). Нелегал из контрразведки (2024) [MP3, Семён Ващенко]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Враг очень умный и хладнокровный, он полагается на логику, настойчивость и точные расчеты. Он уверен, что знает, как одержать победу в этой битве. Однако он не учитывает, что против него выступают опытные профессионалы, люди отваги, чести и непоколебимой воли – советские контрразведчики.
-Мы находимся в конце 1950-х годов. По сведениям советской разведки, в одном (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 06:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC84BFD4C6316316521BBB558C514E5E2F56816B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699884   (116924) от 18.02.2024
-
-VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Floyd - Embryo [10:22]
-02. Yes - Starship Trooper: a. Life Seeker, b. Disillusion, c. Wurm [09:27]
-03. Frank Zappa, The Mothers of Invention - Inca Roads [08:45]
-04. Aphrodite's Child - The Four Horsemen [05:53](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 06:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
 ```
 
 

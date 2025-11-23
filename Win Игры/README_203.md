@@ -6,7 +6,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62054.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62058.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62064.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Amygdala (2024) [En] (1.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62081.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ A Twisted Tale (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62173.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62206.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62262.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62265.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Highwater (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62284.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unbearable (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62294.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ God of War (2022) [Ru/Multi] (1.0.13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62305.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62313.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62385.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Goblin Stone (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62397.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62398.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62419.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62480.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Death Trick: Double Blind (2024) [Multi] (1.1.13) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62484.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62494.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Quarry (2022) [Ru/Multi] (1.07/dlc) Repack Decepticon [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62517.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62601.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62632.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62728.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62732.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62744.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_62764.jpg" />
 </div>
 
 

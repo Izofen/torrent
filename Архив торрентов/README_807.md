@@ -1,3 +1,75 @@
+###  Публикация: 1346350   (163979) от 18.12.2019
+
+Джокер / Joker (2019) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / BRON Studios, Creative Wealth Media Finance, DC ComicsЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный (Чистый звук)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, full), английскиеПродолжительность: 02:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28BE14649EDFB9EE319A3E53FF9CAC58E59A68D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432388   (163985) от 17.12.2020
+
+Pepakura Designer 4.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A06DF1555F06193BEA49C31730EC2567BBD113A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346088   (163986) от 18.12.2019
+
+Red Giant Magic Bullet Suite 13.0.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite представляет собой набор из семи инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion, Davinci Resolve и Avid Media Composer.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Red Giant LLCПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816C6B92B3419AA03CE6A7594696471EA06EE0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346072   (163993) от 18.12.2019
 
 Райские холмы / Paradise Hills (2019) WEB-DL [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163993.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона император�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163997.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:FBFA242E450BFBC0B7CF709F245258DD71247130
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164008.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Adobe Media Encoder 2024 24.0.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164011.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:F3D6DF4EC667EBBCD75F38C1C9AC0F346BBD0546
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164023.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Revo Uninstaller Pro 4.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164027.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ McAfee Endpoint Security 10.7.0 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164030.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Apple Remote Desktop 3.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164038.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Malwarebytes AdwCleaner 8.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164044.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ TechSmith Snagit 2022.0.0 Build 14113 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164046.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ The Bat! Professional 10.5.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164049.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ OCCT 7.2.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164106.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Total Commander 11.01 (01.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164109.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ FastStone Capture 10.3 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164117.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Mountain Duck 4.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164126.jpg" />
 </div>
 
 
@@ -369,7 +441,7 @@ TechSmith Camtasia 2020 Studio v2020.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164131.jpg" />
 </div>
 
 
@@ -393,7 +465,7 @@ Windows 10 Manager 3.1.9.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164136.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ Truecaller BETA: определитель номера и запись звон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164139.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ Macrorit Partition Expert 7.2.0 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164141.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:422310C0D44A0B974E5F9BA29E4A83D8455B2EC3
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164144.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ Skype 8.67.0.96 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164146.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ PotPlayer 231102 (1.7.22031) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164150.jpg" />
 </div>
 
 
@@ -537,7 +609,7 @@ FastStone Capture 10.3 Final RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164158.jpg" />
 </div>
 
 
@@ -548,79 +620,6 @@ FastStone Capture представляет собой довольно мощн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:629382210C58E118DFD2492E417351CC9C47DFBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673753   (164160) от 02.11.2023
-
-ExtraDisks 23.10.1 Home [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164160.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExtraDisks - это набор инструментов для создания виртуальных дисков на физических дисках вашего компьютера, которые не изменяются и не делятся на дополнительные разделы. Программа содержит инструменты для создания зашифрованных дисков, виртуальных дисков на основе файлов и виртуальных дисков на основе каталогов. Текущая версия включает следующие инструменты: Зашифрованные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC65DF8DEBA151976BD17D1A815E44B5E586D2AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432593   (164168) от 17.12.2020
-
-Q-Dir 9.05 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
-Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF63EE3AEB4C76A2846AC6297E2B0679133138B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346207   (164173) от 18.12.2019
-
-K-Lite Codec Pack 15.3.0 Mega_Full_Standard_Basic + Update [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164173.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354E8C5F3358404C40F1FDCA57941426FA2F0456
 ```
 
 

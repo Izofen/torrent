@@ -1,3 +1,153 @@
+###  Публикация: 1195567   (142221) от 29.12.2017
+
+Яндекс.Браузер 17.11.1.988 Portable by thumbapps [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA54319791E163FF42C1A296116EC9C51BFB4189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348629   (142223) от 28.12.2019
+
+Призрачная шестёрка (Шестеро вне закона) / 6 Underground (2019) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инсценировав собственную смерть, сознательный миллиардер начинает новую жизнь — набирает отряд наёмников из разных стран, чтобы бороться со злом в этом мире. Все члены команды получают вместо имён цифры, и их целью становится свержение диктатора и освобождение народа страны Тургистан.Производство: США / Bay Films, Skydance MediaЖанр: БоевикРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced, full), английские, французские, немецкиеПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC0585B0345A71006DE184186475A1E57228FAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088018   (142224) от 29.12.2016
+
+Расплата / The Accountant (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, Английские SDHПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435914   (142225) от 29.12.2020
+
+Растровый клипарт - Bread, buns, buns and bagels stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хлеб, булочки и рогалики, для рекламных плакатов и любого другого вашего творчества.Разрешение файлов: 7000x4671-8000x5339
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B10530501E593C7685CAC12D3B418AD032D10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269645   (142226) от 28.12.2018
+
+Осадное положение / Etat de siege (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 1970-х. В Латинской Америке партизанами похищен государственный служащий Соединенных Штатов, который был консультантом местных спецслужб. И в этот момент в стране начинается гражданская война.
+
+Первый фильм. Дзета/Z (1969)
+Второй фильм. Признание/L'aveu (1970)(   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ)/ Dieter Geissler Filmproduktion, Euro International Film (EIA), Reggane Films, UnidisЖанр: Триллер, ДрамаРежиссер: Коста-ГаврасАктеры: Ив Монтан, Ренато Сальватори, О.Э. Хассе, Жак Вебер, Жан-Люк Бидо, Морис Тейнак, Иветт Этьеван, Эванджелин Петерсон, Харальд Вольф, Немезио АнтунесПеревод: Многоголосый закадровый, одноголосый закадровыйСубтитры: Французские (Forced), английскиеПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90DFA83438578C5E5146C826602FE7791F34AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587020   (142227) от 17.12.2012
+
+Gorgoroth - Дискография (8 альбомов + Bootleg) (1994-2009) [FLAC/APE|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142227.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. A Sorcery Written in Blood Demo 1993
+01 - Gathered at Blakulla (1:21)
+02 - Sexual Bloodgargling (3:53)
+03 - Under the Pagan Megalith (3:43)Жанр: Black MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195613   (142229) от 29.12.2017
 
 VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
@@ -6,7 +156,7 @@ VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142229.jpg" />
 </div>
 
 
@@ -33,7 +183,7 @@ VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142230.jpg" />
 </div>
 
 
@@ -60,7 +210,7 @@ Tower Pro 10 v.10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142231.jpg" />
 </div>
 
 
@@ -85,7 +235,7 @@ magnet:?xt=urn:btih:0D75E87246F4FFA550F9C66BD6C9780F43413761
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142232.jpg" />
 </div>
 
 
@@ -109,7 +259,7 @@ Mozilla Firefox Quantum 57.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142234.jpg" />
 </div>
 
 
@@ -133,7 +283,7 @@ magnet:?xt=urn:btih:EAF6D5AFACB84CF870F1AC5B44A6F551F33F63CA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142235.jpg" />
 </div>
 
 
@@ -157,7 +307,7 @@ magnet:?xt=urn:btih:281D13C22519895895E18252BEF891AAC2FCC170
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142238.jpg" />
 </div>
 
 
@@ -181,7 +331,7 @@ Cookie 6.6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142239.jpg" />
 </div>
 
 
@@ -206,7 +356,7 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142240.jpg" />
 </div>
 
 
@@ -233,7 +383,7 @@ magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142241.jpg" />
 </div>
 
 
@@ -260,7 +410,7 @@ OBS (Open Broadcaster Software) 0.657 Beta Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142242.jpg" />
 </div>
 
 
@@ -284,7 +434,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142243.jpg" />
 </div>
 
 
@@ -308,7 +458,7 @@ magnet:?xt=urn:btih:0B08F2848DFD6ABE9B7B56F5D4260D3A9DCA4F42
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142244.jpg" />
 </div>
 
 
@@ -334,7 +484,7 @@ magnet:?xt=urn:btih:91F8E8EBA481ADDBE80CF1109F4BDD58FA0E2CD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142245.jpg" />
 </div>
 
 
@@ -358,7 +508,7 @@ magnet:?xt=urn:btih:B730210AAEDE4F636E9958F6214666B6CF44C6FD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142247.jpg" />
 </div>
 
 
@@ -382,7 +532,7 @@ Privatus 6 v6.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142248.jpg" />
 </div>
 
 
@@ -406,7 +556,7 @@ magnet:?xt=urn:btih:97A6C58E85B7CD0E522842828F94F046B10C858C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142250.jpg" />
 </div>
 
 
@@ -430,7 +580,7 @@ magnet:?xt=urn:btih:D152E12184E0467C819357D97CD70E7256B3705F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142251.jpg" />
 </div>
 
 
@@ -454,7 +604,7 @@ magnet:?xt=urn:btih:17116821EE380AA8F8208337241CF0DCA6A6A733
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142252.jpg" />
 </div>
 
 
@@ -478,7 +628,7 @@ magnet:?xt=urn:btih:F4714E99A5A6D62A0F3A4120669C5DDA3F0BF373
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142253.jpg" />
 </div>
 
 
@@ -489,157 +639,6 @@ magnet:?xt=urn:btih:F4714E99A5A6D62A0F3A4120669C5DDA3F0BF373
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69A93DD62D391F215DADD863ACDBF32822D8A3B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343912   (142254) от 28.12.2019
-
-И это всё Роберт (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Богданов работает учителем физики в обычной провинциальной школе. Он терпит насмешки учеников и живет от зарплаты до зарплаты. Став случайным соучастником ограбления платежного терминала и убийства наркодилера, Роберт попадает под прицел сразу с двух сторон. Теперь его ищет полиция, а также безжалостный криминальный авторитет Хан, полностью контролирующий (   Читать дальше...   )Производство: Россия / Uufanet, Киностудия Р.И.Продакшн, Городской телеканал UTVЖанр: драма, криминалРежиссер: Андрей ЛиничАктеры: Александр Сергеев, Марат Хасанов, Полина Зиновьева, Наталья Панова, Александр Гришин, Рамиль Сабитов, Борис Хасанов, Тимур Латыпов, Анна Бурмистрова, Владислав Ветров, Роман Богданов и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50159FD73154B37EB5A686A7AB938D6F5112D2EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195419   (142256) от 29.12.2017
-
-Вечерний Ургант (2017.12.28) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:48Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A67BBEF2E16838E3939F8468E0C4BA09FFFE83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520429   (142257) от 28.12.2021
-
-Soulver 3 v3.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
-Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: © 2021 Acqualia SoftwareПоддерживаемая ОС: OS X 10.14.4 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36AA96B24687CAE3EC79C3AF0EB52A20C82A31E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435977   (142258) от 29.12.2020
-
-Смех - XX Years of Punx (2020) Live [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142258.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. ИП Чупэ
-3. Контракт
-4. Просто посидим(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205B38E8C0B80D5041286D568E75B5F499415A47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678774   (142260) от 23.11.2023
-
-Joker's IV - Pink World (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:09]
-02. Put Your Trust In Me [00:04:04]
-03. You Got Me Running [00:03:48]
-04. When We Were Kids [00:03:57](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54ECB3544EA525BC8BADEC7813913B016168E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970252   (142261) от 29.12.2015
-
-Он никогда не умирал / He Never Died (2015) WEB-DLRip [H.264/720p-LQ]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрывшемуся от общества Джеку приходится выйти из зоны комфорта, когда в один из вторников внешний мир буквально постучал в его дверь.Производство: США, КанадаЖанр: Триллер, Комедия, КриминалРежиссер: Джейсон КравчикАктеры: Генри Роллинз, Бу Бу Стюарт, Кейт Гринхаус, Джордан Тодоси, Стивен ОггПеревод: Двухголосый закадровый, любительский (Мтрск / StacyLagler)Субтитры: ОтсутствуютПродолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDB6D87D584F062567068EB9D1998C63A9BE27B
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1597146   (167438) от 13.12.2022
+
+Wondershare Recoverit 10.6.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473DE2B64FFC89936F58124192254ABACC8C1F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431285   (167439) от 13.12.2020
+
+Trimble Tekla Structural Design Suite 2020 SP5 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tekla Structural Designer - мощный инструмент для анализа и проектирования зданий, созданного для инженеров-проектировщиков, работающих в сфере проектирования коммерческих строительных объектов. Tekla Structural Designer дополняет основную программу Tekla Structures и позволяет полноценно использовать все преимущества 3D-моделирования, благодаря единому рабочему (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D980EF239D742587E6D590270E8FFB86C0D9B46C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515911   (167446) от 09.12.2021
+
+SQL Dynamite 2.5.1.9 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа исследует объекты базы данных различных типов (определяемых пользователем функций, хранимых процедур, триггеров, представлений, таблиц и индексов, внешних и первичных ключей, типов, синонимов, последовательностей, типов) для поиска вхождений искомого текста по их именам и по их содержанию. Поиск можно вести с учетом или без учета регистра.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B017C0BE5A91D42238A519DB3FD674EA2E4D1155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431292   (167447) от 13.12.2020
 
 OGWhatsApp v9.1 [Ru]
@@ -6,7 +79,7 @@ OGWhatsApp v9.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167447.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ FanControl V140 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167448.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ PrivaZer 3.0.84 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167449.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ Windows 10 Manager 3.5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167451.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ Adguard for Mac 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167457.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167457.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167465.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:4F2669AA9905A8DC68601ABCC9CB401231BA539D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167467.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ GeoGebra 6.0.749.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167469.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ JRiver Media Center 25 v25.0.123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167470.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ TechSmith Camtasia 2022 Studio 2022.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167474.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ Opera 93.0.4585.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167476.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ Alfred PowerPack 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167482.jpg" />
 </div>
 
 
@@ -298,7 +371,7 @@ BELOFF [dp] 2020.12.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167483.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167485.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Allavsoft Video Downloader Converter 3.21.0.7286 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167488.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:4A45584B30FAF6788D18A10BEBBB8182F2223F7C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167489.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Suicide Squad: Special Ops / Отряд самоубийц: Спецназ v1.1.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167492.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Light Image Resizer 6.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167496.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ Slimjet 37.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167500.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Wise Care 365 Pro 6.1.4.601 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167501.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ Internet Status 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167502.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ FinePrint Software (FinePrint 11.06 / pdfFactory Pro 8.06) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167508.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ HWiNFO 7.35 Build 4935 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167512.jpg" />
 </div>
 
 
@@ -551,79 +624,6 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F932147DD1BBCC0982F95752FB010641ACDC71AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597105   (167513) от 13.12.2022
-
-True Burner 8.8 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167513.jpg" />
-</div>
-
-
-###  Подробнее
-
-True Burner - удобное в использовании программное обеспечение для прожига дисков. Этот инструмент позволит создать и записать обычные, мультисессионные, загрузочные CD, DVD, Blu-Ray диски с различными файловыми системами, в том числе ISO 9660 и UDF.
-Приложение позволяет также создавать диски с данными, MP3-диски, DVD-Video и другие. Программа отличается простотой (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65683991A740E852C85B47A90E7F3762780B962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516113   (167517) от 09.12.2021
-
-WinUtilities Pro 15.78 (акция Сomss) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167517.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinUtilities - системный набор для настройки Вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности Вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F5DCEDAE482465B930A5B3C041FE8CD2724532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431350   (167518) от 13.12.2020
-
-Роберт Гэлбрейт | Дурная кровь. Книга 1 (2020) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корморан Страйк навещает родных в Корнуолле. Там к частному детективу, вновь попавшему на первые полосы газет после того, как он поймал Шеклуэллского Потрошителя и раскрыл убийство министра культуры Джаспера Чизуэлла, обращается незнакомая женщина и просит найти ее мать, пропавшую при загадочных обстоятельствах в 1974 году.Жанр: Зарубежные детективы, Современные детективыПродолжительность: 20:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E190355D60A4A407A5924C2D852FE89BB2BD4E1E
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1435715   (142714) от 29.12.2020
+
+Chaos Control Premium 1.11 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаос-контроль: органайзер целей и задач на базе GTD.
+Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
+Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9101A27FD4218771BFFEF83BDE2EAA2C2D7F0A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435888   (142735) от 29.12.2020
+
+Nevercenter CameraBag Photo 2020.30 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142735.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraSag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: NEVERCENTERПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903384C3A41FC2818E5A8AB4E9F052EFE7448846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435720   (142745) от 29.12.2020
 
 DirEqual 3.2 [Multi]
@@ -6,7 +57,7 @@ DirEqual 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142745.jpg" />
 </div>
 
 
@@ -31,7 +82,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/8dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142746.jpg" />
 </div>
 
 
@@ -62,7 +113,7 @@ magnet:?xt=urn:btih:4B3063EC65CBFE854A315BD60AD4DF6991620318
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142754.jpg" />
 </div>
 
 
@@ -86,7 +137,7 @@ USB Safely Remove 6.2.1.1284 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142761.jpg" />
 </div>
 
 
@@ -110,7 +161,7 @@ Volume2 1.1.5.361 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142763.jpg" />
 </div>
 
 
@@ -134,7 +185,7 @@ BELOFF [dp] 2019.12.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142773.jpg" />
 </div>
 
 
@@ -161,7 +212,7 @@ magnet:?xt=urn:btih:F069F68EEDE3F1E15A44DD061709996D9A641A4E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142778.jpg" />
 </div>
 
 
@@ -185,7 +236,7 @@ magnet:?xt=urn:btih:AE67E25505E3CCAF31DAFAB7439677CFA152B17E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142779.jpg" />
 </div>
 
 
@@ -212,7 +263,7 @@ Q-Dir 6.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142787.jpg" />
 </div>
 
 
@@ -236,7 +287,7 @@ magnet:?xt=urn:btih:C0F141A80D417B31A1112A659204D3E9FF8B7AB0
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142790.jpg" />
 </div>
 
 
@@ -260,7 +311,7 @@ SteerMouse 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142794.jpg" />
 </div>
 
 
@@ -284,7 +335,7 @@ Graphic Inspector 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142795.jpg" />
 </div>
 
 
@@ -308,7 +359,7 @@ Air Explorer Pro 2.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142799.jpg" />
 </div>
 
 
@@ -332,7 +383,7 @@ magnet:?xt=urn:btih:0CE15CCEF5F8AF8E1A66AA05E35A81DF50F351A3
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142803.jpg" />
 </div>
 
 
@@ -356,7 +407,7 @@ Movavi Video Editor Plus 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142805.jpg" />
 </div>
 
 
@@ -380,7 +431,7 @@ Permute 3 v3.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142807.jpg" />
 </div>
 
 
@@ -404,7 +455,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142813.jpg" />
 </div>
 
 
@@ -428,7 +479,7 @@ BluePlum Home Inventory 4 v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142815.jpg" />
 </div>
 
 
@@ -452,7 +503,7 @@ USB Safely Remove 6.2.1.1284 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142817.jpg" />
 </div>
 
 
@@ -476,7 +527,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142819.jpg" />
 </div>
 
 
@@ -500,7 +551,7 @@ BurnAware Professional 11.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142822.jpg" />
 </div>
 
 
@@ -524,7 +575,7 @@ magnet:?xt=urn:btih:6BC55E2FAEFA55CBEA066978795FA920C865311C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142831.jpg" />
 </div>
 
 
@@ -548,7 +599,7 @@ Twinkstar 4.10.1000.1812 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142832.jpg" />
 </div>
 
 
@@ -572,7 +623,7 @@ Reflect Studio 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142835.jpg" />
 </div>
 
 
@@ -585,57 +636,6 @@ Reflect Studio - новый фото редактор от создателей 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E59D296FC4146198C552E2D271B615951841F42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125643   (142836) от 28.12.2019
-
-Stormzy - Gang Signs & Prayer (2017) [FLAC|Lossless|tracks + .cue] <Grime>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Things First
-02. Cold
-03. Bad Boys feat. Ghetts & J Hus
-04. Blinded By Your Grace Part 1(   Читать дальше...   )Жанр: GrimeПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB73A97158668F7C968013D93F328F70A82404E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520176   (142837) от 27.12.2021
-
-Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142837.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис,  Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full, SDH), украинские (forced), английские (full, SDH)Продолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5476FF37CE7B497FE245C4E54F51B054E7195E
 ```
 
 

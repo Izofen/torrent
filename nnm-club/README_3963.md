@@ -1,3 +1,81 @@
+###  Публикация: 1692100   (122720) от 15.01.2024
+
+Kevin Burt - Thank You Brother Bill A Tribute to Bill Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Is He (And What Is He To You) (4:54)
+02. Kissing My Love (4:28)
+03. World Keeps Going Round and Round (5:27)
+04. Just the Two of Us (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022C78CBD43C17A32FEDCAB5D289EEAAE7426E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692210   (122721) от 15.01.2024
+
+Ольга Баскова | Артефакт & Детектив. Проклятая сабля крымского хана (2022) [MP3, Ольга Плетнева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот, кто хочет владеть всем миром, непременно поплатится за свое тщеславие. Зачарованная сабля сулила могущество и богатство хану Девлет Гирею, потомку великого Чингисхана, но была утеряна на поле битвы, и с тех пор несла только разрушение и несчастья… Сила проклятья не ослабла вплоть до наших дней, и закружила в водовороте трагических событий Жанну и Андрея, каждому (   Читать дальше...   )Жанр: детектив, триллерИздательство: Нигде не купишьПродолжительность: 10:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD69EA4FF49710139774759BB2316179979FFD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692226   (122722) от 15.01.2024
+
+Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabama Train (3:54)
+02. Can't Shake These Blues (4:52)
+03. 1964 (6:33)
+04. Don't Let The Devil Ride (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2D446B552D97124954E116EA1B878A3CAAF0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692208   (122723) от 15.01.2024
 
 Марина Крамер | Горгона с пихтовой веткой (2022) [MP3, Татьяна Литвинова]
@@ -6,7 +84,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122723.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122723.jpg" />
 </div>
 
 
@@ -30,7 +108,7 @@ Kalmankantaja - Kohti valon kuolemaa (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122724.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ magnet:?xt=urn:btih:22BE9D31248CBE2FDBF734E53F7D56D7A85CE597
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122725.jpg" />
 </div>
 
 
@@ -81,7 +159,7 @@ Gurf Morlix - Melt into You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122726.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ Blue Door Records - Blue Door Records (Deluxe) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122727.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:4846234CE6F097A2508A4EDF16B98FD688BE1CE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122728.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ John the Revelator - Where Are You_ (55th anniversary compilation) (2024) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122729.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ magnet:?xt=urn:btih:BDBEE9F20F71DAC52FC2777D676C6E8460169E2A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122730.jpg" />
 </div>
 
 
@@ -210,7 +288,7 @@ MP3 Encoder 2.18.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122731.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ Joe Louis And The Groove - First Time I Saw You (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122732.jpg" />
 </div>
 
 
@@ -261,7 +339,7 @@ magnet:?xt=urn:btih:4D5DBD56965D6321DCC0518C3C12EF1388CC983C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122733.jpg" />
 </div>
 
 
@@ -288,7 +366,7 @@ Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122734.jpg" />
 </div>
 
 
@@ -315,7 +393,7 @@ magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122735.jpg" />
 </div>
 
 
@@ -341,7 +419,7 @@ Vesta Lugg - Muy Mucho (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122736.jpg" />
 </div>
 
 
@@ -368,7 +446,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -392,7 +470,7 @@ Asking Alexandria - Dark Void (2024) EP [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122738.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ magnet:?xt=urn:btih:4434412EDFF2D2D572674F2A2AA5F696576A5FEA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122739.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ magnet:?xt=urn:btih:DF43BBD71E76B5518329DA0643D5585E7524D4B4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122740.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122741.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122742.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ magnet:?xt=urn:btih:E9ED18F6DE502021A2F0B6D53EFF979718A42733
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122743.jpg" />
 </div>
 
 
@@ -549,7 +627,7 @@ magnet:?xt=urn:btih:FCB52F93C9EC3869EEACA83C5A3EAC31E81ACC89
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122744.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ Ri (Rī) Wolf - Rī Wolf & The Prairie Hawks (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122745.jpg" />
 </div>
 
 
@@ -587,81 +665,6 @@ Ri (Rī) Wolf - Rī Wolf & The Prairie Hawks (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD7606D96775B8B96DCA105E9B78EFA3E55CCD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692137   (122746) от 15.01.2024
-
-Всю ночь напролёт / All Night Long (1962) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм представляет обновленную версию "Отелло" Уильяма Шекспира. Действие происходит на лондонской джазовой сцене за один вечер, во время юбилейной вечеринки... В фильм вставлены выступления нескольких выдающихся британских и американских джазовых музыкантов 60-х годов прошлого века... Музыкант Аурелиус Рекс и его жена Делия, певица на пенсии, приглашены (   Читать дальше...   )Производство: Великобритания / The Rank Organisation Film Productions Ltd.Жанр: драма, музыкаРежиссер: Бэзил ДирденАктеры: Патрик МакГуэн, Кит Митчел, Бетси Блэр, Пол Харрис, Марти Стивенс, Ричард Аттенборо, Бернард Браден, Гарри Тауб, Мария Веласко, Дэйв БрубекПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, Игорь Клушин), английскиеПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB80FD4C43102F19C7DC8C5C40CB63AEBE8BE8AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692261   (122747) от 15.01.2024
-
-Magic Disk Cleaner 2.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2022-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F9DEFFDB3CBAEB45CE0909146DD06BBEBB720A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692093   (122748) от 15.01.2024
-
-Chris O'Leary - The Hard Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Rest (4:33)
-02. Lost My Mind (3:46)
-03. Ain't That A Crime (4:25)
-04. My Fault (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A203E3FEB15D5F40247197568BDB29DE213F76D1
 ```
 
 

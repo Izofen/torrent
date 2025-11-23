@@ -1,3 +1,181 @@
+###  Публикация: 1519624   (146189) от 25.12.2021
+
+Михаил Ритчер | Онлайн курс "Инвестирование в криптовалюту" (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инвестирование в криптовалюты.
+Уже за 40 дней Вы начнете анализировать монеты с помощью сервисов, фильтров и уровням, прогнозировать риски, торговать на биржах, а также создадите крипто-портфель.Михаил Ритчер
+Инвестор, управляющий активами
+Со-основатель группы финансовых компаний MRP, фонда инвестирования в IPO MegoW.(   Читать дальше...   )Жанр: ИнвестицииПродолжительность: 08:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39898EB948D6E294FA07C00A0E945AAE7D472BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678340   (146190) от 21.11.2023
+
+Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Century Media Records Ltd. [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reign of the Tyrants (re-recorded) [00:03:36]
+02. Eyes of the Night (re-recorded) [00:05:51]
+03. The Church (re-recorded) [00:03:12]
+04. Metal Melts the Ice (re-recorded) [00:04:00](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 2 CD, 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12B94477424ED24BBEF305DC1440EC046A4C2BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271932   (146191) от 25.12.2018
+
+Местные / The Domestics (2018) BDRemux  [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146191.jpg" />
+</div>
+
+
+###  Подробнее
+
+После постигшего Америку апокалиптического события Средний Запад разделён на территории банд. Находившаяся до катаклизма в процессе развода семейная пара пытается добраться через опасную местность до родителей жены, в Милуоки.Производство: США / Hollywood Gang ProductionsЖанр: Ужасы, триллерРежиссер: Майк П. НельсонАктеры: Тайлер Хэклин, Кейт Босворт, Соноя Мидзуно, Давид Дастмалчян, Лэнс Реддик, Дэна Гурье, Лора Кайюэтт, Майк П. Нельсон, Дэйв Дэвис, Брэд ЛелэндПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D99C65ABCB861AE594AF2A45485C8EBF537AC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969474   (146192) от 27.12.2015
+
+Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
+записанной на ноутбуке Asus x555ln-xo184h (90nb0642-m05630)
+с помощью программы Windows Recovery Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435066   (146194) от 27.12.2020
+
+Журнал | Psychologies №12-1 (56) (декабрь 2020 - январь 2021) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484681977B365DA2E5E8BED7B78F3F5D1A2F9F5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519833   (146195) от 25.12.2021
+
+Уэйн Л. Винстон | Бизнес-моделирование и анализ данных. Решение актуальных задач с помощью Microsoft Excel (2021) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэйн Винстон научит вас быстро анализировать данные, принимать решения, подводить итоги, составлять отчеты, обрабатывать данные и строить аналитические модели в Microsoft Excel 2019 и Ofﬁce 365. В новом шестом издании вас ждут более 800 бизнес-задач, основанных на реальных ситуациях, а также обсуждение новых инструментов и функций. Где бы вы ни работали – (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABB379B8A8FB8D75171CEE75CEC300A231E873A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348026   (146196) от 26.12.2019
+
+Т.В. Кагукина (сост.) | Подготовка к олимпиадам по иностранному языку (английский) (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые материалы содержат тестовые задания и тренировочные упражнения, обеспечивающие повторение и систематизацию материала, предусмотренного учебной программой для общеобразовательных учреждений. Особое внимание уделяется грамматическим аспектам языка, пониманию текста, проверке сформированности словарного запаса.
+Методические рекомендации предназначены для (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219077145429FBEF56F610E161D05C6879A7FB5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435207   (146197) от 27.12.2020
 
 Очевидец / Oyevitne (2014) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +184,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146197.jpg" />
 </div>
 
 
@@ -30,7 +208,7 @@ magnet:?xt=urn:btih:71B4103D60E74ECAE1DDA5550EEFE6C4DD3C3B0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146198.jpg" />
 </div>
 
 
@@ -54,7 +232,7 @@ magnet:?xt=urn:btih:71B4103D60E74ECAE1DDA5550EEFE6C4DD3C3B0A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146199.jpg" />
 </div>
 
 
@@ -78,7 +256,7 @@ Alien Skin Exposure X 1.0.0.2005 Revision 31988 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146200.jpg" />
 </div>
 
 
@@ -102,7 +280,7 @@ Garden Planner 3.7.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146201.jpg" />
 </div>
 
 
@@ -126,7 +304,7 @@ The Rook Ensemble - Conform to the Pageantry (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146203.jpg" />
 </div>
 
 
@@ -153,7 +331,7 @@ magnet:?xt=urn:btih:CB74E57FFF0806CB5D5982B4D4FD16FCF359AD2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146204.jpg" />
 </div>
 
 
@@ -177,7 +355,7 @@ magnet:?xt=urn:btih:C071AA6D06101FE3C1D8D3411343CFEB33D91E5F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146206.jpg" />
 </div>
 
 
@@ -201,7 +379,7 @@ magnet:?xt=urn:btih:2823BB99D09D3FC68DCF8E6D27429F6624DD6594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146207.jpg" />
 </div>
 
 
@@ -225,7 +403,7 @@ magnet:?xt=urn:btih:729858EDA590B7052D13DFAD6F183949EAAB9B94
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146208.jpg" />
 </div>
 
 
@@ -249,7 +427,7 @@ Amerigo Gazaway - Nina Simone & Lauryn Hill - The Miseducation of Eunice Waymon 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146210.jpg" />
 </div>
 
 
@@ -276,7 +454,7 @@ magnet:?xt=urn:btih:A1C243915B80A0A237454D5BF1DBBA84BC753831
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146211.jpg" />
 </div>
 
 
@@ -300,7 +478,7 @@ magnet:?xt=urn:btih:F0A4854B0D89CACD7257D25635FF8B2E4136E4AE
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146212.jpg" />
 </div>
 
 
@@ -324,7 +502,7 @@ magnet:?xt=urn:btih:56D28B7EE63F0A09B87DD9BF336FB804F6784EFB
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146213.jpg" />
 </div>
 
 
@@ -348,7 +526,7 @@ magnet:?xt=urn:btih:777545D4B8A8DA05E5329A8C8467F61179013E04
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146214.jpg" />
 </div>
 
 
@@ -372,7 +550,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.03.00) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146215.jpg" />
 </div>
 
 
@@ -396,7 +574,7 @@ Adobe Bridge CC 2019 9.0.2.219 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146216.jpg" />
 </div>
 
 
@@ -420,7 +598,7 @@ Border Cross - 2 Albums (2006-2008) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146217.jpg" />
 </div>
 
 
@@ -446,7 +624,7 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146218.jpg" />
 </div>
 
 
@@ -460,179 +638,6 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E8A65375972D600967E0019E3A83F16E4B9788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519749   (146219) от 25.12.2021
-
-ESET NOD32 Internet Security 15.0.21.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146219.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Internet Security – комплексный антивирус и интернет-защита с облачными и проактивными технологиями. Включает фаервол, инструменты для безопасных онлайн-платежей и защиты домашней сети, родительский контроль. ESET NOD32 Internet Security поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание всех видов угроз и высокая (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B9B62C8BF506C81D28F66767C1612846D48E2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678443   (146221) от 21.11.2023
-
-AnyMP4 iPhone GPS Spoofer for Mac 1.0.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146221.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 iPhone GPS Spoofer может легко помочь вам изменить или скрыть местоположение GPS на вашем iPhone и разработать ложный маршрут движения для вашего iPhone. При работе в сети «Интернет» вас может раздражать раскрытие конфиденциальной информации, особенно вашего местоположения. В этом случае AnyMP4 iPhone GPS Spoofer может стать вашим решением.
-Просто подключите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254B87BC6CE38874ECFF80678EEBAE9777DA46B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348154   (146222) от 26.12.2019
-
-Кадзуо Исигуро | Погребенный великан (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое произведение Кадзуо Исигуро - событие в мировой литературе. Его романы переведены более чем на сорок языков. Тиражи книг "Остаток дня" и "Не отпускай меня" составили свыше миллиона экземпляров. "Погребенный великан" - роман необычный, завораживающий. Автор переносит нас в Средневековую Англию, когда бритты воевали с саксами, а (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 11:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E85486C0B78A2EF8DEE8D3E6BDA4F3745DAE4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087443   (146223) от 27.12.2016
-
-Проекты - Motion Array - Film Reel Promo - 22111 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Film Reel Promo -  идеально подходит для демонстрации кинематографического материала или слайд-шоу. Этот шаблон имеет 13 заполнителей изображений или видео и 10 держателей текста, который вы можете изменить, как вам нравится. Очень прост в использовании и настройке в кратчайшие сроки. Создайте профессиональное видео с этой удивительным шаблоном.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72FACE8334C6B33CE61DA273D85601EC459FDBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271380   (146224) от 25.12.2018
-
-Анастасия Тарасова | Сам себе финансист. Как тратить с умом и копить правильно (2018) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство людей хоть раз в жизни да начинали вести учёт своих доходов и расходов. Но чаще всего эти попытки ничем не заканчивались. А многие и вовсе считают, что контролировать свои финансы должны только богатые люди, а когда денег не так уж и много, то тут и контролировать нечего. Из этой книги вы узнаете, что учиться финансовой грамотности нужно всем, независимо (   Читать дальше...   )Жанр: Личные финансы, Личная эффективностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6930001BF5C9E69CFE34B39B924AF3E442B220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968963   (146225) от 27.12.2015
-
-Конвой / Convoy (1978) BDRemux [H.264/1080p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный конвой грузовиков, вздымающих тучи пыли, движется к границе штата юго-западной части Америки.
-Массивную коллекцию машин всех размеров и очертаний ведет «Резиновый утенок», легендарный водитель-дальнобойщик, который собрал армию единомышленников, протестуя против полицейской коррупции, государственных законов и теневой политики.Производство: США, Великобритания / EMI FilmsЖанр: Боевик, КомедияРежиссер: Сэм ПекинпаАктеры: Крис Кристофферсон, Эли МакГроу, Берт Янг, Мэдж Синклэр, Фрэнклин Аджайе, Брайан Дэвис, Сеймур Кэссел, Кэсси Йэйтс, Уолтер Келли, Эрнест БоргнайнПеревод: Дублированный х2, многоголосый профессиональный х4, авторский х2Язык субтитров: Русские, английские, французские, немецкиеПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9721612AA91C290AEDCA569CA9F90C55C514F856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519705   (146226) от 25.12.2021
-
-Fivealeks | Курс по обработке фотографий (2021) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146226.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОГРАММА: состоит из 4х основных частей, каждой из которых уделено большое внимание:
-1. Основа
-2. Lightroom
-3. Capture One(   Читать дальше...   )Жанр: обработка фотоПродолжительность: 04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFABB205681C4F99C1CC3F1B8A271500C0E4BA03
 ```
 
 

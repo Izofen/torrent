@@ -1,3 +1,75 @@
+###  Публикация: 1684202   (128003) от 14.12.2023
+
+С. Монк | Micro:bit для неугомонных учёных (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга описывает множество занимательных экспериментов и проектов с использованием BBC micro:bit – компактной платы, с помощью которой читатель освоит азы программирования. В первой главе подробно рассказывается о подключении устройства и принципах его функционирования, а следующие главы посвящены практической работе. Материал сгруппирован по темам: свет, звук, (   Читать дальше...   )Жанр: Программирование, радиолюбительские конструкцииИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FF1E5D7CFB96C5931D39B190635C53B18AD5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684272   (128004) от 14.12.2023
+
+Psiphon 3 build 181 (14.12.2023) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F486FC1042DEE475ED2A14B5C4DAF41F052D55DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684078   (128005) от 14.12.2023
+
+Охотник за дезертирами / D.P. / Deserter Pursuit (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный рядовой срочник благодаря своей принципиальности и наблюдательности оказывается в подразделении, которое ловит дезертиров. Вместе с хохмачом-капралом парень теперь расследует случаи ухода солдат в самоволку (а за каждым — настоящая трагедия) и, преследуя сбежавших, ездит по всей стране.Производство: Южная Корея / Climax Studio, Homemade FilmsЖанр: драма, детектив, комедияРежиссер: Хан Джун-хиАктеры: Чон Хэ-ин, Ку Гё-хван, Сон Сок-ку, Ким Сон-гюн, Ли Джун-ён, Хон Гён, Чо Хён-чхоль, Щин Сын-хо, Ли Соль, Сон Док-хоПеревод: двухголосый любительский (Softbox)Язык озвучки: русский, корейский, английскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C577AD8C989A5D375A03DC676A0E4486927BBA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684147   (128006) от 14.12.2023
 
 М. Розема, Х. Влотман | DAX для профессионалов: теория и практика (2023) [PDF]
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128006.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:998B28BF2D44C52C9C9E8E13F44E3BDA8E9E07A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128007.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Chromium-Gost 120.0.6099.109 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128008.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:BCFD742550D8269022386562B397D0BE1B0C236E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128009.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:C99DBA61D8FD269E60A2FAE407186F638466DD22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128010.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:21CE01571A17BD74A8A39CB04196B3A69408F41A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128011.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:A94E35545C830014047FA10BDF37A38D17BF0412
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128012.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Ubuntu ServerPack 20.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128013.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ IrfanView 4.65 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128014.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Ubuntu ServerPack 18.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128015.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.3 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128016.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128017.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ magnet:?xt=urn:btih:E5EFEE16B3C4B64EB86E7502546FFBAC6D3E8D08
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128018.jpg" />
 </div>
 
 
@@ -325,7 +397,7 @@ magnet:?xt=urn:btih:973F1FE79F912E6DB87A9FA4D0BFC8C8FF5E47EF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128019.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ magnet:?xt=urn:btih:76D1295C02C50AC5F3BD1226B4A10BB8F4F04C91
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128020.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:F782E2BB62064F9E0E638B77EE836BC5C7AD4E55
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128021.jpg" />
 </div>
 
 
@@ -402,7 +474,7 @@ magnet:?xt=urn:btih:D251FC1513FA02214839153B7163E41428F41AA1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128022.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:C1A2B5085528BEFA08DA2FEA084A429A14387A7E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128023.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ magnet:?xt=urn:btih:422E64ADB8230DBF59454933C435F8D39DAD4814
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128024.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ magnet:?xt=urn:btih:2FDCFEEEBAC2F712C7BF3F7451D4CD4EA0E33CFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128025.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:B889E7013415A02C88A1600169584B6034F309B2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128026.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ AIDA64 Extreme Edition 7.00.6705 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128027.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128028.jpg" />
 </div>
 
 
@@ -558,78 +630,6 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1781CA2D0C7CBF7BF4900AFF54F823F3D8BBAE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684146   (128029) от 14.12.2023
-
-Хаос / Chaos (2005) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самым обычным утром банда грабителей захватывает банк и берёт в заложники всех, кто в нём находится. Полиция окружает здание банка. Вожак банды Лоренц требует вызвать переговорщика, настаивая на том, что им может быть только детектив Коннерс. А так как Коннерс числится в полиции на плохом счету, к нему приставляют напарника, новичка Деккера. Пока Коннерс ведёт переговоры, (   Читать дальше...   )Производство: Канада, Великобритания, США, Chaotic Productions, Current Entertainment, Epsilon Motion Pictures, Rampage EntertainmentЖанр: драма, криминал, боевик, триллерРежиссер: Тони ГиглиоАктеры: Джейсон Стэйтем, Райан Филипп, Уэсли Снайпс, Генри Черни, Джастин Уоддэлл, Николас Ли, Джессика Стин, Роб ЛаБелль, Джон Кассини, Дэймон Джонсон, Пол Перри, Киган Коннор Трэйси, Наташа Мальте, Тай Олссон, Терри ЧенПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CA9CF4A643CEC1F96DC34F26D3D0E984B44039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684239   (128030) от 14.12.2023
-
-Чарли Пуля / Fast Charlie (2023) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Свифт по прозвищу Пуля — хладнокровный киллер и мастер по решению сложных проблем. Много лет он верой и правдой служит своему боссу, мафиози Стэну, пока от того не решает избавиться конкурент. Избежавший расправы герой встает на путь мести, заручившись неожиданной поддержкой Марси — бывшей жены бандита, некогда погибшего от рук Чарли.Производство: США / Ashland Hill Media Finance, BCD TravelЖанр: Боевик, криминал, драмаРежиссер: Филлип НойсАктеры: Пирс Броснан, Морена Баккарин, Джеймс Каан, Гбенга Акиннагбе, Мэтт Кук, Девид Чаттем, Тоби Хасс, Фредрик Лене, Шэрон Глесс, Бреннан Кил КукПеревод: Дублированный (Проект Продакшн)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0F0A4EFFCB30D90949F19A38E69BD437CA6D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684128   (128031) от 14.12.2023
-
-Office Tool Plus 10.4.5.0 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Tool Plus - функциональная программа для работы с Office от компании Microsoft. Позволит вам выполнить модернизацию текущего офиса, допустим изменить канал обновления, если есть желание возможно удалить лишние языковые пакеты, можно сам офис полностью удалить из системы. Плюс у вас не будет больше проблем с активацией, теперь максимально легко установить ключ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D500F77CE8F50919E66913BE68B3C18562116B
 ```
 
 

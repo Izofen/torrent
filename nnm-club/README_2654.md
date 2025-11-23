@@ -6,7 +6,7 @@ Lumen - Три пути. 20 лет (2025) Live [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69752.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0F26041E1D03ADCE79ED4F3D5A732C482BCFB3DE
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69753.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:1982C8CDCA131727F3047B7EFA338C60940BD662
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69754.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Venice Piano Sonata: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69755.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - The Sound of 2025, Chapter 2: Madrid (Night Mix) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69756.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tiesto - Live @ Movistar Arena Bogota, Colombia (2025-01-25) [MP3|320 Kbps] <Dan
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69757.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - One Shot '80 Volume 17 (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69758.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Destruction - Birth Of Malice (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69759.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:290503584FAD01BA0955DEEA8F3D925685AD8F26
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69760.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:DFB4EDEE90A36F6C61160AC5DF45EBE24D42D7CA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69761.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:A5051E49ABE48E785F3323F249745318102ECC8A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69762.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - One Shot '80 Volume 16 (2003) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69763.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A67ADCF60D22743B4AAE43E4641434E7D0216B53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69764.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Delain - Dance With The Devil (2024) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69765.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A086FB6CB79F7B4C98823778C41717431829FC11
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69766.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2A403D0615B14A258A4AE81B70A7860E3E126DB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69767.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Desktop Calendar 3.21.225.7036 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69768.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Tate McRae - So Close To What (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69769.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:2A0C0E801D41706D3CDF464E2788AFE7A63B0A70
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69770.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:6BD9BCE6C8DDEBCD18111FFA9482F767DFFF019A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69771.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:9B91146A4F41EB255A46255DC55A6D185056CD9B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69772.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:9DCBDDBD78D87B22001DE5816558B47610EA916E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69773.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:06801322B917CEE8F331D823C48D642FF09D43AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69774.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6A942BE669EA6E8079B98C11908033A20F5B6EA1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69775.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:05346BDFCEE560F78BBE8C3D0DBEA8F346EAB1C4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69776.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:55216D1A8AAA3B95708A1E0C58A2C46E6DE3E3A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_69777.jpg" />
 </div>
 
 

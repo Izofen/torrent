@@ -6,7 +6,7 @@ Monkey's Audio 10.90 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30343.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30343.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Aiseesoft Filmai 1.0.18 RePack (& Portable) by TryRooM 1.0.18 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30975.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30975.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Jixipix Premium Pack 1.2.16 Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31107.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31107.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Franzis FOCUS 6 Pro 6.13.04017 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31796.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Franzis SHARPEN #5 Pro 5.41.03926 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31937.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Franzis ANALOG Pro 5.21.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32207.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Chasys Draw IES 5.33.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32430.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Franzis EMOTION #2 Pro 2.27.04017 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32514.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ OpenShot Video Editor 3.3.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33168.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Madrona Labs - Studio Bundle 12.2024 VST, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33181.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Atomix VirtualDJ 2025 Pro Infinity 8.5.8472 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33304.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tracktion Software - BioTek 3 3.0.3 VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33338.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Franzis COLOR Pro 8.23.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33489.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KORG - Opsix Native 1.3.1 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33554.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SoliderSound - S Doubler Pro 1.0.0 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33647.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Yum Audio - Spread 1.7.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33661.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Franzis BLACK & WHITE Pro 8.25.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33671.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ FabFilter - Total Bundle 2024.12.16 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33700.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ FliFlik KleanOut for Photo 6.4.0 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33900.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AVS Video Software 13.10.7.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34006.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Movavi Photo Editor 24.3.0 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34030.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Lunacy Audio  - CUBE 1.6.0 Standalone, VSTi 3, AAX  (x64) + Samples [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34079.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Plugin Alliance - MEGA Bundle Effects 12.2024 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34120.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Celemony - Melodyne Studio 5.4.2.006 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34122.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Chaos Enscape 3D 4.2.1.88 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34337.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ U-he - Repro-1 1.1.3 VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34411.jpg" />
 </div>
 
 

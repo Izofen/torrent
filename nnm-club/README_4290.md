@@ -1,3 +1,77 @@
+###  Публикация: 595742   (131974) от 29.12.2012
+
+Зенон Франко | Шахматы. Тесты по стратегии и тактике [2012] [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой своеобразный учебник, в котором автор, известный гроссмейстер, в тестовой форме предлагает ответить на вопросы, связанные с оценкой позиции и расчету вариантов. Итоги подводятся после каждой партии.
+И не беда, если вы заработали мало очков - впереди следущее задание, в конце которого может выясниться, что вы второй Широв или Корчной!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E90FE3175A6C04FDE339A919D3C9F7BE40FBB28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392408   (131975) от 05.12.2023
+
+Лидия Чарская | Сибирочка (2009) [MP3, Мария Говорова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Архив мировой литературы.
+В начале XX века произведения Лидии Чарской (1875–1937) пользовались огромной популярностью среди детей и юношества дореволюционной России. Её повести и романы воспевали светлую любовь, живописали романтику повседневности – гимназические и институтские интересы, страсти, столкновение характеров. Душевные, романтичные истории (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМир (аудио)Продолжительность: 05:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B388E7BC7933D63767E98CAB9F3D51CCEEA8EAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680087   (131977) от 05.12.2023
+
+Больничка / H (1998-2002) WEB-DLRip [H.264] (сезон 1-4, серии 1-71 из 71) [FR / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131977.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной из больниц в пригороде Парижа «дружная» команда докторов и медсестер под руководством чудаковатого профессора каждый день несет свою нелегкую службу. Между спорами, шутками и розыгрышами они готовы помочь любому несчастному, сломавшему какую-нибудь часть тела, ну или просто посадившему занозу.Производство: Франция, Canal+Жанр: КомедияРежиссер: Шарль Немес, Эдуар Молинаро, Эрик ЛартигоАктеры: Жамель Деббуз, Эрик Жюдор, Рамзи Бедиа, Софи Мунико, Жан-Люк Бидо, Катрин Бенгиги, Линда Харди, Эдгар Живри, Нильс Дюбо, Херв ХассонПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские .sbtl (full, CC)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7B3E28996EB2AB1730E9DA61248E3F953753D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595348   (131978) от 29.12.2012
 
 Продается дача (2005) DVDRip
@@ -6,7 +80,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131978.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:E7EF2413006294ABCB4D841B861C07A79CCE5E9A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131979.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:663C9CF5AA4A84C28F39FF423594755310A1160F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131981.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131983.jpg" />
 </div>
 
 
@@ -107,7 +181,7 @@ magnet:?xt=urn:btih:8FE2823E39D42846231CEB79B24CC14388B5FAF0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131984.jpg" />
 </div>
 
 
@@ -131,7 +205,7 @@ magnet:?xt=urn:btih:9A6BF8643FB6A2DEA5886222C3A5FB9E8DBA2605
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131985.jpg" />
 </div>
 
 
@@ -155,7 +229,7 @@ magnet:?xt=urn:btih:EE1182331B98E93B2D8DBE03D5EFA21B501672EC
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131986.jpg" />
 </div>
 
 
@@ -179,7 +253,7 @@ Cоздан сверхкомпактный ускоритель частиц с 
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131987.jpg" />
 </div>
 
 
@@ -203,7 +277,7 @@ Cоздан сверхкомпактный ускоритель частиц с 
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131988.jpg" />
 </div>
 
 
@@ -227,7 +301,7 @@ CrystalDiskInfo 9.2.1 + Portable (Shizuku Edition & Kurei Kei Edition) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131989.jpg" />
 </div>
 
 
@@ -251,7 +325,7 @@ Udemy, Meta Brains | Midjourney for Beginners: Embark on Your Artistic Journey (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131990.jpg" />
 </div>
 
 
@@ -275,7 +349,7 @@ magnet:?xt=urn:btih:55EF83AC75899DF6404025739ACD52EF580EA955
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131992.jpg" />
 </div>
 
 
@@ -299,7 +373,7 @@ magnet:?xt=urn:btih:55EF83AC75899DF6404025739ACD52EF580EA955
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131993.jpg" />
 </div>
 
 
@@ -323,7 +397,7 @@ magnet:?xt=urn:btih:E9F339F03F12C847E7FAC0D4C8FABEB9D0F75E72
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131995.jpg" />
 </div>
 
 
@@ -348,7 +422,7 @@ magnet:?xt=urn:btih:BBDCD19EB06878A38EF7CF5B0C080E47875AC6E0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131996.jpg" />
 </div>
 
 
@@ -372,7 +446,7 @@ magnet:?xt=urn:btih:103FC330841657C663B07C72FCD582DCB30A16CB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131997.jpg" />
 </div>
 
 
@@ -396,7 +470,7 @@ magnet:?xt=urn:btih:B9332A1FC93789C6326E3C799E025173A081C944
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131998.jpg" />
 </div>
 
 
@@ -421,7 +495,7 @@ magnet:?xt=urn:btih:B9332A1FC93789C6326E3C799E025173A081C944
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131999.jpg" />
 </div>
 
 
@@ -445,7 +519,7 @@ magnet:?xt=urn:btih:B9332A1FC93789C6326E3C799E025173A081C944
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132001.jpg" />
 </div>
 
 
@@ -472,7 +546,7 @@ magnet:?xt=urn:btih:0A7159C2BFC82CC33B9975B5D4E35893F44BFA37
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132002.jpg" />
 </div>
 
 
@@ -496,7 +570,7 @@ magnet:?xt=urn:btih:097DD25F1B6B442CCEBB1C22C22C976645B26443
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132003.jpg" />
 </div>
 
 
@@ -520,7 +594,7 @@ Pacifist 3.0.10 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132004.jpg" />
 </div>
 
 
@@ -544,7 +618,7 @@ AIMP 5.30 Build 2530 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132005.jpg" />
 </div>
 
 
@@ -555,80 +629,6 @@ AIMP – проигрыватель, включающий в себя множе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F53717D34CDFF0E0814E50BE7C5CD03E2605B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595587   (132006) от 29.12.2012
-
-BBC: Секреты Супербрендов / Secrets of the Superbrands (2011) TVRip [En] sub
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Alex Riley считает, что он не подвержен влиянию моды. Когда речь идет о модной одежде, технических новинках или еде, он покупает самое дешевое, или то, что ему больше подходит. С помощью маркетологов, нейробиологов и эксклюзивного доступа в мир супербрендов, он пытается узнать, почему мы доверяем им, покупаем их продукцию и даже обожествляем их.Жанр: ДокументальныйПеревод: ОтсутствуетЯзык субтитров: русскийПродолжительность: ~ 00.57.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2615F3250E85DFBFFF4D2741D4D432957F5A9412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681997   (132007) от 05.12.2023
-
-AIMP 5.30 Build 2531 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами.
-   Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C292A166F5F4E66F30316E6E76AF6F8CD169A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595937   (132008) от 29.12.2012
-
-Во саду ли, в огороде [4 серии из 4] (2012) SATRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сорокопятилетняя «баба-ягодка» Валентина живет в деревне. Она пользуется любовью и уважением односельчан. Но она одинока – ее муж ушел от нее много лет назад, а дочь-красавица учится в областном центре и приезжает домой редко. Неожиданно на стихийном митинге односельчане смещают проворовавшегося Главу сельсовета и выбирают на его место Валентину. И хотя она только временно исполняет обязанности Главы, Валентина не привыкла работать вполсилы. Она со свойственной ей смекалкой и находчивостью решает ворох навалившихся проблем по благоустройству деревни, даже привозит нового фельдшера Николая и восстанавливает медпункт. Однако бывший Глава, продажный чиновник из районного центра и бухгалтер, который так и остался работать в сельсовете, хотят сместить Валентину и повесить на нее все недостачи, образовавшиеся во время правления бывшего Главы. Дело чуть не доходит до тюрьмы. А тут еще возвращается дочь Ольга и заявляет, что решила бросить учебу. А вскоре выясняется, что Ольга беременна…
-Валентине приходится нелегко, (   Читать дальше...   )Жанр: МелодрамаРежиссер: Максим ДемченкоАктеры: Наталья Рогожкина, Владимир Литвинов, Александра Кривошей, Иван Краско, Татьяна Мархель, Лариса Маршалова, Елена Дубровская, Максим Демченко, Алексей Сенчило, Александр ОстровскийПеревод: Не требуется (Русский)Продолжительность: 4 х ~ 00:46:01 серия
-
-## Скачать торент
-```bash
-нет
 ```
 
 

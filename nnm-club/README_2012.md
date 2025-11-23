@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7537888B42A01AA2C8D92D2233F474BD74F30BEE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52678.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Шансон премьера 2024 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52679.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kdenlive 24.05.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52680.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Mike Franano - Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52681.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Новый Супер Хит (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52682.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Costa - Vocal Trance Hits, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52683.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52684.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Opera GX 109.0.5097.142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52685.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:0C939D090B3D4F90E10950B1E5B24F0C7462AA94
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52686.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:5E32BDB2040AC8CF029DA9A7121BE0D3F54CAE08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52687.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52688.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Танцевальные хиты (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52689.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:C8D1249BBF9BB4E051DA2132CFF41D51FA7977DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52690.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:61384356066CE3ECFBE1B46910C627233CCA5339
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52691.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:65F0F3A0CADD8E21264EBC5B2B092A37971874DA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52692.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:8C6492FF14FCB43BB6BBDC110A1B6BD3065CA1E2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52693.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E0AD4F4A8858AC36D00D8C8C04285E17CFBC6A69
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52694.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E0AD4F4A8858AC36D00D8C8C04285E17CFBC6A69
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52695.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ FiiNote / Быстрые заметки v12.9.0.23 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52696.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:0027C6A6663C67F9BD80A92310FFB60D7F5B1FC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52697.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:0E3FE44B1126EFC59DCB3A34667CF7D17FAC2F5E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52698.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:1572F90C195EE7F3A1AA56B1AFF340727D04493A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52699.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:FD74F720C656EB930D5C326BF9425F7A0D56F18D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52700.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D86EB681A18FD83EC35B3923380326DF09DCA154
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52701.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:DB7882F6B78143368816FA2ACA06728A09A6DA72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52702.jpg" />
 </div>
 
 

@@ -1,3 +1,124 @@
+###  Публикация: 1633088   (198479) от 13.05.2023
+
+И. Николаев | Excel для финансового директора (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена одному из важнейших инструментов работы любого финансового директора — программе Microsoft Excel. Как ни парадоксально, именно Excel, а не «1С», SAP, Oracle или иные специализированные финансовые программные продукты, является наиболее мощным и эффективным инструментом в руках финансового руководителя, способным на несколько порядков повысить (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870725DC2ED372E6322B4BA0962A68EEEBDE45D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633189   (198483) от 13.05.2023
+
+Гарри Рой Льюис (ред.) | Идеи, определившие облик информатики: Классические статьи по компьютерным наукам (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собрано 46 классических статей по информатике, которые прочертили карту развития этой науки. Охвачены все аспекты компьютерных наук; особое внимание уделяется периоду с 1936 по 1980 годы, но рассматриваются и важные ранние работы. Знакомя читателей с работами мыслителей от Аристотеля и Лейбница до Алана Тьюринга и Норберта Винера, книга документирует открытия (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE6168571F9FB4EA0E7A7D16832C0DEB35A57E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633215   (198495) от 14.05.2023
+
+Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and Crack Interviews (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет вам узнать все, что нужно знать о ReactJS, чтобы начать работать в качестве front-end разработчика. В начале книги рассказывается об основных понятиях, таких как компоненты, состояние, реквизиты, жизненный цикл и механизмы, которые помогут вам освоиться в экосистеме ReactJS. В книге также рассматриваются дополнительные темы, такие как маршрутизация, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3634F509F99B686630FC1EBC946E92425330E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632411   (198580) от 10.05.2023
+
+Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198580.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале книги вы узнаете о необходимости и применении метапрограммирования, а затем перейдете к основам объектно-ориентированного программирования. Далее вы узнаете о простых декораторах, поработаете с метаклассами, а затем сосредоточитесь на интроспекции и рефлексии. Вы также углубитесь в дженерики и типизацию, а затем определите шаблоны для алгоритмов. По мере (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AC413B13B1FFCF5287130AFF7F9C3A32C48531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632453   (198600) от 10.05.2023
+
+В.А. Ажеронок и др. | Разработка интерфейса прикладных решений на платформе "1С:Предприятие 8" (2018) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» является обновленным и дополненным изданием книги «Разработка управляемого интерфейса».
+Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F66D802B0A10421E90AE56ECCCD236C2B014693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631779   (198713) от 07.05.2023
 
 David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
@@ -6,7 +127,7 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198713.jpg" />
 </div>
 
 
@@ -30,7 +151,7 @@ magnet:?xt=urn:btih:82013087BFBA75C1A63D569140BFAF55FB3E3EE6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199160.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199160.jpg" />
 </div>
 
 
@@ -54,7 +175,7 @@ Jennifer Dawe, Matthew Humphries | Make YourOwn Pixel Art (2019) [PDF]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199211.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199211.jpg" />
 </div>
 
 
@@ -78,7 +199,7 @@ magnet:?xt=urn:btih:D2DFFD3D2BAFC0F3C2E3CDCF4A9BE3039C1C4DD8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199230.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199230.jpg" />
 </div>
 
 
@@ -102,7 +223,7 @@ magnet:?xt=urn:btih:2417DF53AC387AF48C878539A4EC863D6F2F4B4F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199316.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199316.jpg" />
 </div>
 
 
@@ -126,7 +247,7 @@ Kenneth Hess | Practical Linux System Administration: A Guide to Installation, C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199338.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199338.jpg" />
 </div>
 
 
@@ -150,7 +271,7 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199352.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199352.jpg" />
 </div>
 
 
@@ -175,7 +296,7 @@ Slobodan Dmitrović | Modern C++ for Absolute Beginners: A Friendly Introduction
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199383.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199383.jpg" />
 </div>
 
 
@@ -200,7 +321,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199386.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199386.jpg" />
 </div>
 
 
@@ -224,7 +345,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199398.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199398.jpg" />
 </div>
 
 
@@ -248,7 +369,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199400.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199400.jpg" />
 </div>
 
 
@@ -273,7 +394,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199499.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199499.jpg" />
 </div>
 
 
@@ -297,7 +418,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199569.jpg" />
 </div>
 
 
@@ -321,7 +442,7 @@ magnet:?xt=urn:btih:5201FC0A76EF47A6B440B2B2C9347E66FDAD67D7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199576.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199576.jpg" />
 </div>
 
 
@@ -345,7 +466,7 @@ magnet:?xt=urn:btih:E45388AAB55F5166FD3656531B891A31A5C037CF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199623.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199623.jpg" />
 </div>
 
 
@@ -369,7 +490,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199687.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199687.jpg" />
 </div>
 
 
@@ -393,7 +514,7 @@ magnet:?xt=urn:btih:C9DD7E1F88AB2A6D542EA50B61E4731255F32612
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199742.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199742.jpg" />
 </div>
 
 
@@ -417,7 +538,7 @@ magnet:?xt=urn:btih:C871CDEEB3EFD55CFC11898B838EAB6F6588AD63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199773.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199773.jpg" />
 </div>
 
 
@@ -441,7 +562,7 @@ magnet:?xt=urn:btih:C68A51D8D88E593F08371CD4D02FF126359DF6EE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199897.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199897.jpg" />
 </div>
 
 
@@ -465,7 +586,7 @@ magnet:?xt=urn:btih:BC36E853D5F7C4F603BD88CB964494B4F4F1568A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199960.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_199960.jpg" />
 </div>
 
 
@@ -489,7 +610,7 @@ magnet:?xt=urn:btih:38AEFF11FF945EB09F9BBB12FC8AC396D5EAEAD5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200058.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_200058.jpg" />
 </div>
 
 
@@ -500,130 +621,6 @@ Unreal Engine 5 – популярный игровой движок, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF3B92481FAE8A5DDA4528529F66F262AADA8278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625586   (200127) от 10.04.2023
-
-Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of React’s core features (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор написал это краткое руководство, чтобы помочь вам освоиться в мире программирования React. Простые объяснения, актуальные примеры и четкий, лаконичный подход делают это быстрое руководство идеальным ресурсом для занятых разработчиков.
-
-Эта книга раскрывает основные концепции React и объединяет его ключевые особенности с четким кратким изложением, тем самым (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD740ABE6BB1F932B2DDE90AA28D071315F70F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625466   (200129) от 10.04.2023
-
-Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200129.jpg" />
-</div>
-
-
-###  Подробнее
-
-С развитием DevOps, недорогих облачных вычислений и контейнерных технологий подход Java-разработчиков к разработке сегодня кардинально изменился. Это практическое руководство поможет вам использовать преимущества микросервисов, бессерверных и облачных технологий с применением новейших методик DevOps для упрощения процесса сборки и создания высокопроизводительных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625567   (200138) от 10.04.2023
-
-Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как автоматизировать модульные тесты Python 3 с помощью библиотек автоматизации, таких как doctest, unittest, nose, nose2, pytest и selenium. В этой книге рассматриваются важные концепции автоматизации тестирования программного обеспечения и демонстрируется, как автоматизировать, организовывать и выполнять модульные тесты с помощью Python. Она также знакомит (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624922   (200144) от 08.04.2023
-
-Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular Applications (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в архитектуру приложения Angular, начиная с введения в TypeScript и ES6 и переходя к модулям и компонентам, используемым для создания сложных приложений. В этой книге представлен практический подход к тому, как стать опытным разработчиком Angular, создав три полноценных приложения.
-
-Вы начнете с обзора фреймворка Angular, где будут представлены TypeScript (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625411   (200170) от 09.04.2023
-
-Джеффери Л. Клинтон | Создай свой собственный язык программирования (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о том, как разрабатывать уникальные языки программирования, чтобы сократить время и стоимость создания приложений для новых или специализированных областей применения вычислительной техники. Вы начнете с реализации интерфейса компилятора для вашего языка, включая лексический и синтаксический анализатор, а к концу чтения сможете разрабатывать и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С.В. МинцФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
 ```
 
 

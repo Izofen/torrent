@@ -6,7 +6,7 @@ VA - One Shot '80 Volume 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Synth-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26036.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26036.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:004B8D97476D2B7C2F280E067A98FDFC884CC368
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26037.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - One Shot '80 (1998) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop, Synth-pop, Bal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26038.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Polarr v6.10.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26039.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0A919E6068301B7637D00E38562B7CFC4850BD36
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26040.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Photomath v8.43.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26041.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26042.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8D674A83BE941A2F21B28B4186064557EBB3E369
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26043.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26043.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:19A808BB52468AC2CD982A2CE519FEA35A06F246
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26044.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A29A607017375D6CF6DA138EE8C746AFDB905959
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26045.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Black '80 (2004) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Soul, Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26046.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26047.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:27EC2605BBB6ACF1A992E240BDFAFCDDC454C2BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26048.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ XYplorer 26.90.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26049.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 80!! (2002) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Synth-pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26050.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26051.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:25D22B664DE679F0448CB8291D473D72EF38649E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26052.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Wondershare PDFelement 11.4.7.3336 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26053.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:5864C9CF95E7D6C6219597FD1BBBCB7D5B486E83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26054.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:5864C9CF95E7D6C6219597FD1BBBCB7D5B486E83
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26055.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F3F2A3C68F0B63E4855ACE359BBDC5DDB55A9A2A
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26056.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Opera One 117.0.5408.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26057.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7302 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26058.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:63E194BD7D2AC5FA2DEEC5040AC3BBD186F1C7C0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26059.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26060.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:7B06B8A01083932889444ACB3E0E43B10DC8F579
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26061.jpg" />
 </div>
 
 

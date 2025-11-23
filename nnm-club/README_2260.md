@@ -6,7 +6,7 @@
 >>Латиноамериканские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59125.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:82A0A8C7BF925E2A95E1DF2BEDB332F955CB10E6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59126.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5C4658FC590463809D87A9981D816DC3213E18E2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59127.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:14C259BD5BBCA95E8DF31395B09288B3507434B3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59128.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Swiftbook | Junior iOS-Developer (2023) WEB-DL [RU] [Части 1-6 из 6]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59129.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59130.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CE7B1C0A956D2A579B2747B0F97B33A70DBE8923
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59131.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Outline Client VPN 1.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59132.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:73DF148C394D9DC40EC1881861755E55C7EA27BD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59133.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Rise of the Triad: Ludicrous Edition (2023) [Multi] (1.1.2952) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59134.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B6F13E2210A62F468AC864C64B2AF853B2E7C898
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59135.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:725581B10D6B6714D8604DCB281A782ADE887CA0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59136.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4FACFF94F074DC884214845F47369E60FBE26311
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59137.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59138.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Savage - Loose 'N Lethal (1983) Reissue, Remastered, 2008, Krescendo Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59139.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F1C96A075EEC6CAA227BE64A5CB63AFFB72FBB11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59140.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 11 Manager 1.4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59141.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:9D8A508C262B35B2D22773B9075B544DDB853021
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59142.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F41D25C321A57D844D85415D704D188C6B9DAD53
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59143.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Total Commander 11.03 MAX-Pack 2024.03.29 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59144.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:BFEB37A123AD604098092547C3E64CB2AE79C3F7
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59145.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:AD29D1988B79D5CDE6F97541192AD2FC41413DAF
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59146.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:769268A016EB37E07B4D60FB0A266C2B3FAFCF6A
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59147.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Car Music Mix 5 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59148.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:FAAB7A114E82440CF5AAA767249BDB5DF1B3D848
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59149.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:0EFA3E726E8A2253C17AB53562EADCA80A9CF5E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59150.jpg" />
 </div>
 
 

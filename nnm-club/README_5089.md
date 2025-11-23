@@ -1,3 +1,179 @@
+###  Публикация: 1676499   (157549) от 13.11.2023
+
+Уильям Сомерсет Моэм | Ливень (2023) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Сомерсет Моэм (1874–1965) – один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов.
+
+Любовь, ревность и смерть, бунт против судьбы и отчаяние от собственной несостоятельности – Моэм всегда писал на волнующие человечество темы. Его острая наблюдательность, ироничность и сострадание сделали его одним (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5072FE181FE209ABF980F3C3172231D1033662C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967580   (157550) от 22.12.2015
+
+WPI x86-x64 by OVGorskiy® 12.2015 1DVD [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ с "тихой" установкой, помещенных в оболочку установщика программ Windows Post-Install Wizard (WPI), программы разделены на категории и весь процесс установки и регистрации проходит полностью в автоматическом режиме. Вам стоит только выбрать необходимые программы и запустить установку. Все программы в сборке, имеют краткое описание. Большинство (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85737013FA657DCEAAF38575976917FE4857AF25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420233   (157552) от 20.12.2020
+
+Мандалорец / The Mandalorian (2020) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-8 из 8) AlexFilm
+
+>>След.
+>>Звездные войны / Star Wars (сериалы по франшизе)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Fairview Entertainment, Lucasfilm Ltd., Walt Disney StudiosЖанр: Фантастика, боевик, приключенияРежиссер: Дэйв Филони, Дебора Чоу, Рик ФамуйиваАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: Многоголосый профессиональный (AlexFilm)Субтитры: русские, английскиеПродолжительность: ~00:35:00-00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C3682E49D93CE952C37C5613F7D9D9D7595E6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346564   (157553) от 20.12.2019
+
+Максим Шаттам | Да будет воля Твоя (2019) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман в серии «Короли французского триллера».
+
+Критики называют Шаттама «французским Стивеном Кингом» за его умение мастерски смешивать оригинальный детективный сюжет, элементы кровавого триллера и мистики.
+(   Читать дальше...   )Жанр: триллер, психологическая драмаПродолжительность: 9:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2786B50BCE34751D24710E71A3C46E3560D9FBC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517981   (157555) от 18.12.2021
+
+Кэтрин Купер (Catherine Cooper) | Шале (THE CHALET) (2021) [FB2, EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французские Альпы, 1998 год Два молодых человека поехали кататься на горных лыжах в буран. Назад вернулся только один. 20 лет спустя Четверо людей, так или иначе связанных с пропавшим, оказались в одном роскошном шале на том же самом курорте. Каждый из них хранит свой секрет. У двоих руки обагрены кровью. Один из них готовит убийство. А кое-кто точно знает, что именно (   Читать дальше...   )Жанр: Детектив, Триллер, Современная зарубежная прозаПеревод: Ирина Дмитриевна ГолыбинаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A99F0910BD3688042A85F42F97DD813F2FED8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194271   (157557) от 24.12.2017
+
+Slimjet 17.0.2.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D508831FBF9C75C6D086877BC0D9CDBF5536AC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600313   (157558) от 27.12.2022
+
+Rainbow - Rising (1976) Reissue, Remastered, 2014, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarot Woman
+02. Run With The Wolf
+03. Starstruck
+04. Do You Close Your Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEB0604816AA64300812F796E5E30CFC0BFD3D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676472   (157559) от 13.11.2023
 
 До встречи (Буду ждать, пока ты не придёшь) / Bu Jian Bu San / Be There Or Be Square (1998) BDRip [H.264/720p] [MVO]
@@ -6,7 +182,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157559.jpg" />
 </div>
 
 
@@ -30,7 +206,7 @@ HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157560.jpg" />
 </div>
 
 
@@ -57,7 +233,7 @@ VA - German Top 40 DBC Deutsche Black Charts 14.12.2018 (2018) [MP3|320 Kbps] <R
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157562.jpg" />
 </div>
 
 
@@ -84,7 +260,7 @@ Microsoft Visual Studio 2019 Community 16.3.10 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157563.jpg" />
 </div>
 
 
@@ -108,7 +284,7 @@ magnet:?xt=urn:btih:BC314A9EECD7B0B4DBB01BB3CC6DD73C42B94F15
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157564.jpg" />
 </div>
 
 
@@ -132,7 +308,7 @@ magnet:?xt=urn:btih:F427C6EB48B77BA92CAFDC9A35DA9087BE90A142
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157565.jpg" />
 </div>
 
 
@@ -156,7 +332,7 @@ magnet:?xt=urn:btih:1606478FF0D97B55C8E57C4C58E6204D80C47798
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157566.jpg" />
 </div>
 
 
@@ -183,7 +359,7 @@ magnet:?xt=urn:btih:EFC5E0911C1EAC4FBC5FC9A282A0EC5DC3CFEE15
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157567.jpg" />
 </div>
 
 
@@ -207,7 +383,7 @@ magnet:?xt=urn:btih:77B02013E7AD551B85FAE78207B1056C397AF337
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157568.jpg" />
 </div>
 
 
@@ -231,7 +407,7 @@ magnet:?xt=urn:btih:C540480C95A424A5316D5C22139B87208911876C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157570.jpg" />
 </div>
 
 
@@ -255,7 +431,7 @@ magnet:?xt=urn:btih:BD25F31E67816F1CA3080B1F102355202B93B208
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157572.jpg" />
 </div>
 
 
@@ -279,7 +455,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.1 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157573.jpg" />
 </div>
 
 
@@ -303,7 +479,7 @@ magnet:?xt=urn:btih:540FA774862C240D0F15BBC00121068BB55BA46D
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157574.jpg" />
 </div>
 
 
@@ -328,7 +504,7 @@ magnet:?xt=urn:btih:B74725BEE205A43943F72B84F4A28F7C2EB9962B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157575.jpg" />
 </div>
 
 
@@ -355,7 +531,7 @@ HDCleaner 2.041 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157576.jpg" />
 </div>
 
 
@@ -379,7 +555,7 @@ GeoGebra 6.0.811.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157577.jpg" />
 </div>
 
 
@@ -403,7 +579,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 19.12.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157579.jpg" />
 </div>
 
 
@@ -427,7 +603,7 @@ magnet:?xt=urn:btih:B14D1893E86C5C8B8640D073C4E9AC194897A937
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157580.jpg" />
 </div>
 
 
@@ -453,7 +629,7 @@ magnet:?xt=urn:btih:8E1EDC08BBC4E7F0ACCFDAA7BA2BCCFB9328D911
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157581.jpg" />
 </div>
 
 
@@ -465,183 +641,6 @@ magnet:?xt=urn:btih:8E1EDC08BBC4E7F0ACCFDAA7BA2BCCFB9328D911
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC28998DCE5F6CD156618508C5B06F5651C34A87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940413   (157583) от 22.12.2015
-
-Южный Парк / South Park (2015) WEB-DLRip (19 сезон, серия 01-10 из 10) [DVO Кубик в Кубе]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cтранноватые истории из жизни нескольких третьеклашек из маленького городка Саус Парк в штате Колорадо. Это комедия с элементами гротеска, фарса, пародии, обильно сдобренная музыкой и той самой плохо определяемой словами чертовщиной…Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунПерсонажи: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Двуголосый закадровый, профессиональныйОзвучка: Кубик в КубеПродолжительность: 10x 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A56E8307FB87818AED1BCDA31D6DA36C45C76B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346687   (157584) от 20.12.2019
-
-Koan - Muses & Poets: Incomprehensible Sonets (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Drum & Bass, Breakbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsidian Insight (Conjuring Poetry Mix) (5:11)
- 02. Murky Avenues (Christine de Pizan Mix) (8:09)
- 03. Annabel Lee (Blue Mix) (9:11)
- 04. Commitment (Blue Mix) (10:40)(   Читать дальше...   )Жанр: Electronic, Ambient, Drum & Bass, BreakbeatПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A2CD66100D6085BE457E94ADB284984FDCA251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194237   (157586) от 24.12.2017
-
-Audirvana Plus 3.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BBADFDA72339EED28665D2D8BBEC6D4B93C84E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599853   (157587) от 27.12.2022
-
-VA - NOW That's What I Call Christmas (4CD) (2022) MP3 [320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love (05:33)
-02. Idina Menzel - Let It Go (03:44)
-03. Robbie Williams - Angels (04:25)
-04. Spice Girls - 2 Become 1 (04:01)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54BC4EEEDB98633AE596E06828FC3C537A10190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600410   (157590) от 27.12.2022
-
-Джамиль Заки | Сила доброты. Как с помощью эмпатии менять мир к лучшему (2020) [MP3, Алексей Багдасаров]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых подробных книг об эмпатии от профессора Стэнфордского университета. В основе — научно подтверждённые данные.
-
-Учёные и обыватели часто забывают, что эмпатия и её прямое следствие — доброта даже в ущерб себе — делают мир лучше. Автор Джамиль Заки доказывает, что способность к эмпатии — не данность, а навык, который можно и нужно прокачивать. Ведь эмпатия (   Читать дальше...   )Жанр: зарубежная психология, саморазвитие / личностный ростПеревод: Екатерина ПетроваПродолжительность: 07:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10D15CD31EEDC68CADF39A4F76670BD65B5FC6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588741   (157591) от 13.12.2012
-
-Wise Care 365 Pro 2.14.164 Final [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа включает в себя технологию быстрого сканирования и набор важных утилит для реестра, дисков вашего компьютера. Эффективный и простой в использовании инструмент – лучшее решение для увеличения производительности вашего ПК. Запустите нашу программу и забудьте про медленную работу системы! Вобрав в себя все высокоэффективные особенности Wise Registry Cleaner и Wise Disk Cleaner, программа очищает диск и рееестр, оптимизирует систему, защищает личные данные и т.д. Этот инструмент выделяется в лучшую сторону на фоне других утилит по обслуживанию и оптимизации ПК, доступных сейчас.Название программы: Wise Care 365 ProЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676505   (157592) от 13.11.2023
-
-Журнал | Профиль №43-44 (216) (ноябрь 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР-Формат»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7087FCC039E0A4D56C831F40D14D88D7607BBD62
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1687057   (125632) от 26.12.2023
+
+С. А. Лукиянов | Половое воспитание 18+. Всё о чём ты хочешь знать, но боишься спросить (2022) [PDF (A4), PDF (А6), EPUB, FB2, RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125632.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первую очередь эта книга про отношения, без которых невозможно построить качественную сексуальную жизнь. И в то же время она поможет ответить на тревожные вопросы о сексе, которые иногда стыдно спросить даже у самых близких людей.
+
+Половое созревание – что происходит с телом, чувствами и мыслями? Как долго длится и что происходит с телом и психикой? Мастурбация (   Читать дальше...   )Жанр: Половое воспитаниеФормат: PDF (A4), PDF (А6), EPUB, FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1CCFBE56D903C282932454F24134D9DE5CCD3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687310   (125633) от 26.12.2023
+
+Андрей Панченко | Болотник (Книга 5) (2023) [MP3, TED]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Кирилла Найдёнова. Главный герой с большим трудом но вернулся домой. Главная тайна болота разгадана, но впереди ещё много интересных приключений. Читаем продолжение истории нашего современника, волею судьбы попавшего в прошлое.Жанр: фантастика, фэнтезиИздательство: Клуб любителей аудиокнигПродолжительность: 07:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E03736BD3FC0B0BC8F6F2E2F9959CE7ABDF8F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687452   (125634) от 26.12.2023
+
+Н.П. Стружкин, В.В. Годин | Базы данных. Проектирование. Практикум (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125634.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматривается практическое применение теоретических основ разработки и реализации баз данных. Данное издание является практикумом к одноименному учебнику авторов. Книга позволяет приобрести практические навыки создания модели базы данных, готовой к внедрению в информационную систему в качестве физической базы данных.
+В учебном пособии методические (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮрайтФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4710AD8CCCED3621A298FF106F8E558A990649A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687330   (125635) от 26.12.2023
 
 Казнь (2021) BDRip [H.264/720p]
@@ -6,7 +81,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125635.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:2146C51572C0AF0206165812990C4870419D417A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125636.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125636.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ KMPlayer 2023.12.21.13 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125637.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Adobe Media Encoder 24.1.1.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125638.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Benvista PhotoZoom Pro 8.2.0 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125639.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:C02D01D1E5C5BA3CAD288CCE62CEE75EC4BE9365
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125640.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:8ECC11BF64B6F9EA5398649F1C749EC7BA1CBA17
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125641.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ magnet:?xt=urn:btih:0A9228CA6D597B9361124EACDEE8A5CE32766D48
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125642.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:42154DDB4BC27539F7EA1002E705512922C8A2BA
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125643.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:300C2F279146B37C7BA73BC39E0C580EAF07421F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125644.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:6F8B2CE0150873B7F133B97B58CAE634FB641984
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125645.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ magnet:?xt=urn:btih:0ED6B0C17DE00DB0F8F1BD7CE89359F31EF55410
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125646.jpg" />
 </div>
 
 
@@ -298,7 +373,7 @@ magnet:?xt=urn:btih:FFCA01D92CC3EF9B0AE4344F5453594731543415
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125647.jpg" />
 </div>
 
 
@@ -323,7 +398,7 @@ magnet:?xt=urn:btih:0C9C0A9B691882BC5662C9E14FC7D4D4CFD50AA3
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125648.jpg" />
 </div>
 
 
@@ -350,7 +425,7 @@ magnet:?xt=urn:btih:C74699318863E012EA6AE0B1C0DBA197DD709BDF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125649.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:198D225E33D700E7971E66D17FE847877B62CB86
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125650.jpg" />
 </div>
 
 
@@ -402,7 +477,7 @@ magnet:?xt=urn:btih:11060E38CBFF462BDD1D30580C4153091A488D9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125651.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:EE6B1E44370937CF3C95F25C31B34CE09D86E9D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125652.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ Mountain - 18 Albums, 1 Box Set (1970 - 2013) 31 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125653.jpg" />
 </div>
 
 
@@ -478,7 +553,7 @@ magnet:?xt=urn:btih:D8634FD672DE23D8A34D8E5C3EAD72ABD7704163
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125654.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ BricsCAD Ultimate V24.1.07-1 [x86_x64] (rpm, deb, tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125655.jpg" />
 </div>
 
 
@@ -526,7 +601,7 @@ magnet:?xt=urn:btih:CC379C16FD1A52A86E873FF2D4650C48C229FDCE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125656.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ magnet:?xt=urn:btih:2A5FB26951E7511DA75C6A3093F4D4E869E0C25F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125657.jpg" />
 </div>
 
 
@@ -562,79 +637,6 @@ magnet:?xt=urn:btih:2A5FB26951E7511DA75C6A3093F4D4E869E0C25F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AD95A0B9E3939674D05F51C1C8A22A9039B4ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687388   (125658) от 26.12.2023
-
-Блондинка (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ира живет свою счастливую жизнь: играет в труппе небольшого питерского театра и встречается с начинающим режиссером Львом. Однако в какой-то момент театр оказывается на грани закрытия, а ее любимый мужчина внезапно исчезает. Как в этих обстоятельствах найти себя и убедить окружающих, что перекраситься в блондинку не лучшее решение всех проблем?Производство: Россия | Вита АктиваЖанр: драма, комедияРежиссер: Павел МирзоевАктеры: Дарья Жовнер, Евгений Цыганов, Юлия Марченко, Фёдор Федотов, Алена Долголенко, Игорь Угаров, Анна Арефьева, Иван Чигасов, Эра Зиганшина, Геннадий СмирновСубтитры: отсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332B2DBF096DAF1FB0618C5FDB3CE49E9C6E7BC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687455   (125659) от 26.12.2023
-
-Чёрная дыра / Pitch Black (2000) WEB-DLRip [H.264/1080p-LQ] [Theatrical Cut] [Open Matte] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125659.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем космический корабль терпит бедствие, в результате чего совершает вынужденную посадку на отдаленной планете. Но в результате такой посадки погибает командир корабля, часть команды и большинство пассажиров.
-Оставшиеся в живых оказываются одни на жуткой и безжизненной планете. Первое, что бросается в глаза — это то, что планета имеет три солнца, (   Читать дальше...   )Производство: США / Polygram Filmed Entertainment, Interscope CommunicationsЖанр: ужасы, фантастика, боевикРежиссер: Дэвид ТуиАктеры: Вин Дизель, Рада Митчел, Коул Хаузер, Кит Дэвид, Льюис Фиц-Джералд, Клаудия Блэк, Риана Гриффит, Джон Мур, Саймон Бурк, Лес ЧэнтериПеревод: Дублированный (R5)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600CB79E05F0EA84758B9D0917B9B2F03B61FB28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687235   (125660) от 26.12.2023
-
-Демоны дома Гарретов / Raging Grace (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелегальная иммигрантка Джой перебивается подработками горничной и, не имея собственного жилья, втайне от работодателей в каждый дом приводит дочку Грейс — девочку активную и шаловливую. Однажды она устраивается в особняк Гарретов, где престарелый хозяин тяжело болен и не приходит в себя, а всем заправляет его племянница. Ночью Грейс выбирается похулиганить и, проследив (   Читать дальше...   )Производство: Великобритания, Филиппины / Last ConkerЖанр: триллер, драмаРежиссер: Пэрис ЗарсильяАктеры: Макс Эйгенманн, Джейден Боадилья, Лиэнн Бест, Дэвид Хейман, Стефани Коннелл, Seb Yates Cridland, Jodie Davey, Caleb Johnston-Miller, Eugenia Low, Софи Моррис-ШеппардПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728B0B73E06C801ED4401E5D461FAEC371C1FA3C
 ```
 
 

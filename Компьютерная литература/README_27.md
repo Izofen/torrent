@@ -1,3 +1,125 @@
+###  Публикация: 1657164   (192896) от 02.09.2023
+
+Shalabh Aggarwal | Flask Framework Cookbook, 3rd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание отказывается от устаревших библиотек, совершенствует содержание, чтобы включить новые паттерны кодирования, и представляет рецепты для новейших инструментов. Например, вы изучите различные способы интеграции с GPT для создания приложений Flask, способных работать с искусственным интеллектом.
+Книга начинается с изучения конфигураций приложений Flask, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149C145973E01FA9E28CF43225C844B0C11A7FAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657165   (192926) от 02.09.2023
+
+Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части книги вы получите базовые знания по Java и Eclipse. В этой части закладываются основы программирования, дается обзор технологии Java и показывается, что особенного в объектно-ориентированном программировании.
+Во второй части все вращается вокруг тонкостей языка Java, и именно здесь создаются первые небольшие Java-приложения, которым помогает тонкое (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Elektor PublicationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1CCFFE91D6868EC70B28D1DB6EA900E7850EF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657200   (192932) от 02.09.2023
+
+Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192932.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале книги вы познакомитесь с увлекательным миром структур данных и алгоритмов. Эта книга поможет вам узнать о различных алгоритмических методах, таких как динамическое программирование, жадные алгоритмы и обратный путь, а также об их применении для решения различных вычислительных задач. Затем книга научит вас анализировать сложность рекурсивных алгоритмов. (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1941FDF97A8527785B0E33BEAF93A42448E89382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657190   (192964) от 02.09.2023
+
+Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга призвана познакомить вас с типами вопросов, с которыми вы можете столкнуться на собеседовании, а также дать рекомендации по подготовке и выработке соответствующей стратегии. В книге подробно рассматривается семейство NoSQL и SQL, начиная с фундаментальных основ и заканчивая такими продвинутыми темами, как архитектура, оптимизация и практические примеры (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B571E02D1C58CAFD4181345E25B90CEE0C2E63FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587021   (193056) от 29.10.2022
+
+Тимур Машнин | Создание настольных Python приложений с графическим интерфейсом пользователя (2021) [EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python является наиболее популярным языком программирования, используемым для объектно-ориентированного программирования. И конечно, Python — это интерактивный язык программирования, который предоставляет широкий спектр возможностей для создания GUI (Graphical User Interface) и разработки настольных приложений. В этой книге вы познакомитесь с различными фреймворками (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00451CFD578726FA2203B86A9865204C13CD4E9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657175   (193057) от 02.09.2023
 
 Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
@@ -6,7 +128,7 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193057.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193057.jpg" />
 </div>
 
 
@@ -30,7 +152,7 @@ magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193087.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193087.jpg" />
 </div>
 
 
@@ -55,7 +177,7 @@ magnet:?xt=urn:btih:4FD70095CE24BCCF678EF4289E8001910ADC4BBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193423.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193423.jpg" />
 </div>
 
 
@@ -79,7 +201,7 @@ magnet:?xt=urn:btih:F209B674C7DFF8D50940D4E7209A47DF8F9E0BE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193471.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193471.jpg" />
 </div>
 
 
@@ -103,7 +225,7 @@ magnet:?xt=urn:btih:DA8FA234B5BAAAA43617D538D5505BF6B66A2B19
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193484.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193484.jpg" />
 </div>
 
 
@@ -127,7 +249,7 @@ magnet:?xt=urn:btih:BBE3C49439B67C115DE3019771E0D1CDFDC58E70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193631.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193650.jpg" />
 </div>
 
 
@@ -175,7 +297,7 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193654.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193654.jpg" />
 </div>
 
 
@@ -199,7 +321,7 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193659.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193659.jpg" />
 </div>
 
 
@@ -223,7 +345,7 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193665.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193665.jpg" />
 </div>
 
 
@@ -247,7 +369,7 @@ magnet:?xt=urn:btih:73EE27B77E3B2F66B8D97C24EDE9D83BF9E5560B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193754.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193754.jpg" />
 </div>
 
 
@@ -271,7 +393,7 @@ magnet:?xt=urn:btih:A44BA8D8EF6B69CB0806218836AF4D83C8607B63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193895.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193895.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ Einar Ingebrigtsen | Metaprogramming in C# (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194045.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194045.jpg" />
 </div>
 
 
@@ -322,7 +444,7 @@ magnet:?xt=urn:btih:7819BCCB0FA0E2A90E4A639D3599CAAB878C82D6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194110.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194110.jpg" />
 </div>
 
 
@@ -346,7 +468,7 @@ Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194138.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194138.jpg" />
 </div>
 
 
@@ -372,7 +494,7 @@ magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194417.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194417.jpg" />
 </div>
 
 
@@ -396,7 +518,7 @@ magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194418.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194418.jpg" />
 </div>
 
 
@@ -421,7 +543,7 @@ magnet:?xt=urn:btih:B7415E2B44A24272AD05A2627826980114C21A72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194425.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194425.jpg" />
 </div>
 
 
@@ -445,7 +567,7 @@ magnet:?xt=urn:btih:CCF4628067044CDB82CC74816E9D6DB1CE06BB4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194483.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194483.jpg" />
 </div>
 
 
@@ -469,7 +591,7 @@ John P. Doran | Unity 2022 Mobile Game Development, 3rd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194505.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194505.jpg" />
 </div>
 
 
@@ -495,7 +617,7 @@ magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194537.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194537.jpg" />
 </div>
 
 
@@ -507,130 +629,6 @@ magnet:?xt=urn:btih:233A9C63AD440FBDDB21B3E76C655B43231F9F03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA72CB34345D9AA965B85DAB3FE14C45B4A59900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651830   (194540) от 08.08.2023
-
-Asjad Athick | Getting Started with Elastic Stack 8.0 (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стек Elastic поможет вам работать с огромными объемами данных для реализации сценариев использования в области поиска, наблюдаемости и безопасности.
-
-Эта книга, состоящая из 3 частей, начинается с введения в Elastic Stack с комментариями высокого уровня о решениях, для которых можно использовать этот стек. Второй раздел посвящен каждому основному компоненту, давая (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DE1C00D7FC77B59F5A463B818F9555B58FB4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651715   (194609) от 07.08.2023
-
-Brian Okken | Python Testing with pytest, 2nd Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тестируйте большие и маленькие приложения, пакеты и библиотеки с помощью pytest - самой мощной среды тестирования Python. pytest поможет вам быстро писать тесты и поддерживать их читабельность и работоспособность. В этом полностью переработанном издании вы познакомитесь с суперспособностями pytest - простыми утверждениями, фиксаторами, параметризацией, маркерами (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: The Pragmatic ProgrammersФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE42FCC4F3E1BC21C25EB37AD553180D8F20F300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651709   (194611) от 07.08.2023
-
-Michael Kaufmann, Andreas Meier | SQL and NoSQL Databases, 2nd Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник предлагает комплексное введение в реляционные (SQL) и нереляционные (NoSQL) базы данных. Авторы подробно рассматривают современное состояние средств и методов работы с базами данных и анализируют грядущие новинки.
-
-Авторы подробно анализируют управление, моделирование, языки, безопасность и архитектуру реляционных баз данных, графовых баз данных и (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Springer ChamФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63FA77DEF646F0F9B9C29377F5B41D9E33C9FFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651467   (194635) от 06.08.2023
-
-Майк МакГрат | Программирование на Python для начинающих (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Программирование на Python для начинающих» является исчерпывающим руководством для того, чтобы научиться программировать на языке Python. В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка. Установив свободно распространяемый интерпретатор Python, вы с первого же дня сможете создавать (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883E2CA5F18A29F038D631DC7CDF1DC4DB7222AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651369   (194642) от 06.08.2023
-
-Олег Цилюрик | Linux. Сеть. Как она устроена и как это использовать (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор являлся непосредственным участником разработок, на протяжении свыше 40 лет, в проектах из области системотехники и программного обеспечения разного масштаба и разной целевой ориентации. Практически все из которых, в большей или меньшей мере, были связаны с сетевыми обменами. Текущий текст является обобщением практического опыта автора. Но, как и всякий практический (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Интернет-изданиеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CF09AF591E5AE7474F343AAAD7D887D38B65ED
 ```
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1686823   (126261) от 24.12.2023
+
+Рэй Брэдбери | У нас всегда будет Париж [сборник] (2020) [MP3, Александр Хошабаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэй Брэдбери был замечательным рассказчиком.
+
+Каждая история, вошедшая в книгу «У нас всегда будет Париж» – подлинная жемчужина. На каждой странице вас ждёт открытие – полёт на Марс и рассказ о пожилых супругах; размышления о том, как может измениться человеческая жизнь под влиянием одного момента, одного неосторожно сказанного слова.Жанр: Зарубежная фантастика, Интеллектуальный бестселлер, Классика фантастики, Малая проза, Научная фантастика, Социальная фантастикаПеревод: Арам ОганянИздательство: ЭксмоПродолжительность: 05:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882A256762050849AFFCF70EFF93B054D754DAE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686811   (126262) от 24.12.2023
+
+Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Un cri [00:03:02]
+02 - Made in Rock'n'Roll (Remasterisé en 2023) [00:02:55]
+03 - De l'amour (Remasterisé en 2023) [00:04:00]
+04 - Jamais seul (Remasterisé en 2023) [00:03:50](   Читать дальше...   )Жанр: Pop-Rock, Rock'n'RollПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32A2F6777E09D94EB8A50A6B0776674D67F5F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686889   (126263) от 24.12.2023
+
+The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nail You Higher Than Before (00:04:54)
+02 - Leave You Lying On The Ground (00:04:16)
+03 - Funeral Pyre (00:05:35)
+04 - Die Alone (00:02:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F17BDBE18BDF08460B45BC060FE7E9A0E205581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686979   (126264) от 24.12.2023
 
 VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
@@ -6,7 +86,7 @@ VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126264.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126265.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ magnet:?xt=urn:btih:5E5C002396667EFCB392D1EB22047FB488D7F641
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126266.jpg" />
 </div>
 
 
@@ -83,7 +163,7 @@ Photo Lab PRO v3.12.84 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126267.jpg" />
 </div>
 
 
@@ -107,7 +187,7 @@ Secret Salt Squad - Ghosts of the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126268.jpg" />
 </div>
 
 
@@ -134,7 +214,7 @@ magnet:?xt=urn:btih:10EEC629555869838A457DABC4C64F2A7F7E17E5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126269.jpg" />
 </div>
 
 
@@ -158,7 +238,7 @@ magnet:?xt=urn:btih:2EF27163D94A050117D022C26C6AAC3504A9F3D6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126270.jpg" />
 </div>
 
 
@@ -185,7 +265,7 @@ VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126271.jpg" />
 </div>
 
 
@@ -212,7 +292,7 @@ VA - Oktoberfest Drinking Songs 2023 Traditional German Beer Festival Music (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126272.jpg" />
 </div>
 
 
@@ -239,7 +319,7 @@ VA - Золотые дуэты русского шансона (2010) [MP3|320 K
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126273.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ magnet:?xt=urn:btih:C7E6B6BD9483C67041391FFB3BD62B7925D750DD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126274.jpg" />
 </div>
 
 
@@ -290,7 +370,7 @@ Telegram Desktop 4.13.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126275.jpg" />
 </div>
 
 
@@ -316,7 +396,7 @@ magnet:?xt=urn:btih:01B4ABE14D2FA301CE7BA6F74398719F65AF9F92
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126276.jpg" />
 </div>
 
 
@@ -340,7 +420,7 @@ Zmey Gorynich - V​ж​и​ц​а (2022) [FLAC|Lossless|image + .cue] <Folk 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126277.jpg" />
 </div>
 
 
@@ -367,7 +447,7 @@ Floorp Browser 11.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126278.jpg" />
 </div>
 
 
@@ -391,7 +471,7 @@ Ungoogled Chromium 120.0.6099.129-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126279.jpg" />
 </div>
 
 
@@ -415,7 +495,7 @@ magnet:?xt=urn:btih:A02AFD5E55A7A955F62731DE453ED8E2C7CAC0AD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126280.jpg" />
 </div>
 
 
@@ -439,7 +519,7 @@ magnet:?xt=urn:btih:39A0FC041BF36E51687E31B7290745355AAA6107
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126281.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ magnet:?xt=urn:btih:3B34BF3FE0F465D7BD98648BE56CB916A8C0BEF1
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126282.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ magnet:?xt=urn:btih:9D3F59ADCAB0077DF17692F102CA2B4971FEBEF8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126283.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ magnet:?xt=urn:btih:3B76805A1E0B7D87B336EE48A8F7F36A7F0CD493
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126284.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ magnet:?xt=urn:btih:3DE17C8A5F0599EE7778C5EA3A44141B91C50D94
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126285.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ magnet:?xt=urn:btih:8615F66A64E35D1361A62B2BBB2ECCD1751F7E16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126286.jpg" />
 </div>
 
 
@@ -576,83 +656,6 @@ magnet:?xt=urn:btih:8615F66A64E35D1361A62B2BBB2ECCD1751F7E16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD55A507BD9DE709B06BD70F001A704549C5DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686993   (126287) от 24.12.2023
-
-А.А. Дробыш | Конструирование программ и языки программирования (раздел 1. Язык программирования С++) (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126287.jpg" />
-</div>
-
-
-###  Подробнее
-
-В теоретической части представлен конспект лекций по изучению языка программирования С++.
-В практической части приведены указания для выполнения лабораторных работ по изучению языка программирования С++. Приведены основные теоретические сведения, сформулированы цели лабораторных работ, описан ход работ, перечислены контрольные вопросы к защите лабораторных работ. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БНТУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E631F2260260111188117AF8A6609941086DA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686867   (126288) от 24.12.2023
-
-Ian Otta - Compilation (2023) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Autumn Day
- 02.  Daydreamer
- 03.  Love Is
- 04.  Moonrise(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5AEF0124323C20B4C1680C27DC693EF7B636E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686882   (126289) от 24.12.2023
-
-А.К. Демидов | Объектно-ориентированное программирование на C++ (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для студентов, обучающихся по направлениям 01.03.02 «Прикладная математика и информатика» и 01.03.04 «Прикладная математика», в качестве базового при изучении курса «Объектно-ориентированное программирование», а также как дополнительного при выполнении курсовой работы по курсу «Проектирование прикладного программного обеспечения».
-В пособии (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЮУрГУФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C45286831BC05EE38D94E9E3331116FA2478DE7
 ```
 
 

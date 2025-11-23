@@ -6,7 +6,7 @@ TikTok Private Plus (PayBack Edition) v38.8.5 Mod by TikTok + Plugin Update [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26908.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26908.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26911.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26911.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 17.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26913.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26913.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Process Lasso Pro 15.1.0.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26922.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CCleaner 6.33.11465 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26932.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Topaz Photo AI Pro 3.5.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26934.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ventoy 1.1.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26942.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6CF6EA7D26B2ACB925945A06A69D8A72C45C6234
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26948.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26948.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Total Commander 11.51 Extended 25.2 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26961.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26961.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ FontViewOK 8.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26977.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26977.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Vivaldi 7.1.3570.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26982.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26982.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ WinSCP 6.3.7 Build 15131  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26998.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ FreeFileSync 14.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27013.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:4994B0998544CD106D20CD97A668F8550BBA07AC
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27024.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wise Care 365 Pro 7.2.2.695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27029.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CCleaner 6.33.11465 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27038.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ LazyMedia Deluxe v3.359 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27044.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:9AA71F3DFA20C28D4066D7FFF0009AA7062045B9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27048.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Topaz Gigapixel AI 8.2.1 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27050.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lossless Scaling 2.13.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27074.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27074.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ TechSmith Camtasia  25.0.0 Build 7062 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27081.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27081.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:3B61538904EE7431944E52212EFA1F2F9F2EDE73
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27084.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27084.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ant Download Manager Pro 2.15.0 Build 89132 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27085.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Google Chrome 133.0.6943.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27086.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27086.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ StartAllBack 3.9.4 build 5250 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27096.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27096.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ KiCad 8.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27100.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27100.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1739304   (106080) от 27.07.2024
+
+Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meaningless Sex (3:44)
+02. Kiss Me (3:35)
+03. Hit It Again (3:56)
+04. Better If I Just Pretend (2:58)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F879A5F33FBA0765AEED342320BA59D8B9F524A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739365   (106081) от 27.07.2024
+
+Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Charles Square (Live at Wembley Stadium) [00:04:17]
+02. There’s No Other Way (Live at Wembley Stadium) [00:04:21]
+03. Popscene (Live at Wembley Stadium) [00:03:33]
+04. Tracy Jacks (Live at Wembley Stadium) [00:04:33](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2E10677C3DD44F5040896AE6BDED5A8BD8BE14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739242   (106082) от 27.07.2024
+
+Константин Паустовский | Рассказы (2014) [MP3, Михаил Яншин, Михаил Ульянов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Константин Георгиевич Паустовский (1892–1968) русский советский писатель.
+Радиоспектакли по одноимённым рассказам Константина Паустовского. Паустовский много писал о природе, о животных, но главный предмет его творчества – человек. Героев Паустовского отличает нравственная чистота и скромность.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ИДДК, ГостелерадиофондПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3377A44B278670D20907F439CC4A19E78438E7EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739332   (106083) от 27.07.2024
 
 Никому не открывай дверей / No abras nunca esa puerta (1952) BDRip [H.264] [VO]
@@ -6,7 +87,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106083.jpg" />
 </div>
 
 
@@ -30,7 +111,7 @@ magnet:?xt=urn:btih:5261EE2BBF5DCCCE0704840E7BF317F41B6007BE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106084.jpg" />
 </div>
 
 
@@ -54,7 +135,7 @@ magnet:?xt=urn:btih:CC3ED9060CDC780F4C57ECE348224594ADB8C388
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106085.jpg" />
 </div>
 
 
@@ -81,7 +162,7 @@ magnet:?xt=urn:btih:5AAA5C4926BC6EBD969BF9B38D4C1ADEFC1443EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106086.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ magnet:?xt=urn:btih:D14BD97F7D56DD1335BD02EA18F06B6AABCE0A42
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106087.jpg" />
 </div>
 
 
@@ -129,7 +210,7 @@ magnet:?xt=urn:btih:3384804F8A0499C8A34E91A9E742D5287AD06B56
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106088.jpg" />
 </div>
 
 
@@ -156,7 +237,7 @@ Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106089.jpg" />
 </div>
 
 
@@ -183,7 +264,7 @@ magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106090.jpg" />
 </div>
 
 
@@ -207,7 +288,7 @@ magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106091.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается родина (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106092.jpg" />
 </div>
 
 
@@ -258,7 +339,7 @@ magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106093.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ magnet:?xt=urn:btih:AD408FFB71D6662BF9A17397B467BFE7DB992489
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106094.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ magnet:?xt=urn:btih:6C40028E5730DE08386099D45F5C78018F66025A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106095.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:3D0E9250F8CB9898C58C8F069A89A1BCB0A868DE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106096.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ magnet:?xt=urn:btih:111DC24CBE1B4EFB2E5E299BDC2B80AF47129F94
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106097.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ magnet:?xt=urn:btih:91A2D16E05D0229009BC65A1638EFC3B8B5C8FE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106098.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106099.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106100.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ magnet:?xt=urn:btih:A0811404F61D3D0AECF23F09D5DB3246DE982657
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106101.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106102.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ magnet:?xt=urn:btih:18CF2B6A683933620B58BDE0C3B2FADB5D31E9E2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106103.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ magnet:?xt=urn:btih:36AEE54BE0FF2F48E425FBF2CEB9128B8C560374
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106104.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ magnet:?xt=urn:btih:28CB8D9B1793BD15083D1644BCEDC720D04D5695
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106105.jpg" />
 </div>
 
 
@@ -565,87 +646,6 @@ magnet:?xt=urn:btih:28CB8D9B1793BD15083D1644BCEDC720D04D5695
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E93AF4632B87155FCB749564A024B666383001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739354   (106106) от 27.07.2024
-
-Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чем кончается родина [00:02:52]
-02. Если в этот раз пронесет [00:03:40]
-03. Страшнее смерти [00:03:02]
-04. Чем кончается родина (Acoustic) [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:25:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB23AF27CC12B45A9056866BE1967DD9A0FD74CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739310   (106107) от 27.07.2024
-
-VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Relax, Take It Easy [02:37]
-02. Silk Department - All Of My Love [02:47]
-03. Gelow - You Tell Me [03:10]
-04. Echevo - Breath The Sun [02:48](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11298179FEA7C5AEE5AF497E80EF44064E5BC45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739309   (106108) от 27.07.2024
-
-VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JLUIS - She's Not Me [02:33]
-02. Declan Drake - Lights Out [02:45]
-03. Deep Emotion - One More Night [02:36]
-04. Dani Corbalan - Promise Me [02:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E60CC30E0143C4380AD0555C1604A22A4451FC
 ```
 
 

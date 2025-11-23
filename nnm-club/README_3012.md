@@ -1,3 +1,75 @@
+###  Публикация: 1821902   (91169) от 04.10.2025
+
+GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение работает с помощью известных данных о расположении стационарных камер и радаров ДПС (такие как Стрелка или Старт СТ) и других объектов. Есть возможность добавить недостающие камеры вручную и синхронизация их между пользователями! Вам не нужно ждать пока мы добавим камеры, она пополняется просто и удобно самими пользователями!Тип издания: ProРелиз состоялся: 01.10.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A38CA1FC66EB1F5ED50EAD79D867751484E177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821837   (91170) от 04.10.2025
+
+На посошок / Le citta di pianura / The Last One for the Road (2025) Telecine [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91170.jpg" />
+</div>
+
+
+###  Подробнее
+
+История повествует о двух шумных мужчинах чуть старше 50 лет, одержимых выпивкой. Их мир переворачивается с ног на голову, когда они встречают Джулио, застенчивого студента-архитектора, и все трое отправляются в путешествие по барам Венето, которое в конечном итоге меняет взгляд Джулио на мир и любовь .Производство: Италия, Германия / Vivo Film, Maze Pictures, Rai CinemaЖанр: драма, комедия, криминалРежиссер: Франческо СоссаиАктеры: Филиппо Скотти, Серджо Романо, Пьерпаоло Каповилла, Роберто Читран, Андреа Пеннакки, Simone Bergamasco, Francesco Busolin, Nicola Rossato, Giuseppe MessinaПеревод: Многоголосый профессиональный  (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:59Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F01743E7B04BD40A0D79BC91471FAE32A0DEE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821907   (91171) от 04.10.2025
+
+Mary’s recipes: рецепты, меню v6.2.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.09.2025Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA9F295203AD72B28B4AAFFED75D1459BBDD627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821839   (91172) от 04.10.2025
 
 На посошок / Le citta di pianura / The Last One for the Road (2025) Telecine [звук с TS] [AD]
@@ -6,7 +78,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91172.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:2384571D6330FDC938C1CC0BB83D3AE48F6202B2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91173.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91174.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:C58A403E09607948155F04C7D1643E12478A9885
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91175.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:80248430DAC9D3A3D90AE436BE329D17F61AAE47
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91176.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ magnet:?xt=urn:btih:E25F73F4D512F1F654F7124DF12164E88C61C853
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91177.jpg" />
 </div>
 
 
@@ -155,7 +227,7 @@ magnet:?xt=urn:btih:E43E5D4719D6D66C931A47A1E74E40B4ABB5ADB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91178.jpg" />
 </div>
 
 
@@ -179,7 +251,7 @@ magnet:?xt=urn:btih:AE5F0923829ADA52C4576844BA643DB39A6F46AF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91179.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:5DF88C2456A805267F8880BFBCF5EB9AB9890CB2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91180.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91181.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Audified - MixChecker Ultra 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91182.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:4D03B1652F05E8D28819753B92CE28BA22A51EEB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91183.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91184.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Wobbly Life (2020) [Ru/Multi] (1.0.0.2-17415dd4e2) Repack FitGirl [Game & Soundt
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91185.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91186.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91187.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ magnet:?xt=urn:btih:43932E61992EC1189C9BC351A521C5C142CC2D6F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91188.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91189.jpg" />
 </div>
 
 
@@ -449,7 +521,7 @@ magnet:?xt=urn:btih:6DFC9F2B89B46859E37D3870E92F4A509D75D98A
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91190.jpg" />
 </div>
 
 
@@ -473,7 +545,7 @@ magnet:?xt=urn:btih:476420F9D8C3F9713F04EB54EB31D8E948CACD0D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91191.jpg" />
 </div>
 
 
@@ -498,7 +570,7 @@ magnet:?xt=urn:btih:71BDA8A3C29B6C0B0C754E8DBD4417701461AD9F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91192.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ magnet:?xt=urn:btih:7307E8B933BBE02E8901B2CDC0EAD1E4C26F38C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91193.jpg" />
 </div>
 
 
@@ -546,7 +618,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91194.jpg" />
 </div>
 
 
@@ -559,78 +631,6 @@ WeCare — это набор пользовательских интерфейс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2465B2DA36389E4FA0D08FAEF427CE290F1B1616
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821921   (91195) от 04.10.2025
-
-Dawesome - Kontrast 1.01 VSTi 3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже более десяти лет таблично-волновые синтезаторы избегают рискованных решений. KONTRAST идёт другим путём. Он не просто сканирует таблицу — он позволяет вам её исследовать. Звук становится ландшафтом, и каждый поворот пути открывает новые цвета, текстуры и движение.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3D7C9BAC0CED1838F9C04B3B0D8283C2C514E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821920   (91196) от 04.10.2025
-
-Ульяновск: авиационная столица России и паэлья с волжским судаком | «Поедем, поедим» (04.10.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди отправился в Ульяновск, где нашел позвоночник динозавра, попробовал съедобное яйцо Фаберже, приготовил с испанским шеф-поваром паэлью с волжским судаком и установил рекорд по вместимости людей в «Буханку»!Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9F41F75792B35EF4BECCC614173635E3445A88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821895   (91197) от 04.10.2025
-
-Стив / Steve (2025) WEB-DLRip [H.264] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в середине 1990-х годов в Великобритании. В центре сюжета — Стив, директор колледжа для мальчиков с поведенческими и социальными проблемами. Ему предстоит бороться за выживание школы, находящейся под угрозой закрытия, и одновременно справляться с собственными психическими трудностями. Параллельно разворачивается история Шая, проблемного (   Читать дальше...   )Производство: Ирландия, Великобритания / Big Things FilmsЖанр: драма, комедияРежиссер: Тим МилантсАктеры: Роджер Аллам, Люк Эйрес, Джошуа Барри, Чарльз Бивен, Лиэнн Эверитт, Арчи Фишер, Маркус Гарви, Лоис Хайдар, Ахмед Исмаил, Юссеф КеркурПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D21A42466A8EB63099B99B57A716FCDFF21A81
 ```
 
 

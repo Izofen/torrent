@@ -6,7 +6,7 @@ GoldWave 7.02 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23451.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48DC640E44ABC2088FE92F08ADF03CC877A12B22
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23452.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GIMP 3.0.2 revision 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23453.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:673CEE67A6CF61FB9EA4B1709B43230EC15E1A6E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23454.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Opera One 117.0.5408.154 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23455.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8CAEC5B3096B182CA00109381E632F15B5E08D41
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23456.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:FF6C439BFFF8E259EB535EE3363A8905D9226555
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23457.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F3D7C6EDD229358D4D546B4FBDA0AB343F7055AD
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23458.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B4540233EAF69E4FCC32955AACC2E0D54131837F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23459.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:763F94964A0912C5C10D6AE18419555100BA2C73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23460.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4078967B40A0813CFAA6FF334F2AC5C51DC8712F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23461.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5381B4674ADB1E1E984F3903FCC93E2396AF528E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23462.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:65BF371C0F198761745E5E35F2D01EDAB47F01B1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23463.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:70C6E2C62C0E4844363D27A112836670AC3E0DFE
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23464.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Google Chrome 134.0.6998.178 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23465.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:AD4393506528C163C462F895DD05CEE74689CA2F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23466.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Magic Maker: Isekai Mahou no Tsukurikata / Magic Maker: How to Make Magic in Ano
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23467.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Zombieville USA 3D (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23468.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23468.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Grisaia: Phantom Trigger the Animation / Грисайя: Призрачный с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23469.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:D2C5F2BC3221B140E20CE29D6379E159771D8F55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23470.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23470.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ WinRAR 7.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23471.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23471.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Internet Download Manager 6.42 Build 29 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23472.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:BE2D155D1CC84BAE611935CD6EBBEF8992B3E1D5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23473.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:C76AB942E605C26B56E92C16427E751B9B251E5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23474.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23474.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ R-Drive Image Technician 7.3 Build 7305 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23475.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:1AE51A9FD269F12EE3D7BBB544FD4DC800B62E17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23476.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23476.jpg" />
 </div>
 
 

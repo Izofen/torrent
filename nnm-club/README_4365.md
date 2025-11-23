@@ -1,3 +1,91 @@
+###  Публикация: 593591   (134519) от 24.12.2012
+
+SILKYPIX Developer Studio Pro 5.0.28.0 [Английский + Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_134519.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro - программа которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. Программа обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате. С помощью этого мощного инструмента вы сможете решить множество проблем, связанных с конвертацией RAW в различые форматы и откроете для себя целый новый мир цифровой фотографии. Программа поможет вам настроить цветовой баланс, тон, насыщенность, яркость и контраст, покажет EXIF информацию выбранной фотографии, позволит произвести конвертацию в различные форматы изображений и многое другое.
+
+Список поддерживаемых камер:
+
+(   Читать дальше...   )Название программы: SILKYPIX Developer Studio ProЯзык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593734   (134520) от 24.12.2012
+
+Joe Cocker - Greatest Hits (1998) [FLAC|Lossless]<Blues Rock / Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_134520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer In The City (3:48)
+02. Could You Be Loved (4:12)
+03. The Simple Things (4:47)
+04. N'oubliez Jamais (4:40)
+05. Have A Little Faith In Me (4:15)
+06. What Becomes Of The Broken Hearted (4:10)
+07. Don't Let Me Be Misunderstood (3:53)
+08. Delta Lady (3:17)
+09. You Are So Beautiful (2:44)
+10. That's All I Need To Know (Live) Duet with Eros Ramazotti (4:01)(   Читать дальше...   )Жанр: Blues Rock / Pop RockПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680186   (134522) от 28.11.2023
+
+The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blast On
+2. Feeling Great
+3. Voodoo
+4. Terrorist(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593903   (134523) от 24.12.2012
 
 Эмулятор Sony Playstation Portable "Jpcsp" v.0.6. SVN r2944 [Multi14\+] 2012
@@ -6,7 +94,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134523.jpg" />
 </div>
 
 
@@ -36,7 +124,7 @@ OfficeSuite Pro + PDF 14.0.50070 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134524.jpg" />
 </div>
 
 
@@ -60,7 +148,7 @@ Keka 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134525.jpg" />
 </div>
 
 
@@ -84,7 +172,7 @@ magnet:?xt=urn:btih:DBDC043BA73F0E1BD3A6C32E356248D52D0BD7F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134526.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134526.jpg" />
 </div>
 
 
@@ -108,7 +196,7 @@ magnet:?xt=urn:btih:DBDC043BA73F0E1BD3A6C32E356248D52D0BD7F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134527.jpg" />
 </div>
 
 
@@ -132,7 +220,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134528.jpg" />
 </div>
 
 
@@ -156,7 +244,7 @@ Native Instruments Kontakt 7.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134529.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ magnet:?xt=urn:btih:BBF22C3E2A67E59C3801B8716833AB0102ECBDFD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134530.jpg" />
 </div>
 
 
@@ -205,7 +293,7 @@ Dynamic Wallpaper Engine 16.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134531.jpg" />
 </div>
 
 
@@ -229,7 +317,7 @@ magnet:?xt=urn:btih:A3857DC7AFC56DC5F37EF8870CF6787A3D6DD7E5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134532.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134532.jpg" />
 </div>
 
 
@@ -253,7 +341,7 @@ magnet:?xt=urn:btih:A3857DC7AFC56DC5F37EF8870CF6787A3D6DD7E5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134533.jpg" />
 </div>
 
 
@@ -277,7 +365,7 @@ magnet:?xt=urn:btih:4EADD11206F1C49037FACCB549DC8991603F1039
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134534.jpg" />
 </div>
 
 
@@ -302,7 +390,7 @@ PDF Expert 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134535.jpg" />
 </div>
 
 
@@ -327,7 +415,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134537.jpg" />
 </div>
 
 
@@ -354,7 +442,7 @@ magnet:?xt=urn:btih:4A7FBCE2892A510BE1B23731A428AE4F694133F9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134538.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134538.jpg" />
 </div>
 
 
@@ -378,7 +466,7 @@ magnet:?xt=urn:btih:4A7FBCE2892A510BE1B23731A428AE4F694133F9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134539.jpg" />
 </div>
 
 
@@ -402,7 +490,7 @@ magnet:?xt=urn:btih:A78345A16EE2A0C57B4C5736BF7568A689FAB94D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134541.jpg" />
 </div>
 
 
@@ -426,7 +514,7 @@ magnet:?xt=urn:btih:A1A03C9611A4761776B90350FD62A95EFABA2FB3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134542.jpg" />
 </div>
 
 
@@ -451,7 +539,7 @@ magnet:?xt=urn:btih:62B85C6CE0122896707720229AC91B94738495C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134543.jpg" />
 </div>
 
 
@@ -475,7 +563,7 @@ magnet:?xt=urn:btih:BB53061B6DEF708FA244380683E89BD549E024F7
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134544.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134544.jpg" />
 </div>
 
 
@@ -503,7 +591,7 @@ magnet:?xt=urn:btih:BB53061B6DEF708FA244380683E89BD549E024F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134545.jpg" />
 </div>
 
 
@@ -527,7 +615,7 @@ S.N.A.K.E. - Three (2023) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134547.jpg" />
 </div>
 
 
@@ -554,7 +642,7 @@ magnet:?xt=urn:btih:47F06993BE1A385E755814EC99E6C39D55DE7C40
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134549.jpg" />
 </div>
 
 
@@ -566,81 +654,6 @@ magnet:?xt=urn:btih:47F06993BE1A385E755814EC99E6C39D55DE7C40
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB23CBF6DC08DA5DB2A09D268B661DE8F440C6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593589   (134550) от 24.12.2012
-
-Corel AfterShot Pro 1.1.0.30 [Multi/Rus] Portable by SoftLab
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сorel® AfterShot™ Pro представляет собой быстрое и гибкое решение для организации работы с фотографиями. Оно сочетает в себе надежные средства управления фотографиями, расширенные возможности настройки без потери качества и полный набор инструментов для обработки файлов RAW. Систематизируйте фотографии в каталогах или папках. Быстро находите изображения при помощи обширных средств работы с метаданными, позволяющих производить поиск по настройкам камеры, ключевым словам, тегам и другим параметрам. Свободно экспериментируйте с изображениями и изменяйте их, используя инструменты корректировки без потери качества. Выборочное редактирование обеспечит возможности более точной настройки. Результат работы можно легко вывести для размещения в альбомах или на веб-сайтах, а также для показа клиенту. Благодаря поддержке RAW, мощным средствам пакетной обработки и невероятному быстродействию AfterShot Pro позволяет легко создавать фотографии профессионального качества.Название программы: Corel AfterShot ProЯзык интерфейса: Multi/Rus (by aleksbank)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680228   (134551) от 28.11.2023
-
-The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five To One (Live 1968) [00:06:23]
-02. Mack The Knife (Live 1968) [00:01:36]
-03. Alabama Song (Live 1968) [00:01:32]
-04. Back Door Man (Live 1968) [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593198   (134552) от 24.12.2012
-
-Игорь Скорин | Ребята из УГРО [1982] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая повесть о работе уголовного розыска Восточной Сибири и Забайкалья в 30-40-е годы. Герои повести - комсомольцы, мобилизованные по комсомольскому призыву на работу в уголовный розыск, - участвуют в раскрытии уголовных преступлений. В основе повествования лежат подлинные события.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FA4456840B500F712D54DC7733B69EA1C91CDE
 ```
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 461834   (79785) от 03.03.2012
+
+Лиза Джейн Смит | Сборник произведений [1991-2011] [PDF, RTF, FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиза Джейн Смит (Lisa Jane Smith, LJane Smith, L.J. Smith) — американская писательница, автор юношеской литературы, сочетающая в своих книгах такие жанры как фэнтези, научную фантастику, мистику, ужасы и элементы любовных романов.
+Персонажи книг Лизы Джейн Смит — сверхъестественные или человеческие, все как на подбор красивы и молоды. Чаще всего сюжет в её книгах является вариацией на тему конфликта добра со злом, в центре которого находится персонаж, перерождающийся за время этого конфликта и превращающийся в героя. Её книги наивно идеалистичны, но всё-таки обладают определённым шармом.1991-2011Формат: PDF, RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A6B9A4D31BEF13EC956234397EA44E202DEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461634   (79786) от 03.03.2012
+
+RERemix Linux Desktop 6.2 Live [i686 + x86_64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем финальный выпуск RERemix Linux Desktop 6.2 с долгосрочной поддержкой EL дистрибутива. RERemix Linux Desktop - это ремикс, основанный на Scientific Linux и репозиториях EPEL, PUIAS, ELRepo и Russian Fedora. Дистрибутив представляет собой десктопное решение на базе GNOME и KDE (доступна также урезанная версия XFCE). Пользователю сразу из коробки предоставляется возможность использования различных "плохих" кодеков (mp3 и т. п.), проигрывание DVD, Adobe Flash, различные драйвера к видео и сетевым картам. Доступны обновлённые версии Firefox, Thunderbird, вместо OpenOffice.org используется LibreOffice 3.4.5. В репозитории доступны vlc, mplayer2, psi-plus, skype, evince-djvu-backend, deadbeef, chromium и др. пакеты.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4940CB1FE15009C6F480B46C68EF814100F981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461911   (79789) от 03.03.2012
+
+[EN] Спартак: Месть / Spartacus: Vengeance [Season 2, Episode 6] (2012)
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вслед за кровавым побегом из дома Батиата, восстание гладиаторов начинает вселять страх в сердце Римской республики. Гай Клавдий Глабр и его римские войска направляются в Капую разбить, с каждым днём растущую группу освобожденных рабов, под предводительством лучшего римского гладиатора Спартака. Спартаку выпадает шанс отомстить человеку обрекшего его на рабство, (   Читать дальше...   )Жанр: Исторический,Боевик, ДрамаРежиссер: Майкл ХерстАктеры: Лиам МакИнтайр, Ману Беннет, Питер Менса, Люси Лоулесс, Вива Бьянка, Ник Тарабэй, Дастин Клер, Дэниэл Фьюрриджел, Крэйг Паркер и другиеПеревод: ОтсутствуетПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461184   (79792) от 03.03.2012
 
 Башни-близнецы / World Trade Center (2006) [1080p] BDRip
@@ -6,7 +79,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79792.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79793.jpg" />
 </div>
 
 
@@ -56,7 +129,7 @@
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79798.jpg" />
 </div>
 
 
@@ -80,7 +153,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79800.jpg" />
 </div>
 
 
@@ -107,7 +180,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79803.jpg" />
 </div>
 
 
@@ -131,7 +204,7 @@ Nightwish - Lokikirja (2009) Box Set, 8CD / Spinefarm Records / [FLAC|Lossless]<
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79805.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ Kaspersky World 1.3.0.13 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79807.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79812.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79825.jpg" />
 </div>
 
 
@@ -232,7 +305,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79842.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79844.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ magnet:?xt=urn:btih:7E31E47F8B4384F51D9DE9D065E4DBA800FA38DE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79845.jpg" />
 </div>
 
 
@@ -306,7 +379,7 @@ magnet:?xt=urn:btih:D207104463D95A2069543EDA9E2F4C3CC374BE48
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79858.jpg" />
 </div>
 
 
@@ -332,7 +405,7 @@ magnet:?xt=urn:btih:D207104463D95A2069543EDA9E2F4C3CC374BE48
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79859.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:E842AECA27E0D97F3A49AF9C85EC4A39BE178F27
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79865.jpg" />
 </div>
 
 
@@ -380,7 +453,7 @@ magnet:?xt=urn:btih:49703EBF4B9B146847FA962852A9122EB8861230
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79870.jpg" />
 </div>
 
 
@@ -404,7 +477,7 @@ magnet:?xt=urn:btih:623355D1F08C402FA13097526E67ED1F13E0CB70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79885.jpg" />
 </div>
 
 
@@ -428,7 +501,7 @@ magnet:?xt=urn:btih:623355D1F08C402FA13097526E67ED1F13E0CB70
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79892.jpg" />
 </div>
 
 
@@ -456,7 +529,7 @@ Deep Black Reloaded [Multi6/+] (L/1.2) 2012 | THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79895.jpg" />
 </div>
 
 
@@ -482,7 +555,7 @@ Deep Black Reloaded [Multi6/+] (L/1.2) 2012 | THETA
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79901.jpg" />
 </div>
 
 
@@ -510,7 +583,7 @@ Mario Party 9 [Wii] [PAL] [Multi 5] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79905.jpg" />
 </div>
 
 
@@ -536,7 +609,7 @@ Kaspersky Trial Reset 1.40 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79906.jpg" />
 </div>
 
 
@@ -560,7 +633,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79907.jpg" />
 </div>
 
 
@@ -573,78 +646,6 @@ STEP 7 - это базовый пакет программ, включающий
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460985   (79909) от 03.03.2012
-
-Что-то не так с Кевином / We Need to Talk About Kevin (2011) [H.264/720p-LQ] BDRip
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отложив в сторону все личные и профессиональные амбиции, Ева посвящает жизнь рождению и воспитанию сына. Однако их отношения с самого начала оказываются крайне сложными. В пятнадцать лет Кевин совершает непоправимое, и Ева мучается сознанием ответственности и собственной вины. Достаточно ли она любила своего сына? Какова доля ее вины в происшедшем?..Производство: США, ВеликобританияЖанр: Триллер, ДрамаРежиссер: Линн РэмсиАктеры: Тильда Суинтон, Джон Си Райли, Эзра Миллер, Джаспер Ньюэлл, Рок Дер, Эшли Герасимович, Шаван Фэллон, Алекс Манетт, Кеннет Франклин, Лесли Лайлс и др.Перевод: Профессиональный многоголосый закадровыйСубтитры: Английские, русские, французскиеПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A733006C6EEEA8F91DD8DD3ECAFF0A392CB7F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459364   (79913) от 03.03.2012
-
-LG Electronics | Сборник схем и сервис-мануалов по ремонту техники LG [2011] [PDF, xls, csv] [Eng]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит руководства по ремонту и настройке, принципиальные схемы техники LG и дополнительные материалы к ним2011Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461303   (79914) от 03.03.2012
-
-Резня / Carnage (2011) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Производство: Constantin Film Produktion GmbH / SBS Productions / SPI PolandЖанр: Драма, комедияРежиссер: Роман ПоланскиАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9407D36EB44EEA15049145B8B95E5D8CD101772F
 ```
 
 

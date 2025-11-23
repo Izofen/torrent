@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61647.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A73A7591BFE76D91C8B11E26A6CBA098A38D0A91
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61648.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61649.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61650.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A7B8C235C84D7820BC67F48747010472EBFFEE6C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61651.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E6031E2273D684C4D83A205705E2B3EB53CF6C45
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61652.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6629A16CBC5B1348ED8CCE5D1B95D477E2A42AFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61653.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Malwarebytes Free 5.1.1.106 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61654.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61655.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:84F6AFE04158F34F88769E4B61BB1B3F01BC1BC7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61656.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8488F6CDD83A2D554BAA0C179D40CD86325772B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61657.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Jaku Chara Tomozaki-kun 2nd Stage / Bottom-tier Character Tomozaki 2nd Stage / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61658.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DA1B9F2BAB0EB938213B16714A92473110B10634
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61659.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0CE2BA2950A4A386D2F79BB2AF0EDA6C5AADDED8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61660.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B2D459CA5EAD5AD431313C27D03040676D5C4E50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61661.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C7CD2409505A0291C8A693DF570B7D014CB0ED1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61662.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VueScan Pro for Mac 9.8.31 U2B ARM/iNTEL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61663.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61664.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:EE68CCED16680A22A2D15A86F6DC8FD80EE5F8A9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61665.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ableton Live Suite 12 v.12.0.1 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61666.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:517469C241C529C076BAC45E916384284C2D97EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61667.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Duke Ellington - The Pianist (1974) /2003,  [FLAC|lossless]<Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61668.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:79AB6BDB7BFC265ADD4D94F9742C39862E9E90DA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61669.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FA6CCB80F9BB6798D803C5EE7CF193AE00EF12ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61670.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:FDA062F3EB2004CD8552EF5D5A83A758107B3AF1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61671.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:32A4FFED2CDF79504175BEA1CF3EF572553757C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_61672.jpg" />
 </div>
 
 

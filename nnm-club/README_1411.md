@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37039.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2024.11.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37040.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Navitel Navigator v12.5.852 clon-RED [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37041.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37042.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B25401E4F3BBE418AD1C30DAA2ADB0D6E81886EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37043.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack FitGirl [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37045.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BB2BC4624F1D63FF9C78F802FEB42431B1184490
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37046.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ IObit Driver Booster Pro 12.1.0.469 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37047.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:949EA919278936C13F979E3116A50900F1C55EAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37048.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E91050C9BD231C08EB8B4FE1B11911CAA678BA76
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37049.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:DD4B7620A0521854EA9D4B7AC50BD3F2446F773B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37050.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37051.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4689B481A9B9F009AA1FFC44EAFEDE2F82936B9C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37052.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DC3F4E288D50E3AB5086E5085D459BF795032789
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37053.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:73FA2F1A111EE08DBCFF0018D600305E5193FA83
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37054.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1C0D9C83F73F2238DFE12B9CED6F466F9BDB175C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37055.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Populous™: The Beginning (1998) [En] (1.02/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37056.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1E2913B68188D5D9DA076BB45DB4CCD5A5B43F1A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37057.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:A8BFFBD461A906A2F418F58A89FFA1033889D6AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37058.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A0F8DF7D20D7B94271144CECAD96FF9AC0A7E552
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37059.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FanControl V208 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37060.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A7795CB815913B838A4E212D25EB5C3A527C66A0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37061.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Balabolka 2.15.0.882 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37062.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Textra SMS v4.77 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37063.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_37064.jpg" />
 </div>
 
 

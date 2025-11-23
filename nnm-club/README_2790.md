@@ -1,3 +1,75 @@
+###  Публикация: 459294   (79039) от 28.02.2012
+
+Непокоренный / Invictus (2009)  [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о времени после падения апартеида, когда Южная Африка провела у себя Кубок мира по регби 1995 года. Тогда шел первый президентский срок Нельсона Манделы, который пытался использовать все возможности, чтобы прекратить многолетнее непонимание между белым и чернокожим населением страны.Жанр: ДрамаРежиссер: Клинт ИствудАктеры: Морган Фриман, Мэтт Дэймон, Тони Кгороге, Патрик Мофокенг, Мэтт Штерн, Джулиан Льюис Джонс, Аджоа Андох, Маргарит Уитли, Лелети Кумало, Патрик ЛистерПеревод: ДублированныйЯзык субтитров: Русский, Английский, Въетнамский, Чешский, Французский, Шведский и др.Продолжительность: 02:13:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459506   (79040) от 28.02.2012
+
+Oil Rush [Native] [Eng + Rus]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия в игре разворачиваются в постапокалиптическом мире, где ведутся сражения за нефть. Игроку нужно контролировать свои платформы, модернизировать их, наращивать силы, использовать флот и авиацию для захвата вражеских платформ и нефтяных установок. Нефть является основным ресурсом игры. Она используется для покупок оборонительных башен и финансирования научных исследований. Нефтяные установки не способны защищать сами себя. Установление контроля над ними — важнейшая (и сложная) задача. Платформы предназначены для производства боевых юнитов. Их можно оснащать оборонительными башнями для отражения вражеских атак. Платформы способны как-то влиять на находящихся рядом юнитов. Сами юниты бывают разных типов: самолёты, корабли и подводные лодки. Научные исследования позволят игроку производить более продвинутое оборонительное оружие и более мощное оружие для нападения, включая ядерное оружие..2012Mac OS XТип издания: NativeЖанр: StrategyЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F52EF2EE2FBAA2C7A776C44D7F1434075275B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459518   (79053) от 28.02.2012
+
+Выжить / Alive (1992) HDTVRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79053.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1972 году над Андами потерпел авиакатастрофу самолет. В этом самолете летели на спортивные соревнования школьники из Уругвая. В живых, после падения самолета, осталась лишь небольшая группа детей. Горное плато, на котором они оказались, было отрезано от окружающего мира. Запасов еду у школьников не было, так же как не было и теплой одежды, морозы и голод мгновенно (   Читать дальше...   )Производство: США, КанадаЖанр: Триллер, драма, приключения, историяРежиссер: Фрэнк МаршаллАктеры: Винсент Спано, Иллеана Дуглас, Джон Ньютон, Дэвид Кригель, Кевин Брезнахэн, Этан Хоук, Джош Хэмилтон, Сэм Беренс, Джек Ноузворфи, Брюс РамсейПеревод: Профессиональный многоголосыйПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F1432905C949040E291DD4FA80C9D283D73B74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459592   (79060) от 28.02.2012
 
 Хью Джонсон, Дженсис Робинсон | Вино: Атлас мира (2003) [PDF]
@@ -6,7 +78,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79060.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:132F533AD6F17765B2ED6E923FF7CE13D213B841
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79063.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:132F533AD6F17765B2ED6E923FF7CE13D213B841
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79064.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Louna - Время Х (2012) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79069.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:45BE545070E7A8C23AF1BCD4161A6447D97BD63D
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79071.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Panda Cloud Antivirus 1.5.2 [Multilanguage+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79073.jpg" />
 </div>
 
 
@@ -161,7 +233,7 @@ Panda Cloud Antivirus 1.5.2 [Multilanguage+Rus]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79077.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:77ACCF48A4158ECC9EAAA07DF1B718D6AB3F9F09
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79078.jpg" />
 </div>
 
 
@@ -210,7 +282,7 @@ magnet:?xt=urn:btih:4D23B934C20AC2E397F0820D32366D5D4B48AD49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79079.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ magnet:?xt=urn:btih:B15CFDD699B441746F6757E09E10B267D94710B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79081.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ Command & Conquer: Generals (Deluxe Edition) [Native] [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79083.jpg" />
 </div>
 
 
@@ -285,7 +357,7 @@ Command & Conquer: Red Alert 2 (+ Yuri's Revenge) [Wineskin] [Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79084.jpg" />
 </div>
 
 
@@ -309,7 +381,7 @@ magnet:?xt=urn:btih:A44ECB8179F5032245C1079E9FD1C447523D6E87
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79086.jpg" />
 </div>
 
 
@@ -334,7 +406,7 @@ Autodesk AutoCAD 2012 [Eng]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79089.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79090.jpg" />
 </div>
 
 
@@ -389,7 +461,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79093.jpg" />
 </div>
 
 
@@ -413,7 +485,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79094.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79097.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79105.jpg" />
 </div>
 
 
@@ -485,7 +557,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79112.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79115.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79116.jpg" />
 </div>
 
 
@@ -573,7 +645,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79120.jpg" />
 </div>
 
 
@@ -593,91 +665,6 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459432   (79123) от 29.02.2012
-
-VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (2005) [FLAC|Lossless]<Funk, Soul, Deep Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Work It - Intro (0:45)
-02.Stevie Wonder - We can work it out (3:11)
-03.Al Green - I want to hold your hand (1:59)
-04.Deidre Wildon Tabac - Get back (2:38)
-05.Harvey Averne - I feel fine (2:58)
-06.Sergio Mendes & Brasil '66 - Daytripper (3:39)
-07.The London Jazz Four - Things we said today (2:44)
-08.Ike & Tina Turner - Come Together (3:41)
-09.Byron Lee & The Dragonaires - Live & let die (2:57)
-10.Marshall Williams - Norwegian wood (2:12)(   Читать дальше...   )2005Жанр: Funk, Soul, Deep FunkПродолжительность: 01:47:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459857   (79124) от 29.02.2012
-
-Ангел неБЕС - наКРЫЛО (2012) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бесы (5:03)
- 2. Накрыло (0:21)
- 3. На крыле (3:51)
- 4. ТТ (Пожар на твоем теле) (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460274   (79130) от 29.02.2012
-
-Журнал | Esquire [Россия] №75 (март 2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
-Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
 ```
 
 

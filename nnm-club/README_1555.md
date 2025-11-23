@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40784.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40785.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40786.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industria
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40787.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40788.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40789.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:26306E5E10F83C97E47709316E4038F0F783AEF6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40790.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40791.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:1F3FA7396239F7B37F650E16DC0DCD0D032E2E36
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40792.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Weeknd - São Paulo Livestream (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40793.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ S.O.S. Женщины в море / S.O.S.: Mulheres ao Mar (2014) DVDRip [МVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40794.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:B271FE630682E785C4ED239664F8F070F7E7CF24
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40795.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ XnView MP 1.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40796.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Music News For Forum vol.030 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40797.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:A985F8D16E63DB416A0259F0A6137A0A28812F8E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40798.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ E-Rotic - The Hits (2024) [MP3|320 Kbps] <Eurodance, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40799.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Music News For Forum vol.029 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40800.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Firefox Browser ESR 128.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40801.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Vivaldi 6.9.3447.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40802.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Feel Good Jazz Lounge (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40803.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tablacus Explorer 24.10.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40804.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40805.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A0CAB79D56C20C52B8A93D90ACA31129725E4255
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40806.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:40FAC1096AE7ADD44743FE3EDDB83E824EC56288
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40807.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Firefox Browser 131.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40808.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Firefox Browser 131.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40809.jpg" />
 </div>
 
 

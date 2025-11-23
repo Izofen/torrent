@@ -1,3 +1,177 @@
+###  Публикация: 1432442   (164296) от 17.12.2020
+
+Ларри Симон. Римляне и проходимцы / Romans and Rascals (1918) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164296.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме "Римляне и проходимцы" Ларри Симон пародирует фильмы на античную тему: юный король Сцезарь воюет со своими сенаторами, ссорится со своей дамой сердца и, вследствие этого, крайне мрачен. Не то что весёлый и беззаботный поэт-менестрель, как две капли воды похожий на правителя...Производство: США, Vitagraph Company of AmericaЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Мэдж Кирби, Pietro Aramondo, Оуэн Эванс, Фрэнк Александр, Paul Rondas, Джеймс ДоннеллиЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C832B6961DC3C97E5E64DFCD71E2B8FB57CB7E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516925   (164297) от 13.12.2021
+
+KeePassDX Pro v3.0.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164297.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeePassDX Pro - Приложение позволяет сохранять и использовать пароли. KeePass DX менеджер паролей, с открытым исходным кодом, зарекомендовавший себя безопасностью и надёжностью. В отличии от KeePass2Android, KeePassDX Pro не требует доступа в интернет и не содержит никакой рекламы.Тип издания: Pro (Paid)Релиз состоялся: 10.12.2021Разработчик: KunzisoftПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517018   (164298) от 13.12.2021
+
+Василий Сахаров | «Империя Оствер» Книга 6. Имперская Окраина (2020) [MP3, Юрий Титов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граф Уркварт Ройхо, имперский феодал, захватил острова Ваирского архипелага и разбогател. Добытое у пиратов золото позволяет ему содержать сильное войско и хороший флот. Его воины преданы своему вождю, самому сильному аристократу Севера. И если бы не война, которая бушует в империи, он жил бы мирной жизнью, развивал магические навыки и воспитывал детей. Однако спокойствия (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 12:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B36B7B520B19B3BAC488CE5217871DDB5DC343B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673629   (164299) от 02.11.2023
+
+Тайная крепость / La forteresse suspendue / The Hidden Fortress (2001) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164299.jpg" />
+</div>
+
+
+###  Подробнее
+
+На берегу Черного озера дети целыми днями играют в странную игру. Они ведут безжалостную хитроумную войну между Конкистадорами и Индейцами. В то время как Конкистадоры оттачивают искусство устраивать засады и внезапные нападения, Индейцы пытаются сохранить свою тайну. Действие фильма разворачивается вокруг установленной высоко на деревьях магической крепости, которую (   Читать дальше...   )Производство: Канада / Les Productions La Fête Inc.Жанр: комедия, приключенияРежиссер: Роджер КантинАктеры: Мэттью Дюпуа, Роксана Годетт-Луазо, Jérôme Leclerc-Couture, Jean-Philippe Debien, Charli Arcouette-Martineau, Ксавье Долан, Лорен-Кристоф Де Рюлле, Джереми Ганьон, Carmina Senosier, Émilie Cyrenne-ParentПеревод: многоголосый профессиональный, дублированныйЯзык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AF268B26F3A5A620B79FDC299221F11973F600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346121   (164300) от 18.12.2019
+
+Картинки - NNM-Club - Календарь 2020 (РФ) №23 от РОЗА123 - 1346121 [PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь на 2020 год.Формат: PNGРазрешение файлов: 2500x1500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F7215FDDA4298DA061B3809DEE8B43952C080D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598180   (164301) от 17.12.2022
+
+Mostly Autumn - Back in These Arms (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Dies (Live) (07:04)
+02. Spirit of Mankind (Live) (04:49)
+03. Nowhere to Hide (Live) (04:19)
+04. Spirit of Autumn Past (Live) (05:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742253BE137580B482023F2E31251D98BC96D40E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432408   (164302) от 17.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 3. Хохфильцен (Австрия). Женщины. Эстафета 4 x 6 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+12 декабря 2020, суббота. 13:45 МСК
+Этап 3. Хохфильцен (Австрия)
+Женщины. Эстафета 4 x 6 км(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643D6E4CFE05FF9F250D180226BA43DED12C41A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516990   (164303) от 13.12.2021
 
 Василий Сахаров | «Империя Оствер» Книга 5. Ройхо Ваирский (2019) [MP3, Юрий Титов]
@@ -6,7 +180,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164303.jpg" />
 </div>
 
 
@@ -32,7 +206,7 @@ magnet:?xt=urn:btih:3A12977236A30E89381C4AE4873B6B3470E78BBB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164304.jpg" />
 </div>
 
 
@@ -56,7 +230,7 @@ Task Office 8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164305.jpg" />
 </div>
 
 
@@ -80,7 +254,7 @@ EZ CD Audio Converter 9.0.5.1 (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164306.jpg" />
 </div>
 
 
@@ -104,7 +278,7 @@ VA - Beatport Deep House: Electro Sound Pack #209 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164307.jpg" />
 </div>
 
 
@@ -131,7 +305,7 @@ Mac FoneLab Android Data Recovery 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164308.jpg" />
 </div>
 
 
@@ -155,7 +329,7 @@ Pano2VR Pro 6.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164309.jpg" />
 </div>
 
 
@@ -179,7 +353,7 @@ SwitchResX 4.11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164310.jpg" />
 </div>
 
 
@@ -206,7 +380,7 @@ magnet:?xt=urn:btih:287B00CEED12AB67C9F6563B2F897F4450FA8C99
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164311.jpg" />
 </div>
 
 
@@ -233,7 +407,7 @@ magnet:?xt=urn:btih:4121CA425A7426E9F8E4DF98AB11E737E2D16A8C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164312.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164312.jpg" />
 </div>
 
 
@@ -257,7 +431,7 @@ VA - RAM Drum & Bass Annual 2020 (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164313.jpg" />
 </div>
 
 
@@ -284,7 +458,7 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164314.jpg" />
 </div>
 
 
@@ -311,7 +485,7 @@ magnet:?xt=urn:btih:1D08F61DBBA1EBFEF9BE54A8C15EA1E6B95E482D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164315.jpg" />
 </div>
 
 
@@ -336,7 +510,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164316.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164316.jpg" />
 </div>
 
 
@@ -363,7 +537,7 @@ magnet:?xt=urn:btih:870FC69A5A9226A0FCE269F7B6DC15F41B296CD8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164317.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ magnet:?xt=urn:btih:1B195C095A82EC1E4A1897E1E701947D32B59445
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164318.jpg" />
 </div>
 
 
@@ -413,7 +587,7 @@ magnet:?xt=urn:btih:ED543C98961E2032C4E6630D864BDF9BBD31F3AB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164319.jpg" />
 </div>
 
 
@@ -440,7 +614,7 @@ magnet:?xt=urn:btih:C9D5325E29A1977A2350B55576FB89F950EE20E2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164320.jpg" />
 </div>
 
 
@@ -464,7 +638,7 @@ magnet:?xt=urn:btih:94AE0905A452096A91691DD2D06D9E36FA824922
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164321.jpg" />
 </div>
 
 
@@ -475,186 +649,6 @@ magnet:?xt=urn:btih:94AE0905A452096A91691DD2D06D9E36FA824922
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88493D8D35632FFCBBDE7C8CFDE1869863D2339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429164   (164322) от 17.12.2020
-
-Николас Спаркс | Последняя песня (2009) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164322.jpg" />
-</div>
-
-
-###  Подробнее
-
-История сложных взаимоотношений, определяющих судьбы и формирующих характеры.
-История любви, навсегда изменившей жизнь.
-Любви, для которой нет преград.
-Любви, ради которой мы готовы на все.(   Читать дальше...   )Жанр: Художественный вымысел, Любовный роман, Трагедия, Роман воспитанияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71474DB7E787996B52FB96F726F73509FE65F5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346244   (164323) от 18.12.2019
-
-Черноморские берега. Турция / The Black Sea. Turkey (2018) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черное море находится на границе между Европой и Азией. Это настоящая жемчужина, которую со всех сторон обрамляют берега удивительной красоты. Жизнь на черноморских берегах полна контрастов. Здесь уживаются старые традиции и смелый взгляд в будущее.Производство: ЕС, VincentTV, ZDF, ARTEЖанр: Документальный, познавательный, путешествияРежиссер: Надя ФренцПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4BC5610A8366074EE8A03673A54DBE13B0362B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516942   (164324) от 13.12.2021
-
-Artlantis 2021.2 v9.5.2.29009 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artlantis  – профессиональный набор инструментов, предназначенный для создания изображений и видеороликов высокого качества на основе 3D-моделей. В процессе работы пользователь может применять различные текстуры, изменять цвета проекта и параметры источников света. Программа также включает в себя инструменты, позволяющие редактировать свойства существующих материалов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2021Разработчик: AbventПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC6DA591B8F35AECE09154A97BD96BD2B82F8C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549571   (164325) от 02.11.2023
-
-Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cruise (Prelude) [00:02:58]
-02. Let The Game Begin, Pt. I [00:06:16]
-03. Let The Game Begin, Pt. II [00:02:00]
-04. Let The Game Begin, Pt. III [00:08:07](   Читать дальше...   )Жанр: Heavy Progressive Rock |Продолжительность: 2 CD, 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF512B65CE6F4C74307A09F27460712BB93B3DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597942   (164326) от 17.12.2022
-
-Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty Way [00:02:58]
-02. Forest Path [00:04:19]
-03. Hill of Dark Sorcery [00:04:56]
-04. Eryn Galen [00:05:42](   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB6FC4179F21C1EECFBBC43C6882BE10F003B1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432471   (164327) от 17.12.2020
-
-Биатлон. Кубок Мира 2020-2021. Этап 3. Хохфильцен (Австрия). Мужчины. Гонка преследования 12,5 км (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Прочие зимние виды спорта
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок мира по биатлону 2020-2021
-12 декабря 2020, суббота. 16:45 МСК
-Этап 3. Хохфильцен (Австрия)
-Мужчины. Гонка преследования 12,5 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA308140FC44AF1B3268E0452641DAA48DA5C673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346113   (164328) от 18.12.2019
-
-Протоиерей Николай Германский | Притчи духовного странника. Ехал я как-то по дороге (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путевые заметки духовного странника — это избранные притчи о нашем жизненном пути. Эти краткие истории — яркие зрительные картинки, возбуждающие наши глубокие и почти забытые сокровенные чувства. Нанизываясь друг на друга, эти чувства воскрешают душу, наполняют её детской радостью, надеждой, верою и любовью.Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7D0AC07C25786B341287C76C9B1C45580F4272
 ```
 
 

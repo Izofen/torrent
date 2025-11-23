@@ -1,3 +1,184 @@
+###  Публикация: 590156   (146506) от 16.12.2012
+
+Arty - Together We Are 025 (13.12.2012) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delirium - Days Turns Into Nights (Seven Lions Remix)
+02. Chocolate Puma & Gregor Salto - Gimme Sum (Original Mix)
+03. Jordy Dazz - Claymore (Original Mix)
+04. Antillas & Dankann - Evolution (Club Mix)
+05. Arty - Gentle Touch (Eximinds Remix)
+06. Pryda - Bergen (Original Mix)
+07. Deep Dish - Say Hello (Original Mix)
+08. Rudimental feat. Angel Haze - Hell Could Freeze
+09. Inner Life - Ain’t No Mountain High Enough (WhiteNoize Remix)
+10. T3KTONE feat. Harry Choo Choo Romero - Beat Of The Drum (Erick Morillo & Harry Romero Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 1:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4F5EDE5E497F43CE23B5BFCEC71816DF927490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435154   (146507) от 27.12.2020
+
+Чудо техники с Сергеем Малозёмовым (27.12.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стаи летающих беспилотников совсем скоро смогут заменить фейерверки, и почему они не врезаются друг в друга и знают, в какую фигуру нужно выстраиваться? Главный вопрос этого года: «Сможет ли мир нормально жить после пандемии?». Все о летающих подарках: горшки с цветами, часы и даже виниловый проигрыватель — стоит ли покупать такие вещицы или кроме вау-эффекта (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F04F72EDE23F7679DE79CD53993622EB9CBC9A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969417   (146508) от 27.12.2015
+
+UC Browser 5.5.8807.1010 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146508.jpg" />
+</div>
+
+
+###  Подробнее
+
+UC Browser для ПК - версия популярного мобильного браузера для настольных компьютеров под управлением ОС Windows. Этот web-обозреватель использует в работе 2 движка - Chromium (Google Chrome) и Trident (Internet Explorer), позволяя при необходимости быстро переключаться между ними. Для того, чтобы переключиться между движками, Вам надо просто нажать на символ в адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8353A8AAF257A08F63C7C895199C58540211D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271520   (146509) от 25.12.2018
+
+К.Н. Лунгу | Линейное программирование: Руководство к решению задач (2005) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Основное внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса. Рассмотрены случаи сведения симплексного метода к наглядному геометрическому способу. Начальный план транспортной задачи строится методом (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087489   (146511) от 27.12.2016
+
+Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146511.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love On The Line (4:41)
+A2. Alright Down Get Boogie (Muala Rusic) (3:58)
+A3. The Song (They Love To Sing) (6:09)
+A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435135   (146513) от 27.12.2020
+
+Журнал | The World of Interiors №2 (февраль 2020) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0031F8C37DD311C045564DA5945276CB1B499ABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969433   (146514) от 27.12.2015
+
+Шаблоны - Перекидной календарь - Calendar 2016 on the year [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перекидной календарь с рамками для фото на 2016 год.
+Автор: FotcaФормат: PNGРазрешение файлов: 3543x5315 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEC58E1D9482CF50C502F3A0E63E6281DAEE463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271116   (146515) от 25.12.2018
 
 Знакомство с Факерами 2 / Little Fockers (2010) BDRip [H.265/1080p-LQ] [10-bit] [PR]
@@ -6,7 +187,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146515.jpg" />
 </div>
 
 
@@ -30,7 +211,7 @@ magnet:?xt=urn:btih:E25B47E4D5ECE22EC659E6E0B2094E9D58C4BD68
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146516.jpg" />
 </div>
 
 
@@ -55,7 +236,7 @@ HQ Wallpapers Perfect Women (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146517.jpg" />
 </div>
 
 
@@ -79,7 +260,7 @@ magnet:?xt=urn:btih:30C31DB9B52232FA4F1BFC969753EAC1BAB85FBE
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146519.jpg" />
 </div>
 
 
@@ -103,7 +284,7 @@ magnet:?xt=urn:btih:1BEE5E9A982728AE9E3F551AB4CB4891B1EFF72B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146520.jpg" />
 </div>
 
 
@@ -128,7 +309,7 @@ magnet:?xt=urn:btih:C0F39A9F6B2F3D44C600C929710F6467BF148A1A
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146521.jpg" />
 </div>
 
 
@@ -152,7 +333,7 @@ magnet:?xt=urn:btih:4245A419B423E09791B914536668054918226621
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146522.jpg" />
 </div>
 
 
@@ -176,7 +357,7 @@ magnet:?xt=urn:btih:3FE0439FF46E78C5B1DF82AB1E4576BE46040F97
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146524.jpg" />
 </div>
 
 
@@ -200,7 +381,7 @@ magnet:?xt=urn:btih:AE1C99DC4B87313BBDE1C67379C103FFA87F23F0
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146525.jpg" />
 </div>
 
 
@@ -226,7 +407,7 @@ VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146526.jpg" />
 </div>
 
 
@@ -253,7 +434,7 @@ magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146527.jpg" />
 </div>
 
 
@@ -277,7 +458,7 @@ magnet:?xt=urn:btih:ACBA003B1288E98BBEFDDD9AEF45705A2645EF82
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146528.jpg" />
 </div>
 
 
@@ -301,7 +482,7 @@ Nature Wallpapers (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146529.jpg" />
 </div>
 
 
@@ -325,7 +506,7 @@ magnet:?xt=urn:btih:ED60235037280569195F6FC643913A48F5A914FD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146530.jpg" />
 </div>
 
 
@@ -350,7 +531,7 @@ magnet:?xt=urn:btih:935415D1E79D1DDE3C20F47D9F688A161C692361
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146531.jpg" />
 </div>
 
 
@@ -374,7 +555,7 @@ magnet:?xt=urn:btih:9B560961702C3F8C0669A00BFC636234937C4856
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146532.jpg" />
 </div>
 
 
@@ -398,7 +579,7 @@ magnet:?xt=urn:btih:CFDA866DA2EE264729936D4AAE6170AE0FED80FA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146533.jpg" />
 </div>
 
 
@@ -424,7 +605,7 @@ magnet:?xt=urn:btih:2295753CE6AAEA289099425A260D09C73C0EDDDF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146534.jpg" />
 </div>
 
 
@@ -448,7 +629,7 @@ magnet:?xt=urn:btih:765EF6B4247382B3FBC73A295E2DD88B9BCD12D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146535.jpg" />
 </div>
 
 
@@ -459,176 +640,6 @@ magnet:?xt=urn:btih:765EF6B4247382B3FBC73A295E2DD88B9BCD12D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5C5B9A5A1F15F3C8131DB7EB74112B4C8B2AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191432   (146537) от 25.12.2019
-
-Minecraft (2011) [Ru/En] (1.7.10/1.10.2/dlc) Repack/Mod Nobi [Java Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft (от англ. mine craft - букв. «шахтёрское ремесло» или «моё ремесло») - компьютерная игра с видом от первого лица. По стилю, мир игры полностью состоит из блоков (ландшафт, предметы, мобы, игрок), и для текстурирования используются текстуры с низким разрешением (16×16 текселей). Разработана шведским программистом Маркусом Перссоном, известным также (   Читать дальше...   )Тип издания: Repack/ModРазработчик: MojangЖанр: Sandbox, SurvivalЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BB56B9D02589AB27F7AF586757C74361F3CA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589997   (146538) от 16.12.2012
-
-Winter Wallpapers (14.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F208F535CE590D1ABBDB59CCFEE2109F2982AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271987   (146539) от 25.12.2018
-
-В.А. Могилевцев (сост.) | Анатомия фигуры человека. Краткое пособие для художников (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга подготовлена на кафедре академии художеств им. И. Е. Репина под руководством профессора В. А. Могилевцева. Пособие предназначено для практических занятий во время учебного процесса. Снабжено рисунками, таблицами, репродукциями классических произведений и кратким перечнем мышц. Компактная структура издания – все необходимое на одном развороте – позволяет сопоставить (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06AC3DF8ACFAEB1E8637DB941D5202E9FE7DE1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969610   (146540) от 27.12.2015
-
-Ashampoo WinOptimizer 12.00.40 RePack (& portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo WinOptimizer 12 - новая линейка пакета программ, позволяющего оптимизировать операционную систему благодаря ее настройке и очистке. Содержит утилиты для очистки жесткого диска и системного реестра, модуль для защиты личной информации путем поиска и удаления файлов и данных, оставшихся после интернет-cepфингa, утилиту для оптимизации интернет-соединения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DA6599DFF181BD4D20BF0AB12EA95C6E3CC897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519730   (146541) от 25.12.2021
-
-Ableton - Live Suite 11.0.12 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ableton Live позволяет вам легко создавать, производить и исполнять музыку в одном интуитивно понятном интерфейсе.
-Live синхронизирует все и работает в режиме реального времени, поэтому вы можете воспроизводить и изменять свои музыкальные идеи, не прерывая творческий процесс.
-Но Live также имеет революционный Session View: уникальный блокнот для импровизации, игры (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9795E4BA180333D903B69F609568D0A05E8907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678186   (146542) от 20.11.2023
-
-Узбечка / Uzbechka / O’zbek Qizi / Uzbek qizi (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна, 1943 год, Калининский фронт. Девушки-снайперы проходят боевое крещение. Выпускницы стрелковой школы впервые на фронте. Одна из них — восемнадцатилетняя узбечка Джамиля.Производство: Узбекистан, Беларусь / Сinema of Сentral Аsia, Беларусьфильм,  Агентство кинематографии УзбекистанаЖанр: военный, драмаРежиссер: Акбар БектурдыевАктеры: Айсенем Юсупова, Зулхумор Муминова, Мухаммадисо Абдулхаиров, Фарход Худойбердиев, Александра Алексеева, Елизавета Шукова, Милана Иванова, Олег Тактаров, Йигитали МамаджановПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: Русские (hardsub на Узбекскую речь)Продолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56366ACDBDE3AB895C9526055FAC547F1D13020D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435166   (146543) от 27.12.2020
-
-Франсуаза Саган | Четыре стороны сердца (2020) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146543.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Четыре стороны сердца» – последний роман Франсуазы Саган, скончавшейся в 2004 году. Ее сын Дени Вестхофф обнаружил испещренный вставками и поправками машинописный экземпляр в архиве писательницы. Это роман, написанный в свободной, раскованной манере, с удивительным мастерством и вниманием к страстям человеческим. Присущие писательнице интеллект, чувство юмора и (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ирина ВолевичФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1B217DB84C6150B202503F9DD97B0C07720C6D
 ```
 
 

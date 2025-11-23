@@ -1,3 +1,77 @@
+###  Публикация: 1769689   (100639) от 29.12.2024
+
+PhotoRoom v5.7.6 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 29.12.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CFACF2968BB778A0BD75893C64393702939090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769641   (100640) от 29.12.2024
+
+Олененок Рудольф / Rudolph the Red-Nosed Reindeer: The Movie (1998) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественская сказка про олененка, который при рождении уже обладал важной особенностью — горящим красным носом. Много насмешек пришлось услышать Рудольфу от других обитателей волшебной страны прежде чем он доказал всем, что он такой же как все.Производство: США, Канада / 	Cayre Brothers, Golden Books Family Entertainment, Goodtimes Entertainment, GT Merchandising and Licensing, Rudolph Productions, Tundra Productions Inc.Жанр: мультфильм, мюзикл, мелодрама, приключения, семейныйРежиссер: Уильям Р. Ковальчук мл.Актеры: Эрик Поспишил, Кэтлин Барр, Джон Гудман, Вупи Голдберг, Дебби Рейнолдс, Боб Ньюхарт, Эрик Айдл, Ричард Симмонс, Алек Уиллоуз, Ли Токар и др.Перевод: Дублированный (Мосфильм" по заказу "Каро Премьер")Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F13AF6846F2B3BF516736B9B597ABCD9D14E85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769634   (100641) от 29.12.2024
+
+Реми Майснер. Автодюринг. Третья беседа о вреде всяких революций. (2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем прогрессивному человечеству третью беседу о вреде всяких революций — продолжение разбора контрреволюционного ролика за авторством автоблогера Стаса Асафьева.
+На этот раз Автодюринг ведёт речь о российском парламентаризме, Первой Империалистической Волшебной Операции, земельном вопросе в России и первых декретах Советской власти.
+Слушаем, удивляемся, (   Читать дальше...   )Производство: Россия, Авторский блог Remi MeisnerЖанр: юмор, политикаЯзык озвучки: РусскийПродолжительность: 04:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5335008277D5C67CE1E5688EC7DA63146D8F1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769615   (100642) от 29.12.2024
 
 Алексей Птица | Мамба в Сомали (Книга 7). Чёрный передел (2024) [MP3, Александр Сидоров]
@@ -6,7 +80,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100642.jpg" />
 </div>
 
 
@@ -30,7 +104,7 @@ magnet:?xt=urn:btih:B2431D3DCCF55A19A3873C2B2AE8A30F7BA9C821
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100643.jpg" />
 </div>
 
 
@@ -54,7 +128,7 @@ magnet:?xt=urn:btih:0E923842E681CF24827C6C77AB3FDEB3AD17DF98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100644.jpg" />
 </div>
 
 
@@ -78,7 +152,7 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100645.jpg" />
 </div>
 
 
@@ -105,7 +179,7 @@ magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100646.jpg" />
 </div>
 
 
@@ -132,7 +206,7 @@ VA - The Best Of Suanda Chillout 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100647.jpg" />
 </div>
 
 
@@ -159,7 +233,7 @@ FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100648.jpg" />
 </div>
 
 
@@ -186,7 +260,7 @@ Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100649.jpg" />
 </div>
 
 
@@ -213,7 +287,7 @@ VA - Best Melodic & Progressive House 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100650.jpg" />
 </div>
 
 
@@ -240,7 +314,7 @@ magnet:?xt=urn:btih:5889B90102DE9A3DE7FD088B6C251D61C91E419B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100651.jpg" />
 </div>
 
 
@@ -264,7 +338,7 @@ Photo Studio PRO v2.7.12.3613 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100652.jpg" />
 </div>
 
 
@@ -288,7 +362,7 @@ magnet:?xt=urn:btih:2358D2EE733CE6749C7ED7FF353396D539DA9139
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100653.jpg" />
 </div>
 
 
@@ -315,7 +389,7 @@ magnet:?xt=urn:btih:C02E34812AD096CF4423E0622B1CAC9D4F91EA8D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100654.jpg" />
 </div>
 
 
@@ -339,7 +413,7 @@ magnet:?xt=urn:btih:6EF871CBB2BD418DE24715C2FA64AB1E75D80ADD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100655.jpg" />
 </div>
 
 
@@ -363,7 +437,7 @@ Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100656.jpg" />
 </div>
 
 
@@ -387,7 +461,7 @@ Ned Evett - Strange Kind Of Freedom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100657.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100658.jpg" />
 </div>
 
 
@@ -441,7 +515,7 @@ Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100659.jpg" />
 </div>
 
 
@@ -468,7 +542,7 @@ Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100660.jpg" />
 </div>
 
 
@@ -495,7 +569,7 @@ Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100661.jpg" />
 </div>
 
 
@@ -522,7 +596,7 @@ Mako - Virtual Blues II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100662.jpg" />
 </div>
 
 
@@ -549,7 +623,7 @@ Lance and Lea - Boots & Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100663.jpg" />
 </div>
 
 
@@ -576,7 +650,7 @@ Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100664.jpg" />
 </div>
 
 
@@ -590,81 +664,6 @@ Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769685   (100665) от 29.12.2024
-
-НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100665.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 декабря 2024, воскресенье. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 125 зрителей (94% при вместимости 20 270)
-Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5536893E203D073336BE7E4F5CB348D549AD9550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769683   (100666) от 29.12.2024
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Йорк Айлендерс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100666.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 декабря 2024, воскресенье. 03:30 МСК. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EEA2BA7CA3AA1E34204531EF0B683761CCC805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769468   (100667) от 28.12.2024
-
-Вражьи тропы (1935) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100667.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа И.Шухова "Ненависть".
-Посвящена популярной в то время теме коллективизации и раскулачивания. Сознательная беднота разоблачает кулаков-вредителей и начинает организовывать колхозы. Горе в семье богатея Епифана Окатова: решил глава семейства публично покаяться в "своей неразумной и вредной для советской власти жизни", отречься (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван Правов, Ольга ПреображенскаяАктеры: Михаил Нароков, Андрей Абрикосов, Борис Тенин, Эмма Цесарская, Марина Ладынина, Николай Плотников, Хаким Давлетбеков, Пётр Репнин, Александр Громов, Иван БобровСубтитры: отсутствуютПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D1F3D45AFC69BB525DDEE0334C3A5A224D2307
 ```
 
 

@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93138.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinMend System Doctor 1.6.0.0 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93145.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Le Salon de Sophie (Selected by RoseMary) (2011) [MP3|192-320 kbps]<Vocal J
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93207.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ DVDFab Passkey 8.0.5.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93208.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PH Electro - Stereo Mexico (2011) [MP3|320 kbps]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93239.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:AF5D02629A3B05058AC00398E6FC9941879543CA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93272.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93304.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93317.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cyklones - Paris By Night (2011) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93320.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ MC L.E. - Illegal (2006) [FLAC|Lossless]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93342.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Broken Mirrors - The Universal Disease (2012) [MP3|260-320 kbps]<Melodic Death M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93385.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F41790036C370571AE865C80AFD0AE66629460D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93407.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Doctor Butcher -  (1994-2005/2006) [MP3|320 kbps]<Progressive Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93425.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Ulf Wakenius - Vagabond (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop, Ethn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93434.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Trisquel GNU/Linux 5.0 (LXDE&NetInstall) [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93489.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Gravediggaz - 6 Feet Deep (Niggamortis) (1994) [MP3|320 kbps]<East Coast Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93492.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Various Artists - Rap Против наркотиков (2002) [MP3|320 kbps]<Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93496.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:587F9FE9EC89FA2577D1D1AC49A3525DB868BD32
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93502.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Trisquel GNU/Linux 5.0 (GNOME) [i686 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93514.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ IntroWert - Progressive Reason Episode 071 [13.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93516.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:D927B568EE27C139E23197556DEEBBEB7F5D454F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93522.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F0BF468FD32C594CD2C885DC4DAFB363A7E8E24F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93538.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93540.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93552.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ magnet:?xt=urn:btih:29A9B27D1115C74BEF6FB2488411DB62157D654F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93562.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ magnet:?xt=urn:btih:29A9B27D1115C74BEF6FB2488411DB62157D654F
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_93581.jpg" />
 </div>
 
 

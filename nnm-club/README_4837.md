@@ -1,3 +1,180 @@
+###  Публикация: 1086806   (149934) от 25.12.2016
+
+CopyLess 1.8.11 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149934.jpg" />
+</div>
+
+
+###  Подробнее
+
+СopyLess это продвинутый и гибкий менеджер буфера обмена. CopyLess, в отличие от системного буфера обмена, позволяет хранить до 100 элементов во всех форматах данных поддерживаемых Mac OS X. Он незаменим при работе с текстом, графикой, файлами или любыми другими форматами данных.
+
+С CopyLess нет необходимости переключаться между приложениями или окнами просто для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2016Разработчик: MaxborПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Русский, Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C8472C8A23B062B7E65037B2A733AA2402D5BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674386   (149935) от 18.11.2023
+
+The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер изобрел гениальное устройство: Смурфомикс! Однако ему не хватает ключевого компонента – Зеленого камня, которым завладел Гаргамель. Мастер и его команда отправляются в путешествие, чтобы забрать знаменитый камень из лаборатории Гаргамеля, однако из-за роковой ошибки камень взрывается, и его обломки разлетаются по Проклятым землям.Тип издания: LicenseРазработчик: OSome StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588829   (149936) от 14.12.2012
+
+Фотография - Фотограф Corwin Prescott
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Corwin PrescottРазрешение файлов: ~ 400x600 ~ 900x1350
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDF42FB4D76DEB0A642AD76E145C5713211865F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343803   (149937) от 18.11.2023
+
+Валентин Гафт | Уже от мыслей никуда не деться... (2010) [MP3, Валентин Гафт]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентин Иосифович Гафт (1935–2020) – советский и российский актёр театра и кино, театральный режиссёр, поэт.
+Детство, мухи, море, пепел, о чем только не передумаешь в поезде. Сколько же поэзии может быть в прозе жизни. Сколько нового, философского и личного – в самом обыденном. Дорогой слушатель, узнай же скорее, о чем размышляет любимый актер. Быть может, ты вспомнишь, (   Читать дальше...   )Жанр: Русская литература, поэзия, эпиграммыИздательство: ВимбоПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7442FC1D43BCA66891E5494A9A854984D0AC81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922051   (149938) от 25.12.2015
+
+День сурка / Groundhog Day (1993) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фил Коннорс – репортер, который отличается не только остроумием, но и чрезвычайной самовлюбленностью. Из года в год он приезжает в небольшой пенсильванский городок Панксатони, чтобы подготовить сюжет о празднике под названием День сурка. День сурка, который отмечают 2 февраля, - это день, когда сурок выходит из своей норки. В зависимости от того, увидит ли он свою (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: мелодрама, комедияРежиссер: Харольд РэмисАктеры: Билл Мюррей, Энди МакДауэлл, Крис Эллиот, Стивен Тоболовски, Брайан Дойл-Мюррей, Марита Герати, Анджела Пэтон, Рик Дукомман, Рик Овертон, Робин ДьюкПеревод: профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3527D82A701F8F7D79AD2BBA841A38F805FD0D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271133   (149939) от 23.12.2018
+
+Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149939.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Little Marie
+A2 Our Little Rendezvous
+A3 No Particular Place To Go
+A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519182   (149940) от 23.12.2021
+
+Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [4:06]
+02. Frenesi [3:38]
+03. Oh, What A Beautiful Mornin' [3:00]
+04. Groovy Day [3:43](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8570891D28E8EFD6191EBEC532E9CD03164A7A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086639   (149942) от 25.12.2016
 
 Расплата / The Accountant  (2016) BDRip [H.264/720p] [EN / EN Sub]
@@ -6,7 +183,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149942.jpg" />
 </div>
 
 
@@ -30,7 +207,7 @@ Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149943.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:D43EBE3E0156D407D4D5D884AE0A2EE89F32DEBE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149944.jpg" />
 </div>
 
 
@@ -82,7 +259,7 @@ Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Ca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149945.jpg" />
 </div>
 
 
@@ -109,7 +286,7 @@ magnet:?xt=urn:btih:33824410BF4377ED15E66284232CC3EE339121F5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149946.jpg" />
 </div>
 
 
@@ -133,7 +310,7 @@ magnet:?xt=urn:btih:1800D82D2A0383CCF5D96FFB87C67E7FA8EC2A33
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149947.jpg" />
 </div>
 
 
@@ -157,7 +334,7 @@ Zoom It 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149948.jpg" />
 </div>
 
 
@@ -183,7 +360,7 @@ magnet:?xt=urn:btih:86D0E9E7764A8539BFD4B3506D480CF34DBCE9FC
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149950.jpg" />
 </div>
 
 
@@ -207,7 +384,7 @@ VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149951.jpg" />
 </div>
 
 
@@ -234,7 +411,7 @@ VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149953.jpg" />
 </div>
 
 
@@ -261,7 +438,7 @@ magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149955.jpg" />
 </div>
 
 
@@ -285,7 +462,7 @@ magnet:?xt=urn:btih:C8F0F0881379591BEF209324C10B92E22898A7BD
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149956.jpg" />
 </div>
 
 
@@ -312,7 +489,7 @@ Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149957.jpg" />
 </div>
 
 
@@ -339,7 +516,7 @@ magnet:?xt=urn:btih:1337EDB5D150B9BA0B83C95859B74025E568952B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149958.jpg" />
 </div>
 
 
@@ -363,7 +540,7 @@ magnet:?xt=urn:btih:FEB465DA18C5658B171A17D8618AEA45F25B90D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149960.jpg" />
 </div>
 
 
@@ -387,7 +564,7 @@ Rob Papen - RP-VERB 2 1.0.0d VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149961.jpg" />
 </div>
 
 
@@ -412,7 +589,7 @@ magnet:?xt=urn:btih:91135BFD9CFA52FC7C7A352270960A8D2EEA2579
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149962.jpg" />
 </div>
 
 
@@ -436,7 +613,7 @@ magnet:?xt=urn:btih:CF5DDA345AA844F8C1E6659C3A03296DA854ADA0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149963.jpg" />
 </div>
 
 
@@ -460,7 +637,7 @@ magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149964.jpg" />
 </div>
 
 
@@ -471,180 +648,6 @@ magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2E903E93D227E207F5C3349C598BEC4FFDF732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968983   (149965) от 25.12.2015
-
-HashMyFiles 2.17 Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита может быть полезна многим, кто любит сверять контрольные суммы, программа может вычислить контрольную сумму как одного файла так и сразу целой группы, при этом она делает это по многим популярным алгоритмам. HashMyFiles умеет работать конечно же с MD5, CRC32 и SHA1, на сегодняшний день этого вполне достаточно, чтобы точно сверить контрольную сумму и быть (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1588C4B4FCDF549C8F5B781B6D569B07259E8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434687   (149966) от 25.12.2020
-
-Виктор Кудлачёв, Ирина Фоменкова | Советы Мага Гантелькина (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маг Гантелькин не умеет парить над землёй, не размахивает волшебной палочкой и не варит по ночам колдовское зелье. Маг Гантелькин помогает людям а любить спорт и вести здоровый образ жизни! В этом его магическая сила: человек болеет и часто грустит, а потом р-р-раз – и забывает о простудах навсегда, утром делает зарядку и всегда в отличном настроении. Чудо!
-В стихах (   Читать дальше...   )Жанр: Детская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F206FC5002BC645867851851BA3B79597489E4E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519177   (149967) от 23.12.2021
-
-VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Paterson - Connecting The Dots, Continuous Mix (1:31:21)
-02. Mohn - Schwarzer Schwan (6:17)
-03. Klimek - Milk (Edit) (6:39)
-04. Michael Mayer - Pensum (Markus Guentner Mix) (5:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0D8F4FDFEDCD8549E76B4A905A438B11B33D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519359   (149969) от 23.12.2021
-
-XCap 1.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D82B479ADFFDAEA7C82C4B33B4DB62F1D271D26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829915   (149970) от 25.12.2015
-
-Bird Mail PRO 2245.97 [Ru/Multi] - Почтовый клиент
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почтовый клиент для телефонов и планшетов. Поддерживаются все разрешения экранов.Тип издания: ПираткаРелиз состоялся: 25.12.15Разработчик: Dewords.orgПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский-Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9102CEB5DBC7608DE497CBEC286E9991CD47C1F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434739   (149971) от 25.12.2020
-
-Татьяна Комзалова | Читаем сами. Лесная красавица. Новогодние сказки (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодние сказки: Удивительный портрет, Лесная красавица и Лесной карнавал.
-Для дошкольного и младшего школьного возраста.
-Художник-иллюстратор: С. Самсоненко.Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA21BB76AFAEB452D4B550AFCF2146AA4D0A827
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589337   (149973) от 14.12.2012
-
-Как по маслу / Butter (2011) [1080p] Blu-Ray
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149973.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме переплетено несколько сюжетных линий, отчаянный юмор о сексе и политике, и… много скульптур из сливочного масла.Жанр: КомедияРежиссер: Джим Филд СмитАктеры: Дженнифер Гарнер, Тай Бурелл, Оливия Уайлд, Роб Кордри, Эшли Грин, Алисия Сильверстоун, Хью Джекман, Кристен Шааль, Прюитт Тэйлор Винс, Филлис СмитПеревод: Многоголосый закадровыйЯзык субтитров: английские, испанскиеПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 

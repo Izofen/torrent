@@ -1,3 +1,75 @@
+###  Публикация: 1631577   (236271) от 06.05.2023
+
+Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Better Automated Tests (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_236271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы создадите фреймворк автоматизированного тестирования xUnit с помощью JavaScript: изначально это будет клон Jest, но с добавлением нескольких изящных функций, заимствованных из RSpec, определяющего жанр инструмента для поведенчески-ориентированной разработки (BDD). Попутно вы изучите философию, лежащую в основе лучших практик автоматизированного тестирования. Программа (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630992   (236277) от 04.05.2023
+
+Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начиная с истории создания запросов и программирования на T-SQL, книга также включает: логическую обработку запросов, конструкции запросов (запросы к одной таблице, объединения, подзапросы, табличные выражения, операторы набора, анализ данных), модификации данных, временные таблицы, транзакции и параллелизм, SQL Graph (совершенно новый для этого издания), а также (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630457   (236292) от 04.05.2023
+
+Дж. Гай Дэвидсон, и др. | Beautiful C++ 30 Core Guidelines for Writing Clean, Safe, and Fast Code (2021) [PDF, EPUB][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_236292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написание качественного кода на C++ не должно быть трудной задачей. Если разработчик будет следовать рекомендациям, приведенным в C++ Core Guidelines, то он будет писать исключительно надежные, эффективные и прекрасно работающие программы на C++. Но руководство настолько переполнено советами, что порой трудно понять, с чего начать. Начните с «Красивого C++»! Опытные (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548941   (237538) от 04.05.2022
 
 Мод Лемер | Масштабируемый рефакторинг. Возвращаем контроль над кодом (2022) [PDF]
@@ -6,7 +78,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237538.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237538.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238646.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_238646.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239568.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_239568.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240016.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240364.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241850.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241958.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241958.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241969.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242909.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243681.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_243683.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_243683.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_244242.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244574.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244574.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244862.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244862.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245405.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245405.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245475.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245475.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245495.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245495.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245843.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245843.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246203.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246833.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_246833.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247034.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247034.jpg" />
 </div>
 
 
@@ -516,7 +588,7 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247142.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247142.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247256.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247256.jpg" />
 </div>
 
 
@@ -553,81 +625,6 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640906   (247492) от 19.06.2023
-
-Р.В. Сеттер | Изучаем Java на примерах и задачах (+CD) (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247492.jpg" />
-</div>
-
-
-###  Подробнее
-
-озникновение языка Java приходится на драматичное время, когда бурно развивался Интернет и началась так называемая «война браузеров». Первоначально он предназначался для программирования бытовой техники, например холодильников, микроволновых печей, стиральных машин, электронных записных книжек, видеомагнитофонов и т. п.
-Программное обеспечение для бытовой электроники (   Читать дальше...   )Жанр: Компьютерная литература
-b]Формат:
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640222   (247506) от 18.06.2023
-
-Джордж Хайнеман | Алгоритмы. С примерами на Python (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда нужно, чтобы программа работала быстро и занимала поменьше памяти, профессионального программиста выручают знание алгоритмов и практика их применения. Эта книга - как раз про практику. Ее автор, Джордж Хайнеман, предлагает краткое, но четкое и последовательное описание основных алгоритмов, которые можно эффективно использовать в большинстве языков программирования. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640120   (247550) от 16.06.2023
-
-Джон Мэннинг, Пэрис Баттфилд-Эддисон | Head First. Изучаем Swift (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swift известен как язык разработки приложений, выбранный компанией Apple для iOS, iPadOS, macOS, watchOS и tvOS. Но этим его применение не ограничивается. Swift с открытым кодом набирает популярность как язык системного программирования и программирования на стороне сервера, его используют и в Linux, и в Windows. С чего же начать?
-«Head First. Изучаем Swift» охватывает (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е. МатвеевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 ```
 
 

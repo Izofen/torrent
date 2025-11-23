@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_922.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_923.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:44788FE55997FB46D26E4C525E3A465110C7D00D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_924.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F0A576D3CFB89622D38939CACB9A9907FC70752B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_925.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.3.3f1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_926.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:ACFE649186AB6344C945DDD732D4F791F2CFC997
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_927.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_928.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B4BA00A0DA1DA5DDF9F898D817FD36DFA61CDE7C
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_929.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_930.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sР
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_931.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_932.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:25BB59F14B6B634C5B4E77984226654AA82EBD3D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_933.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:8B4BCEDBA0DECEF51A23539C289EC698962BAEF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_934.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:FD861B43E921035B87E8EA44D9C92D9CE05BF300
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_935.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dying Light The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Let'sРlay [Deluxe Editi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_936.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:807579930906A2EEC7209B00EC833ABCB928EB1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_937.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:360ADCEBAB7D2E5A469B754DE90BDFDF3A45742A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_938.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:69108D541954C0AE3731604C1572AC1AC9336E82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_939.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.38/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_940.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:6F5AA91DADE71EEFC15D4D6D237AADC3835D66D1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_941.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28750) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_942.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_943.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Filippo Bianchini - Mood Indigo (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_944.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dave Weld & The Imperial Flames - Bluesin' Through the Years (Remastered) (2025)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_945.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Karina Kozhevnikova & Krugly Band - Polyphonic Circle (2025) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_946.jpg" />
 </div>
 
 

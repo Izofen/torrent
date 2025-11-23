@@ -1,3 +1,75 @@
+###  Публикация: 1688326   (125268) от 29.12.2023
+
+Банда «ЗИГ ЗАГ» (2023) WEBRip [H.264/720p] (сезон 1, серии 1-10 из 10)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал основан на реальных событиях зимы 1941 года. Великая Отечественная война. Запасы продовольствия иссякли, поставки были заблокированы. Осажденный город умирал от голода: в сутки служащим, иждивенцам и детям выдавали по 125 г хлеба. Именно тогда в Ленинграде появилась банда, промышлявшая мошенничеством и грабежами. Преступники в основном занимались подделкой (   Читать дальше...   )Производство: Россия | «Star Media»Жанр: Детектив, боевик, историяРежиссер: Виталий ВоробьевАктеры: Игорь Петренко, Александр Устюгов, Олег Филипчик, Сергей Белов, Сослан Фидаров, Денис Константинов, Роман Синицын, Алексей Потапов, Павел Трубинер, Екатерина ВилковаПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B26EE0A895379A65F9D44926EBE790E80C9C9B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688291   (125269) от 29.12.2023
+
+Список перемен / Sealed with a List (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125269.jpg" />
+</div>
+
+
+###  Подробнее
+
+С наступлением праздничного сезона Карли решает изменить свою жизнь, сделав всё, о чём она так давно мечтала. Но девушке не хватает уверенности в себе, поэтому она просит о помощи своего коллегу по работе и давнего соперника Уайта. Они заключают договор, который поможет им не только осуществить свои мечты, но и обрести любовь.Производство: США / Basset Hound Distribution, Timeless PicturesЖанр: мелодрамаРежиссер: Люси ГестАктеры: Кэти Финдлей, Джейсон Асунсьон, Джей Брейтуэйт, Мартин Донован, Мадонна Гонсалес, Sean Hara, Б.Дж. Харрисон, Элли Харви, Sofia Hodsoni, Arjun MalikПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA9E2F690A99468EB69BE27C295FF6B2961FA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 71126   (125270) от 29.12.2023
+
+Убойная парочка - Старски и Хатч / Starsky & Hutch (2004) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэйв Старски - самый крутой и энергичный коп в Бэй-Сити, готовый до изнеможения гнаться за воришкой, укравшим жалкие восемь баксов. Кен Хатчинсон по прозвищу Хатч - жуликоватый агент под прикрытием, большой любитель проволынить и урвать неправедно нажитый доллар. Во всем городе нет двух более разных людей, но начальству, сделавшему их напарниками, виднее. Поначалу (   Читать дальше...   )Производство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Тодд ФиллипсАктеры: Бен Стиллер, Оуэн Уилсон, Снуп Догг, Фред Уильямсон, Винс Вон, Джульетт Льюис, Джейсон Бейтмен, Эми Смарт, Кармен Электра, Джордж Чунг, Крис Пенн, Бранд Родерик, Молли Симс, Мэтт Уолш, Джеффри Лоренцо, Шон Тиллман, Пэттон Освальт, Пол Майкл Глейзер, Дэвид Соул, Дэн Финнерти, Джернард Буркс, Омар Дж. Дорси, Прамод Кумар, Род Тейт, Ричард Эдсон, Рэймонд Ма, Терри Крюс, (   Читать дальше...   )Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058362206EBDAF971346CFA99D591F181D9F7C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688382   (125271) от 29.12.2023
 
 Отвязные дворняги / Strays (2023) WEB-DL [H.265/2160p] [Dolby Vision, Profile 8, HDR10, 10-bit]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125271.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:760AFFF63411DAA823260A0121CA2FC0689A2D91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125272.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:E3B10D839C825B9D6F676A6B4597F454B89B1830
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125273.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:D573A4C2C6338D135EE2B6C882C2215C453D9FAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125274.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:60DE3C43B57EE6E004BE1C43B86A3DC6C7EBD010
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125275.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ magnet:?xt=urn:btih:FC1737566B5446E4B78CB9AE2B8FF9F0FCA46F9C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125276.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:5CB0E7E44D6357629758F50CC6BE4DF1F9D605F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125279.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ The Professor Underfunk - Just Build It (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125280.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ The Paul Cook Blues Band, Katie Bradley - I Spy (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125281.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125282.jpg" />
 </div>
 
 
@@ -308,7 +380,7 @@ magnet:?xt=urn:btih:35FF7F04AFB4BA4C36D7F17631378D6D869FDE6A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125283.jpg" />
 </div>
 
 
@@ -332,7 +404,7 @@ magnet:?xt=urn:btih:624F046A8FA6C9AF67A5B05EE1508F208EECA4B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125284.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ The Lazy Tones - Laundry Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125285.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ Dominum - Hey Living People (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125287.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125288.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125289.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125290.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:1623CBFED844A1D1108056634E2841DB135900CF
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125291.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125292.jpg" />
 </div>
 
 
@@ -571,7 +643,7 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125293.jpg" />
 </div>
 
 
@@ -585,87 +657,6 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43035CDA3E0611257655605582A219372D0134D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688154   (125294) от 28.12.2023
-
-Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleigh Ride
-02. Skating
-03. This Christmas
-04. Santa Baby(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B486C787130A3F61D7B8A73E3036CC69362BA417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688122   (125295) от 28.12.2023
-
-Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La vague [6:19]
-02. Back on the Beat [5:11]
-03. Life Is a Movie [6:03]
-04. Les paradis perdus [5:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC35047B627C293E75005FE027205A42875C9220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688176   (125296) от 28.12.2023
-
-The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Knows You When You're Down and Out (feat. Sandi King) (2:34)
-02. One Scotch, One Bourbon, One Beer (feat. Stacy Antonel) (3:39)
-03. Parchman Farm Blues (feat. Steve Gouveia) (2:06)
-04. Quarter To Three (feat. Shelle Blue) (2:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
 ```
 
 

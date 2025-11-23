@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38269.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:23B4361B38BBEC3CAA0E28287EDE32CE0CBEEDCB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38288.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9B70229C293C8DBC8F0E12654B3F69B3BED5CBE3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38314.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Золотая песня года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38323.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Лучшие дуэты года 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38923.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:8AD1E99B2E445DAAE60A61287AFEC54C493E1425
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40276.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:9E9C94C88EA25997E91C42259FEC238C258281E9
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40654.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Новые хитовые песни 2024, Часть 10 (2024) [FLAC|Lossl
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41064.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Самые душевные песни русского шансона 3 (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41162.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Шансон для пацанов (2024) [FLAC|Lossless|WEB-DL|tracks] <Ш
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41869.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Лучшие хиты шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41907.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Хитопад шансона (2024) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41911.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Самые новые песни о любви 6 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42524.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4CF517525115CCB6DDEF3413D5B1E27D059CE441
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42530.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Шансон премьера 2024 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42558.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Самые душевные песни русского шансона 2 (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43681.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:CBDC9E60FB6EEEE9DC02D5EF0BCF794D5BD45110
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43820.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Новые хитовые песни 2024, Часть 9 (2024) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44003.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [MP3|320 Kbp
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44703.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44724.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Ништяк, браток! (Лучшее и новое) (2005) [MP3|320 Kb
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44744.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F8F09C69BAC23FAA5A84CB0E03A7E590CEABCB60
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45022.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:B6C36A6FB5C89B3B16CB75D2915EC43A860FEDD6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45203.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3F8C8B72FEFE434571BD049CE0C17F4258585D1F
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45237.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Шансон премьера 2024 август (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45447.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45447.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Самые новые песни о любви 5 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45449.jpg" />
 </div>
 
 

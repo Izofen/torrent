@@ -1,3 +1,84 @@
+###  Публикация: 1697276   (119080) от 05.02.2024
+
+Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Pride & Joy Music [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control Yourself (4:08)
+02. Back Again (4:19)
+03. Shanghaid (3:50)
+04. Lost (4:40)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2023C54D7507E0C8212BD4E36779BD14BFE9E031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697183   (119081) от 05.02.2024
+
+Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want Your Soul (5:06)
+02. Day by Day (4:09)
+03. Sometimes (4:03)
+04. Mother (5:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11557F08B6B547F76CE45AB85CD7086C0A7399F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697195   (119082) от 05.02.2024
+
+Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119082.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ravnens Banner
+A2 Frosne Vind
+A3 Må Du Brænde I Helvede
+B1 Latvian Fegurð(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C74709662552E4386128EF8CA6785B40D02CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697244   (119083) от 05.02.2024
 
 Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +87,7 @@ Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119083.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Bookends 14.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119084.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119085.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ The Soulless - Isolated (2011) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119086.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Scrutiny 12.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119087.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119088.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119089.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119090.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ magnet:?xt=urn:btih:A47165E1831C78179CDAF20CC973A8781AE786C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119091.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ magnet:?xt=urn:btih:572F79B3D3667C35261CA834ABD8AAC5906B74EF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119092.jpg" />
 </div>
 
 
@@ -262,7 +343,7 @@ magnet:?xt=urn:btih:E6FF70F832327052A3C96B3741A0F237B5C82DC1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119093.jpg" />
 </div>
 
 
@@ -289,7 +370,7 @@ Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119094.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ Glary Tracks Eraser 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119095.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ magnet:?xt=urn:btih:4FE356A15F71965A93A7FA9033DA973C7C06CB41
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119096.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119097.jpg" />
 </div>
 
 
@@ -391,7 +472,7 @@ Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119098.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ magnet:?xt=urn:btih:D835B8CE20D3BEA2A63C5BEE74C87085E34D759A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119099.jpg" />
 </div>
 
 
@@ -442,7 +523,7 @@ magnet:?xt=urn:btih:FDD89E558502DF049B3D4613B6C36D219F336A1E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119100.jpg" />
 </div>
 
 
@@ -467,7 +548,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119101.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ magnet:?xt=urn:btih:7C2227EC8E51068A492A66FE5CA52444DCB0B707
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119102.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119103.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ Text Editor Pro 28.4.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119104.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119105.jpg" />
 </div>
 
 
@@ -584,86 +665,6 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E57E4381BC86F9D5810FBE27D32C2834443BFF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697271   (119106) от 05.02.2024
-
-Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Stranger In Town (00:05:01)
-02 - We Born To Die (00:04:08)
-03 - Long Way To The Darkness (00:07:51)
-04 - Crossroad (00:08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E175C2783F4B8758E3602EAB5E57BC4BDCAFE77B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696910   (119107) от 05.02.2024
-
-Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мельбурнский квинтет Acolyte занимает видное место на австралийской музыкальной сцене как мощный и исследовательский представитель современной прогрессивной музыки, создающий яркий музыкальный ландшафт театральных мелодий, сокрушительных риффов, высоких соло и образцовой технической музыкальности.2016 - Shades of Black
-2021 - Entropy
-.Жанр: Progressive Metal, Prog RockПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6227DBFF2E1CD0143806A6224B37846455483A2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696893   (119108) от 05.02.2024
-
-Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zindagi Se Badi Sazaa Hi Nahi (11:21)
-02. Na Urooj De (11:52)
-03. Yeh Inayatein Gazab Ki (11:10)
-04. Kahan Aake Rukne the Raaste (11:03)(   Читать дальше...   )Жанр: WorldПродолжительность: 02:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
 ```
 
 

@@ -6,7 +6,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SyMenu 8.01.8833 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WSCC (Windows System Control Center) 7.0.8.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59413.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59413.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0BFA4055E503A8C8A9B6949FD03C1E8669BA15FD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59414.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DBA82A2C268E675C0E2FAE413142967861D87A7A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59415.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ IObit Driver Booster Pro 11.4.0.57 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59416.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:05CC2F21E334986CF2B30F57F605F9907CE24261
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59417.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59418.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3BCE45F09BA42DCD09800D3EC7B13E03D8D9171F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59419.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:44691EC318A30195918517CB7FF1C7F592021241
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59420.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:673CC940778D6A92342DC2A8DF64921B01FD86B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59421.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59422.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59423.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:D86163BA4014670BCFD7C4192C33BF366A175D6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59424.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:D86163BA4014670BCFD7C4192C33BF366A175D6D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59425.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59426.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:8F05A048DEC954FE7ED5A8B2A293F83614D68E1E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59427.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:8B0EC9DFBFAFE84E4CD672F1932D31ABA11303F4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59428.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D205B8B6671011E3C486591F4573BE21B130B9BD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59429.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Topaz Video AI 5.0.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59430.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:25D6F7F88FEC98008A042569E99E798209BC771C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59431.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:23CCCDACE381FC28A92A5957F6470E24E8744E49
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59432.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:DDCD1E647097E6C5C79BAD158488C2FD196169B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59433.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:DDCD1E647097E6C5C79BAD158488C2FD196169B4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59434.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:ECCB3202FF13B59B209D67175ECF53B5B1B90179
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59435.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59436.jpg" />
 </div>
 
 

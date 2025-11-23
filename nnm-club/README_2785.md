@@ -1,3 +1,86 @@
+###  Публикация: 458297   (78526) от 26.02.2012
+
+Феликс Х. Пальма | Карта времени [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман «Викторианской трилогии».
+
+Роман испанского писателя Феликса Пальмы "Карта времени" можно назвать историческим, приключенческим или научно-фантастическим - и любое из этих определений будет верным. Действие происходит в Лондоне конца XIX века, в эпоху, когда важнейшие научные открытия заставляют людей поверить, что они способны достичь невозможного (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE98B397B8297AEC3B6FF830A64EA21C8DBB5C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457902   (78529) от 26.02.2012
+
+Граница рассвета / La frontière de l'aube (2008) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотограф Франсуа на съемках знакомится с актрисой Кароль, между ними вспыхивает роман, который обрывает возвращение мужа из долгой зарубежной поездки. Кароль не в состоянии избавиться от своей страсти, однако попытки вернуть любимого тщетны. Актриса кончает жизнь самоубийством, а накануне свадьбы Франсуа является к нему отражением в зеркале и навсегда лишает его покоя, ведь он должен принадлежать только ей.Жанр: МелодрамаРежиссер: Филипп ГаррельАктеры: Луи Гаррель, Лаура Смет, Клементин Пуадац, Оливье Массар, Жером Робар, Эммануель Брош, Седрик Вийера, Станислас Станич, Владислав ГалардПеревод: Многоголосый закадровыйПродолжительность: 1:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2DFE1B1F182E4DF6913BEF49667065B1E97B3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457687   (78541) от 26.02.2012
+
+Елена Ваенга - Белая птица (2011) [FLAC|Lossless]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аэропорт  (3:15)
+02. Говори, говори... (4:28)
+03. Тайга (4:50)
+04. Белая птица (4:02)
+05. Радуга (3:27)
+06. Косолапая любовь (3:04)
+07. Жаль (3:13)
+08. Золотая рыбка (2:52)
+09. Ягода (3:31)
+10. Тополя (3:43)(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458610   (78543) от 26.02.2012
 
 Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [MP3|320 кб/с]<Sympho Metal>
@@ -6,7 +89,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78543.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ magnet:?xt=urn:btih:E3AF2B8F370FE0A5EBC3163808C8D75723563B51
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78547.jpg" />
 </div>
 
 
@@ -57,7 +140,7 @@ VA - Fisher-Price. Tender Lullabies (2005) [MP3|320 кб/с]<Музыка для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78548.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ Spotmau Power Suite Golden Edition 2012 v7.0.1 & Portable  / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78549.jpg" />
 </div>
 
 
@@ -108,7 +191,7 @@ Spotmau PowerSuite 2012 - мощный набор инструментов, со
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78553.jpg" />
 </div>
 
 
@@ -132,7 +215,7 @@ magnet:?xt=urn:btih:3D67C39027F41C2106D4E2A65405025EF3D9B850
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78554.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ Animals as Leaders - 2 Albums (2009, 2011) [FLAC|Lossless]<Progressive/Math Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78555.jpg" />
 </div>
 
 
@@ -198,7 +281,7 @@ Timely, Atlas Comics | Коллекция комиксов [1940-1950] [CBR, CBZ
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78558.jpg" />
 </div>
 
 
@@ -222,7 +305,7 @@ magnet:?xt=urn:btih:ADB5BDBBC347141AF8BAEFD1D066637641F4612A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78565.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ magnet:?xt=urn:btih:59BCFA8F2C7676CAEC3CAEA4CFD0D628398F8E65
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78569.jpg" />
 </div>
 
 
@@ -270,7 +353,7 @@ magnet:?xt=urn:btih:B2C26C7F4CD127E25A4D7E156A4B4724CC7283EB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78574.jpg" />
 </div>
 
 
@@ -294,7 +377,7 @@ magnet:?xt=urn:btih:B2C26C7F4CD127E25A4D7E156A4B4724CC7283EB
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78577.jpg" />
 </div>
 
 
@@ -318,7 +401,7 @@ magnet:?xt=urn:btih:6B73D0D6DA43A6698EE0CE10F0965E81BE48D9EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78584.jpg" />
 </div>
 
 
@@ -342,7 +425,7 @@ Daum PotPlayer 1.5.32007 Stable & Portable by SamLab + 164 Skins / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78590.jpg" />
 </div>
 
 
@@ -375,7 +458,7 @@ Daum PotPlayer - мультимедийный проигрыватель, ана
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78593.jpg" />
 </div>
 
 
@@ -401,7 +484,7 @@ AVG Anti-Virus Pro 2012 SP1 RC ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78596.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ Kaspersky World 1.3.0.11 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78602.jpg" />
 </div>
 
 
@@ -455,7 +538,7 @@ Kaspersky World 1.3.0.11 [Multi/Rus]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78613.jpg" />
 </div>
 
 
@@ -480,7 +563,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78614.jpg" />
 </div>
 
 
@@ -506,7 +589,7 @@ DiskWarrior Boot DVD 4.4 rev. 1102 [Eng]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78627.jpg" />
 </div>
 
 
@@ -532,7 +615,7 @@ magnet:?xt=urn:btih:CD1BFFB90CDD1F33E10FBB4875E5C43C61FD57BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78629.jpg" />
 </div>
 
 
@@ -556,7 +639,7 @@ magnet:?xt=urn:btih:DB199A63AF1B5A42B889C59DD133C9CEB66A162F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78633.jpg" />
 </div>
 
 
@@ -581,7 +664,7 @@ magnet:?xt=urn:btih:6ED712304C91059BE1FF0684B408B5B8AFF05FCB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78637.jpg" />
 </div>
 
 
@@ -592,83 +675,6 @@ magnet:?xt=urn:btih:6ED712304C91059BE1FF0684B408B5B8AFF05FCB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331B5B7EAE99CEFAE98E511F60B2A6F45389D956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458639   (78639) от 26.02.2012
-
-WinZip 16.0.9715r Pro Final / Офрелиз Rus
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78639.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinZip — самая первая и одна из самых популярных утилит сжатия данных. Это мощный и простой в использовании инструмент, с помощью которого можно быстро выполнить сжатие файлов или вернуть их в исходное состояние, чтобы сэкономить место на диске и значительно сократить время передачи сообщений электронной почты. Работает с CAB, TAR, gzip, UUencode, XXencode, BinHex, и MIME форматами, и ZIP. Кроме этого, с помощью внешних программ может работать с файлами ARJ, LZH и ARC. Возможности программы включают представление изображений в виде пиктограмм и автоматический выбор метода сжатия, а также улучшенное сжатие аудиофайлов и поддержку открытия BZ2 и RAR-файлов. Дополнительно доступна функция расширенного резервирования и новое встроенное средство просмотра изображений, с помощью которого можно просматривать несколько изображений в Zip-файле.
-
-Основные возможности:
-» Создание, дополнение, извлечение из архивов ZIP.
-» Настраиваемая интеграция в оболочку Windows Microsoft.
-» Поддержка 128- и 256-битных ключей шифрования (   Читать дальше...   )Название программы: WinZip 16.0.9715r Pro  Final / Офрелиз RusЯзык интерфейса: русский+английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312482   (78642) от 26.02.2012
-
-Журнал | Чудесный крючок. Красиво и легко! №1-56 [HQ + LQ] (2011-2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция «Чудесный крючок. Красиво и легко!» — это простой и доступный способ освоить искусство вязания крючком. С каждым номером вы сможете научиться различным способам вязания крючком, а также познакомитесь с новым узором, выполнение которого представлено пошагово с помощью простых объяснений и фотографий. В каждом выпуске предлагаются прекрасные модели для вас (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458617   (78645) от 26.02.2012
-
-Дом на краю (2011) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна, современная деловая женщина, живет со своим мужем-писателем в богатом доме на Рублево-Успенском шоссе. Обеспеченная жизнь без забот, но некогда семейное счастье просто рассыпается на глазах: Анне приходится спонсировать тираж детективных историй мужа, мириться с его завышенным самомнением, решать проблемы с первым мужем и терпеть измену любимого мужчины с ее собственной сестрой.Жанр: Драма, КриминалРежиссер: Владимир ЧубриковАктеры: Анастасия Заворотнюк, Дмитрий Исаев, Марина Правкина, Сергей Астахов, Владислав Соловьев, Михаил Мамаев, Антон Хомятов, Сергей Дружко, Валентин ТереховПеревод: оригинал (Русский)Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35D814AE80D7E7090DDADEE12223594BCEB4115
 ```
 
 

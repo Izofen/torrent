@@ -6,7 +6,7 @@ Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135335.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135341.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135342.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135345.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135351.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135353.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135361.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135363.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135375.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135384.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135390.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135404.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135406.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135441.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135441.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135454.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135628.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135628.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135640.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135640.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135648.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135688.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135951.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pantera - Vulgar Display Of Power (1992) 20th Anniversary Edition / Rhino, 2012/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136130.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136130.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136183.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136249.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136249.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Saturnus - Saturn In Ascension (2012) [FLAC|Lossless]<Melodic Metal, Doom/Death 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136408.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136517.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ Cephalic Carnage - Xenosapien (2007) [WavPack|Lossless]<Brutal Death Metal / Gri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136534.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136534.jpg" />
 </div>
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1721634   (110006) от 08.05.2024
+
+Дмитрий Леонидович | Попавший в некроманта (Книга 2). Сэр студент (2023) [MP3, Александр Воробьев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так ли весело и просто учиться в магической академии, даже если ты имеешь титул, деньги и сильный дар? Если ты не готов принять роль сверчка, который тихо сидит на своем шестке, – у тебя проблемы.Или у твоих недоброжелателей проблемы.В общем, у кого-то точно будут проблемы.Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 09:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A79C8A23BA3E73447B5730DD18841D263033BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721589   (110007) от 08.05.2024
+
+Icecream Video Editor Pro 3.19 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Video Editor - простой редактор видео для Windows. Наша программа для монтажа видео позволит редактировать и создавать новые ролики из фото и видео. Добавляйте переходы, обрезайте видео, объединяйте видео и фото, добавляйте заголовки, фоновое аудио и визуальные эффекты.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33B8939D98A1930CAD57B353E55737BE84C218C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721649   (110008) от 08.05.2024
+
+Валерий Шарапов | Тени возмездия (2024) [MP3, Олег Томилин]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Враг умен и хладнокровен. В его арсенале – логика, упорство и точный расчет. Он уверен, что знает, как победить нас в этой схватке. Но враг не учитывает одного: на его пути стоят суперпрофессионалы своего дела, люди риска, чести и несгибаемой воли – советские контрразведчики...Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 07:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6E4CFC95F3AE94AA4692C67331CFBDC77B3B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721587   (110009) от 08.05.2024
 
 Process Lasso Pro 14.0.3.16 [Multi/Ru]
@@ -6,7 +78,7 @@ Process Lasso Pro 14.0.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110009.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:0D5174DD7B9AD4707F0824F6A12D0DD74FB9C49A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110010.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:07DE7413C4C2CB1DAB083AFAD3C9E371A73E6BA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110011.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Wise Care 365 Pro 6.7.2.645 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110012.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Audio Damage - Replicant 3 3.0.9 VST 3, CLAP, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110013.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ FanControl V189 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110014.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ Skype 8.119.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110015.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:1B201CF60EE9F184873A450440D69A3565BA69F4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110016.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ HDCleaner 2.071 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110017.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:3558243374DFA75BCFEE7825B09D888703BDC0C8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110018.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:0816640A0A535285C0CCEE5F982516D09B7E13AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110019.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Matt Page - Apocalypse Garden (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110020.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:5CE62DF291CE9168C8919EB6EDDAFC97CD061F72
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110021.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Aeonblack - The Time Will Come (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110022.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ King of None - In the Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110023.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ Bilwis - Hameln (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110024.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ Prave Factum - «Мир» для всех (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110025.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ Bilwis - Sagenwelt (2020) EP, Released, 2021, Northern Silence Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110026.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ magnet:?xt=urn:btih:55249641EB59FA3E8C5B42BD5B76652154892BD0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110027.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ Marisa And The Moths - 3 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110028.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:B4B8BFE50A65CD27FE71E089728CA95F5F7B78BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110029.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ New Order - Power, Corruption & Lies (1983) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110030.jpg" />
 </div>
 
 
@@ -572,7 +644,7 @@ VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110031.jpg" />
 </div>
 
 
@@ -586,87 +658,6 @@ VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2678C3CD65B92F0615F9B44453D0DA846773B50E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721514   (110032) от 07.05.2024
-
-The Inner Me - Rosabelle Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immigration (04:56)
-02. I am magic (05:05)
-03. Far away from light (06:02)
-04. Dime show (05:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B502A1FC9080EF417466C0149D8EC2E854B6C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721500   (110033) от 07.05.2024
-
-VA - Seaside Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup, Evamaria Linnet - Faces (3:32)
-02. Calmabohain - So Far Away (Sa Trinxa Edit) (4:45)
-03. Luis Hermandez - Todo el tiempo (4:00)
-04. Weber & Weber - Fly On Wings (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4412A1437D018D619375C91D3E7F5D97D84510A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721487   (110034) от 07.05.2024
-
-Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004 - 2024) (2024) Live [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodtale
-02. Tales From The North
-03. Slayer Of Kings
-04. In The Name Of Metal(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACF9DB491A462797BC63563A9FB7A8C0B3C8BA8
 ```
 
 

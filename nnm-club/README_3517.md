@@ -1,3 +1,80 @@
+###  Публикация: 1717810   (111124) от 21.04.2024
+
+VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONGOA - Eternal (No Beat Mix) (4:54)
+02. Peter Pearson - Calming Influences (Original Mix) (3:28)
+03. Okira - Morning Sun (Ambient Version) (4:27)
+04. Aiko Katana - Hope in the Air (4:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D925D074287F0ABC183D42786C1EFED2BB31D7E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717617   (111125) от 21.04.2024
+
+Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Dance, Pop Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nova Scotia – Everytime We Touch (Original mix) (3:55)
+02. Nova Scotia – Everytime We Touch (DJ Oskar rmx) (5:49)
+03. Nova Scotia – Everytime We Touch (DJ Oskar short mix) (4:57)Жанр: Club-Dance, Pop TranceПродолжительность: 00:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A524EE72324F074D55AA763FA03C63EF67F26B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717595   (111126) от 21.04.2024
+
+Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Trance, Euro-House, Scouse House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nova Scotia – Think About The Angels (5:04)Жанр: Pop Trance, Euro House, Scouse HouseПродолжительность: 00:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43431E6837F306F745AA62B8F3C40CD9A080D137
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717714   (111127) от 21.04.2024
 
 Чудо техники с Сергеем Малозёмовым (21.04.2024) WEBRip [H.264/720p]
@@ -6,7 +83,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111127.jpg" />
 </div>
 
 
@@ -31,7 +108,7 @@ VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111128.jpg" />
 </div>
 
 
@@ -58,7 +135,7 @@ magnet:?xt=urn:btih:211D667494BD6BF2AA27389357A3EF7CA861F89D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111129.jpg" />
 </div>
 
 
@@ -85,7 +162,7 @@ VA - The Sound of 2024 Mix 3: Rio De Janeiro (2024) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111130.jpg" />
 </div>
 
 
@@ -112,7 +189,7 @@ magnet:?xt=urn:btih:96C0C01D8E782B0C80A68514B01BF7A1DD984CB7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111131.jpg" />
 </div>
 
 
@@ -136,7 +213,7 @@ magnet:?xt=urn:btih:68876FABEE3D302BFDFD14E60979AA5E479F0824
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111132.jpg" />
 </div>
 
 
@@ -161,7 +238,7 @@ magnet:?xt=urn:btih:9D890697AD65B761705CAA9BC8C1BDDC16A1CA74
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111133.jpg" />
 </div>
 
 
@@ -188,7 +265,7 @@ VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111134.jpg" />
 </div>
 
 
@@ -212,7 +289,7 @@ SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111135.jpg" />
 </div>
 
 
@@ -239,7 +316,7 @@ Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111136.jpg" />
 </div>
 
 
@@ -266,7 +343,7 @@ magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111137.jpg" />
 </div>
 
 
@@ -293,7 +370,7 @@ Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111138.jpg" />
 </div>
 
 
@@ -320,7 +397,7 @@ Severin - Times like this (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111139.jpg" />
 </div>
 
 
@@ -347,7 +424,7 @@ Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111140.jpg" />
 </div>
 
 
@@ -374,7 +451,7 @@ Jeff McMillan - One Last Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111141.jpg" />
 </div>
 
 
@@ -401,7 +478,7 @@ Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111142.jpg" />
 </div>
 
 
@@ -428,7 +505,7 @@ High On Fire - Cometh The Storm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ston
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111143.jpg" />
 </div>
 
 
@@ -455,7 +532,7 @@ Freddy And The Phantoms - Heathen Gospels (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111144.jpg" />
 </div>
 
 
@@ -482,7 +559,7 @@ Nick Gravenites - Rogue Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111145.jpg" />
 </div>
 
 
@@ -509,7 +586,7 @@ City Woods - Highs and Lows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111146.jpg" />
 </div>
 
 
@@ -536,7 +613,7 @@ Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111147.jpg" />
 </div>
 
 
@@ -563,7 +640,7 @@ Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111148.jpg" />
 </div>
 
 
@@ -590,7 +667,7 @@ Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111149.jpg" />
 </div>
 
 
@@ -604,80 +681,6 @@ Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717535   (111150) от 20.04.2024
-
-Живая еда с Сергеем Малозёмовым (20.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хранение в холодильнике: как его правильно организовать? Стоит ли хранить в холодильнике яйца и хлеб, как низкие температуры меняют вкус тропических фруктов и можно ли хранить продукты в пакетах?
-Секреты сочности и прожарки самых популярных блюд из мяса.
- Городские жители, в отличие от сельских, практически разучились переваривать клетчатку. Змеи вместо мяса: чем (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1691E76D58AD11FBF4CFB4E4AD51DD2A4E7C1862
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717606   (111151) от 20.04.2024
-
-Чингиз Абдуллаев | Дронго (Книга 79). Фестиваль для южного города (2024) [MP3, Матрёна Куликова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111151.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Баку на международный кинофестиваль в качестве почетного гостя приезжает скандально известный иранский режиссер Хусейн Мовсани, эмигрировавший в Великобританию из-за гонений и угроз на родине. В Иране за фильм "Страдания блудницы" ему был вынесен смертный приговор, а тому, кто сможет привести его в исполнение, объявлена награда в два миллиона долларов. (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 06:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A438C50B27AD2B4C893EAB55CCE402F979BF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717508   (111152) от 20.04.2024
-
-PowerDirector – Video Editor v13.4.1 b2404191 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.04.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B061CF19057FB86D9B43EC8FB2D12118A11263EF
 ```
 
 

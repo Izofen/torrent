@@ -1,3 +1,128 @@
+###  Публикация: 970707   (138868) от 31.12.2015
+
+А. С. Булатов (ред.) | Страны и регионы мира (2009) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит информацию о странах, территориях, регионах и субрегионах мира. Каждая страна, территория, регион и субрегион описаны по стандартным схемам, с помощью которых освещены экономика, политическое устройство, демографическая ситуация и социальное положение.
+
+Для абитуриентов и студентов, обучающихся по специальностям «Экономика», «Мировая экономика», (   Читать дальше...   )Жанр: Экономико-политический справочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1944FE44BCEC0CF914B0F5ED6ABDEC07EE77FF7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520935   (138869) от 30.12.2021
+
+Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding the Blues
+02. Red Wine Blues
+03. Highway to the Sun
+04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596618   (138870) от 24.11.2023
+
+Выгодное предложение / Торг / Momgaps / Bargain (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Softbox Plus
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужчина пришёл в номер отеля, чтобы приятно провести время с красивой девушкой. А на месте выясняется, что коварная обольстительница собирается продать своего клиента на органы и даже устраивает аукцион. Спасение приходит в виде внезапного землетрясения — здание рушится, и теперь за жизнь придётся бороться всем присутствующим.Производство: Южная Корея / Climax Studio, JTBC StudiosЖанр: триллер, боевик, криминалРежиссер: Чон У-сонАктеры: Чин Сон-гю, Чон Джон-со, Кан Гир-у, Чан Рюль, Чо Хан-джун, О Мин-э, Пак Хён-суПеревод: Двуголосый любительский (Softbox Plus*)Язык озвучки: русский, корейскийПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E437F7C3CD31614331683500622A5D7026321F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348776   (138874) от 30.12.2019
+
+Чародеи (1982) HDTVRip [H.264/720p-LQ] [2 серии]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодняя сказка о том, что настоящая любовь может творить чудеса. В институте «НУИНУ» (научный универсальный институт необыкновенных услуг) кипит бурная работа по изготовлению волшебной палочки. Презентация изобретения намечена на 31 декабря, в Новогодний вечер. Но тут в дело вступают противники директора института, преследующие свои цели…Производство: СССР / Гостелерадио, Одесская киностудияЖанр: мюзикл, фантастика, мелодрама, комедияРежиссер: Константин БромбергАктеры: Александра Яковлева, Александр Абдулов, Екатерина Васильева, Валентин Гафт, Семён Фарада, Валерий Золотухин, Эммануил Виторган, Михаил Светин, Роман Филиппов, Анна Ашимова, Евгений Весник, Евгения Абрамова, Ирина Бельгер, Валентина Смоляницкая, Лилия МакееваСубтитры: отсутствуютПродолжительность: 01:10:20 + 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24BD5008B7BE0DE390D1093184A51EA634C9735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679311   (138875) от 24.11.2023
+
+Swiftbook, Кирилл Леонов | Профессия Middle iOS-разработчик (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138875.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Junior до Middle: выведем вас на новый уровень за 4 месяца. Мощное и быстрое погружение в профессию. Материал сбалансированный уникальный и актуальный. Проверен временем. Одобрен учениками. Хочется стереть себе память и пройти курс заново! Курс «Middle iOS-разработчик» является продолжением курса «iOS-разработчик с нуля», имеет ту же структуру и форму, и полностью (   Читать дальше...   )Производство: SwiftbookЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 86:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979009BC775CA686C42F7A6D1AEED9463B4AA586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520493   (138876) от 30.12.2021
 
 Легенда о волках / WolfWalkers (2020) BDRip [H.264/1080p]
@@ -6,7 +131,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138876.jpg" />
 </div>
 
 
@@ -30,7 +155,7 @@ magnet:?xt=urn:btih:7DC4A727712C60056D59B965425184EA3F6D858F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138878.jpg" />
 </div>
 
 
@@ -55,7 +180,7 @@ magnet:?xt=urn:btih:4D60404609A5326843114A742EE508A1475F829D
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138879.jpg" />
 </div>
 
 
@@ -79,7 +204,7 @@ VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138880.jpg" />
 </div>
 
 
@@ -106,7 +231,7 @@ magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138881.jpg" />
 </div>
 
 
@@ -130,7 +255,7 @@ magnet:?xt=urn:btih:8CE46111FB10A374580FE39A860127857683C231
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138882.jpg" />
 </div>
 
 
@@ -154,7 +279,7 @@ magnet:?xt=urn:btih:718271DAE3979A46785673A01271747620DEC28D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138883.jpg" />
 </div>
 
 
@@ -178,7 +303,7 @@ magnet:?xt=urn:btih:1287EBD02F6CA3EFD01E81E3910B8D74E2042EC3
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138885.jpg" />
 </div>
 
 
@@ -202,7 +327,7 @@ Tony Joe White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138886.jpg" />
 </div>
 
 
@@ -229,7 +354,7 @@ magnet:?xt=urn:btih:7A2F6059CB64A208E48E3E7E3ACE0FC87FDC11CE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138887.jpg" />
 </div>
 
 
@@ -253,7 +378,7 @@ magnet:?xt=urn:btih:22632A8FFFFA609805F87861CE981D55952967DE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138890.jpg" />
 </div>
 
 
@@ -277,7 +402,7 @@ magnet:?xt=urn:btih:22632A8FFFFA609805F87861CE981D55952967DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138891.jpg" />
 </div>
 
 
@@ -301,7 +426,7 @@ magnet:?xt=urn:btih:A0813718DD80DBFA6BA4A2149B2A576FD5BE91AC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138893.jpg" />
 </div>
 
 
@@ -327,7 +452,7 @@ magnet:?xt=urn:btih:9848DB76F0AA86C933D8ACDE844E54804F41C7DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138894.jpg" />
 </div>
 
 
@@ -351,7 +476,7 @@ magnet:?xt=urn:btih:9848DB76F0AA86C933D8ACDE844E54804F41C7DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138895.jpg" />
 </div>
 
 
@@ -376,7 +501,7 @@ magnet:?xt=urn:btih:BDFF35E6EE0FFA8F05858D53D26C143DD369083D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138897.jpg" />
 </div>
 
 
@@ -400,7 +525,7 @@ Anvir Task Manager 9.1.12 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138898.jpg" />
 </div>
 
 
@@ -424,7 +549,7 @@ magnet:?xt=urn:btih:7A5391A8F7B654E99940174EF5549D4BAC8C71D8
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138899.jpg" />
 </div>
 
 
@@ -450,7 +575,7 @@ magnet:?xt=urn:btih:F1AD931ADB476027E185DEE69F897682D31C255B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138900.jpg" />
 </div>
 
 
@@ -476,7 +601,7 @@ magnet:?xt=urn:btih:EF35AC6F1880B8E66766A8CA672411D6497BA229
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138901.jpg" />
 </div>
 
 
@@ -500,7 +625,7 @@ magnet:?xt=urn:btih:D2A4EC764497E8BC3625BB598B514FC16E921EDE
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138902.jpg" />
 </div>
 
 
@@ -511,128 +636,6 @@ magnet:?xt=urn:btih:D2A4EC764497E8BC3625BB598B514FC16E921EDE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20ED39411329FED053829ABE51E4BE4290EAE4BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590792   (138903) от 18.12.2012
-
-Узник / Пленник / Заключенный / The Prisoner (2009) BDRip [720p] (серии 1-6 из 6) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек, которого все называют «Шестой», оказывается в «Деревне» и он не помнит как попал сюда. В этом таинственном поселении у жителей номера, вместо имён, они не помнят ничего о своей прошлой жизни и находятся под постоянным наблюдением. Не зная кому доверять, «Шестой» пытается узнать правду об этом загадочном месте, выяснить причину его появления в «Деревне» и (   Читать дальше...   )Жанр: Драма, Триллер, ФантастикаРежиссер: Ник Харран/Nick HurranАктеры: Иэн МакКеллен/Ian McKellen, Джеймс Кэвизел/Jim Caviezel, Рут Уилсон/Ruth Wilson, Ленни Джеймс/Lennie James, Рэйчел Блейк/Rachael Blake, Джейми Кэмпбелл Бауэр/Jamie Campbell Bower, и др.Перевод: Многоголосый закадровыйОзвучка / Автор перевода: Студия "Кравец" / В. Богданов, BookaЯзык субтитров: АнглийскиеПродолжительность: 6 х ~00:46:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436040   (138906) от 30.12.2020
-
-Michael Pavlovich | Intro To ZBrush 4R7 Part 2 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Павлович - художник по персонажам, его специализация - 3D концепт арт и продакшн пайплайны.
-В 2005 закончил Ринглингский колледж искусств и дизайна, получив степень бакалавра изящных искусств в комптютерной анимации.
-Начал свою карьеру в Electronic Arts в качестве художника по окружению, работал над такими проектами, как Madden NFL и NCAA Football, затем занимался (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 07:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DC736B204B108E79C8A8041809CDFD25108790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195931   (138907) от 31.12.2017
-
-MediaHuman YouTube to MP3 Converter 3.9.8.18 (2812) RePack by вовава [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138907.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube to MP3 Converter - программа для сохранения в формате MP3 любых треков с YouTube. Следит за буфером обмена и автоматически начинает закачку музыки при обнаружении YouTube ссылки. Поддерживает возможность сохранения в MP3 и AAC, а также выбирать битрейт.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E47D3A2139403E7946169D110C9F7C6DCBCB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273162   (138908) от 30.12.2018
-
-Sumatra PDF 3.2.11105 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF - легкий просмотрщик PDF, ePub, MOBI, CHM, XPS, DjVu, CBZ, CBR -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader...Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E73FBAF9E1000746F6B6209C11ED757F5CBA1E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970879   (138909) от 31.12.2015
-
-Журнал | Автомир. Тест-драйв №1 (январь 2016) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138909.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тест-Драйв» — это современный журнал большого формата, с новым взглядом на автомобильную тему. Главное преимущество издания — большое количество тестов, а также гаджеты, светская хроника, путешествия, интервью и многое другое.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E461637AB2F8D590576F9B6E0CD9C4BFBE935810
 ```
 
 

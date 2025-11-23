@@ -1,3 +1,79 @@
+###  Публикация: 1766733   (101216) от 20.12.2024
+
+Футбол. Кубок Италии 2024/2025. 1/8 финала Рома - Сампдория (18.12.2024) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предыдущих раундах «Сампдория» победила «Комо» и «Дженоа» в серии пенальти. «Рома» автоматически попала в 1/8 финала. Рома провалила гостевой матч против Комо в Серии А. Домашняя игра против Сампдории в Кубке Италии, это шанс для "волков" реабилитироваться перед собственными болельщиками.
+
+Тренеры: Клаудио Раньери, Леонардо Семпличи
+Главный судья: Федерико (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF45E45DC3E3589B3A7E81119F57199E78F6FD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766765   (101217) от 20.12.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Нэшвилл Предаторз (19.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101217.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 декабря 2024, пятница. 04:00 МСК. Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 159 зрителей (99% при вместимости 17 335)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Брэндон Шредер (Санборн, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8340999EFC07BB61B08FC42ABC1427F44C26F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766750   (101218) от 20.12.2024
+
+Дьявол и Дэниэл Уэбстер / All That Money Can Buy (1941) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на рассказе Стивена Винсента Бенета 1936 года «Дьявол и Дэниел Уэбстер»... Стоун, простой фермер в Новой Англии, страдает от неурожая и долгов и не видит смысла продолжать заниматься фермерством. В отчаянии он говорит, что готов продать душу в обмен на деньги и достойный урожай. Тут как тут появляется некий мистер Скрэтч, и предлагает контракт на семь (   Читать дальше...   )Производство: США / William Dieterle ProductionsЖанр: фэнтези, драма, мелодрамаРежиссер: Уильям ДитерлеАктеры: Эдвард Арнольд, Уолтер Хьюстон, Джейн Дарвелл, Симона Симон, Джин Локхарт, Джон Кволен, Энн Ширли, Линди ВэйдПеревод: профессиональный многоголосый (Спб, 5 канал)Язык озвучки: русский, английскийСубтитры: русские (на место без перевода), английскиеПродолжительность: 01:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2713E46B7F59F6F91386D17C34D93D68D1617E0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766767   (101219) от 20.12.2024
 
 Журнал | Юность №9 (826) (сентябрь 2024) [PDF]
@@ -6,7 +82,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101219.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101220.jpg" />
 </div>
 
 
@@ -55,7 +131,7 @@ V.A. - Lounge & Wine, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101221.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101222.jpg" />
 </div>
 
 
@@ -109,7 +185,7 @@ magnet:?xt=urn:btih:AC6686D770BE6321D3883590CE492B5AD80F146E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101223.jpg" />
 </div>
 
 
@@ -133,7 +209,7 @@ Aphex Twin - Music From The Merch Desk (2016 - 2023) (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101224.jpg" />
 </div>
 
 
@@ -157,7 +233,7 @@ Karl Bartos (ex-Kraftwerk) - Communication. (Limited Edition) (2003)  [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101225.jpg" />
 </div>
 
 
@@ -184,7 +260,7 @@ magnet:?xt=urn:btih:B40851DC8F0C5736EB1743DD02322FEC7CA1A475
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101226.jpg" />
 </div>
 
 
@@ -208,7 +284,7 @@ magnet:?xt=urn:btih:8F5A73A7302412BC5249407F132E3AF1117D4ED9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101227.jpg" />
 </div>
 
 
@@ -232,7 +308,7 @@ VA - Alter Ego Progressive - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101228.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ magnet:?xt=urn:btih:6B856CB91FD88AA81E3259B4261C46D19FDAF4E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101229.jpg" />
 </div>
 
 
@@ -284,7 +360,7 @@ VA - This is Ablazing 2024 (Mixed & Selected by Rene Ablaze) (2024) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101230.jpg" />
 </div>
 
 
@@ -311,7 +387,7 @@ magnet:?xt=urn:btih:B86C3CA1F410FE3C15C51ED8288AF99D92E8B007
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101231.jpg" />
 </div>
 
 
@@ -338,7 +414,7 @@ magnet:?xt=urn:btih:1CD6DACE33CFD0D769A1C45EC136C501C73AFAC0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101232.jpg" />
 </div>
 
 
@@ -365,7 +441,7 @@ Kenny Acosta Band - It's All Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101233.jpg" />
 </div>
 
 
@@ -392,7 +468,7 @@ Hook Herrera - No Matter What I Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101234.jpg" />
 </div>
 
 
@@ -419,7 +495,7 @@ magnet:?xt=urn:btih:2B9CCF400F675536F4670C556060F229EC3BD576
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101235.jpg" />
 </div>
 
 
@@ -445,7 +521,7 @@ Lefty - What A Life - The Lost LA Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101236.jpg" />
 </div>
 
 
@@ -472,7 +548,7 @@ Luis Oliart & The Hinges - Luis Oliart and The Hinges at Seahorse Sound (2024) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101237.jpg" />
 </div>
 
 
@@ -499,7 +575,7 @@ magnet:?xt=urn:btih:105C09F6B26ECABFFA17065F1DF727E2E3D8A10E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101238.jpg" />
 </div>
 
 
@@ -523,7 +599,7 @@ magnet:?xt=urn:btih:054AEB3871D82D93FF41F9A534C005198222A3EE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101239.jpg" />
 </div>
 
 
@@ -547,7 +623,7 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101240.jpg" />
 </div>
 
 
@@ -574,7 +650,7 @@ magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101241.jpg" />
 </div>
 
 
@@ -585,84 +661,6 @@ magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4641001ED1681041AFEBADE3CBF05A22BF50A41E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766558   (101242) от 19.12.2024
-
-Газета | Загадки истории №29 (604) (2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101242.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A289D5C4EA57FEA9D326B50151782832850F7528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766520   (101243) от 19.12.2024
-
-The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Martha [5:13]
-02. Greensleeves [4:30]
-03. I'm Old Fashioned [4:11]
-04. All the Things You Are [6:16](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B0DA0D17EE235D34B04687560DD2BB928E3F09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766561   (101244) от 19.12.2024
-
-Эмпирия - Власть времени (2013) [MP3|256 Kbps] <Instrumental rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вавилонская башня [3:52]
-02. Варфоломеевская ночь [5:30]
-03. Курская битва [3:37]
-04. Третий рейх [4:42](   Читать дальше...   )Жанр: Instrumental rock, MetalПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA954AECFD99D9467E68C31FEE3E2706508C13C
 ```
 
 

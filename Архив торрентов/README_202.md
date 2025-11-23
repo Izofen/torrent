@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48198.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Guitar Pro 8.1.3 Build 95 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48211.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ LDPlayer 9.1.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48219.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Youtube Downloader HD 5.8.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48228.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Acrobat Pro 2024.002.20965 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48251.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Planet VPN 2.8.35.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48252.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Google Chrome 127.0.6533.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48261.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Glary Utilities Pro 6.13.0.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48262.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Wondershare PDFelement 10.4.10.2780 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48265.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Aiseesoft Video Converter Ultimate 10.8.62 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48266.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Wise Disk Cleaner 11.1.4.830 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48268.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Calibre 7.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48271.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wondershare PDFelement 10.4.10.2780 Portable by 7997 + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48272.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TikTok 35.8.3 Mod by Dmitry Nechiporenko + Plugin 1.47 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48279.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ K-Lite Codec Pack Update 18.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48280.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Microsoft PowerToys 0.83.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48289.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Xara Web Designer+ 24.2.1.69884 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48309.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A025FEA3B710FF0BC3C30766F0D8AF70F1FFFAD5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48315.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:8A9C17557837F7E260FA3B2C34B9F2E827A91277
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48318.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ K-Lite Codec Pack 18.4.8 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48319.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Psiphon 3 build 183 (29.07.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48356.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:08967CD780E0CFF207B1D4C0AEBCFC713D6AF623
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48362.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Atlantis Word Processor 4.4.0.4 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48365.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:7B81EF9C0D7FFFBCED76F412C5310F5D628DE85C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48368.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DVDFab StreamFab 6.1.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48369.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ DVDFab 13.0.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48374.jpg" />
 </div>
 
 

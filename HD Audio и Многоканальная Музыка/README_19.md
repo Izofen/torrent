@@ -6,7 +6,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16200.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16223.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16229.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16229.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16525.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16526.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16529.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16531.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16532.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16533.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16534.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16535.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16537.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jeff McMillan - Being Bad Feels So Good (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16538.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sarah Connor - Freigeistin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rh
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16672.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16721.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16752.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16752.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16753.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16753.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16921.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_16945.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Arabtronic 2025 - The Best Eastern Rhythms, Arabic Electro House, Ethnic Ch
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16967.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:9B8291431616E40FB13507D1194B6C09C35151CE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16971.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17002.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17032.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_17033.jpg" />
 </div>
 
 

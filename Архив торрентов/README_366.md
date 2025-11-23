@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:8E5603AB4108C245E59336B92119C005C27CBA43
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86811.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8E5603AB4108C245E59336B92119C005C27CBA43
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86814.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-15 / Р-15 [2011, TV, 12] BDrip 720р raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86818.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:8C8B650773F93D5A3CDDD390300CE500C97E7DA1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86820.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:8C8B650773F93D5A3CDDD390300CE500C97E7DA1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86821.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:8C8B650773F93D5A3CDDD390300CE500C97E7DA1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86829.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86856.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kolor Panotour Pro v1.8.0.400 Final + Portable [2012,ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86859.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kolor Panotour Pro - новая версия программы для созд�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86860.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Top Gun: Hard Lock [En] (RePack) 2012 | z10yded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86863.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86864.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86865.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2184071D791232830E02EC6F63AF1AA8F521A2AC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86866.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2184071D791232830E02EC6F63AF1AA8F521A2AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86879.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Advanced Woman Calendar 4.2 (2011) [Многоязычный (русский п�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86882.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Adobe Flash Player 11.3.300.214 Beta 1 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86890.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86891.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Young Dolph - A Time 2 Kill (2012) [MP3|320 кб/с]<Dirty South>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86895.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:8F0A1016B0667051C0C2CC99724FB92499E6BB09
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86906.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B68398080C2A6D2E350D28AAFD155B454930D7DD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86911.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86915.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86917.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:84840E9FFA3987E0B76524816479CFE52D76581C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86924.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:84840E9FFA3987E0B76524816479CFE52D76581C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86929.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:84840E9FFA3987E0B76524816479CFE52D76581C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86930.jpg" />
 </div>
 
 

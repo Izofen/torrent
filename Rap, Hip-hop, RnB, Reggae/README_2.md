@@ -6,7 +6,7 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101510.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ja
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102904.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103016.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103026.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103096.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103191.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:A63034CD6CE54CDC7761860F9CC33763C6C39B81
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104710.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Slim *CENTR - Холодно (2009) [WavPack|Lossless|image + .cue] <Rap, Hardco
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105323.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E29A410A22D2A68FB4B38977090863B703602BA2
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105327.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9BCC34D61870776910F2A920ED7772F0DE1EAC4A
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105335.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105337.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105348.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105662.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105747.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E019A5EB1E94802362F277692E739551776E7922
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106216.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106226.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106925.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107294.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108720.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109287.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dino MC47 - Вне Номинаций (2008) [WavPack|Lossless|image + .cue] <Ja
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109402.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2535FC9B57630E7E49C5E9DC9DCA9A135255710F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109793.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A0D9475AE843C88D9FC181B73C1504F81F2AE122
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109799.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ UB40 - UB45 (2024) Ultimate Edition [FLAC|Lossless|WEB-DL|tracks] <Reggae, Ska>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110596.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:DC20DB71C7F4468BBCACD36087FC88D50A7D4D4C
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110782.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110877.jpg" />
 </div>
 
 

@@ -1,3 +1,174 @@
+###  Публикация: 968799   (151659) от 25.12.2015
+
+VA - The Best Of Suanda True (Mixed By Universal Sense) (2015) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Terry - Odysseus (Original Mix) (6:20)
+02. Luke Terry - Magellan (Original Mix) (6:47)
+03. Universal Sense - Universe (Original Mix) (7:39)
+04. Simon O'shine ft. Eskova - You May Love (Mhammed El Alami Remix) (6:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59792597EC0F1762883CF656AD70DC28EE55459F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601146   (151660) от 30.12.2022
+
+360 Extreme Explorer 13.5.2036.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151660.jpg" />
+</div>
+
+
+###  Подробнее
+
+360 Extreme Explorer - браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513CC715D684F7B8C77174EC3EA32073CC29AE63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347291   (151661) от 23.12.2019
+
+Картинки - RU VDS - Календарь 2019 + 2020 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари компании RU VDS на 2019 и 2020 годаФормат: JPGРазрешение файлов: 910x1280 - 1400x1980
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298B8F1508DD556C6B0400E7FE6391135496B4C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676226   (151662) от 16.11.2023
+
+Предложение по YouTube в России: меньше трафика - лучше сеть
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутат Горелкин предлагает снизить нагрузку на сети, ограничив доступ к видеохостингу.Заместитель председателя комитета Госдумы по информационной политике, информационным технологиям и связи, депутат Антон Горелкин, предложил операторам связи Российской Федерации отменить безлимитный доступ к YouTube.Депутат утверждает, что это поможет уменьшить износ сетевого оборудования. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271091   (151663) от 22.12.2018
+
+Проекты - VideoHive - Christmas Slideshow - 22852187 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christmas Slideshow - уникальный атмосферный кинематографический проект, который может помочь вам создать собственное слайд-шоу о Рождестве, Новом Году, романтическом времени, приглашении на вечеринку или вашей любви.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5711AC8D44430C48AEB46596CE974EC01688F3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195066   (151664) от 27.12.2017
+
+Александр Тамоников | Архив смертников (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Белоруссия. Капитану СМЕРШ Алексею Макарову поручено найти и вывезти в безопасное место архив школы Абвера. Немцы тоже охотятся за оставленными при отступлении документами. Группа Макарова попадает в засаду. Все, кроме капитана, погибают. Его, раненного, подбирают партизаны, которыми командует старший лейтенант НКВД Эмма Кушинская. У них то же задание, (   Читать дальше...   )Жанр: БоевикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0966AF0A4591EB6B8EFF3E32798378354D65E605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825725   (151665) от 
+
+Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower Blooms | Укрась прощальное утро цветами обещания [2018, Movie] DVD9 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавица Макия - из рода бессмертных. На протяжении веков многие армии пытались захватить её народ, чтобы завладеть секретом вечной жизни. И вот теперь, когда город разрушен, девушка прячется в лесу. Здесь она встречает потерявшего родителей маленького мальчика Ариэля и начинает о нём заботиться... Проходят годы, мальчик превращается в прекрасного юношу, и у беглецов (   Читать дальше...   )Производство: P.A. WorksЖанр: фэнтeзи, дрaмаПеревод: ReanimediaЯзык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95F8E04E037C37C00F14071A1509CB9389D7756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347520   (151667) от 23.12.2019
 
 Wise Care 365 Pro 5.4.6.542 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +177,7 @@ Wise Care 365 Pro 5.4.6.542 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151667.jpg" />
 </div>
 
 
@@ -30,7 +201,7 @@ magnet:?xt=urn:btih:0F8A2C9711D713FFBA649F360AA47B20B33C115E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151669.jpg" />
 </div>
 
 
@@ -54,7 +225,7 @@ magnet:?xt=urn:btih:4DC3C223EF6562997C12C1B32AAEA70910A1DCE1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151671.jpg" />
 </div>
 
 
@@ -78,7 +249,7 @@ magnet:?xt=urn:btih:0CD80EF03A076269493F1136C28103C19F11E1CC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151672.jpg" />
 </div>
 
 
@@ -102,7 +273,7 @@ magnet:?xt=urn:btih:D3BF128B5FAE65B43171B2C9C243FB9C4FA9360B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151673.jpg" />
 </div>
 
 
@@ -126,7 +297,7 @@ magnet:?xt=urn:btih:FBDE56E069FEDEF583E69656A629D952BBB86AC7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151675.jpg" />
 </div>
 
 
@@ -150,7 +321,7 @@ magnet:?xt=urn:btih:AD3883888DEF17DF004C9679C01349915A410357
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151677.jpg" />
 </div>
 
 
@@ -174,7 +345,7 @@ magnet:?xt=urn:btih:0D1F6203394DF21C1BA01E46417023A3D8CB066A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151678.jpg" />
 </div>
 
 
@@ -198,7 +369,7 @@ magnet:?xt=urn:btih:912319209E82D5740AABCF5956C495EDDBDEC0B9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151680.jpg" />
 </div>
 
 
@@ -222,7 +393,7 @@ Movavi Screen Recorder 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151681.jpg" />
 </div>
 
 
@@ -246,7 +417,7 @@ VA - Lo-Fi to Chill: Chillout Your Mind (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151682.jpg" />
 </div>
 
 
@@ -273,7 +444,7 @@ magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151683.jpg" />
 </div>
 
 
@@ -297,7 +468,7 @@ magnet:?xt=urn:btih:BE32BE816CB51000058F9D4B902BB56FDA6DBF2D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151684.jpg" />
 </div>
 
 
@@ -321,7 +492,7 @@ magnet:?xt=urn:btih:E4E78256FD2C0BD72BD4025106DC06364A39C941
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151685.jpg" />
 </div>
 
 
@@ -345,7 +516,7 @@ VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151687.jpg" />
 </div>
 
 
@@ -372,7 +543,7 @@ magnet:?xt=urn:btih:A29F2AE1E70200ECD0598688869C7A349CFED4C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151688.jpg" />
 </div>
 
 
@@ -396,7 +567,7 @@ magnet:?xt=urn:btih:ABA1EEA2446D75F928C68911983C12C68E53E2E7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151689.jpg" />
 </div>
 
 
@@ -420,7 +591,7 @@ magnet:?xt=urn:btih:84211DA82F0E03D80BA9FF517B7E042B52608E8E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151690.jpg" />
 </div>
 
 
@@ -444,7 +615,7 @@ magnet:?xt=urn:btih:1063F8A8BDDDFBF838424BB17F809102763D1340
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151691.jpg" />
 </div>
 
 
@@ -455,190 +626,6 @@ Christmas Paper World - это шаблон имеет стильную аним
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80BBC1B3FC6C12FE31069B24DEC48AF37CEE966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347476   (151692) от 23.12.2019
-
-Киана Андервуд | Букеты одним цветом. 40 дизайнерских идей на все времена года (2019) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта потрясающая книга от дизайнера Tulipina Кианы Андервуд научит вас создавать завораживающие монохромные букеты. Андервуд делится секретами создания великолепных композиций, непохожих ни на какие другие, с использованием чудесных цветов, эффектных фактур и ярких красок.
-В книге вы найдете сорок пошаговых уроков по созданию потрясающих букетов на каждое время года. (   Читать дальше...   )Жанр: Растениеводство, ФлористикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657434F8C523E45DA566E41341E88503C02416DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085640   (151693) от 24.12.2016
-
-Лучшие из лучших / Best of the Best (1989) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро молодых спортсменов должны забыть о своих разногласиях и личных проблемах для того, чтобы единой командой защищать честь национальной сборной США по таэквондо на международных соревнованиях. Под руководством мудрого тренера им это удается, и они демонстрируют свое мастерство.Производство: США / SVS FilmsЖанр: Боевик, Триллер, Драма, СпортРежиссер: Роберт РэдлерАктеры: Эрик Робертс, Филлип Ри, Джеймс Эрл Джонс, Сэлли Кёркленд, Крис Пенн, Джон Дай, Дэвид Агреста, Том Эверетт, Луиза Флетчер, Джон П. Райан, Эдан Гросс, Саймон Ри, Мастер Хи Иль Чо, Джеймс Лью, Кен НагаямаПеревод: Дублированный, авторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24867796525F3DBD74AB5C05D1276DC03E393B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825720   (151694) от 
-
-Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Soul
- 02 - Start Again
- 03 - Butterflies Inside My Heart
- 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518730   (151697) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Esteban - Dilala (4:49)
-02. Dudubeat - Prinz Igor (3:46)
-03. DJ MNX - Buddha Sphere (4:40)
-04. Yantra Mantra - Jangal (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588657   (151698) от 14.12.2012
-
-Жёлтая Ветка - UNDERGROUND (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Вот оно
-03. Ниже
-04. Андеграунд
-05. Уезжай feat. Яна Акула
-06. Трюки feat. СНЗЗ и Полумягкие
-07. Это
-08. От Ухты до Вала
-09. За щекой (интерлюдия)
-10. Время течет(   Читать дальше...   )Жанр: RapПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C77CC63FFBD645E0BD393F854F253B4F2992FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968787   (151699) от 25.12.2015
-
-Лина Нейман | Картошка (1930) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97FAD54C176E8E5F75B723E392BE74CBEC4467C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677063   (151700) от 16.11.2023
-
-Avast Premium Security 23.11.6090 RePack by xetrin [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDDE6ED18098A79DC127C6232813B99F3860DBC
 ```
 
 

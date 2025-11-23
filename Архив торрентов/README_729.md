@@ -1,3 +1,76 @@
+###  Публикация: 1347323   (152497) от 23.12.2019
+
+ColorWell 7.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152497.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2019Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4266CA7261358E2C0F71FA3A57E98218AC424BE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601238   (152499) от 30.12.2022
+
+Wise Disk Cleaner 10.9.7.813 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B465993F8601CE4A8DE156E6D2A48D62509222CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518802   (152506) от 21.12.2021
+
+DjVu Reader Pro 2.6.2 [Ru/En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152506.jpg" />
+</div>
+
+
+###  Подробнее
+
+DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
+В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 FirmShell LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A684989EBCAF823C064B05AE0AB092394F0598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601108   (152512) от 30.12.2022
 
 Mactracker 7.12.1 [En]
@@ -6,7 +79,7 @@ Mactracker 7.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152512.jpg" />
 </div>
 
 
@@ -31,7 +104,7 @@ Google Chrome 25.0.1359.3 Dev [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152524.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Privacy Eraser Free 5.31.2 Build 4408 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152535.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ OCCT 10.0.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152547.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ magnet:?xt=urn:btih:B55738F055BA682560DCDB491D4EDFDB483DAAC8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152553.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Byword 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152580.jpg" />
 </div>
 
 
@@ -155,7 +228,7 @@ AnyDesk 2.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152587.jpg" />
 </div>
 
 
@@ -179,7 +252,7 @@ Opera 82.0.4227.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152590.jpg" />
 </div>
 
 
@@ -203,7 +276,7 @@ Autorun Organizer 5.39 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152592.jpg" />
 </div>
 
 
@@ -227,7 +300,7 @@ OCCT 12.1.11 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152598.jpg" />
 </div>
 
 
@@ -251,7 +324,7 @@ MAGIX Video Pro X13 19.0.1.133 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152601.jpg" />
 </div>
 
 
@@ -275,7 +348,7 @@ ASCOMP Cleaning Suite Pro 4.006 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152609.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Leopards Wallpapers (10.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152610.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:2B48FC78DCEDCF69ACCAA21E2F76277213385DF4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152616.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.111 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152622.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ FoneDog Toolkit for iOS 2.1.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152625.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Comedy Woman (2016.12.23) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152627.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ PDFsam Basic 4.2.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152647.jpg" />
 </div>
 
 
@@ -444,7 +517,7 @@ DriveDx 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152653.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ CoolUtils Total Excel Converter 4.1.198 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152663.jpg" />
 </div>
 
 
@@ -492,7 +565,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152664.jpg" />
 </div>
 
 
@@ -516,7 +589,7 @@ Windows Repair Toolbox 3.0.2.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152671.jpg" />
 </div>
 
 
@@ -540,7 +613,7 @@ Nitro Pro 14.17.2.29 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_152672.jpg" />
 </div>
 
 
@@ -551,78 +624,6 @@ Nitro Pro – программа, которая является альтерн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF2D4B029AE5D38C57777C687262CA688581510
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601074   (152676) от 30.12.2022
-
-NetWorker Pro 8.5.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152676.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E08F5CB3AE9AB7C4A7DBE722F1C77B52A9C33A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588817   (152677) от 14.12.2012
-
-Winter Wallpapers (13.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A73F91E16065FBB4E91CE23280DE40682A01D6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518698   (152680) от 21.12.2021
-
-CoolUtils Total Audio Converter 6.1.0.257 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двухпанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB87915BE8CBAF2F0CA301C07B4D84F695D1293
 ```
 
 

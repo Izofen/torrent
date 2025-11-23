@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5471E72D4D95CAF749F7C21B55BC2681DF7761C7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1665.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2152.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2184.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E1A34B29E37AF71F5798CA132A2AAA95AB688D5D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2760.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:147606E91C6555A244D94552985BE60718EB558D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3939.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:9AB95E84AA4DCA60E038D6E7B382B9E06462FF01
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5013.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5569.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5911.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6282.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6645.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:68FB096C7B0F08762827869493C63F9B9DD59404
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6840.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:2EF46DED75AB917AD9D0D79E4B53EDF2F72A283F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7322.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7401.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7433.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7434.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ NewJeans - Attention (Performance) (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7453.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Billie - Domino - Butterfly effect (2024) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7480.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7509.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7516.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7759.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7796.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8306.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9573.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:AF7FAC67DE8A8F05D86CB8E8C87ADABDDD6D1DC9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10065.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:FDB743BA78BA49EC19F94A5D35A564FDE6F5FC48
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10276.jpg" />
 </div>
 
 

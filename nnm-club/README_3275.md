@@ -1,3 +1,78 @@
+###  Публикация: 1746906   (104832) от 02.09.2024
+
+Дождь в горах / Kong shan ling yu / Raining in the Mountain (1979) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104832.jpg" />
+</div>
+
+
+###  Подробнее
+
+История уединённого монастыря династии Мин (1368-1644 гг.)... Коррумпированный генерал с помощником прибывают туда и быстро нанимают мастеров боевых искусств, чтобы помочь украсть священный рукописный свиток Трипитаки. Тем временем, настоятель монастыря ищет преемника и обращает свой взор на человека, ложно обвинённого коррумпированным генералом в воровстве и осуждённого (   Читать дальше...   )Производство: Тайвань, Гонконг/ Lo & Hu Company Productions Ltd.Жанр: драма, боевикРежиссер: Кинг ХуПеревод: любительский одноголосыйЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B53DFE0315A7FA55170E71EB4CB6EBDEF3F7D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746890   (104833) от 02.09.2024
+
+Дождь в горах / Kong shan ling yu / Raining in the Mountain (1979) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104833.jpg" />
+</div>
+
+
+###  Подробнее
+
+История уединённого монастыря династии Мин (1368-1644 гг.)... Коррумпированный генерал с помощником прибывают туда и быстро нанимают мастеров боевых искусств, чтобы помочь украсть священный рукописный свиток Трипитаки. Тем временем, настоятель монастыря ищет преемника и обращает свой взор на человека, ложно обвинённого коррумпированным генералом в воровстве и осуждённого (   Читать дальше...   )Производство: Тайвань, Гонконг/ Lo & Hu Company Productions Ltd.Жанр: драма, боевикРежиссер: Кинг ХуПеревод: любительский одноголосыйЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21D6D7D64B3770FDFAD2B8A1D2947F9C72C3AE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746839   (104834) от 02.09.2024
+
+Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Black/Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enslaved — норвежская метал-группа, в первые годы игравшая блэк-метал, а позднее эволюционировавшая в сторону викинг-метала с элементами прогрессива.1993 - Hordanes Land
+1994 - Frost
+1994 - Vikingligr Veldi
+1997 - EldЖанр: Progressive Black/Viking MetalПродолжительность: 15:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746892   (104835) от 02.09.2024
 
 Process Lasso Pro 14.3.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +81,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104835.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104836.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Matthew Sting - Brave (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104837.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ magnet:?xt=urn:btih:8C2F5CB0C9484E114CA7149108ACC46B51186F67
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104838.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:C6A068FE8DE14873FBA3BD5991316A76FAAB1766
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104839.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:C458B78F841D847019834360D7A2055BB8C7BBFB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104840.jpg" />
 </div>
 
 
@@ -159,7 +234,7 @@ magnet:?xt=urn:btih:9404F251110E5E6075EE69EF935CF6B0F7388A62
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104841.jpg" />
 </div>
 
 
@@ -186,7 +261,7 @@ Arbitrator - Kill Their Religion (1998) Remaster, 2024, NORZ Records [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104842.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ Drakkar - Spread Your Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104843.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ magnet:?xt=urn:btih:761F3A2F55FC0D1A98B46496BABF439EB7A8BD81
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104844.jpg" />
 </div>
 
 
@@ -266,7 +341,7 @@ magnet:?xt=urn:btih:AAFE2E3EDD535F10D95F5B9DEAB686237824D9A6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104845.jpg" />
 </div>
 
 
@@ -290,7 +365,7 @@ VA - Songspire Records 6 Year Anniversary (2024) [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104846.jpg" />
 </div>
 
 
@@ -317,7 +392,7 @@ Jurelia - Hinnos de Libertaz (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Prog Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104847.jpg" />
 </div>
 
 
@@ -344,7 +419,7 @@ Remedy - Pleasure Beats The Pain (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104848.jpg" />
 </div>
 
 
@@ -371,7 +446,7 @@ magnet:?xt=urn:btih:026E1846459A2DEDDD5CBC90E62BC328835CE132
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104849.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Гонка (01.09.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104850.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ DemonDown - The Rise Of The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104851.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Oceano - Living Chaos (2024) [MP3|320 Kbps] <Deathcore, Soft-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104852.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ magnet:?xt=urn:btih:19D7F617BD8B1183294951060F4957F9E264C732
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104853.jpg" />
 </div>
 
 
@@ -502,7 +577,7 @@ Fallen Man - Influenza (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rcok>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104854.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ magnet:?xt=urn:btih:027CD6A356C05F9AE14F08953AA6F9B71E886047
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104855.jpg" />
 </div>
 
 
@@ -555,7 +630,7 @@ VA - Melomaniac, Vol.01 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104856.jpg" />
 </div>
 
 
@@ -582,7 +657,7 @@ magnet:?xt=urn:btih:62C43A647F683E5E1D982D4B47803FB9A36EC40E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104857.jpg" />
 </div>
 
 
@@ -593,87 +668,6 @@ magnet:?xt=urn:btih:62C43A647F683E5E1D982D4B47803FB9A36EC40E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4273A59F4989C2F0A4CC6C5C96144AB72E6D4EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746669   (104858) от 01.09.2024
-
-Ian Wilde - Dream Hunter (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready Now (4:41)
-02. Secretly In Love (4:24)
-03. My Heart Is Yours (4:14)
-04. Roaring Angels (4:26)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59EDF4AF21A3B752EB57DEDB64B1FF425752A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746601   (104859) от 01.09.2024
-
-Quantifier - The Ordinary Strain (2024) [MP3|320 Kbps] <Progressive Sludge Metal, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lapse [00:03:13]
-02 - Featherweight [00:07:58]
-03 - The Wake [00:05:16]
-04 - Omen of Shade [00:05:11](   Читать дальше...   )Жанр: Progressive Sludge Metal, Pop RockПродолжительность: 00:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775786C3EE3596A9AF4B96998C170EB6A6708F0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746690   (104860) от 01.09.2024
-
-Curtis Erdek - Fuktrump (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America Trumpt 03:40
-02. Blinded By The Stream 03:36
-03. Decadent Donnie 04:00
-04. Hate Brings Pain 03:42(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AABC628DC51CA03C60A14E6998FFF5A1625C47
 ```
 
 

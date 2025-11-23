@@ -1,3 +1,83 @@
+###  Публикация: 1713888   (111800) от 07.04.2024
+
+Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love [6:23]
+02. In Your Own Sweet Way [7:40]
+03. All the Things You Are [7:29]
+04. Jimmy van Heusen Medley: Deep in a Dream / Like Someone in Love / Here's That... [20:49](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F713995C64D28D4394969D48A0B83F63138D97A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713904   (111801) от 07.04.2024
+
+VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jakub Szybiak - Unveiled Light (2:55)
+02. William Thomson - Waiting for the Dawn (2:59)
+03. Joaqino Bianco - A New Morning (2:45)
+04. Dario Crisman - If We Could (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3940EB7C6670C311C731316EFBA54C964103A009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714000   (111802) от 07.04.2024
+
+Telegram Desktop 4.16.4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A0AEADB92A859AF8D86277449E7C5F2CEE4AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713784   (111803) от 07.04.2024
 
 Рождественские письма / Christmas Mail (2010) BDRip [H.264/720p] [DVO]
@@ -6,7 +86,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111803.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ magnet:?xt=urn:btih:1116CA9FA8FED4E6D3CA942ABC8B686B82D75A6E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111804.jpg" />
 </div>
 
 
@@ -55,7 +135,7 @@ magnet:?xt=urn:btih:BD0A05AD003B32AB001EA0500977C09944D4292C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111805.jpg" />
 </div>
 
 
@@ -79,7 +159,7 @@ magnet:?xt=urn:btih:F759ED338DC9247EF003082DA5838396AB0F31A8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111806.jpg" />
 </div>
 
 
@@ -105,7 +185,7 @@ magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111807.jpg" />
 </div>
 
 
@@ -131,7 +211,7 @@ Gentle Giant - Three Friends (1972) Reissue, 1989, Columbia [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111808.jpg" />
 </div>
 
 
@@ -158,7 +238,7 @@ magnet:?xt=urn:btih:61B25DDDFC443B6F95AC4C01FDD4BB2BFA0FB394
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111809.jpg" />
 </div>
 
 
@@ -182,7 +262,7 @@ Brave Browser 1.64.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111810.jpg" />
 </div>
 
 
@@ -206,7 +286,7 @@ magnet:?xt=urn:btih:82D4956EEC32DCBD339977672C60EB905293E8C0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111811.jpg" />
 </div>
 
 
@@ -230,7 +310,7 @@ magnet:?xt=urn:btih:4564F09DB0A9E32FCEF28D15402C502E7775EC87
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111812.jpg" />
 </div>
 
 
@@ -254,7 +334,7 @@ magnet:?xt=urn:btih:05E15FF51D389634837CF577C45110123BED4E3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111813.jpg" />
 </div>
 
 
@@ -280,7 +360,7 @@ koshi - Экспериментальная генетика высшей нер�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111814.jpg" />
 </div>
 
 
@@ -307,7 +387,7 @@ magnet:?xt=urn:btih:C383A030741411EABBD391070B470CAD891D5E24
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111815.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ StaxRip 2.37.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111816.jpg" />
 </div>
 
 
@@ -356,7 +436,7 @@ magnet:?xt=urn:btih:AE5DAB29ED8A545F0F90ACA4ED249C28483EA692
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111817.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ magnet:?xt=urn:btih:143345F9BFD6E737AA6CF7D9F0DFC668B21278B8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111818.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ magnet:?xt=urn:btih:D076781CA1D125B7A87A0BD9C374D4AB77B4DD11
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111819.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ magnet:?xt=urn:btih:CABCB0DBBA698B1DC4D42443E2BA4C532CEA82E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111820.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ magnet:?xt=urn:btih:689FBE95B2F5BC51FF87F3676689FCFEA51B6843
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111821.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ magnet:?xt=urn:btih:C738FC03F279323E9D2C9634B3FDBD7DD09815FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111822.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ magnet:?xt=urn:btih:3626300792DACEA3F5A8109ACB24E3F8811C514B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111823.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111824.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ Balabolka 2.15.0.868 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111825.jpg" />
 </div>
 
 
@@ -564,78 +644,6 @@ Balabolka 2.15.0.868 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EA5EAF310BC8D773841C1D45B76D63C528F4B7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713964   (111826) от 07.04.2024
-
-Дарья Варламова, Антон Зайниев | С ума сойти! Путеводитель по психическим расстройствам для жителя большого города (2022) [MP3, Алекс Лайт]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психические заболевания встречаются гораздо чаще, чем кажется: по статистике ВОЗ, каким-то из них хотя бы раз в жизни страдал каждый четвёртый. При этом большинство людей плохо понимают, как работает психика и почему она ломается. И, столкнувшись с депрессией, тревожным расстройством или какой-то другой проблемой, отрицают её или пытаются решить неподходящими способами. (   Читать дальше...   )Жанр: научно-популярная литература, психиатрияИздательство: Альпина ДиджиталПродолжительность: 09:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F63BEA1C8E688DD16E7A309FBB440CC6FF5C22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713773   (111827) от 07.04.2024
-
-Поездка в Милан / La mia ombra e tua / My Shadow Is Your Shadow (2022) WEB-DLRip [H.264/1080p] [звук с ТS]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Эмилиано сопровождает шестидесятилетнего писателя Витторио на выставку в Милан, где Витторио после двадцатилетнего творческого перерыва расскажет о своем новом романе.Производство: Италия, Rai CinemaЖанр: драмаРежиссер: Эудженио КаппуччиоАктеры: Марко Джаллини, Джузеппе Маджио, Анна Мануэлли, Изабелла Феррари, Сиди Диоп, Клаудио Бигальи, Леопольдо Мастеллони, Miriam Previati, Алессандра Аччаи, Desirè De LucaПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ИтальянскиеПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4269C1BF1C9285494818802FC31B2DA6584BAC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713826   (111828) от 07.04.2024
-
-Reflections of Life 12: The Shattered Timeline / Отражения жизни 12: Песок времени (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательное продолжение сказочной серии игр Reflections of Life. Небесные Сёстры управляют потоком времени уже сотни лет. После того как злой колдун похитил Рассвет, День, Сумерки и Ночь, судьбы всех королевств оказываются в опасности. Только воин Ордена Стражей может восстановить артефакт времени и вернуть сестрам их законное место в космосе. Сможете ли вы побывать (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5D5F7341B0AF3F78B7ACE72B3AA479EADC8BE1
 ```
 
 

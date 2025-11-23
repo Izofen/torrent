@@ -6,7 +6,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.4 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (1804) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20941.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Athentech Perfectly Clear Complete 4.7.0.2780 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20942.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Windows Manager 2.1.4.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20945.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20945.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Activation Program 1.10 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20985.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20985.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Malwarebytes AdwCleaner 8.5.1.601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20987.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20987.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Alfa eBooks Manager 9.1.46 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20996.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ FileZilla 3.69.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20997.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20997.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ StaxRip 2.46.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21005.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ GeoGebra 6.0.883 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21006.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Calibre 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21025.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2898B646CF8FFCA057E2DFEFF650E520377B923B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21031.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ocenaudio 3.14.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21033.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Soft Organizer Pro 10.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21034.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Open Server Panel 6.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21035.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Reg Organizer 9.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21041.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AAF Family DCH Audio Realtek 10.11.9816.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21044.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Xiaomi Home (Ранее. MiHome) v10.4.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21052.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21052.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ OpenVPN 2.6.14 (18.04.2025) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21055.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ MAGIX Vegas Pro 22.0 Build 248 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21058.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Topaz Photo AI Pro 3.6.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21063.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ SketchUp Pro 2025 25.0.634 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21090.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21090.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sandboxie plus 1.15.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21111.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sandboxie 5.70.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21115.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21115.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ MyLanViewer 6.3.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21121.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21121.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (1604) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21123.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21123.jpg" />
 </div>
 
 

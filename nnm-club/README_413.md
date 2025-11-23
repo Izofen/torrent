@@ -6,7 +6,7 @@ Adobe After Effects 2025 25.3.2.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10925.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10926.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Office Installer & Office Installer+ 1.28 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10927.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0F6D8AAABA51A0FD6B4CF60C62BEE58FB0B702E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10928.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:AA88C21BE6A8EFC48EC77FD64AF0E2147305E1D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10929.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10930.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10931.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A865B98E5459FB83EF6579A991FDE8F73BF18198
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10932.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10933.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Danger Zone (2025) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10934.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10935.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10936.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E2F50D3B4D7EC14AC2FA184248CEFD714C7EFEF6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10938.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:0974E2519D3EE364512B56C1E3FCA17FDF547E19
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10939.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:3334E050C1B8D7B3A6B84C985A4DD7CC6D552C9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10940.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 07.2025
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10941.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:04E7BE2D24DFF065A37C1FDF69A68ACDD6966939
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10942.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10943.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:67C841BBF75CD8258F0BBFB2D9A0B458CB4C8B81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10944.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:06EBC85D4BA57939B7DF177FF724882CE6A62D99
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10945.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10946.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:21A2B83DFB156CE93816E071CC2078AFCF167984
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10947.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:17A3DE284C940B5571FE24006E15BE47DEC58934
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10948.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:8223965956A10BE5AB5BEEE652DEBF974E0C82DC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10949.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:6DB51BE99526F8852CDFB98B0CB8184BBBACA426
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10950.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:6DB51BE99526F8852CDFB98B0CB8184BBBACA426
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10951.jpg" />
 </div>
 
 

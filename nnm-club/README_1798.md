@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2F598C24884EA9642FBA974E371805131E939C8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47104.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1EE18B35DA73238EA10D196E0990D340F7BCDB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47105.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:55E64F30407B78C7381E537D6B97D0EC24666562
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47106.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:180786B68729BB91DB321267460EF3CC9BA85829
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47107.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:83C8D0132C8C0840B5E136B4F8C81C7D18B0CA12
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47108.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47109.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:C5AC032E467F1B50D9D9E0628770B4275C9DBCBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47110.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0A7AF14433F5F1CC3B2F1B84D6F05D6B9DF18CD8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47111.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:B8E837BE744A5055DF54326565773AB9BADB6B43
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47112.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47113.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Sumatra PDF 3.6.16736 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47114.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Balabolka 2.15.0.877 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47115.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F93B51241364F13FECC2E6DBA84454D85AB0545D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47116.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:1A4AF712371854FF21563CBEE6AB772BCE57BE49
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47117.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47118.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:D55F385AFF5AAA6161431B7C88F2A7CECD970F28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47119.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:94CF17F6E2078B15FC534EB97A73B440203526F9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47120.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8F597B0269213DB525161BE5C90D10B8B4818768
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47121.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Cults - To the Ghosts (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <IndiePop, Lofi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47122.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47123.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Nomad Factory - Analog Mastering Tools 2.0.0 VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47124.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0C2FA4F77B02AA90938D1AAF4B52AA0CFD04C614
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47125.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Piano Music One Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47126.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2BCB3F69B68EB87CB9A9C63A65601C8E7310BBDC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47127.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Unfiltered Audio - Fault 1.4.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47128.jpg" />
 </div>
 
 

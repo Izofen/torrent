@@ -1,3 +1,76 @@
+###  Публикация: 1825615   (136987) от 17.10.2025
+
+The Legacy (2025) [Ru/Multi] (0.4971) Repack FitGirl
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136987.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Legacy - это кооперативное выживание в жанре хоррор. В 1990 году на наш родной город пало проклятие, наш дедушка, местный мольфар и маг, по зловещей традиции - раз в 66 лет должен принести в жертву тёмным лесным силам одного из своих потомков, но он не смог этого сделать, поэтому отправил меня, двух братьев и сестру в столицу, чтобы уберечь нас от проклятия. (   Читать дальше...   )Тип издания: RepackРазработчик: Second RealityЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C119B728BBBBCC7AEB8AC1DDA173354A226D980D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824888   (136988) от 16.10.2025
+
+O&O Defrag Professional 30.0 Build 1065 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136988.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
+При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4504A44B996BDDCF689051630578A7D74F3F7F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824885   (136989) от 16.10.2025
+
+MediaHuman YouTube Downloader 3.9.17 (1410) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136989.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA40FD284C289BB9A829A202C7900C393A71A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677180   (136990) от 25.11.2023
 
 Windows 11 23H2 (x64) 24in1 +/- Office 2021 by Eagle123 (11.2023) [Ru/En]
@@ -6,7 +79,7 @@ Windows 11 23H2 (x64) 24in1 +/- Office 2021 by Eagle123 (11.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136990.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Aerosmith - 33 Albums, 4 Box Set (1973 - 2023) 85 CD [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136992.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ magnet:?xt=urn:btih:3C3304FFF5FF626F0C0345D762BBBD1033EEA170
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136993.jpg" />
 </div>
 
 
@@ -81,7 +154,7 @@ magnet:?xt=urn:btih:010D72C186F5F20A0BB5F921F71D606367BAF170
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136994.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136994.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:3584D6680AD78561D5F95FCB1F335C94E71EEA01
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136995.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:A0063A0186DFB089A045E02D88B1971963223DF1
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136996.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ magnet:?xt=urn:btih:5586844D32528B22ECEBAA6C60A879D33ED01A47
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136997.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ magnet:?xt=urn:btih:9F2FD204DC43F3858B325943022A6CFD491148E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136998.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ Foo Fighters - 15 альбомов, 3 сингла (1995 - 2023) 26 CD [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136999.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ FL Studio Producer Edition 20.9.2 (Build 2963) RePack by Soul Storm [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137000.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ magnet:?xt=urn:btih:0CC35CA024266FF9CF21AC4AEE2F64FCD3FBC48C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137001.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ magnet:?xt=urn:btih:2BF195AEDB0640DB4EF88771C7E2BCDC8E565BDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137002.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137003.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:80B553439C74DF68CE5CE41958607F06E45B3DAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137004.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:C9585581C71E4947111D6D7E19FC5BB22A905615
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137006.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ magnet:?xt=urn:btih:8CFD248375310190BF7A6F34007D16644B5BCEB7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137008.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ magnet:?xt=urn:btih:81E9A155CADE8605A573B5E15854782A10EA5873
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137009.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ magnet:?xt=urn:btih:FC86548F4F3332DAC3E0C850ED5D9B7EA7D50651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137010.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ magnet:?xt=urn:btih:F5FC6A801EEF298A754BF64931ADD119C338004C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137011.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137012.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137013.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ All activation Windows (7-8-10) v2 [Multi/Ru] (авторская раздача
 >>24
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137015.jpg" />
 </div>
 
 
@@ -554,80 +627,6 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEDCDEDB1A4C967B6EBE944B36F79838845D7FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601429   (137016) от 31.12.2022
-
-Грозный папа (2022) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поссорившись с сыном, царь Иван Грозный случайно ранит его – как на знаменитой картине Репина. Жизнь царевича на волоске. Чтобы все исправить, Грозный хочет отправиться в прошлое с помощью волшебного гримуара. Однако что-то пошло не так, и Грозный попадает в наше время, где знакомится с семьей Осиповых. Никита Осипов – неудачливый археолог и такой же неудачливый (   Читать дальше...   )Производство: Россия / IRSNA MEDIA, Карго ФильмЖанр: комедия, фэнтези, фантастика, приключения, семейныйРежиссер: Карен Оганесян, Юрий КоробейниковАктеры: Кирилл Кяро, Евгений Гришковец, Игорь Верник, Елена Сафонова, Анастасия Тодореску, Михаил Орлов, Ирина Воронова, Ульяна Пилипенко, Игнат Акрачков, Эрик ПаничСубтитры: отсутствуютПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60482FF8EBB9FA3B953B9C5684062BC801F876D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679521   (137017) от 25.11.2023
-
-Сергей Лукьяненко | Форсайт (2023) [MP3, Сергей Габриэлян, Дмитрий Ячевский, Федор Парамонов, Полина Кузьминская, Егор Жирнов] [AD]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Людям порой снится прошлое. Иногда хорошее, иногда не очень...
-Но что делать, если тебе начинает сниться будущее?
-И в нём ничего хорошего нет совсем.Жанр: Киберпанк, постапокалипсисИздательство: МТС СтрокиПродолжительность: 06:47:17Реклама: вставки в начале каждой главы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC704E94019D7DC8B763278FD1372ABE2B3CA86D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338543   (137018) от 31.12.2021
-
-Клаус / Klaus (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодого почтальона отправляют на работу в заснеженную деревушку с крайне недружелюбными и негостеприимными жителями. Там он встречает странного создателя игрушек, и между ними завязывается необычная дружба.Производство: Испания / The SPA Studios, Aniventure, Atresmedia CineЖанр: Мультфильм, семейный, фэнтези, комедия, приключенияРежиссер: Серджо ПаблосПеревод: Дублированный (Невафильм)Язык озвучки: Русский, румынский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH).. и др. (см. Mediainfo)Продолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
 ```
 
 

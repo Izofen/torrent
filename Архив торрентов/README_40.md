@@ -6,7 +6,7 @@ VRadio - Online Radio App v2.8.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14224.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Proton VPN 5.11.94.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14233.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14237.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14238.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14239.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4C6EC1B01BDE7977A9F8C5C404CED79896CD61D6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14243.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft  Visual C++ Runtimes AIO v0.92.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14250.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14251.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14259.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2400AC8A55FCB260C8C1191AB5E986F0BAD53201
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14281.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CorelDRAW Technical Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14336.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Auslogics BoostSpeed 14.0.1.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14341.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2A4387AAFF2D7119A2683391DD52AD868759C4C9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14366.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIMP 5.40.2683 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14371.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Opera One 119.0.5497.110 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14373.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Acrobat Pro 2025.001.20531 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14390.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Microsoft Visual Studio 2022 Professional 17.14.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14423.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14432.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.48 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14433.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1065124DEFE09C422B003470ACDBA30BE3B850B3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14439.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DLNow Video Downloader 1.54.2025.06.13 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14440.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ RAM Saver Professional 25.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14443.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14443.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Advanced Renamer 4.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14445.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WinCatalog 2024.12.0.614 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14448.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14448.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Allavsoft Video Downloader Converter 3.28.1.9278 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14450.jpg" />
 </div>
 
 

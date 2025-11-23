@@ -1,3 +1,158 @@
+###  Публикация: 1195317   (143262) от 28.12.2017
+
+Проекты - Проект ProShow Producer - Golden Wishes [PSH]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк проекта АЕ от Form Studio. Проект пересохранён в PSP-9.
+Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
+Превью, переход и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE19879DB4D82D6AFEFF6BEA7DDEA144B4D3CB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969868   (143263) от 29.12.2015
+
+Квартирник у Маргулиса. 2 выпуск. Несчастный случай (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня в гостях у Евгения Маргулиса участники группы Несчастный случай исполнят свои самые известные и любимые песни: У меня есть график, Снежинка, Овощное танго, Нет-нет и многие другие. Заодно расскажут историю создания творческого дуэта и о том, как проводят необычные «халатные концерты» в пижамных нарядах. Дата эфира: 15.11.201501. У меня есть график
+02. Слезы мужчин
+03. Шла Саша по шоссе
+04. Овощное танго(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8490D7084F58F4940DDB7BA7101D19C0E3B5AE1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520099   (143264) от 27.12.2021
+
+Три мушкетера / Les 3 Mousquetaires (1953) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический случай, когда молодость и присущая ей бесшабашность — не порок, а дорога к славе. Бедный гасконский дворянин, благодаря безрассудной храбрости, сумел спасти со своими друзьями-мушкетерами честь королевы Франции. Несмотря на все козни, чинимые кардиналом Ришелье руками своих подручных.Производство: Франция, Италия / Pathé Consortium Cinéma, Pathé-Cinéma, Produzioni Atlas Consorziate (P.A.C.), Société Générale de Cinématographie, TitanusЖанр: ПриключенияРежиссер: Андре ЮнебельАктеры: Жорж Маршаль, Ивонн Сансон, Джино Черви, Бурвиль, Клод Дофен, Даниэль Годе, Жан Паредес, Луи Арбесье, Жорж Шамара, Поль ДеманжПеревод: Профессиональный многоголосый (Киностудии «Фильм-Экспорт»)Субтитры: английскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF5FA71E9BD2A300D953BA22EBE90FBF492C52A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435450   (143265) от 28.12.2020
+
+Кисти - Creative Market - 3000 Photoshop Stamp Brushes Bundle - 5657270 [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внутри - самые популярные художественные кисти и кисти с эффектами для фотошопа (файлы .abr также можно открывать в приложении Procreate) Только полезные инструменты и рисунки, широкий спектр разнообразия. Эти кисти сэкономят ваше время на каждом проекте. Просто загрузите эти кисти в свой фотошоп и наслаждайтесь! Добавьте реалистичные и абстрактные эффекты в свою (   Читать дальше...   )Формат: ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E574B42854A46153872F997D4D8BACB9629E4BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678604   (143266) от 22.11.2023
+
+AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143266.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC (Эй-си/ди-си; сокращённо от англ. alternating current/direct current «переменный ток/постоянный ток») - австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.01. Live Wire
+02. Shot Down In Flames
+03. Hell Ain't A Bad Place To Be
+04. Sin City(   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: Hard Rock, концерт, музыкаУчастники: Bon Scott (lead vocals)
+Angus Young (lead guitar)
+Malcolm Young (rhythm guitar, backing vocals)
+Cliff Williams (bass, backing vocals)(   Читать дальше...   )Продолжительность: 01:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8F0974BBC1A367AC6E218D3B47C6DD174B1673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172960   (143267) от 28.12.2017
+
+Kino no Tabi: The Beautiful World - The Animated Series | Kino`s Journey: The Beautiful World - The Animated Series | Путешествие Кино: Прекрасный мир [ТВ-2] [2017, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аниме рассказывает о путешествии девушки Кино по вымышленному миру, напоминающему Европу начала ХХ века. Государства этого мира практически не взаимодействуют друг с другом и находятся на разном уровне развития: где-то позднее средневековье, где-то только что изобрели паровой двигатель, а где-то укротили гравитацию и создали искусственный интеллект. Одновременно (   Читать дальше...   )Жанр: приключенияРежиссер: Тагути Томохиса / Taguchi Tomohisa / 田口智久Перевод: 1)YakuSub Studio; 2)Dotonbori Roma / nippaЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AA59A53C5B244ECC54E66668DC9868EC020CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678654   (143268) от 22.11.2023
 
 Ashampoo WinOptimizer 26.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +161,7 @@ Ashampoo WinOptimizer 26.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143268.jpg" />
 </div>
 
 
@@ -30,7 +185,7 @@ magnet:?xt=urn:btih:47E86140DC083DCCFD8FBFA9837AA65262A76502
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143269.jpg" />
 </div>
 
 
@@ -54,7 +209,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143270.jpg" />
 </div>
 
 
@@ -81,7 +236,7 @@ magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143272.jpg" />
 </div>
 
 
@@ -106,7 +261,7 @@ magnet:?xt=urn:btih:7621A01687DE592137D4DB27AE4621112F681E45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143273.jpg" />
 </div>
 
 
@@ -130,7 +285,7 @@ magnet:?xt=urn:btih:70F19252DFFBF81E5738ECAECC0AE22CD352AF4D
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143275.jpg" />
 </div>
 
 
@@ -154,7 +309,7 @@ magnet:?xt=urn:btih:C01E98CB9877B2BB1D86010B1015AB4126349864
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143276.jpg" />
 </div>
 
 
@@ -179,7 +334,7 @@ Coolmuster Word to PDF Converter 2.1.7 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143277.jpg" />
 </div>
 
 
@@ -204,7 +359,7 @@ magnet:?xt=urn:btih:6FB5ADC7245248D5975CB88EDAC7A5B6EE3A3460
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143280.jpg" />
 </div>
 
 
@@ -228,7 +383,7 @@ magnet:?xt=urn:btih:DD25D001DF45ED255E4BE94A6F523855A98AD7BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143281.jpg" />
 </div>
 
 
@@ -252,7 +407,7 @@ Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143282.jpg" />
 </div>
 
 
@@ -279,7 +434,7 @@ magnet:?xt=urn:btih:DC393814DFF22D7FB9F91D9FBBB2FF11E6589192
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143285.jpg" />
 </div>
 
 
@@ -303,7 +458,7 @@ Coolmuster PDF Creator Pro 2.1.20 RePack by вовава [Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143286.jpg" />
 </div>
 
 
@@ -327,7 +482,7 @@ Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143289.jpg" />
 </div>
 
 
@@ -354,7 +509,7 @@ magnet:?xt=urn:btih:217EED0266167836F0F4196BEA9F5B6A98B4DF30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143290.jpg" />
 </div>
 
 
@@ -378,7 +533,7 @@ magnet:?xt=urn:btih:3E9ABC1939C5EE77AEA5C4248A6FE339F153624D
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143291.jpg" />
 </div>
 
 
@@ -402,7 +557,7 @@ magnet:?xt=urn:btih:701CBE4C697BAF34210576978CFF7CCD8348F714
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143292.jpg" />
 </div>
 
 
@@ -426,7 +581,7 @@ magnet:?xt=urn:btih:1E847EF323ED023D1D2C110E30A0D000FF69C20C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143293.jpg" />
 </div>
 
 
@@ -450,7 +605,7 @@ magnet:?xt=urn:btih:8C0CD0AD084590712B2F46B80EE7EF555A7C2107
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143295.jpg" />
 </div>
 
 
@@ -474,7 +629,7 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143296.jpg" />
 </div>
 
 
@@ -488,155 +643,6 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52757400664E04CDEB340F1BA8F3268F7CE9769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590418   (143297) от 17.12.2012
-
-Animal Wallpapers (16.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BA8DA4DA31E72C9AA46B108D55BC2536CB7E14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195305   (143298) от 28.12.2017
-
-Михаил Михайлов | Мастер големов (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Повелитель металла».
-
-Кому-то суждено родиться с магией. Косте повезло получить дар при переходе через межмировой портал. Не все было у него гладко при обретении этой силы, но сейчас он уже уважаемый человек в герцогстве, которое стало его домом. Жажда новых знаний, считающихся забытыми, гонит его в самые опасные уголки мира, заставляет вступать (   Читать дальше...   )Жанр: Героическая фантастика, Попаданцы, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5E87600C3FACA0C8668F90CF9173AFDF289EB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351194   (143300) от 28.12.2020
-
-Подшивка | Woodsmith (2020) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Woodsmith — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, практически (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D6182500C0DB2144ECB4293FBB0D294AF49B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669642   (143301) от 22.11.2023
-
-Алекс Делакруз | Красный рассвет (2023) [MP3, Alex]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно знакомый и в то же время чужой мир. Мир, где Третья мировая случилась сразу после Второй, и где в 2023 году выжившие великие державы спорят за контроль над территориями Африки и Северной Америки. Ему всего двадцать один. Привычная жизнь давно разрушена, за спиной – перекрестки иных миров. Он в этом мире чужой, и он здесь как предвестник открытия врат, (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA8C9FC39C379FCB7434BD0274EFF2C36D24E15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088050   (143302) от 29.12.2016
-
-Johnny Smith - Favorites (1959) Remaster, 2016, Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moonlight In Vermont [02:38]
- 02.My Funny Valentine [03:24]
- 03.Little Girl Blue [02:55]
- 04.My One And Only Love [02:47](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC31CD53E9755EEA3BE64A5C4E89929418DD8768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348568   (143303) от 28.12.2019
-
-Дельты великих рек. Юкон / Deltas of the World. Yukon Arctic Wilderness (2018) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дельта Юкона в юго-восточной части Аляски осталась таким же диким уголком как и сто лет назад. Речной лабиринт простирается от самой реки и питает территорию как артерии...Производство: ЕС, Filmtank, Apollofilm, Arte, AutenticЖанр: Документальный, природа, флора, фаунаРежиссер: Эмануэль ДэкомбПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCBB4A2E0C2D817FF6FD398991C8F66C03B34FE
 ```
 
 

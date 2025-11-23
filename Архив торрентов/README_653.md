@@ -6,7 +6,7 @@ Sidify Spotify Music Converter 2.2.0 RePack by F4CG [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138634.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Folder Hider Pro 3.30.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138638.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0084D6541B1D70316D03DEE0FF32F27F067D476B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138651.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ BELOFF [dp] 2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138665.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Slimjet 17.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138666.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Notepad3 5.20.915.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138670.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Paint.NET 4.0.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138671.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:13146EB0F2E6798E8C35E5171CF97902A365EB8F
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138673.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:13146EB0F2E6798E8C35E5171CF97902A365EB8F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138674.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:084D7AFAE794C9FD2BDCBB59F4BD234074206942
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138682.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ onOne Perfect Photo Suite 7.0.2 Premium Edition + Ultimate Creative Pack 2 [Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138683.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ K-Lite Codec Pack Update 11.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138690.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Skype 8.67.0.99 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138700.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PowerISO 7.8 [DC 29.12.2020] RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138710.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5EE6FAB0E45B60A8B48BCF4F442A30EB8403D00F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138711.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:9CD67E170998AF683B7540D66429123A33E2100B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138712.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:AA9B5D1040DAA1ED0FAE7ACD3670696B95B5D30E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138720.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:277BDC81C97929B2184D979638919DC4C3146FD8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138729.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B78D148B732916F9D1ECEBAC6B8FD3B96DDAAC51
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138730.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SamDrivers 20.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138737.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138741.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ MediaInfo 0.7.81 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138755.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:486869584F3C5BB276961705BA641FBC1CCE1233
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138762.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VSO ConvertXtoVideo Ultimate 1.6.0.47 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138777.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WinCatalog 2017 17.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138781.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Paint.NET 4.0.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138784.jpg" />
 </div>
 
 

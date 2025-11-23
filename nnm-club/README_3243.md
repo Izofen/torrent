@@ -1,3 +1,80 @@
+###  Публикация: 1752095   (103999) от 28.09.2024
+
+VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryn Whiting - See The Sign (Extended Mix) [7:33]
+02. Andre Wildenhues - Oceans Symphony (Extended Mix) [7:11]
+03. STNX - Destruction (Extended Mix) [6:35]
+04. Vapour Trail - The Furthest Sense (Extended Mix) [7:05](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FE00A47D621803B6C4694EEE252AA7568875FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752102   (104000) от 28.09.2024
+
+MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104000.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 сентября 2024, суббота. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752076   (104001) от 28.09.2024
+
+Живая еда с Сергеем Малозёмовым (28.09.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арбузы: чего в них больше — пользы или вреда, как быстро они портятся, правда ли мякоть арбуза — идеальная среда для бактерий, почему случаются отравления и что будет, если есть эту ягоду без ограничений?
+ Можно ли псиллиумом заменять муку, что из него готовят диетологи и повара, а тажке — почему его обязательно нужно запивать водой?
+ Овсяный отвар: чудо-средство из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78DE2B2516F170D86803F5EDA809BD7A7F136F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752002   (104002) от 28.09.2024
 
 Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo Swing>
@@ -6,7 +83,7 @@ Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104002.jpg" />
 </div>
 
 
@@ -33,7 +110,7 @@ magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104003.jpg" />
 </div>
 
 
@@ -58,7 +135,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104004.jpg" />
 </div>
 
 
@@ -82,7 +159,7 @@ magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104005.jpg" />
 </div>
 
 
@@ -106,7 +183,7 @@ magnet:?xt=urn:btih:A170E2077740D751A49D7150F5F49C97FF5F36B1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104006.jpg" />
 </div>
 
 
@@ -131,7 +208,7 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104007.jpg" />
 </div>
 
 
@@ -158,7 +235,7 @@ magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104008.jpg" />
 </div>
 
 
@@ -182,7 +259,7 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104009.jpg" />
 </div>
 
 
@@ -209,7 +286,7 @@ magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104010.jpg" />
 </div>
 
 
@@ -233,7 +310,7 @@ magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104011.jpg" />
 </div>
 
 
@@ -257,7 +334,7 @@ magnet:?xt=urn:btih:47738DD0482338DDCADE1A751CD265DFD428FC80
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104012.jpg" />
 </div>
 
 
@@ -282,7 +359,7 @@ magnet:?xt=urn:btih:A420CBDF9463B6BEE24C2802CD605E8549834513
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104013.jpg" />
 </div>
 
 
@@ -306,7 +383,7 @@ Moon+ Reader Pro v9.6 (b906001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104014.jpg" />
 </div>
 
 
@@ -330,7 +407,7 @@ magnet:?xt=urn:btih:C77A6D920EA9AF9E7152DDA15CF70F78BD5C0931
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104015.jpg" />
 </div>
 
 
@@ -357,7 +434,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104016.jpg" />
 </div>
 
 
@@ -384,7 +461,7 @@ Babbba - Perfect moment (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fusion, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104017.jpg" />
 </div>
 
 
@@ -411,7 +488,7 @@ Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104018.jpg" />
 </div>
 
 
@@ -438,7 +515,7 @@ Ocenaudio 3.14.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104019.jpg" />
 </div>
 
 
@@ -462,7 +539,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104020.jpg" />
 </div>
 
 
@@ -486,7 +563,7 @@ magnet:?xt=urn:btih:626783A5DE791FEA3B385FC47B773D01EFAD5749
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104021.jpg" />
 </div>
 
 
@@ -513,7 +590,7 @@ FileZilla Server 1.9.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104022.jpg" />
 </div>
 
 
@@ -537,7 +614,7 @@ magnet:?xt=urn:btih:FBB53A28FA693F32C8AC60A2FFDB276717C97834
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104023.jpg" />
 </div>
 
 
@@ -561,7 +638,7 @@ VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swin
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104024.jpg" />
 </div>
 
 
@@ -575,78 +652,6 @@ VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751917   (104025) от 28.09.2024
-
-Последнее искупление / The Last Redemption (2023) WEB-DLRip [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_104025.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпическом квесте бесстрашная преступница Диана и рыцарь Тирион сражаются со злодеем лордом Роландом за королевство. Они объединяются, чтобы победить Роланда, спасти принцессу и восстановить мир.Производство: Италия / Real Dreams Entertainment, TheBrave, One s.r.oЖанр: фэнтези, приключенияРежиссер: Джон РеалАктеры: Кевин Сорбо, Джеймс Космо, Энгус Макфадьен, Наталия Берн, Саймон Филлипс, Карл Уортон, Хал Яманоути, Неб Чупин, Denisa Juhos, Алессия АльчатиПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:35Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752145   (104026) от 28.09.2024
-
-Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 7 класса (в 2 частях. Часть 1) (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линия учебников для основной школы. Материал разбит на два уровня сложности и представлен как канва сценариев уроков, реализующих деятельностный подход к обучению: тщательно подобранные задания погружены непосредственно в теорию. Имеется набор заданий трёх уровней сложности. Приведены описания кратковременных фронтальных практических работ, позволяющих учащимся самим (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8036C49B80E9AE1B429B22691F992D2150F3A3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744442   (104027) от 28.09.2024
-
-Хит-Манки / Hit-Monkey (2024) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B23F3491BF8FCAC35319EB3E00FFDF1EE03FBF
 ```
 
 

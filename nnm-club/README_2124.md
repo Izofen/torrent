@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55589.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55590.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:323A0A545CD2100BF627267B6CE2472A1418166A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55591.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MAGIX Vegas Pro 21.0 Build 315 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55592.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B54A57263E3B18BCA86BADEAC562E06917D89939
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55593.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:38C4CFF805A086547F92B93C713243C62A5BC2DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55594.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D685CA81A1ECBE857BE010D1EF90EAC8FC8CD6B3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55595.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3BF2FF007F5769173166346B4B713B978E0641A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55596.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Adobe Premiere Pro 2024 24.4.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55597.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3955F45A04F83821FE7E62297ED077EB0DFAD531
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55598.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:964AF36B99DFC9146B6FEFAB62F64D056D66CA6C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55599.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Universal USB Installer 2.0.2.3 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55600.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C3C37273096653CF5CE45E2FEA1457C6A1EFACF3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55601.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D7109E158514173524EA1C7BE74DF29B799D9E5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55602.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows and Office Genuine ISO Verifier 11.17.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55603.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Bring Me The Horizon - Post Human Nex Gen (2024) [MP3|320 Kbps] <Alt. Metal, Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55604.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:24BD2769FE8F9B55F5F13432DC945C9F38F53F7E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55605.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Trance 100 - 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55606.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:719C1B93C59EF6FE41B4AF189DECB7C9013262B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55607.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:98D2AE3BB378C26DE68BAAAB0527933295C950E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55608.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D6CFD0BCBB725E99D34719D947F125572563B3B8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55609.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55610.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ KMPlayer 2024.5.23.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55611.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Topaz Gigapixel AI 7.2.0 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55612.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ CCleaner 6.24.11060 Technician Edition (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55613.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:661F0AA287FE5A64E6AACB3808EC9F4799D8105F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55614.jpg" />
 </div>
 
 

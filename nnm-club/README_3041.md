@@ -1,3 +1,76 @@
+###  Публикация: 462698   (95700) от 05.03.2012
+
+В.А.Кукель | Правда о гибели Черноморского флота в 1918 году [1923] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95700.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-го июня 1918 года на рейде Новороссийска потоплена своими командами половина Черноморского флота бывшей императорской России.
+Это потопление, обстоятельства которого ниже излагаются активным участником его В.А. Кукелем, является одним из наиболее трагических эпизодов в истории военных флотов, эпизодом не уступающим по трагизму другим историческим "потоплениям": (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3571061372F7E6ACD238D36FAE09D32E7247C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462301   (95713) от 05.03.2012
+
+Водная жизнь / Water Life (2007) BDRip [1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: RusПродолжительность: 5 серий~ по 00:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462661   (95720) от 05.03.2012
+
+Григорий Раковский | Конец Белых. От Днепра до Босфора. (1921) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раковский Григорий Николаевич - журналист, военный корреспондент, переживший Гражданскую войну на Юге России вместе с Белой армией. Очевидец и непосредственного участник описываемых событий рассказывает о попытке генерала Врангеля воссоздать белую армию в Крыму сразу после разгрома Деникина. Крымский этап эпопеи белого движения во многом напоминает деникинский: и (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463053   (95721) от 05.03.2012
 
 [EN] Возмездие Эрпа / Wyatt Earp's Revenge (2012) DVDRip
@@ -6,7 +79,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95721.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95725.jpg" />
 </div>
 
 
@@ -63,7 +136,7 @@ VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95726.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95726.jpg" />
 </div>
 
 
@@ -96,7 +169,7 @@ Yori Swart - Yori Swart (2012) [MP3|320 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95730.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95730.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95738.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95738.jpg" />
 </div>
 
 
@@ -162,7 +235,7 @@ VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95740.jpg" />
 </div>
 
 
@@ -195,7 +268,7 @@ VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95749.jpg" />
 </div>
 
 
@@ -228,7 +301,7 @@ magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95753.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ VA - Interpret Reality (2011) [MP3|320 кб/с]<Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95755.jpg" />
 </div>
 
 
@@ -285,7 +358,7 @@ magnet:?xt=urn:btih:DB75C36E5335836601581C85787433F2D594B71A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95758.jpg" />
 </div>
 
 
@@ -309,7 +382,7 @@ C. Васильев | Александровская слобода [1971] [PDF]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95764.jpg" />
 </div>
 
 
@@ -333,7 +406,7 @@ magnet:?xt=urn:btih:50AACB9B6916578F5E2766A808FDA216B00A0802
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95765.jpg" />
 </div>
 
 
@@ -359,7 +432,7 @@ VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95768.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95776.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ magnet:?xt=urn:btih:67714F45164DD2701F5B1AE6667BC6C6D067D863
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95780.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ magnet:?xt=urn:btih:3B36074DD6BC5B55E0237D0757F1A5D4E929A940
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95787.jpg" />
 </div>
 
 
@@ -473,7 +546,7 @@ magnet:?xt=urn:btih:3813F394F70E162BA2B6A91575D0E24424BD7BBF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95792.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95792.jpg" />
 </div>
 
 
@@ -497,7 +570,7 @@ Marcus Miller - Original Album Classic (1993-2007) [5CD Box Set] (2009) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95796.jpg" />
 </div>
 
 
@@ -530,7 +603,7 @@ magnet:?xt=urn:btih:2CC200D8CDF02E23EE78F43690D3CEB3D3253402
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95803.jpg" />
 </div>
 
 
@@ -554,7 +627,7 @@ Ace Ventura - Rebirth (2007) [FLAC|Lossless]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95804.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95804.jpg" />
 </div>
 
 
@@ -586,7 +659,7 @@ Ace Ventura - Rebirth (2007) [FLAC|Lossless]<Psy-Progressive>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_95806.jpg" />
 </div>
 
 
@@ -610,7 +683,7 @@ VA - Area 51 Vol. 3 (2007) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95815.jpg" />
 </div>
 
 
@@ -642,7 +715,7 @@ Visions Of Atlantis - Maria Magdalena (2011) EP [FLAC|Lossless]<Power Metal,Symp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95821.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_95821.jpg" />
 </div>
 
 
@@ -658,96 +731,6 @@ Visions Of Atlantis - Maria Magdalena (2011) EP [FLAC|Lossless]<Power Metal,Symp
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463717   (95825) от 06.03.2012
-
-VA - Sexy Trance #28 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95825.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Protoculture feat. Shannon Hurley - Sun Gone Down (Original Mix)
-002. SHOGUN - Skyfire
-003. Meridian - Shifter
-004. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-005. Orjan Nilsen - The Mule (Album Mix)
-006. Philippe El Sisi feat. Josie - Over You (Original Mix)
-007. Project Purity - Inertia (Original Mix)
-008. Rene Ablaze feat. Avalona - United To The World (Original Mix)
-009. Sebastian Brandt - Ashes
-010. Setrise feat. Yana Kay - Weapon (Extended Mix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F559E8C3D9C53A66EE0C898856045A854AD04A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463537   (95826) от 06.03.2012
-
-Бруно Винцер | Солдат трех армий (2010) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мемуары немецкого офицера, в которых автор рассказывает о своей службе в рейхсвере, гитлеровском вермахте и бундесвере. В 1960 году Бруно Винцер, штабс-офицер бундесвера, тайно покинул Западную Германию и перешел на территорию Германской Демократической Республики, где издал эту книгу - историю своей жизни.Жанр: МемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0F48F8C3957CC56616623A8CF9219D18F0B164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462649   (95850) от 07.03.2012
-
-Arminstel - Trance Evolution vol.70 (04.03.2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azotti - The Miracle (Dima Krasnik Remix)
- 02. Mike Van Fabio - Sacred Lake (Original Mix)
- 03. Elev8 - Self Delusion (Andrian Cyber Remix)
- 04. Vitaly Dudarev - For You (Original Mix)
- 05. Vitaly Dudarev - No Way Back (Original Mix)
- 06. Dennis T. - Flash On The Night (Original Mix)
- 07. Worlds&Particle aka Fuideleptic - The Sky (Original Mix)
- 08. Jonathan Burhan - Evacuation (Touchstone Remix)
- 09. iLya Rain - Sunset (Original Mix)
- 10. Damian Wasse - Magic Stars (Original Mix)(   Читать дальше...   )04.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60CB3D1262A962FA0EFDC12DAEDC338B9D04BC1
 ```
 
 

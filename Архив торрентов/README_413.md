@@ -6,7 +6,7 @@ Dada Life - March 2012 Mix (01-03-2012) [MP3|160 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96920.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:7D8B7C58895C6D001443C72A2DFACB41C298A8BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96921.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:3A9D94898C56527B2822F2530A03FF90275E2DFE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96922.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:EC56FDE7B4A1FEC23E7640F197AC2705FED2C685
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96923.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96924.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96928.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9849459131DABA7D169AD9F8FDE79C6E9FDE6EB1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96929.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:55109C1EB815825F62CE514EBB43C92A0CB71B42
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96930.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E98C79DA283B8E59EB3C6A60E77B1910DBD2981B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96931.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96932.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96932.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96935.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96937.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96938.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96946.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96948.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96949.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96953.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - 50 Miami Tunes 2012 (2012) [MP3|320 кб/с]<Trance, House, Progressive Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96956.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96957.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96958.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96965.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96967.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96972.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96972.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96975.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96976.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96984.jpg" />
 </div>
 
 

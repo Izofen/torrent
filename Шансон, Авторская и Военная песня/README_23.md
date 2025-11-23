@@ -1,3 +1,111 @@
+###  Публикация: 280006   (195100) от 27.07.2023
+
+Ирина Круг - Я прочитаю в твоих глазах (2010) [APE|Lossless]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я прочитаю в глазах твоих [3:30]
+02 - Дом на горе [3:24]
+03 - Качают небо золотые купола (Дуэт с В.Королёвым) [4:07]
+04 - То , что было [3:11](   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06AF00DDBFB8A6E4F30DE78A9BE89608E1BBE54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233013   (195107) от 27.07.2023
+
+Александр Суханов - Российские барды. Том 16 (2010) [APE|Lossless]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Чувствительная беседа
+02 - О женщине Грузии дальней...
+03 - Рассказ кока
+04 - Королева Нила(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA93041BC77B7E6D6009EF5B7149091B2BA78AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257024   (195126) от 26.07.2023
+
+Владимир Высоцкий - Le Monument / Памятник (1995) [WavPack|Lossless]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le monument (Памятник) (4:25)
+02. Visite prenuptiale (Смотрины) (4:31)
+03. Dialogue devant la tele (Диалог у телевизора) (3:35)
+04. Camarades savants (Товарищи ученые...) (2:47)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C483C33F78872A9A68D83B5E415032CA3BADC73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216620   (195137) от 26.07.2023
+
+Булат Окуджава - Российские барды. Том 7 (2010) [APE|Lossless]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_195137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - За что ж вы Ваньку-то Морозова?
+02 - Песенка про дураков
+03 - Прощание с новогодней ёлкой
+04 - Арбатский романс(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A954DD1D7381E5067226BB82D3DDCD270DF904EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 262317   (195139) от 26.07.2023
 
 Ирина Богушевская и Александр Скляр - Странные песни А.Н. Вертинского (2001) [FLAC|Lossless]<Шансон, Джаз>
@@ -6,7 +114,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195139.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195139.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ magnet:?xt=urn:btih:922C806A2355C7897FD308464C03C8D804F2E725
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195147.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195147.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ magnet:?xt=urn:btih:D0DE521BEBDA8F1A1FAB66A7C5A07D5B80F655EA
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195154.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195154.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ magnet:?xt=urn:btih:1DD80CAFD99A879417E2D762271D07CC814CBE9F
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195155.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195155.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ magnet:?xt=urn:btih:A4CA4EB980EB2CE97A8F328B68696693F07867CF
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195157.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195157.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ magnet:?xt=urn:btih:B10D9D6D7C4A83EE50BC8FC982C50724F7D9E68C
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195216.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195216.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ VA - Шансон 2023 (Музыкальный хит-парад) [FLAC|Lossless
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196989.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196989.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ magnet:?xt=urn:btih:21C3BE720805136A9F6BDB47CDA8D7E73ED60D44
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198323.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198323.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ magnet:?xt=urn:btih:AE8CCA0CF29A44D8A5DFAEBBF135730BB61B7454
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199691.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199691.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ magnet:?xt=urn:btih:DF991324A183721CDCB8C9D85203E32C2C685443
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201626.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_201626.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ magnet:?xt=urn:btih:6B49C20B90F3FA61CAD9660F0C75E7DFFD077168
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202531.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_202531.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ magnet:?xt=urn:btih:4068404995F789BF602AACC70BC961A9EE53A8E6
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203570.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203570.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ magnet:?xt=urn:btih:2C3CC82E9C91E68F9C93F466774129C85DCC650C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204081.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204081.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ magnet:?xt=urn:btih:09F44DD03A0147ABA063206F21E3CED7CC7ADB3E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204220.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204220.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ VA - Калина красная 21-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204559.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_204559.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ magnet:?xt=urn:btih:00112291F191ED49B46D3F0E97B137C8AE163DDA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206613.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ magnet:?xt=urn:btih:E8E72D9995FDA9FF4E639647DA4BDF7A6CF8FB08
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208013.jpg" />
 </div>
 
 
@@ -466,7 +574,7 @@ VA - Калина красная 22-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208673.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208673.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ magnet:?xt=urn:btih:8DAA7F2031102AC191881117F3EBF7B7E978A31E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209200.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209200.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ magnet:?xt=urn:btih:2823E97720680B4DCA223BD70AC5D74192120E49
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209201.jpg" />
 </div>
 
 
@@ -547,7 +655,7 @@ magnet:?xt=urn:btih:1E999935A11CFF3A3E5000E6E4CFE705EF651F7F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209243.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209243.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ magnet:?xt=urn:btih:5DB1E17FE24976249CA9680D1009DB177325BA85
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209281.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209281.jpg" />
 </div>
 
 
@@ -588,114 +696,6 @@ magnet:?xt=urn:btih:5DB1E17FE24976249CA9680D1009DB177325BA85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A056B5F94B878E866B9BC2F147407A2D955061D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642443   (210329) от 27.06.2023
-
-Евгений Клячкин - Моим ровесникам (1995) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мокрый вальс
-02. На театральной площади...
-03. Возвращение
-04. Сигаретой опиши колечко...(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5426DA52CB519C9915D7E06D2288C85CA67DC717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198913   (210752) от 11.08.2022
-
-VA - Казачьи песни: Сборник лучших песен (2002) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бравый атаман (гр.Белый день)
-02. Казачья (В.Черняков)
-03. Дон (А.Дюмин)
-04. Полонянка (С.Любавин)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E04096BB151E9D40254FB147ED9F07C8461EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640399   (211209) от 17.06.2023
-
-Олег Митяев - Лучшие песни (1999) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неутешительные выводы
-02. Как здорово
-03. Соседка
-04. Самая любимая песня(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162CA9AF365E98282178B1EE8BD6B33E5EE4FEF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640394   (211242) от 17.06.2023
-
-Евгений Клячкин - Лучшие песни (2000) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не гляди назад, не гляди...
-02. Сигаретой опиши колечко
-03. Псков
-04. Элегия(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3C1F8C6A141765B1BAD2C0EAC13E875C976F46
 ```
 
 

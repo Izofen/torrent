@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65867.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Billboard Top Hits: 1987 (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65872.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Shazam Hall Of Fame (2015) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65882.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65999.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66112.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66115.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66117.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66123.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66242.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Ultimate Dance Party 1997 (1996) [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66330.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cher - Love Hurts (1991) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66340.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DDBEB87E707AD0E0F4BF8E906142C1C2F04FD08D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66366.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66373.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:754CB3D040904D6C49C5C3D9DA7C0487CF0F1B94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66404.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66406.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sarah Connor - Freigeistin (2025) [MP3|320 Kbps] <Pop, Rhythm and Blues, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66478.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66606.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66629.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66635.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C007C8290C420B63BBEA42A7CCD225876F0D35D0
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66675.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66702.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0FBC3C5911E885D9CC7B5512FC2F810674FF376A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66716.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:388D8E256EC0C5563FB12E536DB97B07D1719945
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66725.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66772.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:87C05F0DF27A1CAC4C9CCF4874BCF02D228A5379
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_66908.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67058.jpg" />
 </div>
 
 

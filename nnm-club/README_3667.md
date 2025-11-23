@@ -1,3 +1,78 @@
+###  Публикация: 1703456   (115024) от 29.02.2024
+
+HWiNFO 7.73 Build 5375 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115024.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D18FDD491294A54743E056D42A6F8FC76A246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703543   (115025) от 29.02.2024
+
+VueScan Pro 9.8.28 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115025.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0006B6D177BD1797555760BA27A34CB7436F3E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703448   (115026) от 29.02.2024
+
+Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+1. We Stand United
+2. Crucified
+3. Candyman Messiah(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150755A436A964C98B5487901B92D73EDA2A024E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703476   (115027) от 29.02.2024
 
 Алексей Любушкин | Сфера Влияния (Книга 2). Наследие Дракона (2024) [MP3, Григорий Андрианов]
@@ -6,7 +81,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115027.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:9EA92F75D705CC54A6AA67D7ED84384F2686A40A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115028.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115029.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115030.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115031.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ magnet:?xt=urn:btih:D0E05377358E3EEE51E4987C0F8BDF80AEBCAEDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115032.jpg" />
 </div>
 
 
@@ -156,7 +231,7 @@ magnet:?xt=urn:btih:0C3C16C744DC5B2FED77F282F8647220112976C0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115033.jpg" />
 </div>
 
 
@@ -180,7 +255,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.6 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115034.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ magnet:?xt=urn:btih:BFC4A59EE5C1620104A03868D326E7C37DD287DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115035.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ magnet:?xt=urn:btih:F1CDF6F81335B460C4C259B7CA628EC5E8C07BB9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115036.jpg" />
 </div>
 
 
@@ -253,7 +328,7 @@ magnet:?xt=urn:btih:A229F90628C833CF0A2387F84A84812887FD4838
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115037.jpg" />
 </div>
 
 
@@ -277,7 +352,7 @@ VidCoder 9.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115038.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ VA - Music News vol.346 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115039.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.6 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115040.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ Tixati 3.21 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115041.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ Ashampoo WinOptimizer 26.0.0.24 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115042.jpg" />
 </div>
 
 
@@ -400,7 +475,7 @@ magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115043.jpg" />
 </div>
 
 
@@ -424,7 +499,7 @@ magnet:?xt=urn:btih:218FABC26737E760DFCBD172C7030C239093F616
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115044.jpg" />
 </div>
 
 
@@ -448,7 +523,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115045.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ magnet:?xt=urn:btih:4404D1CBDD939B99BF1B62B263FF719C1C8F9CC0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115046.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ EF Commander 24.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115047.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:F62B912ADAF2D6A8BE68F23FB3C388F21FAE5219
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115048.jpg" />
 </div>
 
 
@@ -550,7 +625,7 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115049.jpg" />
 </div>
 
 
@@ -564,82 +639,6 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A05DE17838DCD1B077DD57B9E6D67AD2622E5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703541   (115050) от 29.02.2024
-
-Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk Metal, Neo Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astraeus (1:53)
-02. Verdalet (4:23)
-03. Crowns Of Esper (6:15)
-04. Crystalline (5:48)(   Читать дальше...   )Жанр: Atmospheric Dark, Folk Metal, Neo FolkПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699910   (115051) от 29.02.2024
-
-Взрыв тишины / Blast of Silence (1961) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это низкобюджетный фильм, в котором вы увидите мастерски проработанный портрет наемного убийцы, выполняющего задание в Манхэттене во время Рождественских праздников.Производство: США / Magla ProductionsЖанр: триллер, драма, криминалРежиссер: Аллен БаронАктеры: Аллен Барон, Молли МакКарти, Ларри Таккер, Питер Эйч. Клуне, Дэнни Миэн, Ховард Манн, Чарльз Крисап, Билл ДеПрато, Мильда Меменас, Джо БуссикоПеревод: Одноголосый любительский (Александр Воронов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C0FB81208CAA81D8469071D1C437F7B4FB2669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703572   (115052) от 29.02.2024
-
-XnConvert 1.100.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115052.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnConvert - бесплатная кроссплатформенная утилита для конвертации и обработки цифровых изображений и снимков.
-Программа позволяет пользователю работать более с чем 500 графических форматов, включая JPEG, TIFF, PNG, GIF, RAW-форматы, WebP, OpenEXR, а также осуществлять регулировку яркости, контрастности и гаммы изображений, изменять размер, применять фильтры и разнообразные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF1EDCB2F95AD21DEE3807FC966DCFAB8EAE608
 ```
 
 

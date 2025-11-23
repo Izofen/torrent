@@ -6,7 +6,7 @@ Skype 8.117.0.202 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111596.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10709870FAFA501B7DF87FC101123E2F29A15109
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111608.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Topaz Gigapixel AI 7.1.1 + models Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ O&O Defrag Professional 28.0 Build 10010 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111616.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Google Chrome 123.0.6312.123 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111618.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FontViewOK 8.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111619.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Perfectly Clear WorkBench 4.6.0.2653 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111621.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PortableApps.com Platform 29.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111622.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:744F142C54B5B51C87FB2653F438344B876EE73C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111624.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111624.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ HWiNFO 8.01 Build 5415 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111626.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9911B68ADA409403F04205BFD8B7D35FD2280AEE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111627.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ QOwnNotes 24.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111629.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Photo Lab PRO v3.13.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111632.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ O&O DiskImage Professional 19.1 Build 132 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111635.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft PowerToys 0.80.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111637.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ OneCommander Pro 3.74.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111641.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wondershare PDFelement 10.3.7.2718 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111647.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ RJ TextEd 16.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111658.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Soul Browser 1.4.14 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111660.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Soul Browser 1.4.14 Mod by ateuffel [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111662.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Skype 8.117.0.202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111667.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Telegram Desktop 4.16.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111677.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.0 Mod by B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111682.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ BurnAware Free 17.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111684.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Speedtest от Ookla 5.3.5 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111691.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Skype 8.117.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111694.jpg" />
 </div>
 
 

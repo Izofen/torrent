@@ -6,7 +6,7 @@ Youtube Downloader HD 5.9.8.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9156.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4BBB4CDE0EA4C1CEC162CA4ABE26111904FAB2B6
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9421.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10311.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10311.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cleaner for Zapret 1.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10421.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MailWasher Pro 7.15.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10961.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MediaHuman YouTube to MP3 Converter 3.9.14 (1407) RePack (& Portable) by elchupa
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11328.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Google Chrome 138.0.7204.158 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11347.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:03F2B235F84176321F0C2D8FE71207D169655571
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11617.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Karing 1.2.0.810 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11982.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0EF5E1FCFEAE7A71E4E8467A6394EB64C9F7DCCF
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12182.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:98F88C86F826B6E78B37E36512A2E3688D6E3C33
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12660.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12672.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ qBittorrent 5.1.2 Portable by stalkerok (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12695.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12786.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ qBittorrent 5.1.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12799.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MediaHuman mTube 2.9.9.14 (0615) RePack (& Portable) by elchupacabra [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13001.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CoolUtils Total Mail Converter Pro 11.1.0.698 RePack (& Portable) by elchupacabr
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13151.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ NetLimiter 5.3.25.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13212.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Altus 5.7.1 (Альтернатива WhatsApp Desktop) [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13762.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 3
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14059.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BitComet 2.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_14438.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Find MAC Address 25.05 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16986.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ BitTorrent 7.11.0.47143 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17046.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wi-Fi Scanner 25.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17223.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ant Download Manager Pro 2.15.6 Build 90962 RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18254.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WinSCP 6.5.1 Build 16311  + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18627.jpg" />
 </div>
 
 

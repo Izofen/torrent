@@ -1,3 +1,101 @@
+###  Публикация: 1670149   (172273) от 19.10.2023
+
+Яндекс.Браузер 23.9.3.936 (x32) / 23.9.3.931 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83737AD01F8D17DABBA93FC51B361B7F207269EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670050   (172275) от 19.10.2023
+
+Cyberduck 8.7.0 Build 40629 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberduck — программа представляет собой бесплатный мультифункциональный клиент для подключения к удаленным директориям серверов, поддерживая работу с многими популярными протоколами подключения. В список типов серверов, к которым возможно выполнить подключение, вошли любые FTP, FTP-SSL, защищенное подключение SFTP, WebDAV, а также публичные облачные сервера Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED757670138E8935F3148CA7BFDCAF353328091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670221   (172277) от 19.10.2023
+
+DxO PureRAW 3.6.1 build 25 RePack by KpoJIuK [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
+С программным обеспечением DxO PureRAW легко и просто улучшить файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E0071EF227246FDF444E1FBF792957BB36D1CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670226   (172279) от 19.10.2023
+
+Sante DICOM Viewer Pro 14.0.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
+Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B166B079F6379CB92DA930E5F900A4E9332BF639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670088   (172281) от 19.10.2023
 
 Malwarebytes Windows Firewall Control 6.9.6.0 [Multi/Ru]
@@ -6,7 +104,7 @@ Malwarebytes Windows Firewall Control 6.9.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172281.jpg" />
 </div>
 
 
@@ -30,7 +128,7 @@ WinScan2PDF 8.68 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172285.jpg" />
 </div>
 
 
@@ -55,7 +153,7 @@ Moon+ Reader Pro v8.5 (build 805000) Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172286.jpg" />
 </div>
 
 
@@ -79,7 +177,7 @@ FotoJet Designer 1.2.8 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172289.jpg" />
 </div>
 
 
@@ -103,7 +201,7 @@ Wondershare PDFelement 10.1.2.2508 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172290.jpg" />
 </div>
 
 
@@ -127,7 +225,7 @@ Java SE Development Kit 21.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172291.jpg" />
 </div>
 
 
@@ -152,7 +250,7 @@ Ungoogled Chromium 118.0.5993.70-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172293.jpg" />
 </div>
 
 
@@ -176,7 +274,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2942 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172294.jpg" />
 </div>
 
 
@@ -200,7 +298,7 @@ WiFi Explorer 3 Pro 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172296.jpg" />
 </div>
 
 
@@ -225,7 +323,7 @@ FotoJet Photo Editor 1.1.6 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172297.jpg" />
 </div>
 
 
@@ -250,7 +348,7 @@ Music Collection 3.6.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172298.jpg" />
 </div>
 
 
@@ -274,7 +372,7 @@ Sante DICOM Editor 10.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172301.jpg" />
 </div>
 
 
@@ -299,7 +397,7 @@ Bizagi Modeler 4.0.0.065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172303.jpg" />
 </div>
 
 
@@ -325,7 +423,7 @@ DesktopOK 11.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172304.jpg" />
 </div>
 
 
@@ -349,7 +447,7 @@ TweakNow WinSecret Plus! 4.9.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172305.jpg" />
 </div>
 
 
@@ -374,7 +472,7 @@ NewFileTime 7.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172306.jpg" />
 </div>
 
 
@@ -398,7 +496,7 @@ EssentialPIM Pro 11.7.2 RePack (& portable) by elchupacabra[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172308.jpg" />
 </div>
 
 
@@ -423,7 +521,7 @@ Brave Browser 1.59.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172309.jpg" />
 </div>
 
 
@@ -447,7 +545,7 @@ Chromium 118.0.5993.89 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172310.jpg" />
 </div>
 
 
@@ -471,7 +569,7 @@ WinCatalog 2024.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172313.jpg" />
 </div>
 
 
@@ -495,7 +593,7 @@ Skype 8.106.0.212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172314.jpg" />
 </div>
 
 
@@ -519,7 +617,7 @@ Icecream Video Converter Pro 1.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172315.jpg" />
 </div>
 
 
@@ -530,103 +628,6 @@ Icecream Video Converter Pro 1.36 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E87A34112790EFAF2B519797C6BB023212CD73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670175   (172316) от 19.10.2023
-
-Icecream Photo Editor Pro 1.41 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icecream Photo Editor - лучший бесплатный фоторедактор и менеджер фотографий для Windows. С легкостью редактируйте свои фотографии как профессионал: добавляйте текст и изображения, обрезайте и изменяйте размер, добавляйте фильтры, создавайте коллажи и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9B85582BCCA596C346BFE6E95342D214852AB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670073   (172322) от 19.10.2023
-
-Wondershare PDFelement 10.1.2.2508 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C95241370F177716F78DEC858277D3D7659BFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670139   (172325) от 19.10.2023
-
-Affinity Designer 2 v.2.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2023Разработчик: © 2022 Serif (Europe) LtdПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ABB4F332CEA01DB93E925FEB977D0DC5C9BF4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670113   (172327) от 19.10.2023
-
-Skype 8.106.0.212 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A934B6245DC6D0B4FBE060264CD6C18E9B4FFC
 ```
 
 

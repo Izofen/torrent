@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C23BEE46A607D14A1BE102DD06B32A9D76004743
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78372.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ECF6E6FB517AF9CA8C44BB317C4C8586987CB1BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78384.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:61AC2F6780CDC8A348DAA2208024EA1E1F2D58D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78782.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:886565DE8F63B5BAB716383E050B0A605A32A3B6
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78891.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:36271727A9DB6C4EAEF3FA1D5CA3B305E57C6563
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_79060.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:132F533AD6F17765B2ED6E923FF7CE13D213B841
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80042.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F1FB061AF3397C149FE79AE87127CE2D27DDC54F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80073.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:592595B5CB506EAD8DCB2819A51AF80D4E68EA68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80372.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:329D63E9471C2292B2DCB5A017CEC9BE6C38E5AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80574.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F5A79D2B9A8BFA37CE1239B3A3027D2B82A4CD77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80653.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:F5A79D2B9A8BFA37CE1239B3A3027D2B82A4CD77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80745.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:02384F56C98A29E766A92D5966ECE78BD78386DC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80748.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:927347A4863EB3053FA8EE0AA8A2FC77704B5BEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80816.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:586F7679125FD084651BEFA519B7C4C7C527744A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80823.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:CB4C1896D2B1324A6AF5855AA5C3EC6832B2A903
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80824.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:BDA3CC88269C28463A1E23424FB316EC780CB835
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80875.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D77995DEB0E65E64FE8A16A174C808A855C4CCD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80920.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:FDCFF4F4A04991B85701C99732EA91738DB04B95
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80952.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D506C71B47E2E5312707DBED7FC0742957E858D6
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80971.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2E89F1C1E41CB73DD8361F80F6889063665306F2
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80977.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DDE0809C743168A2CD6DAE8074D018FC0A87A3AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80988.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:F59402CE8381E70C283C2BCA3671D51A3D779117
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_80993.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:D607FF64BD6B53CAAC7133F1C949919F7BC7BA47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81001.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F08993D26C9D38A381CB3BF3EC2652C80714B8F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81009.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:9AF83B599C7ECF5CA2E4D462F2E789882025118C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81036.jpg" />
 </div>
 
 

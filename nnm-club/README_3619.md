@@ -1,3 +1,84 @@
+###  Публикация: 1705575   (113776) от 09.03.2024
+
+Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter
+02. Necropol Lit
+03. Omnivore
+04. Rust Cleansing(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0D954532F6166C73E9FB5178BD151B3CC2CEDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705558   (113777) от 09.03.2024
+
+Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firm Roots [7:28]
+02. Shoulders [7:18]
+03. Young and Foolish [6:01]
+04. Meaning of the Blues [9:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 02:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971E141F06B31655FF924C99522AC0E4E588B915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705525   (113778) от 09.03.2024
+
+Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaker Of Words
+02. To Kill and Kill Again
+03. The Cluster Children
+04. Ruby Red(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Progressive MetalПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3562C81294D39B23229521C1A82C87F7A83425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705637   (113779) от 09.03.2024
 
 Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Progressive Metal>
@@ -6,7 +87,7 @@ Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113779.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ magnet:?xt=urn:btih:92F25BE34D67338C38334A61DC23AEF9685E26C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113780.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ magnet:?xt=urn:btih:229E44AA4E26145D569CA0494D67FC062F7F84EF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113781.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113782.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ magnet:?xt=urn:btih:F50F2EC87CAC8594EA5CF41EE0AA5AB2233AF280
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113783.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ Myrath - Karma (2024) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113784.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113785.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ FocusSee for Mac 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113786.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ ADDicted! - День (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113787.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ magnet:?xt=urn:btih:86A80C51724A0F94B2C6E9BD478B481E649B2A8A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113788.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113789.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113790.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113791.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ iNet Network Scanner 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113792.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:817DBE6B78975D491A2310719CE61284BDA19B64
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113793.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113794.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ Synthsoul - Cosmic Funk Chronicles (Original Mix) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113795.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ magnet:?xt=urn:btih:BFBFED42256F22725946E3B0BB47354118E8AFCA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113796.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ Voodoo - The Purge (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113797.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113798.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113799.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ PdfFactory Std & Pro 8.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113800.jpg" />
 </div>
 
 
@@ -583,7 +664,7 @@ magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113801.jpg" />
 </div>
 
 
@@ -594,84 +675,6 @@ magnet:?xt=urn:btih:66540423BB5C28D114902F8AC91C70D287D9FA85
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D50215A0F629064429CE1B128DC3BE2DFB9829AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705614   (113802) от 09.03.2024
-
-Алена Петровская - Мы люди русские (2022) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь с кислинкою ( Ой,щавель,щавель )
-02. Вьюга
-03. Нить любви
-04. Я не верю, что счастья нет(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09B9FB7C282745EFCC9CD14E62802A193D64C1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705612   (113803) от 09.03.2024
-
-Юлия Запольская - Москва после полуночи. Песни беспризорников (2008) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эх, дороги 2:51
-02. Эх, Андрюша 2:42
-03. Степь, да степь кругом 4:30
-04. Мы странно встретились 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCF1624EA8BB9BA35DCB6EAC6950D59796992E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705708   (113804) от 09.03.2024
-
-Поедем, поедим! Непал: колоритный Катманду, свадьбы и похороны, дал-бат и встреча с богиней (09.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди побывал на свадьбе и… похоронах, встретился с богиней, совершил жертвоприношение, приготовил карри из баранины и дал-бат.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA58A3276313D116B6B4E38535B1A2842AA66A01
 ```
 
 

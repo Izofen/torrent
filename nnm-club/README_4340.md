@@ -1,3 +1,88 @@
+###  Публикация: 1680804   (133671) от 30.11.2023
+
+Чисто английское убийство (1974) DVDRip [H.265/1080p] [10-bit] [Hand made upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133671.jpg" />
+</div>
+
+
+###  Подробнее
+
+В замке старого и больного лорда Уорбека гостит доктор Ботвинк. На Рождество приезжают избранные родственники и близкие друзья. В полночь праздник прерывается неожиданной смертью сына хозяина - Роберта.
+Доктор Ботвинк берется за расследование. Все персонажи связаны между собой сложными и не самыми приятными отношениями. Но доктору удается распутать клубок преступлений.Производство: СССР, киностудия: МосфильмЖанр: криминал, детективРежиссер: Самсон СамсоновАктеры: Алексей Баталов, Леонид Оболенский, Георгий Тараторкин, Борис Иванов, Файме Юрно, Эугения Плешките, Иван Переверзев, Ирина Муравьёва, Эйнари КоппельСубтитры: отсутствуютПродолжительность: 02:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEEA02480E20701890EBD43D1B00D0B76683B0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680601   (133674) от 30.11.2023
+
+Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
+2 Gravity Of Love
+3 The Rivers Of Belief
+4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594131   (133675) от 26.12.2012
+
+VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
+02. Dan Balan - Не любя [03:15]
+03. Alex Ferrari - Bara Bara Bere Bere [03:39]
+04. Митя Фомин - Хорошая песня [03:02]
+05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
+06. Стая - Сердце [03:06]
+07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
+08. Artik feat.Asti - Облака [03:39]
+09. Tonic feat.Erick Gold - Lead The Way [03:35]
+10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680859   (133676) от 30.11.2023
 
 Adobe Director 11.5 [En]
@@ -6,7 +91,7 @@ Adobe Director 11.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133676.jpg" />
 </div>
 
 
@@ -31,7 +116,7 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133678.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133680.jpg" />
 </div>
 
 
@@ -88,7 +173,7 @@ magnet:?xt=urn:btih:E29882D47DE4CB41F5C1D89D71C119434327BDF6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133682.jpg" />
 </div>
 
 
@@ -112,7 +197,7 @@ Wise Care 365 Pro 6.6.3.633 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133683.jpg" />
 </div>
 
 
@@ -136,7 +221,7 @@ magnet:?xt=urn:btih:5FB3001B6DE5623DDF5B72374E8CE44C128A4C0A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133684.jpg" />
 </div>
 
 
@@ -160,7 +245,7 @@ magnet:?xt=urn:btih:C8E2412C2118CD4ACEB58CEAF007C3D422E41560
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133685.jpg" />
 </div>
 
 
@@ -184,7 +269,7 @@ Miss Li - Singles and Selected (2012) [MP3|320 кб/с]<Soul \ Vocal Jazz \ Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133686.jpg" />
 </div>
 
 
@@ -217,7 +302,7 @@ magnet:?xt=urn:btih:209AAA62DC86F22143BD314D318097FF28A23F1E
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133687.jpg" />
 </div>
 
 
@@ -244,7 +329,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133689.jpg" />
 </div>
 
 
@@ -268,7 +353,7 @@ magnet:?xt=urn:btih:E78C496707B80CFBE3D3FC415151ECB496B3F876
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133690.jpg" />
 </div>
 
 
@@ -292,7 +377,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133691.jpg" />
 </div>
 
 
@@ -316,7 +401,7 @@ Capture One 23 Pro 16.3.2.32 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133693.jpg" />
 </div>
 
 
@@ -341,7 +426,7 @@ magnet:?xt=urn:btih:75D1E2837D54980367BD8770F8592C0468E6CACD
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133695.jpg" />
 </div>
 
 
@@ -368,7 +453,7 @@ magnet:?xt=urn:btih:BE6BEDC65CD734EB2F04330B6074FD86D69CFA09
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133696.jpg" />
 </div>
 
 
@@ -392,7 +477,7 @@ ID Photos Pro  8.11.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133697.jpg" />
 </div>
 
 
@@ -416,7 +501,7 @@ magnet:?xt=urn:btih:848A4CE2E351D5321541924CCE796CA2DF7A026B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133698.jpg" />
 </div>
 
 
@@ -442,7 +527,7 @@ magnet:?xt=urn:btih:91396B3FAEF04E8903D76D1C82A6338526CDC9EB
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133699.jpg" />
 </div>
 
 
@@ -469,7 +554,7 @@ Serif Affinity Photo 2.3.0.2165 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133701.jpg" />
 </div>
 
 
@@ -493,7 +578,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133703.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ magnet:?xt=urn:btih:2E6F673E7931A4B6BC1FE81310576EB605384DFE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133704.jpg" />
 </div>
 
 
@@ -544,7 +629,7 @@ magnet:?xt=urn:btih:AE00DD6D756A883E8B90E34F6CE328414125AEFF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133705.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ magnet:?xt=urn:btih:22E13B9812E470B90C53E48D082F2D6EA3282F09
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133706.jpg" />
 </div>
 
 
@@ -582,83 +667,6 @@ magnet:?xt=urn:btih:22E13B9812E470B90C53E48D082F2D6EA3282F09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9979EDD740BC7D31B72EB6952E90A340E5CE75CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680868   (133707) от 30.11.2023
-
-simplewall 3.7.6 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
-Поддерживаются два режима работы: фильтрация по белому или черному списку.
-Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6347B20C283AFACC46468EEE37BE9D1D498C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680761   (133708) от 30.11.2023
-
-Teorex Inpaint 10.2.3 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inpaint - позволяет умно удалять нежелательные элементы на цифровой фотографии, такие как ненужные объекты, текст, случайно попавшие элементы, а также пыль, царапины и грязь. Программа реконструирует фоновую поверхность. Вам необходимо только обвести объект контурной линией или выделить прямоугольное поле (Lasso, Rectangular) и запустить режим Inpaint. Teorex Inpaint (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90CBFC153D3400D5797AB6A60737233451591524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680708   (133710) от 30.11.2023
-
-Русский Размер - Ю-А-Ю (1995) Reissue, Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Techno, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интроспектр
-02. Бэтмен (Ю-А-Ю) I
-03. Врубаем рок I
-04. Звeздный полицай I(   Читать дальше...   )Жанр: Techno, PopПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01E057B2F54F794A4AC59E8E61626B75ACABD9F
 ```
 
 

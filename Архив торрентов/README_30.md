@@ -6,7 +6,7 @@ Nik Collection by DxO 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11977.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AOMEI Partition Assistant Technician Edition 10.8.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11983.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:360ED1346F83DCB183B4AC95B3C2F6C8B5AE9833
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11986.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AF7AC9CE2A2339364989946E315441441DC14876
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11989.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AF7AC9CE2A2339364989946E315441441DC14876
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11990.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.4652 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11996.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ PhotoDirector v20.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12009.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PowerDirector – Video Editor v15.4.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12021.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Device Info / Информация об устройстве v3.3.9.7 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12030.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Telegram Desktop 5.16.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12036.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Wise Care 365 Pro 7.2.7.706 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12038.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Purvpn 7.8 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12040.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Google Chrome 138.0.7204.101 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12041.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ MediaHuman YouTube Downloader 3.9.14 (0807) RePack (& Portable) by Dodakaedr [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12043.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ PictureThis - Plant Identification v5.7.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12048.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Purvpn 7.7 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12053.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ eWeather HD - weather app v9.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12062.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VCap Downloader 0.1.34.6653 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12063.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Google Chrome 138.0.7204.101 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12064.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:799C6CA276CF6956E60EA852B6C9397E76450713
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12070.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F72C5D00D9768623978513AF5200657D157A2754
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12078.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B6736E66E90BD93E3A337C0AFB303D76B30FABD7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12080.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:18F03E6B729053A742BFF6F1E64D4D327E68205C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12086.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ IPTV Pro v9.0.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12088.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:D226EBDED64D9C1C7280E041C7B3CE2BC9DD6204
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12089.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ HEU KMS Activator 63.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12096.jpg" />
 </div>
 
 

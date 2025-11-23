@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26764.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26764.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Max Payne 3 (2012) [PS3] [USA] 4.11 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26765.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26765.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B486A6BAEED46D3F0D0E99C8C85A2FD50A6598EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26766.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26766.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CD591BBA2A06CA92A9175403575EAE8C55BDEC0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26767.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26767.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:27862B6DDD37B1B3AD9EB8EF611347F237688490
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26768.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26768.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:260059494CF50ED4B59B927910C9678E76E75EC9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26769.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26769.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Kazrog - Avalon VT-747SP 1.0.5 VST, VST 3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26770.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26770.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:13FB0E1B3DC9884F23E99EC783EDA39926DE2952
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26771.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26771.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ GPU Shark II 2.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26772.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26772.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:76C11024BB06176AD5E93D79E3E277B2CBB4D781
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26773.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26773.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:0D5D703DA898279C2B9FA4108A8208342D543C56
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26774.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26774.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ GPU-Z 2.63.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26775.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26775.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26776.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26776.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:09E29F3BB1E96C3BD8D3268BA11B07D375BFD1C2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26777.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26777.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:4C750564951225643CF42E2911AD814083E14C74
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26778.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26778.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:CF3C5EFE3BF85EED2AAC0F9239681A2299426373
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26779.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26779.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:88E42DD9A6C7AD9F3EAFB6DA926A372C0E1C101D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26780.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26780.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Living Legends 12: Frozen Destiny / Живые легенды 12: Замёрзш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26781.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26781.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:D6190C9D220AE6E804E35B89E35155A4F5EB4E44
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26782.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26782.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D27CD108223ED2C3C0D2D68D6C61BA9A37291D1F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26783.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26783.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:8AE48A052E039249E98F46DBF5CEEAFD8EB44014
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26784.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26784.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26785.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26785.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Led Zeppelin - Boxed Set2 (1993) 2 x CD, Japanese Edition, Compilation [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26786.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26786.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:E459FFF919A9656E775FC2732667D5A1B3041CCB
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26787.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26787.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Street Fighter IV CE v1.08.00 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26788.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Patephone / Патефон v14.6.3 Mod by OsitKP [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26789.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26789.jpg" />
 </div>
 
 

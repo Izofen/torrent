@@ -1,3 +1,165 @@
+###  Публикация: 1631924   (235903) от 08.05.2023
+
+VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_235903.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blake Shelton - Barmageddon [02:51]
+002. Glen Campbell - Rhinestone Cowboy [03:16]
+003. Kacey Musgraves - Justified [03:01]
+004. Elliah Heifetz - First Generation American [02:47](   Читать дальше...   )Жанр: Country, Folk, RockПродолжительность: 07:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640230   (237018) от 19.06.2023
+
+VA - Blues Rock Compilation Part 23 (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Miller - One Fine Day
+02. 5 Shades of Blue - First Love
+03. John Verity - I Put a Spell on You
+04. The Blues Mystery - Movin' On(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A927037A228932B319D3913CF838290EEE58D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640295   (237076) от 19.06.2023
+
+Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Fingers
+02. Here Come 'ole Cottonmouth
+03. Fade
+04. Down the Road of Blues(   Читать дальше...   )Жанр: Rock, Ballads, BluesПродолжительность: 02:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE9AA697170F8F07E295B5AADB87730C08B4CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640256   (237128) от 19.06.2023
+
+Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_237128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Fine Day
+02. Soldier of the Line
+03. The Girl That Got Away
+04. Women and the Blues(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1129C2FED0B4DDE35E00591383B3B82A729CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629042   (237715) от 27.04.2023
+
+Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_237715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Kind of Woman (Live in Quebec 06/04/1972) [08:33]
+02. Into the Fire (Live in Quebec 06/04/1972) [06:07]
+03. Child in Time (Live in Quebec 06/04/1972) [14:48]
+04. The Mule (Live in Quebec 06/04/1972) [10:53](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 09:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809EC49180956DFCCB27188B824FD9DD01DCB3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545555   (239872) от 23.04.2022
+
+VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_239872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Led Zeppelin - Rock and Roll - Remaster (3:40)
+002. KISS - Rock And Roll All Nite (4:01)
+003. Nirvana - Smells Like Teen Spirit (4:38)
+004. Rush - Limelight (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 10:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2363F2FABA2011B76C14268387BF671B9C0D0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545206   (240837) от 18.04.2022
 
 Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -6,7 +168,7 @@ Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_240837.jpg" />
 </div>
 
 
@@ -33,7 +195,7 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241512.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_241512.jpg" />
 </div>
 
 
@@ -60,7 +222,7 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242220.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_242220.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Ind
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_242491.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_242491.jpg" />
 </div>
 
 
@@ -114,7 +276,7 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243867.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243867.jpg" />
 </div>
 
 
@@ -141,7 +303,7 @@ Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243938.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_243938.jpg" />
 </div>
 
 
@@ -168,7 +330,7 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244896.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_244896.jpg" />
 </div>
 
 
@@ -195,7 +357,7 @@ Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245764.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_245764.jpg" />
 </div>
 
 
@@ -222,7 +384,7 @@ magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249280.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249280.jpg" />
 </div>
 
 
@@ -255,7 +417,7 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249622.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249622.jpg" />
 </div>
 
 
@@ -282,7 +444,7 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250603.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250603.jpg" />
 </div>
 
 
@@ -309,7 +471,7 @@ magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250653.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_250653.jpg" />
 </div>
 
 
@@ -342,7 +504,7 @@ magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251013.jpg" />
 </div>
 
 
@@ -375,7 +537,7 @@ magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251061.jpg" />
 </div>
 
 
@@ -408,7 +570,7 @@ VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , G
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253783.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253783.jpg" />
 </div>
 
 
@@ -435,7 +597,7 @@ magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253838.jpg" />
 </div>
 
 
@@ -468,7 +630,7 @@ VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254917.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254917.jpg" />
 </div>
 
 
@@ -495,7 +657,7 @@ magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256199.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256199.jpg" />
 </div>
 
 
@@ -528,7 +690,7 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256721.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256721.jpg" />
 </div>
 
 
@@ -542,6 +704,33 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838228   (257990) от 21.11.2025
+
+VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_257990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кровавый Риф - Tequila Pasaran
+02. Жамки - Аццкий Цырк
+03. Обух & Сарма - Рыбак и Князь
+04. Nagart - Игла(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 05:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE494EBDC0D8442FEC9454862BD6766789ADDF6
 ```
 
 

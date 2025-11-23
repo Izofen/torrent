@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172416.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172416.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:111E36089601D64A759FA53A0A1365900035AF90
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173428.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5276E2906B8064AD09847518DF53F5133737CF75
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_174093.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3689042F030915FB3D6F65BDD877A008F5C6F800
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175526.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175526.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:89A6D4467DC363F02AA5B4A006186B1497DD79C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175609.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_175609.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:ADD57C54F55594C7E4404929B4F2B56B2ACF5E77
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_176041.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0F0AEDF417D3552070E5B0FA4A32320375A9738C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_177970.jpg" />
 </div>
 
 
@@ -176,6 +176,32 @@ magnet:?xt=urn:btih:C0D29C34EE76D86D0B34AD87FEA17CC6FB152D58
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428952   (178273) от 04.12.2020
+
+Майн Рид | Гвен Винн (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_178273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гвен Винн» – роман Майн Рида, жанр зарубежная классика, приключения.
+
+На берегах реки Уай, что в Уэльсе, иногда кипят страсти не менее жаркие, чем на Диком Западе или в пустынях Мексики. И когда, однажды утром молодые мисс Гвендолин Винн и Элеанора Лиз решили вдвоем прокатиться на лодке, они и предположить не могли, какие им предстоят приключения… Но благородство (   Читать дальше...   )Жанр: Зарубежная классика, приключенческий романПродолжительность: 15:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC9946B2D40AF77A5220406338653CEC25C413F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594056   (179320) от 29.11.2022
 
 Джон Бойнтон Пристли | Улица Ангела (2009) [MP3, Маргарита Иванова]
@@ -184,7 +210,7 @@ magnet:?xt=urn:btih:C0D29C34EE76D86D0B34AD87FEA17CC6FB152D58
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179320.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_179320.jpg" />
 </div>
 
 
@@ -201,6 +227,31 @@ magnet:?xt=urn:btih:3AFF31342B03A2E6477E6A4607B9E7638E787556
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 106066   (179552) от 02.12.2020
+
+Сенкевич Генрик | Огнём и мечом [1846-1916] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_179552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрик Адам Александр Пий Сенкевич
+Родился в городке Воля Окжейска, учился в Варшавском университете. В 1870 году устроился на работу в газету, с 1876 по 1878 год путешествовал по США в качестве специального корреспондента. В восьмидесятых годах обратился к литературе: его перу принадлежат широко известные исторические романы "Огнем и мечом", "Потоп", (   Читать дальше...   )Жанр: Исторический романПродолжительность: 43:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F496CFC779B33C296256398A2794247E9338E749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591990   (185178) от 20.11.2022
 
 Александр Дюма | Предводитель волков (2022) [MP3, Юрий Бейник]
@@ -209,7 +260,7 @@ magnet:?xt=urn:btih:3AFF31342B03A2E6477E6A4607B9E7638E787556
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185178.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185178.jpg" />
 </div>
 
 
@@ -233,7 +284,7 @@ magnet:?xt=urn:btih:DF4DB31C93EB48CAEF7AA37F75DA09754EE1B9A1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186092.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186092.jpg" />
 </div>
 
 
@@ -258,7 +309,7 @@ magnet:?xt=urn:btih:748D600725BCDA19544EBD0C8ACA39D6F58CA2CE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186379.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_186379.jpg" />
 </div>
 
 
@@ -282,7 +333,7 @@ magnet:?xt=urn:btih:DDBF46C42C711ABED4C3BF6415FA63F41D5F129B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188457.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188457.jpg" />
 </div>
 
 
@@ -306,7 +357,7 @@ magnet:?xt=urn:btih:2C99811F1014CABC1FB18C65E6714A19FEB7C1E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191378.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191378.jpg" />
 </div>
 
 
@@ -330,7 +381,7 @@ magnet:?xt=urn:btih:D03CE0CFEBFC3905FE2412AE346793ADCDC146FB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191613.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191613.jpg" />
 </div>
 
 
@@ -354,7 +405,7 @@ magnet:?xt=urn:btih:10B83221F10C0F41044F63CA7D242FCF0F608B34
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191842.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191842.jpg" />
 </div>
 
 
@@ -378,7 +429,7 @@ magnet:?xt=urn:btih:31833DAF949107BCDB1DEC549470D20BF2AD9986
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192017.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192017.jpg" />
 </div>
 
 
@@ -402,7 +453,7 @@ magnet:?xt=urn:btih:7C72746E257AA9843A7887622DA3E218D68A921C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192053.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192053.jpg" />
 </div>
 
 
@@ -426,7 +477,7 @@ magnet:?xt=urn:btih:8402216C6BDC44A1E25EF54151EAAB7994CF9146
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192204.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192204.jpg" />
 </div>
 
 
@@ -450,7 +501,7 @@ magnet:?xt=urn:btih:1E529D761A565DB3AC50B9913AE93E040A72E736
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192258.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192258.jpg" />
 </div>
 
 
@@ -474,7 +525,7 @@ magnet:?xt=urn:btih:81C1CC33E8762A5AED713D2FCEC5B7E71B24B970
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192595.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192595.jpg" />
 </div>
 
 
@@ -498,7 +549,7 @@ magnet:?xt=urn:btih:7931F1C2CEAFBC2BB63A667C925F57D5BDF77A85
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192698.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192698.jpg" />
 </div>
 
 
@@ -522,7 +573,7 @@ magnet:?xt=urn:btih:79AA9694B405E1ED716A57E37061863FCCCEBF08
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192702.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192702.jpg" />
 </div>
 
 
@@ -546,7 +597,7 @@ magnet:?xt=urn:btih:31407CA257DA0A0D961C01D2F4CC4450DB413453
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192943.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_192943.jpg" />
 </div>
 
 
@@ -570,7 +621,7 @@ magnet:?xt=urn:btih:34AB59832F8CF8CEC2936AD6368FF6AA6A05DD01
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193297.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193297.jpg" />
 </div>
 
 
@@ -583,58 +634,6 @@ magnet:?xt=urn:btih:34AB59832F8CF8CEC2936AD6368FF6AA6A05DD01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E8E1A2F0BE1B1B6A70322D6C725A9E011B4373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827917   (193317) от 23.10.2025
-
-Лев Толстой | Смерть Ивана Ильича (2022) [MP3, Роман Стабуров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ).
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-«Смерть Ивана Ильича» (1886 г.) – без преувеличения одно из самых значительных в мировой литературе произведений о смерти, о том, как приближающая, неминуемая кончина может до неузнаваемости преобразить ничем, в общем-то, не примечательного (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 03:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD60B1E3CE206C18373A13281FBAB8DE903AEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827895   (193318) от 23.10.2025
-
-Лев Толстой | Отец Сергий (2022) [MP3, Роман Стабуров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ).
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-Повесть «Отец Сергий» (1911) – рассказ об искушении, о тайном дьяволе, живущем в каждом из нас и попытке изжить из себя этого дьявола, убежать от него. Очень личная для писателя история, отразившая его представления о вере и искуплении (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A0308C9C09E8758BC659E370CE4A7581E72186
 ```
 
 

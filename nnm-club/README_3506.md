@@ -1,3 +1,79 @@
+###  Публикация: 1718092   (110838) от 26.04.2024
+
+Kasper Bjorke - Puzzles (2024) [FLAC|Lossless|WEB-DL|tracks] <new disco, Alternative>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corridor Of Dreams [00:04:07]
+02. Ugle (Drømmen Om Møn) [00:03:08]
+03. So Much [00:02:56]
+04. I Was There [00:04:12](   Читать дальше...   )Жанр: new disco, AlternativeПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE26195A67CA7D3CFA0A079D82812990B116064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718725   (110839) от 26.04.2024
+
+Wise Care 365 Pro 6.7.1.643 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A325A7326EEFF78D411EDB5F789EC7487766B56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718807   (110840) от 26.04.2024
+
+Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Life (Country Home) (6:37)
+02. Feels Like a Railroad (River of Pride)Жанр: Classic Rock, Country RockПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C0497F1C0D95C2B5AB69B52FBD7FB6A2188874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718539   (110841) от 26.04.2024
 
 GasILove - Морфей (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -6,7 +82,7 @@ GasILove - Морфей (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110841.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ Opera GX 109.0.5097.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110842.jpg" />
 </div>
 
 
@@ -59,7 +135,7 @@ magnet:?xt=urn:btih:4A5DA9D204821D928A4782883D655641BB887D74
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110843.jpg" />
 </div>
 
 
@@ -86,7 +162,7 @@ Justice - Hyperdrama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110844.jpg" />
 </div>
 
 
@@ -113,7 +189,7 @@ magnet:?xt=urn:btih:B109C60F12C0BFDC288C007DD34E06DEBD9836F3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110845.jpg" />
 </div>
 
 
@@ -137,7 +213,7 @@ Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110846.jpg" />
 </div>
 
 
@@ -164,7 +240,7 @@ Ramses - 3 Albums (1976-1981) 2LP+1CD [MP3|320 Kbps] <Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110847.jpg" />
 </div>
 
 
@@ -191,7 +267,7 @@ Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110848.jpg" />
 </div>
 
 
@@ -218,7 +294,7 @@ Skype 8.118.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110849.jpg" />
 </div>
 
 
@@ -242,7 +318,7 @@ magnet:?xt=urn:btih:61C47E2376C35C63C5AD0D725FCC5B6C3886BA3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110850.jpg" />
 </div>
 
 
@@ -266,7 +342,7 @@ magnet:?xt=urn:btih:61C47E2376C35C63C5AD0D725FCC5B6C3886BA3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110851.jpg" />
 </div>
 
 
@@ -290,7 +366,7 @@ Wondershare PDFelement 10.3.12.2738 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110852.jpg" />
 </div>
 
 
@@ -314,7 +390,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110853.jpg" />
 </div>
 
 
@@ -341,7 +417,7 @@ Ozzy Osbourne - No More Tears (1991) Reissue, 2001, CD-Maximum [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110854.jpg" />
 </div>
 
 
@@ -368,7 +444,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110855.jpg" />
 </div>
 
 
@@ -392,7 +468,7 @@ VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110856.jpg" />
 </div>
 
 
@@ -419,7 +495,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110857.jpg" />
 </div>
 
 
@@ -443,7 +519,7 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110858.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ magnet:?xt=urn:btih:F94BC31F764F1E499261B0DAAE795BB782DADAF6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110859.jpg" />
 </div>
 
 
@@ -493,7 +569,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110860.jpg" />
 </div>
 
 
@@ -520,7 +596,7 @@ magnet:?xt=urn:btih:0865D62F777468D060A995B3AFB210B1C15EC63F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110861.jpg" />
 </div>
 
 
@@ -544,7 +620,7 @@ magnet:?xt=urn:btih:1B40EE49DDBC1CECB4F900490166C43B5DA819DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110862.jpg" />
 </div>
 
 
@@ -568,7 +644,7 @@ Ringo Starr - Crooked Boy (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110863.jpg" />
 </div>
 
 
@@ -582,81 +658,6 @@ Ringo Starr - Crooked Boy (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943E9AEF8DFB7E5631EDB8BD512808AF8AF8D9C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718791   (110864) от 26.04.2024
-
-Чары любви (2024) SATRip (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая и успешная Агата – «правая рука» матери, владелицы крупной компании Инны Покровской. Инна хочет, чтобы дочь вышла замуж за Кирилла Сорина – скоро он станет наследником бизнеса своего отца, что было бы Покровской «на руку». Но Агата любит другого. Узнав о романе с «нищебродом», мать запрещает ей с ним встречаться. Агата с Димой решают тайно пожениться, но (   Читать дальше...   )Производство: Россия | «Кинокомпания АРС»Жанр: МелодрамаРежиссер: Дарья ФекленкоАктеры: Алёна Коломина, Артём Крылов, Екатерина Кульчицкая, Дмитрий Гурбанович, Мария Гордиенко, Дмитрий Медведев, Ксения НовиковаПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8EB53007B5D6B12FC1B978997E1DC8924DF9CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718819   (110865) от 26.04.2024
-
-Закон и порядок / Law & Order (2003-2004) HDTVRip [H.264/720p] (сезон 14, серии 1-24 из 24) FOX Crime
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (FOX Crime)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE357A1F560D7027F014640DD1FCA8592515BC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718709   (110866) от 26.04.2024
-
-Astropilot - LIMITLESS (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astropilot & Arte Vara & Floralyn - Thunder Road (5:38)
-02. Astropilot & Floralyn - Just Love (5:52)
-03. Astropilot & Spectrum Vision - Enigma (6:54)
-04. Astropilot & Floralyn - Ghost (5:55)(   Читать дальше...   )Жанр: House, DowntempoПродолжительность: 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C2E0915F14DCE6857C8097D3ED0F2120516551
 ```
 
 

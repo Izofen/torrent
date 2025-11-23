@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72359.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Melanie C - Live Hits (Live) (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72364.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Melanie C - Live Hits (Live) (2006) DVDRip
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72373.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5465518EC5AAC2C8280C0D07F45D3B2A7A886E11
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72377.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D60C3D35A644B6B8C8E12D4754FD08431C56F1C6
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72378.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VKMusic 4.33 + RePack + Portable by nkn0w [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72379.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Primal Fear - Unbreakable (2012) (Digipak) [FLAC|Lossless]<Speed, Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72391.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Primal Fear - Unbreakable (2012) (Digipak) [FLAC|Lossless]<Speed, Power Metal>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72409.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:E98FE7F184F9B05A49F4D802508A450C63238B91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72410.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:FE198CBD73D64BFC6D153C79D30007ED7BD6D4D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72483.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:1C9317B7A4FB971CFA58F6F2674D9E9C81D0375A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72488.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:1C9317B7A4FB971CFA58F6F2674D9E9C81D0375A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72491.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1C9317B7A4FB971CFA58F6F2674D9E9C81D0375A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72502.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:BFC30318DE548BF467E1FD6988FFAD59AEBA8C02
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72503.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:41F45E8031715906EFC40CC5285F4CA8ED872603
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72507.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:41F45E8031715906EFC40CC5285F4CA8ED872603
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72517.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:072AAF6993696EA122A2294DC9DCDBE00AB4C054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72538.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:072AAF6993696EA122A2294DC9DCDBE00AB4C054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72539.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:072AAF6993696EA122A2294DC9DCDBE00AB4C054
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72545.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:072AAF6993696EA122A2294DC9DCDBE00AB4C054
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72566.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:024C0B36EE6DE44BAA65249C9AD7361571A9544C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72586.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:61C68FA438B6405EBF64643457742ABC75032A7A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72591.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:8D6A09275CAAD97AD6411D1592565E11B6448F14
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72594.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:3A7BE9A05C74F81EC79EC39D5CAFE62E5C0619D4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72610.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:63C2500EEA46C041CC6FB150956D14C760451E67
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72615.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:17B4818A7787EF114E38B40E206317135DC1566B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72620.jpg" />
 </div>
 
 

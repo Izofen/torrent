@@ -6,7 +6,7 @@ Neuroticfish - The Demystification Of The Human Heart (2023) [FLAC|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127388.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Van Roy Asylum - Unsaint Petersburg (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127395.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127564.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127565.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ V.A. - Lounge Freebeat, Vol. 10 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127581.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127582.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127589.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127614.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Christmas Party 2023-2024 (Best of Dance, EDM, House & Electro) (2023) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127619.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Spreepark (Collected by Oliver Koletzki) - 2023 [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127812.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127942.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127948.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Martin Trevy - Live @ Road To Ultra Guatemala (2023-11-04) [MP3|320 Kbps] <Dance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127953.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127967.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chill Guitar Cafe - Guitar Chillosophy (2023) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127970.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127976.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128098.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Buddha Luxury 2024 (Compiled by Marga Sol) (2023) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128147.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Chillout Winter Gems 2024: Chillout Your Mind (2023)[FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128229.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Starcadian - Sunset Blood  (2013) Special Edition, Remastered, 2023 , Starcadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128240.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Selection 2023 [MP3|320 Kbps] <Psy, Goa Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128251.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Live @ Tomorrowland Brasil (2023) [MP3|320 Kbps] <Progressive House, Melodi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128428.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Woodleigh Research Facility - Phonox Nights (2023) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128697.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Alison Goldfrapp - The Love Reinvention (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128700.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Open to Close Solo Set, Stereo M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128706.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128754.jpg" />
 </div>
 
 

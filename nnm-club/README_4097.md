@@ -1,3 +1,84 @@
+###  Публикация: 1686616   (126209) от 24.12.2023
+
+Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - They Dance (00:05:21)
+02 - Quiet Eyes (00:04:12)
+03 - Save The Best For Later (00:05:18)
+04 - Have A Heart (00:04:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686952   (126210) от 24.12.2023
+
+Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-DL|tracks] <atmospheric black metal, doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Abyssum [00:01:58]
+02. Furor Ab Intus [00:13:23]
+03. Maledictus Utero [00:08:34]
+04. Caeleste Stragem Desuper [00:10:59]Жанр: atmospheric black metal, doom metalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427D3C9F15591CAA46D21224D3BEE5732776D6AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686570   (126211) от 24.12.2023
+
+Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Love To You (4:47)
+02. Another Man With The Blues (3:28)
+03. Wasted Time (6:56)
+04. Baby I See You (4:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6EF387A954974FCBEBA4103D8017B759B01F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686829   (126212) от 24.12.2023
 
 Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -6,7 +87,7 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126212.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126213.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126214.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126215.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126216.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126217.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126218.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126219.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126220.jpg" />
 </div>
 
 
@@ -245,7 +326,7 @@ Glass Hammer - Arise (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126221.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126222.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126223.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126224.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126225.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126226.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ magnet:?xt=urn:btih:FC920985C839C221EF6F544B3B766AF6AAF64C5A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126227.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Rustik Mode - In The Desert Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126228.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ magnet:?xt=urn:btih:496950063E48FE3D5436C4BD7EEA27A86C066B8B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126229.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ Demon - British Standard Approved (1985) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126230.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126231.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126232.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ magnet:?xt=urn:btih:281356F1A5F3C5FACBB9FD5CD49DC516BA6BD758
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126233.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ magnet:?xt=urn:btih:08721CE2721C1DD5B85ABDF8FD6B18189B4D572C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_126234.jpg" />
 </div>
 
 
@@ -595,84 +676,6 @@ magnet:?xt=urn:btih:08721CE2721C1DD5B85ABDF8FD6B18189B4D572C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664B612B1464CF53987634DD26CCBD4601F5199C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686905   (126235) от 24.12.2023
-
-Владимир Крепс, Климентий Минц | Клуб знаменитых капитанов (Выпуск 1). Встречи начинаются (2010) [MP3, Ростислав Плятт, Василий Качалов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива Гостелерадиофонда. Учиться – это весело!
-В 40-80-х годах прошлого столетия на волнах радио выходила в эфир замечательная многосерийная радиопьеса для детей «Клуб знаменитых капитанов».
-...Заканчивался ничем не примечательный рабочий день. Библиотекарша Мария Петровна и ее помощница Катюша гасили свет, поворачивали в дверном замке ключ и спешили (   Читать дальше...   )Жанр: Детский географический радиожурнал, приключения, познавательная литератураИздательство: Студия «АРДИС»Продолжительность: 04:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4481381097618C4939B80B8A506493C614CE42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686960   (126236) от 24.12.2023
-
-VA - Turbo Drive, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betamaxx - Integrated Circuitry (4:02)
-02. Le Matos - Overdog (6:30)
-03. Absolute Valentine - She Is a Dancer (4:22)
-04. Das Mortal - The Curse (3:26)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarkwaveПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAFFC7875B4620BFB775A27F43E6540AD2CCAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686976   (126237) от 24.12.2023
-
-Privacy Eraser Free 6.2.0 Build 4812 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0877D19D24858866E673AD4C8855324F5D8598FF
 ```
 
 

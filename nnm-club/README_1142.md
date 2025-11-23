@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30045.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8DBF69667F769361A49597B249BCDEB7B8048F9F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30046.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30046.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C6E02B7F2349CC2C5E6945EF85FA72E8E67B7AA7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30047.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:437100876490B94FA2FE493C29072967814FADB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30048.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30048.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Manowar - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30049.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30049.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Google Chrome 132.0.6834.111 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30050.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30050.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0E87F5D4AB1E5AE5C6EC50F031E3BEE28A94AFAB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30051.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Wild Woods (2024) [Ru/Multi] (0.1.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30052.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ DISORDER (2025) [Ru/Multi] (build 17062976) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30053.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30053.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CCleaner 6.32.11432 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30054.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1A141B8C44083CF7B18D9C597671FD6303DCB27C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30055.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30055.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:0E2220845AE1CBBAB28275B68450699F7E49E8A4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30056.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30056.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3CDB786D052A0416FCA306A81EEB759F517A43DB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30057.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30057.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30058.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30059.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30059.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4BBE62D70CFF6ED82FCEFA13AB64ABD40E19B8CD
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30060.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30060.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Vanced Tube v5.2.80.187 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30061.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30061.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ WeNote: заметки блокнот планер v6.25 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30062.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ NewPipe v0.27.5 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30063.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30063.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A34779D292889D30FE51D2A5A5BEBDCAE8EDCAEA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30064.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30064.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Hekasoft Backup & Restore 0.98 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30065.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ CCleaner 6.32.11432 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30066.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30066.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FEAB6ADA579F76DB1EE78C5F50727D55912CD625
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30067.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30067.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Digiarty AIArty Image Matting 2.3 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30068.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30068.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:AE26B99B5EFDD3766EAD4DF830535C3F524EACA1
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30069.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30069.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30070.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30070.jpg" />
 </div>
 
 

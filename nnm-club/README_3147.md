@@ -1,3 +1,82 @@
+###  Публикация: 1822574   (100926) от 07.10.2025
+
+Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс нацелен на глубокое освоение принципов работы системы сборки во Frontend. Полученные на курсе знания помогут улучшить DevEx команды за счет ускорения процесса сборки и повысить вашу ценность как разработчика благодаря уникальным знаниям в инфраструктуре.
+
+После курса вы сможете:
+Анализировать сборку в любом проекте и находить точки для улучшения(   Читать дальше...   )Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C524F5E907151B8EC12AFF06D4A7E15088FD12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822616   (100927) от 07.10.2025
+
+Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025) [PDF, MOBI, AZW3] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100927.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this book, author Chip Huyen discusses AI engineering: the process of building applications with readily available foundation models.
+The book starts with an overview of AI engineering, explaining how it differs from traditional ML engineering and discussing the new AI stack. The more AI is used, the more opportunities there are for catastrophic failures, and (   Читать дальше...   )Жанр: Компьютерная литература, искусственный интеллектЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, MOBI, AZW3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822615   (100928) от 07.10.2025
+
+VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100928.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellinoora - Ahdistuksen Aika (04:53)
+ 002. Adekunle Gold - Don Corleone (02:27)
+ 003. Akmalov - В зоне прочитанного (03:13)
+ 004. Alberto Guta & Ministerul Manelelor - Pupa-Ma Pe Obraz (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822629   (100929) от 07.10.2025
 
 Шрифты - Behance - Pixel Surplus - Beware - 129784763 [TTF]
@@ -6,7 +85,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100929.jpg" />
 </div>
 
 
@@ -30,7 +109,7 @@ magnet:?xt=urn:btih:FD102C550DB115B5350387F9E3E459FF92117D23
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100930.jpg" />
 </div>
 
 
@@ -54,7 +133,7 @@ Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100931.jpg" />
 </div>
 
 
@@ -81,7 +160,7 @@ VA - Autumn Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100932.jpg" />
 </div>
 
 
@@ -108,7 +187,7 @@ magnet:?xt=urn:btih:A69C61469DBED484A3361C050F61DC99E94E558C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100933.jpg" />
 </div>
 
 
@@ -132,7 +211,7 @@ magnet:?xt=urn:btih:38DAEBFEE6EF621E0259CCB4847FCDA71C14D029
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100934.jpg" />
 </div>
 
 
@@ -156,7 +235,7 @@ magnet:?xt=urn:btih:DE5BA1E5CC7A7C9C4A2817470436D58379D2930E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100935.jpg" />
 </div>
 
 
@@ -183,7 +262,7 @@ magnet:?xt=urn:btih:44A5529937A786A5C398F1E82B05B32DCE087C35
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100936.jpg" />
 </div>
 
 
@@ -209,7 +288,7 @@ magnet:?xt=urn:btih:BB4A4480210907D8473B2BDEA1063E15779D50AE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100937.jpg" />
 </div>
 
 
@@ -233,7 +312,7 @@ magnet:?xt=urn:btih:72AA8D27B8E1F638C386FB00BED4E024BAB51755
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100938.jpg" />
 </div>
 
 
@@ -260,7 +339,7 @@ magnet:?xt=urn:btih:595F6CFAECE1BA4D18FFEF473F764537B2E3B19A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100939.jpg" />
 </div>
 
 
@@ -284,7 +363,7 @@ magnet:?xt=urn:btih:0BF37D1B0A66F61FFEC1E50B2B2348AB847094FD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100940.jpg" />
 </div>
 
 
@@ -308,7 +387,7 @@ magnet:?xt=urn:btih:7C7DC7250381504F5E43DBF87E4ED2971A3FDF85
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100941.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ magnet:?xt=urn:btih:76449F861A2B8683E93DDD5A06E756E635D3BB08
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100942.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ magnet:?xt=urn:btih:325DD9E7D1751475DE34EDE375F08BEDDB8B92AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100943.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ magnet:?xt=urn:btih:AA88BD223F4FDFB09F7C59BCFAAD9E4F91CFE0D1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100944.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ Perpetual Rage - The Beginning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100946.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ magnet:?xt=urn:btih:8BDE7563C35A6D9CEBBC64307D11D21C584188E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100947.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ magnet:?xt=urn:btih:4566496251E2FE224CFA88646F4756C9F899D304
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100948.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ Ui Kits - UI8 -   Painted Style Landscapes - Set of 20 [PNG, PSD]
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100949.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ magnet:?xt=urn:btih:30D0CBB16A56B90FDFD189312406343F9F43065A
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100950.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ magnet:?xt=urn:btih:17BBC7323B421C2210828FC8498F4F0E5032D196
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100951.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ magnet:?xt=urn:btih:9A9DB59A9CBF8E22036A7AEE9E1C1F6A347015AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100952.jpg" />
 </div>
 
 
@@ -568,81 +647,6 @@ magnet:?xt=urn:btih:9A9DB59A9CBF8E22036A7AEE9E1C1F6A347015AD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8912B4F1DE986BB33233203A32F2D2AE4066A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822612   (100953) от 07.10.2025
-
-Заклятие 4: Последний обряд / The Conjuring: Last Rites (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи паранормальных явлений Эд и Лоррейн Уоррен берутся за самый страшный случай в своей практике. Семья переезжает в новый дом, но вскоре жилище начинает проявлять признаки демонической активности, превращая жизнь новых жильцов в кошмар.Производство: США, Великобритания, Канада / Atomic Monster, New Line CinemaЖанр: ужасыРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Миа Томлинсон, Бен Харди, Стив Култер, Ребекка Калдер, Эллиот Кауэн, Бо Гадсдон, Кила Лорд Кэссиди, Джон БразертонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3581A43B271FAEDBAAFBAED7473EEFD6024A7750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822613   (100954) от 07.10.2025
-
-Жизнь в военное время / Life During Wartime (2009) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм является вольным продолжением фильмов Тодда Солондза «Счастье» (1998) и «Добро пожаловать в кукольный дом» (1995).
-Сюжет разворачивается вокруг сестёр Джордан: Триш, Джой и Хелен. Джой вышла замуж за бывшего соседа Хелен, Аллена Мелленкампа. Триш по-настоящему мечтает лишь о том, чтобы её новый муж стал хорошим приемным отцом её детей. Ведь настоящий отец мальчиков (   Читать дальше...   )Производство: США / Werc Werk WorksЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Ширли Хендерсон, Майкл Кеннет Уильямс, Рослин Рафф, Эллисон Джэнни, Майкл Лернер, Дилан Райли Снайдер, Киаран Хайндс, Рене Тейлор, Ребекка Чайлз, Пол Рубенс, Эмма Хинз, Шарлотта Рэмплинг, Элли Шиди, Рич Печчи, Гэби ХоффманнПеревод: профессиональный многоголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DCA3042CA010C55D40BA12907BE798A00158FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466992   (100955) от 07.10.2025
-
-Престиж / The Prestige (2006) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт и Альфред — фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну.
-
-Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать (   Читать дальше...   )Производство: США, Великобритания / Touchstone Pictures, Warner Bros.Жанр: фантастика, триллер, драма, детективРежиссер: Кристофер НоланАктеры: Хью Джекман, Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди Серкис, Дэниэл Дэвис, Джим Пиддок, Кристофер Ним, Марк Райан, Роджер РисПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59477886B4624508EC1024B77019FBB9FFA76F75
 ```
 
 

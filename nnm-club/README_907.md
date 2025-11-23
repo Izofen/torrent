@@ -6,7 +6,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23919.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23920.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23920.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6418B5FA3395670D263FDFF5BF0130B2412F01DB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23921.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23921.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.4 Build 11 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23922.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23922.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6DD433549138C5BFB5445FDA7485263E826DA844
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23923.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23923.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3CE869D1A2C3EC2082AD2C8A7EF0167B5DAE38F7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23924.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23924.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi | Истoрия o сл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23925.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D6C0A4EEDE487C0A9E6A4F4197C8620138D24460
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23926.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23926.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WPS Office + PDF v18.16 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23927.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23927.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:41A609E543251DD70421FA810B3228DB636B8D32
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23928.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23928.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7ACEDB922C9BF7BDC77592C898D4FFB97B36A0CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23929.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23929.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23930.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23930.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Calibre 8.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23931.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23931.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:85BE73486478D4DD4ACA2C40782754767A85C224
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23932.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23932.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VivaCut v4.1.2 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23933.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23933.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1D1DE745418D35376F0605AFE813CD994506C19D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23934.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23934.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:9F57DA917D078A3DA4064C81F7079585E7533F08
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23935.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23935.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Infected Sounds - Sphinx 7.0.0 VSTi, VSTi 3 + Expansions [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23936.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23936.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ PicWish: AI Photo Editor v2.0.10 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23937.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23937.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VK Музыка: песни и подкасты v7.12 Mod by VK Equals [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23938.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23938.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1C86A4674AF7C011AC059ABB3F1BCE466F5F1EA7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23939.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23939.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23940.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23940.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F310C0EF5617A78BAC8CFE3ED74CDCB8C870C63C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23941.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23941.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:DDDF96616DC381C4128889972CCE7087AADFCA2E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23942.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23942.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C1594A6A90DD3E3EFECA4CFA2466A3AE109E5EE5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23943.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23943.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:39672FA8B1CBF9C305B99BAC8A10EDD0ED68AD86
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23944.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23944.jpg" />
 </div>
 
 

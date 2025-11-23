@@ -1,3 +1,75 @@
+###  Публикация: 1751917   (104025) от 28.09.2024
+
+Последнее искупление / The Last Redemption (2023) WEB-DLRip [MVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_104025.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпическом квесте бесстрашная преступница Диана и рыцарь Тирион сражаются со злодеем лордом Роландом за королевство. Они объединяются, чтобы победить Роланда, спасти принцессу и восстановить мир.Производство: Италия / Real Dreams Entertainment, TheBrave, One s.r.oЖанр: фэнтези, приключенияРежиссер: Джон РеалАктеры: Кевин Сорбо, Джеймс Космо, Энгус Макфадьен, Наталия Берн, Саймон Филлипс, Карл Уортон, Хал Яманоути, Неб Чупин, Denisa Juhos, Алессия АльчатиПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:03:35Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752145   (104026) от 28.09.2024
+
+Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 7 класса (в 2 частях. Часть 1) (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Линия учебников для основной школы. Материал разбит на два уровня сложности и представлен как канва сценариев уроков, реализующих деятельностный подход к обучению: тщательно подобранные задания погружены непосредственно в теорию. Имеется набор заданий трёх уровней сложности. Приведены описания кратковременных фронтальных практических работ, позволяющих учащимся самим (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8036C49B80E9AE1B429B22691F992D2150F3A3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744442   (104027) от 28.09.2024
+
+Хит-Манки / Hit-Monkey (2024) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B23F3491BF8FCAC35319EB3E00FFDF1EE03FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752088   (104028) от 28.09.2024
 
 И.Ф. Шарыгин, Л.Н. Ерганжиева | Наглядная геометрия. 5-6 класс (1992) [DJVU]
@@ -6,7 +78,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104028.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:384090EB5336E51965384C7C1474124DB5F7D9D8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104029.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:281FEEEB97DD35072F6AADFE379F0AEE1F450B10
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104031.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ SnapEdit - AI photo editor v6.9.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104032.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:47191B2EAEE36559D202A504DDC3E02D29AF5689
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104033.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ StartAllBack 3.8.10 build 5173 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104034.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ VA - Dance Classics - The Remixes Volume 2 (1989) [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104035.jpg" />
 </div>
 
 
@@ -203,7 +275,7 @@ magnet:?xt=urn:btih:E608385EC132492CCB811DF2ABFBF6EFBB3F3693
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104036.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:C5A157BEC9BEA8AAEFBB45B433BF9FD136A23C72
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104037.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ magnet:?xt=urn:btih:394A6FA200DBA17E3964BDD9B366B65692ADA11F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104038.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ LeadBreaker - Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104039.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Armored Saint - Studio Albums (4 releases) (2000-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104040.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104041.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104042.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ magnet:?xt=urn:btih:D444BDEA9EF7BD5D79EC7E7E52998B6D382381F8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104043.jpg" />
 </div>
 
 
@@ -409,7 +481,7 @@ magnet:?xt=urn:btih:0A094901F49DF9D14B7AEE2EC747F7DAE79AFAFA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104044.jpg" />
 </div>
 
 
@@ -435,7 +507,7 @@ magnet:?xt=urn:btih:BDB1323F558FF3A0B8A0F5B44209209B4B0763AF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104045.jpg" />
 </div>
 
 
@@ -461,7 +533,7 @@ magnet:?xt=urn:btih:85C6078EA2F87249A483F7EDE642052069DAFECC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104046.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104047.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104048.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104049.jpg" />
 </div>
 
 
@@ -568,7 +640,7 @@ Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104050.jpg" />
 </div>
 
 
@@ -582,87 +654,6 @@ Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:358AA21296772A9734371C1875E54FD9CEBE9105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751628   (104051) от 26.09.2024
-
-Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coffee High (2:43)
-02. Mix of Passion (2:19)
-03. Don't Drink Coffee Too Much (2:29)
-04. Midnight Sugar (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943825E82BFD5906788608338581F43AEAF239C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751632   (104052) от 26.09.2024
-
-Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Dance (2:34)
-02. The Mojo (3:18)
-03. Mǎmǎhūhū (4:36)
-04. Bach and Boom (5:18)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB8E61812BCC135E36243FDEF38D5A9002E1B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751517   (104053) от 26.09.2024
-
-Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Love [00:03:48]
-02. Take Me Back to the Party [00:03:58]
-03. Every Day is Halloween [00:04:28]
-04. The Beauty of it All [00:04:21](   Читать дальше...   )Жанр: RockПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89414A8339A6390475B311B8DEA754A3F514B5B7
 ```
 
 

@@ -6,7 +6,7 @@ Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157355.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157362.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ ZveroБой (Зверобой) - Война за мир (2016) [MP3|320 Kbps] <R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157405.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157441.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157442.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157452.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FAC2EB4F9A5E3102E1F448812AFE55F728888B5A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157465.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157529.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Foghat - Sonic Mojo (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157541.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Rainbow - Rising (1976) Reissue, Remastered, 2014, Polydor [OGG Vorbis|480 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157558.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ In This Moment - Godmode (2023) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157604.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157667.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157674.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157735.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157745.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157753.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Rick Wakeman - Journey To The Centre Of The Earth (1974) Japanese Edition, Reiss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157754.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:0914061BCF644E698DB6CE95AA3F8069264C06B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157759.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157762.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157767.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157782.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157788.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Bethzaida - War Vol. II (1999) Split [FLAC|Lossless|image + .cue] <Death, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157792.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157803.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157804.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157808.jpg" />
 </div>
 
 

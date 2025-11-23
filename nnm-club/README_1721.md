@@ -6,7 +6,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5BE9F252096EADDA527F491DE9FCACDC0CF4ADEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45102.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:505DA98153CBD8CEBF15CE9942FE77F152C029F8
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:172F75D974CA1B80A0C365799FA80E6283B5734A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Planet VPN 2.8.39.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45105.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0778B72929851EA0F18CD9E245BB49263CC39816
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45106.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2F66CBA2F89330268DF055CC5F9BAED1296788CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45107.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Adobe Premiere Pro 2024 24.6.1.2 (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45108.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B60C08EFA441CEB75FFC3067668605F8FBB56169
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45109.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BB941F71F6FDE27E01CC0327FF69DB1579FAD5B0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45110.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Doro - 20 Years a Warrior Soul DVD (2006)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45111.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:D1C74B028133F6B3D7681F2BC56BE36FB6E63D71
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45112.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A1323A70E00555D082B220103600C260A4586E3F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45113.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:678C0B612BFB8FE91F1D10631E453C8308577293
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45114.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45115.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7DED26CEECAFB7DFAC9ACF1CA034A5D4CE0BCEDE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45116.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45117.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:67E58821F388FACD107C8F045359518230F9F66C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45118.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:26A44556C4123DEE6161BD2EC2FDCEB495ECCE92
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45119.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:BFB845FFF267AAAA93B22F1D190DC29894ED9093
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45120.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Music News For Forum vol.017 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45121.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ JRiver Media Center 33.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45122.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ MIA BOYKA - НАРОДНЫЙ АЛЬБОМ (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45123.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ WinTools.net Premium 24.9.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45124.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:377D615B0598A2EF2127F819653492DB1F325126
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45125.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:382609534580F5DDE017680FC06FC12AB583AC94
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_45126.jpg" />
 </div>
 
 

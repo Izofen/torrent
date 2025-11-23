@@ -1,3 +1,79 @@
+###  Публикация: 1715815   (111488) от 13.04.2024
+
+Hidden Object Secrets 2: The Whitefield Murder (2024) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр Hidden Object Secrets. Тебе предстоит расследовать загадочное убийство в тихом районе обычного городка. Убийце удалось скрыться с места преступления, но нераскрытых дел не бывает, как и не бывает непойманных злодеев! Чтобы добраться до истины, тебе нужно собрать улики и опросить свидетелей. Связано ли общество "Око" с (   Читать дальше...   )Тип издания: UnofficialРазработчик: Relax GamesЖанр: Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8081A142BB9E72BC1D71436442DD84A954F32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715977   (111489) от 13.04.2024
+
+А.Н. Афанасьев, К.Д. Ушинский и др. | Сказки о богатырской силе и доблести (2012) [MP3, Ефим Каменецкий]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшее – детям.
+Былинные сказки занимают особое место в народном фольклоре. В них содержатся ростки той жизненной мудрости, которая обязательно должна быть впитана с детства. И они непременно прорастут независимо от того, что потом будет читать и смотреть малыш. Это как вакцина от пошлости, камертон духовной и нравственной жизни. Детская душа в определенный (   Читать дальше...   )Жанр: Русская литература для детей, народные русские былины, сказыИздательство: Аудиокнига, АстрельПродолжительность: 03:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E599CCD664EF2024063FD46E63FA815BC965A2B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715856   (111490) от 13.04.2024
+
+Aural Imbalance - Infinity Spectrum (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurealis
+02. Glistening Stars
+03. Alpha
+04. Stargazers(   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FC9AE33E31773669BE63C4D622C24811D138F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715946   (111491) от 13.04.2024
 
 VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
@@ -6,7 +82,7 @@ VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111491.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111492.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111493.jpg" />
 </div>
 
 
@@ -82,7 +158,7 @@ E-Bomber - Your Tee Is Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111494.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ OfficeSuite Pro + PDF 14.4.51666 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111495.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ Topaz Gigapixel AI 7.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111496.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ magnet:?xt=urn:btih:E52F4A172D63528D76E6B38660D9469296CE992E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111497.jpg" />
 </div>
 
 
@@ -180,7 +256,7 @@ magnet:?xt=urn:btih:412EC3C23D4BCDF51A9E59FBDA2501E34761D883
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111498.jpg" />
 </div>
 
 
@@ -204,7 +280,7 @@ magnet:?xt=urn:btih:06EF87A8FBFADCA4FAE7CE6F6E914B1FCB8A11FD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111499.jpg" />
 </div>
 
 
@@ -229,7 +305,7 @@ magnet:?xt=urn:btih:A92EA239091A081DD2BE06DB8CC4A85038E2B32C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111500.jpg" />
 </div>
 
 
@@ -253,7 +329,7 @@ magnet:?xt=urn:btih:518B6721B3F621A4549F4B1E12E6E6378F5B98B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111501.jpg" />
 </div>
 
 
@@ -277,7 +353,7 @@ VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Imp
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111502.jpg" />
 </div>
 
 
@@ -304,7 +380,7 @@ Kuro no Shoukanshi | Black Summoner | Чёрный призыватель [2022,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111503.jpg" />
 </div>
 
 
@@ -328,7 +404,7 @@ NIUBI Partition Editor 9.9.5 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111504.jpg" />
 </div>
 
 
@@ -353,7 +429,7 @@ magnet:?xt=urn:btih:C4AB62FFC36198FB76775EEE06A546B9845D7C09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111505.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ magnet:?xt=urn:btih:C4AB62FFC36198FB76775EEE06A546B9845D7C09
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111506.jpg" />
 </div>
 
 
@@ -401,7 +477,7 @@ R-Studio Network 9.4 Build 191301 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111507.jpg" />
 </div>
 
 
@@ -425,7 +501,7 @@ Moon+ Reader Pro v9.3 (b903002) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111508.jpg" />
 </div>
 
 
@@ -449,7 +525,7 @@ magnet:?xt=urn:btih:531A875C6EA93150A4CD61E3C456B230E8029B4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111509.jpg" />
 </div>
 
 
@@ -473,7 +549,7 @@ VA - Blues, Swagger & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111510.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111511.jpg" />
 </div>
 
 
@@ -527,7 +603,7 @@ Cassie Rose & The Sol Garden - On The Wind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111512.jpg" />
 </div>
 
 
@@ -554,7 +630,7 @@ VA - Jazz - ruhig und entspannt (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111513.jpg" />
 </div>
 
 
@@ -568,87 +644,6 @@ VA - Jazz - ruhig und entspannt (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0E499EF6DFCB02F8FDC60B297825AE60EDF93B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715618   (111514) от 12.04.2024
-
-Marvin Scondo - Road Trip Session Vol. I  (Deluxe Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me Baby (6:20)
-02. Real Good Lovin' (3:08)
-03. Viva La Vida (6:21)
-04. Leaving Las Vegas (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79E598BBDC553953EE61A5F1E374F7B19F78590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715609   (111515) от 12.04.2024
-
-Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red-Handed (5:18)
-02. Aquamarine (4:38)
-03. Pecking Order (5:06)
-04. Almost Home Again (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD376787D1D06ABCDDF38D9C227CCCF029B389B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715611   (111516) от 12.04.2024
-
-Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Blew in to Your Town (3:08)
-02. Bad Feeling (6:22)
-03. Made My Gateaway (feat. Laretha Weathersby) (6:05)
-04. I Wonder Why (3:06)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B82A6D47FE72FBA5497117737117A7975F75F1F
 ```
 
 

@@ -1,3 +1,78 @@
+###  Публикация: 1670588   (131028) от 08.12.2023
+
+Дикие псы: в стае / Wild Dogs: Running with the Pack (2022) WEB-DL [H.264/1080p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с оператором Юльцом Браатведтом (Julz Braatvedt) вы отправитесь в Национальный парк Южная Луангва в Восточной Замбии, чтобы проследить за тремя стаями диких собак в сухой сезон. Работая вместе с Замбийской программой по сохранению плотоядных в месте, где до сих пор свободно разгуливают легендарные дикие животные Африки, Юльц имеет уникальную возможность запечатлеть (   Читать дальше...   )Производство: Великобритания, Icon Films, albert sustainable production certificationЖанр: документальный, природа, флора, фаунаУчастники: Юльц БраатведтПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 6 x ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72076A335180F1539C51DEEB7BC8FF50F968C494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682729   (131029) от 08.12.2023
+
+Венера Хабирова | Хелик в балансе (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого мастер-класс?
+- Если Хелик для вас, как страшный сон, и вы хотите знать о нем всё и быть готовым.. А кто-то только узнал про него и не хочет совершить дорогостоящих ошибок!
+- Уже долго воюете с Хеликом, прошли одну-две эрадикации, а эффекта нет
+- Безрезультатно «мочите Хелика», опираясь не на те анализы (и такое бывает!)(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 02:26:17Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36CF0C7F437AECD3AF1B6658BF303707EBC86EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682663   (131030) от 08.12.2023
+
+Новый парень моей жены / Un novio para mi mujer (2022) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диего устал от своей жены и дико хочет развестись. По его мнению, Люсия уже не так привлекательна, да и вообще стала редкой душнилой. Решив обратиться к профессиональному соблазнителю Флоресу, Диего надеется, что интрижка жены подтолкнет ее к разрыву отношений. Однако под влиянием Флореса Люсия изменяется, становится романтичной, душевной, словом, той самой Люсией, (   Читать дальше...   )Производство: Испания / Arcadia Motion Pictures, Athos Pictures, Institut Català de les Empreses Culturals (ICEC)Жанр: мелодрама, комедияРежиссер: Лаура МаньяАктеры: Диего Мартин, Белен Куэста, Уго Сильва, Хоакин Рейес, Андре Кастро, Рохер Берруэсо, Роза Аморос, Лаура Мингуэлл, Хулия Бонжох, Клаудия РодригесПеревод: Дублированный (Leff Sound)Язык озвучки: русскийСубтитры: русские (forced - hardsub)Продолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C755197A7BC407D4F0064EB8AF2F25D90E5348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682795   (131031) от 08.12.2023
 
 Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
@@ -6,7 +81,7 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131031.jpg" />
 </div>
 
 
@@ -32,7 +107,7 @@ magnet:?xt=urn:btih:B5466BCD4E3FAA70BC1EE98E615DA4DCBCB26386
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131032.jpg" />
 </div>
 
 
@@ -56,7 +131,7 @@ magnet:?xt=urn:btih:E6DC26E90DA55B959D355E62D8D6D588F8FC5650
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131033.jpg" />
 </div>
 
 
@@ -80,7 +155,7 @@ magnet:?xt=urn:btih:F5A29F598C0E50C8DC7882FE471EFEE8788EA5F2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131034.jpg" />
 </div>
 
 
@@ -104,7 +179,7 @@ magnet:?xt=urn:btih:E77778D9E7EC0A3D44AF044C0206E3BA525AD9B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131036.jpg" />
 </div>
 
 
@@ -131,7 +206,7 @@ Sexy Girls Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131037.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:999EDDF9543288D30256C29AB4E9CF1162B67551
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131038.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:A64EB5EBE7E6FD9FBF2B7A54A195F77A1C10A49E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131040.jpg" />
 </div>
 
 
@@ -203,7 +278,7 @@ magnet:?xt=urn:btih:3C74A69578AE03902101C10D3CADA81475066ECE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131041.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:4D9D7572F73FD6E8A7B9CDC786E44CA6BE2E6094
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131042.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ Dudley Taft - Left For Dead (2010) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131043.jpg" />
 </div>
 
 
@@ -284,7 +359,7 @@ Dudley Taft - Left For Dead (2010) [FLAC|Lossless]<Blues-Rock>
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131044.jpg" />
 </div>
 
 
@@ -308,7 +383,7 @@ VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131046.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ magnet:?xt=urn:btih:C47E9B91652B8130287562398B47B1DFC96E8B10
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131048.jpg" />
 </div>
 
 
@@ -359,7 +434,7 @@ SUMo 3.4.16.191 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131049.jpg" />
 </div>
 
 
@@ -385,7 +460,7 @@ Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131050.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131052.jpg" />
 </div>
 
 
@@ -436,7 +511,7 @@ magnet:?xt=urn:btih:FFDB02A3BA248FAFCA60FBF44EE1E66E4D06C8CC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131054.jpg" />
 </div>
 
 
@@ -460,7 +535,7 @@ Best HD Wallpapers Pack (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131058.jpg" />
 </div>
 
 
@@ -484,7 +559,7 @@ Computer Desktop Wallpapers Collection (30.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131059.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ Sexy Girls Pack Wallpapers (31.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131061.jpg" />
 </div>
 
 
@@ -532,7 +607,7 @@ magnet:?xt=urn:btih:5DC7E4E00E5C71E47605B4375AEDC30416EEA20A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131062.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ David Jacobs-Strain - Live from the Left Coast (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_131063.jpg" />
 </div>
 
 
@@ -576,78 +651,6 @@ David Jacobs-Strain - Live from the Left Coast (2011) [FLAC|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682657   (131064) от 08.12.2023
-
-Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в волшебную страну рождественских эльфов! Юный Физзи достаточно повзрослел, чтобы мастерить игрушки в мастерской Санты. И у него есть волшебный молоток, передаваемый в его семье из поколения в поколение! Ему не терпится приступить к работе, но несчастный случай выпускает на волю пару дьявольских кукол, стремящихся заморозить магазин и разрушить рождественский (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670694   (131066) от 08.12.2023
-
-Взрыв будет в пять / Vybuch bude v pet (1984) DVD5 [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм про неутомимого шестиклассника, который просто ни минуты не сидит на месте. Его исследования и опыты порой даже пугают родителей. Если у человека в голове бродят всевозможные идеи, и он способен организовать что угодно - от него всего можно ожидать. Даже взрыва посреди ближайшего озера ровно в пять часов вечера...Производство: Чехословакия / Filmové Studio GottwaldovЖанр: комедия, семейныйРежиссер: Йозеф ПинкаваАктеры: Иржи Галек, Лубор Токош, Вацлав Бабка, Зденек Блажек, Roman Pravec, Дэниэл Дите, Alice Hlobílková, Магулена Бочанова, Здена Гадрболцова, Robert NesporПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, чешскийСубтитры: русские, чешскиеПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CE401402F65FE1E3CFBD6CD9E1D08A93B169B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682826   (131067) от 08.12.2023
-
-Журнал | 5 Колесо №12 (362) (декабрь 2023) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131067.jpg" />
-</div>
-
-
-###  Подробнее
-
-"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88F9A5F173EF3F803E8E9DF614FCD808F4FF8A3
 ```
 
 

@@ -6,7 +6,7 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sweet Transit (2022) [Ru/Multi] (20240910) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43837.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43846.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.1.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43847.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ KeepUp Survival (2024) [Ru/Multi] (20240906/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43849.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Satisfactory (2019) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43850.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Lice
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43858.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43933.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Satisfactory (2019) [Ru/Multi] (1.0) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43937.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43961.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_43998.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rising Star 2 (2020) [Multi] (2.98.342/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44026.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44042.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.2.3/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44043.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Beyond Hanwell (2024) [En] (0.4.4) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44063.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44069.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44141.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44168.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44179.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44184.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wartales (2021) [Ru/Multi] (1.0.36897/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44223.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44234.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Volgarr the Viking I + II (2) (2013, 2024) [Multi] (1.36c/1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44246.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44250.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44254.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fallout: London (2024) [En] (2.31r2) Repack/Mod FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44263.jpg" />
 </div>
 
 

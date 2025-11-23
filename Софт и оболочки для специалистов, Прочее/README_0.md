@@ -6,7 +6,7 @@ JetBrains DataSpell 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JetBrains RustRover 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7290.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ JetBrains GoLand 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7302.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jetbrains WebStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7320.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JetBrains Rider 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7326.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7364.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ JetBrains CLion 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7494.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ JetBrains DataGrip 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7518.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7533.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7540.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8109.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VMware Workstation 17 Pro 17.6.4 Build 24832109 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8561.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Araxis Merge Pro 2025.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8683.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Zettlr 3.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8710.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ARES Electrical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8992.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Graebert ARES Commander 2026.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8998.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Schrodinger Suite 2025-3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9256.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Keysight Advanced Design System 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9342.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ CudaText 1.226.0.0 Portable + addons [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9427.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ SQLite Expert Professional 5.5.37.648 RePack (& Portable) by elchupacabra [Ru/En
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9529.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Sigil 2.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10267.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ PageEdit 2.5.0 (x64) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10270.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ PrintMyFonts 24.8.31 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10385.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Inno Tools Ultimate Pack 2025 by Necros1404 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10673.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VMware Workstation 17 Pro 17.6.4 Build 24832109 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10956.jpg" />
 </div>
 
 

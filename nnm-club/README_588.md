@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E34CA7CF786A8E1247091C84620A724DEC23220A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15598.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DE30CFD3805F98FAF94A9ED0F63CEE6FE29787B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15599.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B4A0964E7CB328AD6811810D1B9AAB4C33B1293E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15600.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5E32030F79222A488B19D699F97652C86C397683
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15601.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ATOM RPG: Trudograd (2020) [Ru/Multi] (1.057/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15602.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B950BD9F3A15F9362FB41D3AE11AB80CD5C672B5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15603.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15604.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15605.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CBF25E7819A6E725D1C805E0EEA90E4DB82C8CF1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15606.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:677AD23960ACF0FB9C46A455862B4425E917E6F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15607.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E2ED968421340A903ED5A0A277F6C32A020FBC4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15608.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AnyDesk 9.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15609.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:826EBC112141B0EE7199BA8EFC9DBEEEB2EFA283
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15610.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:A6BAEEB62965220761208B9D997511000A760CC7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15611.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15612.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15613.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:376956AD8FB0680211429FC6122B0992AED31263
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15614.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Valve назвала самые популярные видеокарты Steam 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15615.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Valve подводит итоги традиционного опроса пол
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15616.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15617.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15618.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15619.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15620.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15621.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:365159AB6E0D8B614B7608761E11E81C9BA5402E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15622.jpg" />
 </div>
 
 

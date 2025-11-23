@@ -6,7 +6,7 @@ CopyQ 9.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_24516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SketchUp Pro 2025 25.0.575 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24524.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24524.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adguard 7.20.2 (7.20.4988.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24529.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 03.2025 by OVGorskiy
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24552.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24552.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Alfa eBooks Manager 9.1.30 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24559.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24559.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AIMP 5.40 Build 2668 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24560.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24560.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ GPS Locker Prime v2.4.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24564.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24564.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Shazam v15.13.0-250306 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24567.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24567.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sleep as Android: отличный сон v20250220 Mod by Alex.Strannik [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24570.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24570.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ EF Commander 25.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24574.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24574.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Instant Translate On Screen / Перевод с экрана v6.9.31008 Mod by v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24587.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24587.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Emurasoft EmEditor Professional 25.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24588.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24588.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DigiKam 8.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24596.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24596.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Rosetta Stone: Изучение языков v8.32.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24598.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24598.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ MobaXterm 25.1 build 5288 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24606.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ FurMark 2.7.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24607.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24607.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Display Driver Uninstaller 18.1.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24620.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24620.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24640.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24640.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Wise Care 365 Pro 7.2.3.696 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24667.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24667.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 10.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24674.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24674.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CoolUtils Total HTML Converter 5.1.0.310 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24678.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Chaos Vantage 2.7.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24686.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24686.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FxSound 1.1.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24690.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24690.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ PotPlayer 250313 (1.7.22508) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24702.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24702.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24711.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24711.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:FC4D810AE57C0DFC2BF5D6C2D86326A651A19576
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24715.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_24715.jpg" />
 </div>
 
 

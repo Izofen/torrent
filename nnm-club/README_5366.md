@@ -1,3 +1,178 @@
+###  Публикация: 1345692   (165008) от 17.12.2019
+
+Филип К. Дик | Исповедь недоумка (2019) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Исидор, страдающий обсессивно-компульсивным расстройством, с ранних лет посвятил всего себя дилетантским научным исследованиям и коллекционированию сумасбродных идей человечества, а также абсолютно бесполезных предметов и изобретений. Он верит, что Земля внутри полая, а солнечный свет обладает весом. В повседневной жизни Джек оказывается настолько беспомощным, (   Читать дальше...   )Жанр: Классическая зарубежная прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073EA0F7468839ACD8DC221BC5E68E49B3F7F3A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432068   (165009) от 16.12.2020
+
+Line6 - Helix Native 3.0.1 VST, VST3, AAX (x64) RePack by VR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helix Native - признанный гитарный процессор эффектов в формате плагина.
+Helix® Native: реализует в плагине мощную и тональную аутентичную удостоенную наград технологию HX Modeling. Как и аппаратные представители семейства гитарных процессоров Helix - Helix Floor, Helix Rack и Helix LT, плагин Helix Native обеспечивает точное воспроизведение винтажных и современных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C42F88F019A7A7A301AE1668C27C78D9DC018D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516687   (165010) от 12.12.2021
+
+Несправедливость: Боги среди нас / Injustice (2021) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165010.jpg" />
+</div>
+
+
+###  Подробнее
+
+История происходит на альтернативной Земле, где Джокер обманом заставил Супермена убить Лоис Лейн, послав героя в ярости. Этот безумный Супермен решает взять под свой контроль Землю для ее же блага, побуждая Бэтмена и его союзников попытаться остановить его.Производство: США / DC Entertainment, Ian Rodgers Productions, Warner Animation Group, Warner Bros., Warner Bros. AnimationЖанр: Мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Мэтт ПитерсАктеры: Джастин Хартли, Энсон Маунт, Лора Бэйли, Зак Каллисон, Брайан Т. Делани, Брэндон Майкл Холл, Эндрю Моргадо, Эдвин Ходж, Оливер Хадсон, Гиллиан ДжейкобсПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full) - отдельноПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A48B8A1A5BB0F530F27671CB31C67557CE5927D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597634   (165011) от 16.12.2022
+
+Julien Daian Quintet - Cut-Up (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End Working (4:28)
+02. Bring Some Love (feat. Luciano & Mikey General) (5:56)
+03. September Nine (5:22)
+04. Trop c'est trop (2:46)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E3E3A817798B3EEE628637366620C1A214E9C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345129   (165012) от 17.12.2019
+
+Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Reissue, 1992, Disques Dreyfus [FLAC|Lossless|image + .cue] <Ambient, New-Age, Experimental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oxygene 4 [3:09]
+ 02 - Equinoxe 5 [3:22]
+ 03 - Chants Magnetiques 2 [3:57]
+ 04 - Oxygene 2 [3:12](   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11C17AA8285C03657C6CC1FBE7C2FBCBF948968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516667   (165013) от 12.12.2021
+
+Смешанные единоборства. UFC 269: Чарльз Оливейра - Дастин Порье / UFC 269: Oliveira vs. Poirier. Full Event (12.12.2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165013.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 декабря в Лас-Вегасе (штат Невада, США) на «T-Mobile Arena» состоялся последний в этом году номерной турнир UFC 269. Главным событием которого стал титульный бой в легком весе: Чарльз Оливейра – Дастин Порье. Оливейра, идущий на серии из девяти побед (8 финишей), завоевал титул чемпиона в мае текущего года нокаутировав Майкла Чендлера. Бразильцу потребовалось (   Читать дальше...   )Телекомпания: UFC Fight PassЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 06:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BC1C14CFD72D9CE6ECC13F1D95ADDEAD57DCB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432171   (165014) от 16.12.2020
+
+Александр Тамоников | Отряд бессмертных (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще очень давно, в былинное Средневековье, страна нуждалась в особо выученных и натренированных воинах. Царь понимал, что одной лишь регулярной армии мало. Нужны такие богатыри, которым можно было бы доверить самые сложные, опасные и значимые задачи, от которых зависела судьба государства. И пусть таких героев будет немного, но чтоб им по силам было пройти огонь (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 08:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D1230D7FD3EB7A5DB07B076087EB26F2547C0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597734   (165015) от 16.12.2022
 
 Жизнь во времена мушкетеров / La Vie au Temps des Mousquetaires (2019) IPTVRip [H.264]
@@ -6,7 +181,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165015.jpg" />
 </div>
 
 
@@ -30,7 +205,7 @@ VPN Russia - VPN сервера в России 1.176 Mod by FreeApkexe [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165016.jpg" />
 </div>
 
 
@@ -54,7 +229,7 @@ The Bat! Professional 10.5.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165017.jpg" />
 </div>
 
 
@@ -78,7 +253,7 @@ magnet:?xt=urn:btih:AC948D1501726697DBEBA7268CF84860BE43B711
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165018.jpg" />
 </div>
 
 
@@ -102,7 +277,7 @@ magnet:?xt=urn:btih:0B091AEE7990CAA2DB6BAD8C57AB7BEF26CD89FF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165019.jpg" />
 </div>
 
 
@@ -126,7 +301,7 @@ AVS Media Player 5.2.4.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165020.jpg" />
 </div>
 
 
@@ -150,7 +325,7 @@ Demon Hunter - Exile (2022) Deluxe Edition [MP3|320 Kbps] <Nu Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165021.jpg" />
 </div>
 
 
@@ -177,7 +352,7 @@ Deltopia DeltaWalker Oro Edition 2.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165022.jpg" />
 </div>
 
 
@@ -201,7 +376,7 @@ Total Commander 11.01 (27.10.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165023.jpg" />
 </div>
 
 
@@ -225,7 +400,7 @@ magnet:?xt=urn:btih:D1DE5C5C41657EDEBF9F6A3453DD1433897D2DE8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165024.jpg" />
 </div>
 
 
@@ -249,7 +424,7 @@ magnet:?xt=urn:btih:C5C454752F6201E86DC4ABF219E826C437B9153E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165025.jpg" />
 </div>
 
 
@@ -273,7 +448,7 @@ RogueKiller Anti-Malware 15.6.4 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165026.jpg" />
 </div>
 
 
@@ -297,7 +472,7 @@ magnet:?xt=urn:btih:026C255FB6A03BBD1511597C415D805203A53E66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165028.jpg" />
 </div>
 
 
@@ -321,7 +496,7 @@ AOMEI Backupper Technician Plus 7.3.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165029.jpg" />
 </div>
 
 
@@ -345,7 +520,7 @@ magnet:?xt=urn:btih:5EB26FBFEAFF180D50884450AF1411332FC2A6C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165030.jpg" />
 </div>
 
 
@@ -369,7 +544,7 @@ magnet:?xt=urn:btih:F48D0EB755EF7817EFCFB18FF27B66B08460DF51
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165031.jpg" />
 </div>
 
 
@@ -393,7 +568,7 @@ magnet:?xt=urn:btih:AC3B75BD953BECF10E4F243AB3A733AD8644C5A8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165032.jpg" />
 </div>
 
 
@@ -417,7 +592,7 @@ magnet:?xt=urn:btih:D658998210D95E1F0066B7D675123470F38C4955
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165033.jpg" />
 </div>
 
 
@@ -442,7 +617,7 @@ magnet:?xt=urn:btih:8A04BAF24805795754B9F83576E436F3F1CE5D52
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165034.jpg" />
 </div>
 
 
@@ -453,183 +628,6 @@ magnet:?xt=urn:btih:8A04BAF24805795754B9F83576E436F3F1CE5D52
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3A2011846050FB77FCCA347974FD52CF818FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597728   (165035) от 16.12.2022
-
-Митико Какутани | Экслибрис. Лучшие книги современности (2022) [MP3, Павел Михеев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лауреат Пулитцеровской премии, влиятельный литературный обозреватель The New York Times Митико Какутани в ярко иллюстрированном сборнике рассказывает о самых важных книгах современности – и объясняет, почему их должен прочесть каждый.
-Почему книги так важны? Митико Какутани, критик с мировым именем, убеждена: литература способна объединять людей, невзирая на культурные (   Читать дальше...   )Жанр: Литературоведение, ПублицистикаПродолжительность: 08:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD992B19809BC89D144F74C4CD0D9355589692C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673521   (165036) от 01.11.2023
-
-The Bat! Professional 10.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165036.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349AB0D7512D9733CB4E75BEF3DDCD22EDBE8EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673474   (165037) от 01.11.2023
-
-VA - Saxophone Dreamsound (2023) [MP3|320 Kbps] <Jazz, Saxophone, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Lengwood - You're Beautiful [03:31]
-002. The Golden Saxophones - I Can't Stop Loving You [03:14]
-003. The Royal Sax Company - I Just Can' t Stop Loving You [04:19]
-004. Saxophone Dreamsound - Unfaithful [03:48](   Читать дальше...   )Жанр: Jazz, Saxophone, InstrumentalПродолжительность: 06:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB6A72ED50D1C799AB9785390EB9073FA07FE9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516507   (165038) от 12.12.2021
-
-Volbeat - Servant Of The Mind (2021) 2xCD, Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165038.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Servant Of The Mind:
-01. Temple Of Ekur
-02. Wait A Minute My Girl
-03. The Sacred Stones(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2881F1CD14FEE51FC4EB5F91A449A7767E5F48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345976   (165039) от 17.12.2019
-
-Бернхард Хеннен | Огненная сага (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Хроники Азура».
-
-С того времени как первый из рода Тормено сжег мой город, я никуда не исчез. Мой взгляд не помутнел, а когти не затупились. Я пришел из Арборы и поклялся вечно мстить всем Тормено. Но долгое время я был лишь детской страшилкой из старинных сказок. Вор серебра и непослушных детишек. До тех пор, пока Милан Тормено, дабы позлить (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CBA083111C0E62EF16728C41D5EC1185A195A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597708   (165040) от 16.12.2022
-
-IObit Uninstaller Free 12.2.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165040.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC79ABF6BF2115B098500F18220D512121CEDE03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432109   (165041) от 16.12.2020
-
-Книжная серия | Развитие интеллекта школьников [13 книг] (2010-2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Развитие интеллекта школьников" направлена на повышение эффективности учебной деятельности школьников. Развивающие задания составлены на материале основных учебных предметов. Акцент делается не на том, ЧТО нужно приобрести, cформировать и развить в ходе учебного процесса, а на том, КАК приобрести эти знания, КАК поэтапно сформировать практические (   Читать дальше...   )Жанр: Развитие школьниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE8CC777702D9FFEB1C0E75D31F6D40CBF7B3E9
 ```
 
 

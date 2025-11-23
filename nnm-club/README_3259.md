@@ -1,3 +1,78 @@
+###  Публикация: 1822972   (104415) от 09.10.2025
+
+VA - Inside Ibiza 2025 - The Sound Of The Island (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Bisous & Sgt Slick - Reach Out 02:44
+02. Sarrdo Carocci - Take Me Home 02:39
+03. Ekko - Delante 03:12
+04. Aemilian, Basti M & Blaikz - For You (Ibiza Rework) 03:14(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29B947633CFCD8B46CCE606A7137C125CDBE505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822973   (104416) от 09.10.2025
+
+Журнал | Render Magazine №10 (октябрь 2025) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104416.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550097F73D9DFD07074FD1D4A3B21AF56C3E6412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822979   (104417) от 09.10.2025
+
+Журнал | Мир фантастики. Спецвыпуск №17 (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Мир фантастики» посвящён фантастике в самом широком смысле. В фокусе внимания — книги, фильмы, сериалы, игры и комиксы, статьи о вымышленных вселенных, мифологии и футурологии и всё самое интересное в этой области. О классике и новинках. Под обложкой каждого номера вас ждёт целый мир!Жанр: Журнал фантастикиИздательство: ООО «Мир Хобби»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C7B6F9B2C663DB78589615CDD4554F7FD064C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822976   (104418) от 09.10.2025
 
 Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
@@ -6,7 +81,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104418.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104419.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104421.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:716EF0211A1EEC38188A3CF6E8AB022A91722150
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104422.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ magnet:?xt=urn:btih:2290B54D78EF85BD8ABDB7BC84064CCC9A833066
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104423.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104423.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ magnet:?xt=urn:btih:2F0C8E4DFB33FF888243B7C568DD45B08527143E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104424.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ magnet:?xt=urn:btih:60C01CF2317C2668D82F676BB365BAF14BC354C3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104425.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ magnet:?xt=urn:btih:6F52F272B29DB9E1C92BD51C29804D5C704C7ECD
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104426.jpg" />
 </div>
 
 
@@ -225,7 +300,7 @@ magnet:?xt=urn:btih:9265BA756CC6B4B2355140F6118606C9A99F3A10
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104427.jpg" />
 </div>
 
 
@@ -249,7 +324,7 @@ magnet:?xt=urn:btih:4EE5BBB764DA3CF5D8AD43AFC9D4736DF09A067B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104428.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104428.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ magnet:?xt=urn:btih:37B51D064164A9E5C61CC4D5A61F76471A766761
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104429.jpg" />
 </div>
 
 
@@ -299,7 +374,7 @@ Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104430.jpg" />
 </div>
 
 
@@ -324,7 +399,7 @@ magnet:?xt=urn:btih:53FC0EEAABB6951DDF16055E866415436078CADA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104431.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104431.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104432.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ magnet:?xt=urn:btih:6225C1CEC09B44A53D9173851AD30EFDC12C6740
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104433.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ karpov.courses, Виктор Кузнецов | Инженер данных (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104434.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104435.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ karpov.courses, Валерий Бабушкин и др. | Хардкорный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104436.jpg" />
 </div>
 
 
@@ -470,7 +545,7 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104437.jpg" />
 </div>
 
 
@@ -494,7 +569,7 @@ magnet:?xt=urn:btih:71FEEDB096C40E3CBB502585506AF464C60B28D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104438.jpg" />
 </div>
 
 
@@ -518,7 +593,7 @@ Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104439.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104439.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104440.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104440.jpg" />
 </div>
 
 
@@ -556,83 +631,6 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822966   (104441) от 09.10.2025
-
-Seelen UI 2.4.4 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seelen UI - это программа для кастомизации и полного преображения вашего рабочего стола.
-Это не просто смена обоев, стиля отображения окон, но и разнообразные виджеты и полный пересмотр взаимодействий с популярными программами.
-Seelen UI имеет обширную библиотеку (пресетов).Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873B5C0DD4FA7B641D6FC490F3BEBE9C1A054DC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822965   (104442) от 09.10.2025
-
-Оверлеи - Creative Market - Window Shadow Overlays - 92012573 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем оверлеи Window Shadow Overlays — продукт, специально созданный для улучшения ваших фотографий с помощью эффекта естественного оконного света. Преобразите свои изображения с помощью тонкой игры теней, добавив им реалистичности и глубины. Улучшите свои изображения и легко запечатлейте суть естественного освещения.Формат: PNGРазрешение файлов: 3011x2750 - 5892x4016
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C640C3AF3812364E4D050B623C747D6AAA864447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585387   (104443) от 09.10.2025
-
-Школа Data Science (karpov.courses), Анатолий Карпов и др. | Симулятор аналитика (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что вы устроились аналитиком в молодой стартап, объединивший мессенджер и ленту новостей. Ваша задача — с нуля выстроить аналитические процессы под руководством ведущего аналитика.
-Чему Вы научитесь:
-Автоматизируете отчётность, используя связку BI + Python
-Прокачаете знания программирования и SQL реальном проекте(   Читать дальше...   )Производство: Школа Data Science (karpov.courses)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 ```
 
 

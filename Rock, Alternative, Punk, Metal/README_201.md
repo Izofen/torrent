@@ -6,7 +6,7 @@ Stuka Squadron - Zeppelin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127576.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:23C6AAC3BB9A2495E0DAC45FAF1F39C43CD500AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127577.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Moongates Guardian - Broken Sword (2022) Compilation [FLAC|Lossless|image + .cue
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127578.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In Vision - Manuscript (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127579.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A50DE41E1A89B0E2CB0006563389AC7C857096DA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127580.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Palace Of The King - Friends In Low Places (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127584.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ David Bowie - Live USA (1990) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127593.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Ar
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127594.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Diviner - Avaton (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127596.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Placebo - Collapse Into Never - Live In Europe (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127599.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Axis of Empires - Heretics and Orthodoxy (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127600.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127618.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:490906CFF877F8148FCE3C427D3D3527F6B7CA4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127620.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127761.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127765.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Grafvitnir - Venenum Scorpionis (2019) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127778.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Noage - From Darkness To Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127781.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Therion - Leviathan III (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Op
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127787.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Astral Experience - Clepsidra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127794.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Men Eater - Men Eater (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127795.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Rolling Stones - Hackney Diamonds (Live Edition) (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127800.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:8E944627ACB6E3F6CFA328649E227443D995CBD4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127802.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127941.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Stam1na - X (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Thrash, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127949.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:A7BA724ACA07CC9BED0DBA5A77813FAF0A6D0369
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127966.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_127979.jpg" />
 </div>
 
 

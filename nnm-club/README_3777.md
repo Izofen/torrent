@@ -1,3 +1,76 @@
+###  Публикация: 383530   (117884) от 13.02.2024
+
+Владимир Маяковский | Про это (2005) [MP3, Лиля Брик]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Лиля Брик умела быть грустной, женственной, капризной, гордой, пустой, непостоянной, влюбленной, умной и какой угодно. Одни современники считали ее Музой Маяковского, другие – его злым гением, одни восторгались ею, а другие испытывали к ней острую неприязнь. Но в памяти потомков она останется, прежде всего, женщиной, которой Владимир (   Читать дальше...   )Жанр: Русская литература, классика, проза, поэзияИздательство: Студия «АРДИС»Продолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FCFAF82FAC57108E5DA52E511C5B56384E4D1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699565   (117885) от 13.02.2024
+
+Adobe Acrobat Reader 2023.008.20533.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2658B8EA53F8C273A4A65B484639E8CB788C0289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699386   (117886) от 13.02.2024
+
+The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117886.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Backrooms Deluxe - отправьтесь навстречу запутанным коридорам и самым настоящим опасностям! Окунитесь с головой в невероятное приключение по проработанному миру, где реальность и ужасы перемешаются в сумасшедшей последовательности помещений. Вы к такому готовы? В данной игре предусмотрены разнообразные уровни и опасности, а также с каждым новым шагом вы будете (   Читать дальше...   )Тип издания: RepackРазработчик: Lory GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699567   (117887) от 13.02.2024
 
 Стальная хватка / The Iron Claw (2023) WEB-DL [H.264/720p]
@@ -6,7 +79,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117887.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Clip Studio Paint EX 2.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117888.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ Doors: Paradox (2022) [Ru/Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117889.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117890.jpg" />
 </div>
 
 
@@ -105,7 +178,7 @@ magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117891.jpg" />
 </div>
 
 
@@ -129,7 +202,7 @@ magnet:?xt=urn:btih:51F1C81D4DDA55B8C04CCC2220F7B9DEA0662901
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117892.jpg" />
 </div>
 
 
@@ -153,7 +226,7 @@ Windows 11 Pro 23H2 22631.3007 x64 by SanLex [Lightweight] [Ru/En] (2024.02.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117893.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -201,7 +274,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2032.0 (11.02.2024) RePack
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117895.jpg" />
 </div>
 
 
@@ -225,7 +298,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -249,7 +322,7 @@ magnet:?xt=urn:btih:BB8BC7B0BD18FDE7A3D197E14EB6E39E95DC960D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117897.jpg" />
 </div>
 
 
@@ -273,7 +346,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117898.jpg" />
 </div>
 
 
@@ -297,7 +370,7 @@ magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117899.jpg" />
 </div>
 
 
@@ -321,7 +394,7 @@ magnet:?xt=urn:btih:52884A64DC60846B5EC13FB767D7159B628CFA9E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117900.jpg" />
 </div>
 
 
@@ -345,7 +418,7 @@ magnet:?xt=urn:btih:D3A8390FACDC2C08C421B992DB5CACCFC754619D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117901.jpg" />
 </div>
 
 
@@ -370,7 +443,7 @@ magnet:?xt=urn:btih:3ABF9ED035CF8C1B9CB285FC57A3E6C52F13133D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117902.jpg" />
 </div>
 
 
@@ -394,7 +467,7 @@ magnet:?xt=urn:btih:3ABF9ED035CF8C1B9CB285FC57A3E6C52F13133D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117903.jpg" />
 </div>
 
 
@@ -419,7 +492,7 @@ magnet:?xt=urn:btih:A462E30A2C6B1A1DB41324847E96E41950A2D935
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117904.jpg" />
 </div>
 
 
@@ -443,7 +516,7 @@ magnet:?xt=urn:btih:F4383C878B8AE914C74516F7B2630CE3430E6380
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117905.jpg" />
 </div>
 
 
@@ -468,7 +541,7 @@ Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117906.jpg" />
 </div>
 
 
@@ -494,7 +567,7 @@ Zorin OS 17 Pro / Core [x64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117907.jpg" />
 </div>
 
 
@@ -520,7 +593,7 @@ magnet:?xt=urn:btih:7CAA5C6817C54FC60BCF1B50B3ACF5161C07E2E1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117908.jpg" />
 </div>
 
 
@@ -548,7 +621,7 @@ magnet:?xt=urn:btih:51C6DB6DE53F7A1FF02E3F85805784F41A37A7A6
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117909.jpg" />
 </div>
 
 
@@ -560,80 +633,6 @@ magnet:?xt=urn:btih:51C6DB6DE53F7A1FF02E3F85805784F41A37A7A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21BA406A8EFA98CB120F2F5934FF8359A5C33E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698150   (117910) от 13.02.2024
-
-Главная проблема литиевых батарей решена. Созданы аккумуляторы, которые не взрываются и не горят
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые из Китая и США нашли способ сделать литиевые аккумуляторы безопасными. Они придумали, как предотвращать их возгорание при повреждении или перегреве, что является главной их проблемой. Решение лежало на поверхности, и оно не из разряда научной фантастики – безопасные батареи можно начать производить прямо сейчас.Второго Galaxy Note 7 не будет
-Группа американских (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645732   (117911) от 13.02.2024
-
-DAVE THE DIVER v.1.0.2.353 (2022) [Multi] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в "DAVE THE DIVER", морское приключение в таинственной Голубой Дыре. Днем исследуйте море вместе с Дэйвом, а ночью управляйте рестораном суши. Раскройте секреты Голубой Дыры и разгадайте эту морскую тайну, в которой участвуют три друга, каждый из которых обладает индивидуальностью. Вас ждут новые приключения.Тип издания: macOS Native gameРелиз состоялся: 2022Разработчик: MINTROCKETПоддерживаемая ОС: 10.15+Жанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5209830C5F5A4AAA0DBD5F760F654B8C999449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699268   (117912) от 12.02.2024
-
-Boinx FotoMagico Pro 6 v.6.5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117912.jpg" />
-</div>
-
-
-###  Подробнее
-
-FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
-В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC25C52855DC35496B7891C2B9E6A3415FD247C8
 ```
 
 

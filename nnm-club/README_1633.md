@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42813.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42814.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1390AEE7EB942B6E71C4B976D376453B2982386A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42815.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AF9AACB2F133A6FB04398A24A63F18FE5D3AF857
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42816.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Electrical Calculations Pro / Электрические расчеты v10.0.8 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42817.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:047453EE43ADE279F3EB5385B64B303961D66E0F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42818.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Firefox Browser 130.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42819.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42820.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42821.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42822.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:3B34C0DB6AC62E5317CBF0E3D70B7A2A8BBDC1B1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42823.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:DFBFE92BFCE4FF7F21F9B11BEFB853DE3EA99B3D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42824.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:10396475DC5CC1B65BC2A8E52DE41A7C4F9D23FD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42825.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42825.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Eguana - Future Visions (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42826.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Process Lasso Pro 15.0.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42827.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:92C38409F2662C32398C153EFC477183AF69A409
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42828.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:DD57786E1BE9FBF8786EBA93D7C6A07831DF3FED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42829.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:D9866CF68B4D4FD08D96B95AC01A10F3A54137F4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42830.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:91E3EF4A59028F8FC3595A76119D4F3740FF154D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42831.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Katy Perry - 143 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42832.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:BAAB6CE6F3DFE8CBF9AE6D2A373BB7FB97F974B9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42833.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sandboxie plus 1.14.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42834.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:4375757102E95E026900823D2397B9161DC47D46
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42835.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4375757102E95E026900823D2397B9161DC47D46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42836.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E786D6BC7862F3AA010D7A1CF549234D5EFA6E81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42837.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42838.jpg" />
 </div>
 
 

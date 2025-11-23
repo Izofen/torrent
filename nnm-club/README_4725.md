@@ -1,3 +1,173 @@
+###  Публикация: 1087494   (146475) от 27.12.2016
+
+Wise Disk Cleaner 9.41.655 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6BBD6F19951E0647100591D6BF331607E82FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519780   (146476) от 25.12.2021
+
+SamDrivers 21.12 OLD - Сборник драйверов для Windows [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник драйверов от SamLab, для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10, включая серверные платформы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 Plus / Drivers Installer Assistant (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3182044015946DD6F271485AEEC305ED9E007CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969537   (146477) от 27.12.2015
+
+Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. X360Club
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юной сове-стражу по имени Шард (Shard) предстоит защитить Великое Дерево Га'Хуул от новой опасности, исходящей из темной страны Pure Ones. Станьте стражем - крылатым воином с острыми когтями и могучими крыльями. Отправляйтесь в путешествие по волшебному миру и защитите земли Га'Хуул, пока еще не стало слишком поздно.Тип издания: UnofficialРазработчик: Krome StudioЖанр: Arcade, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD167AFD967438856CCF85B0F36AF1D68C9CBA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271702   (146478) от 25.12.2018
+
+CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
+
+Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348098   (146479) от 26.12.2019
+
+Cisdem Document Reader 4 v4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem DocumentReader позволяет читать, печатать, сохранять файлы: WPD, WPS, XPS, Visio PDF на Вашем Mac. Приложение позволяет Вам использовать различные стили просмотра с помощью панели инструментов, состоящий из режимов просмотра, панели поиска, навигации по страницам, масштабирования, поворота, а так же функций: сохранить, копировать и т.д. Вы можете персонализировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B571109F3F424BF35352408B371A12D8D8DD64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678179   (146480) от 20.11.2023
+
+Однажды в России (2023.11.20) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: ЮморУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA42215E6432F76A2045ACBBCDBA47576B6704A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087488   (146481) от 27.12.2016
+
+MKVToolNix 9.7.0 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146481.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видеофайлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Всё очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058AC7B7D82939DA39CBBC9783E6DE45C887C118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519719   (146484) от 25.12.2021
 
 Станислав Чернышёв | Основы DART (2021) [PDF]
@@ -6,7 +176,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146484.jpg" />
 </div>
 
 
@@ -30,7 +200,7 @@ Psychonaut 4 - 5 Albums, 3 Splits, 1 Single (2011-2020) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146485.jpg" />
 </div>
 
 
@@ -57,7 +227,7 @@ magnet:?xt=urn:btih:A71BBDD5815EC2E6769C950FE87494DF91A6E9C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146486.jpg" />
 </div>
 
 
@@ -81,7 +251,7 @@ Media Player Classic Home Cinema 1.8.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146487.jpg" />
 </div>
 
 
@@ -105,7 +275,7 @@ magnet:?xt=urn:btih:0F591D83F1DDFD40639FFA3FBFA5C557B62E7319
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146488.jpg" />
 </div>
 
 
@@ -129,7 +299,7 @@ magnet:?xt=urn:btih:C31744223535AD9BB6369DB15B702B04FBC689A3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146490.jpg" />
 </div>
 
 
@@ -156,7 +326,7 @@ VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146491.jpg" />
 </div>
 
 
@@ -183,7 +353,7 @@ magnet:?xt=urn:btih:564A8D84F02CF75EAD2C30B8ADB47A5A1DA5B961
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146492.jpg" />
 </div>
 
 
@@ -210,7 +380,7 @@ HQ Wallpapers for a desktop (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146493.jpg" />
 </div>
 
 
@@ -234,7 +404,7 @@ magnet:?xt=urn:btih:D3073D8EBCA2A02E337D38C71604F77429AE553D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146494.jpg" />
 </div>
 
 
@@ -258,7 +428,7 @@ magnet:?xt=urn:btih:45062851AC2AF549BF1E744841313BDE252C9D1C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146495.jpg" />
 </div>
 
 
@@ -282,7 +452,7 @@ magnet:?xt=urn:btih:09B92ADBDA6B8967C0973A32AB733AF92406E97E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146497.jpg" />
 </div>
 
 
@@ -309,7 +479,7 @@ magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146498.jpg" />
 </div>
 
 
@@ -333,7 +503,7 @@ magnet:?xt=urn:btih:1FFF70967B3327ED0582C5C38BCA0EC61C7F4CC2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146499.jpg" />
 </div>
 
 
@@ -357,7 +527,7 @@ New year wallpapers 2013 (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146500.jpg" />
 </div>
 
 
@@ -381,7 +551,7 @@ magnet:?xt=urn:btih:AB0904307806880231C5F1B925F9DF6BCE19E2AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146501.jpg" />
 </div>
 
 
@@ -405,7 +575,7 @@ magnet:?xt=urn:btih:D74B721831DC7284B352D67B302F0FD627A882B5
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146502.jpg" />
 </div>
 
 
@@ -432,7 +602,7 @@ magnet:?xt=urn:btih:D74B721831DC7284B352D67B302F0FD627A882B5
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146503.jpg" />
 </div>
 
 
@@ -456,7 +626,7 @@ Naka - 8 релизов (2005 - 2014)[MP3|128-320 kbps]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_146505.jpg" />
 </div>
 
 
@@ -469,187 +639,6 @@ Naka - 8 релизов (2005 - 2014)[MP3|128-320 kbps]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C985883DE92D60DE1160CC50CE0A3D07975F0E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590156   (146506) от 16.12.2012
-
-Arty - Together We Are 025 (13.12.2012) [MP3|320 кб/с]<Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delirium - Days Turns Into Nights (Seven Lions Remix)
-02. Chocolate Puma & Gregor Salto - Gimme Sum (Original Mix)
-03. Jordy Dazz - Claymore (Original Mix)
-04. Antillas & Dankann - Evolution (Club Mix)
-05. Arty - Gentle Touch (Eximinds Remix)
-06. Pryda - Bergen (Original Mix)
-07. Deep Dish - Say Hello (Original Mix)
-08. Rudimental feat. Angel Haze - Hell Could Freeze
-09. Inner Life - Ain’t No Mountain High Enough (WhiteNoize Remix)
-10. T3KTONE feat. Harry Choo Choo Romero - Beat Of The Drum (Erick Morillo & Harry Romero Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 1:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4F5EDE5E497F43CE23B5BFCEC71816DF927490
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435154   (146507) от 27.12.2020
-
-Чудо техники с Сергеем Малозёмовым (27.12.2020) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как стаи летающих беспилотников совсем скоро смогут заменить фейерверки, и почему они не врезаются друг в друга и знают, в какую фигуру нужно выстраиваться? Главный вопрос этого года: «Сможет ли мир нормально жить после пандемии?». Все о летающих подарках: горшки с цветами, часы и даже виниловый проигрыватель — стоит ли покупать такие вещицы или кроме вау-эффекта (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F04F72EDE23F7679DE79CD53993622EB9CBC9A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969417   (146508) от 27.12.2015
-
-UC Browser 5.5.8807.1010 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146508.jpg" />
-</div>
-
-
-###  Подробнее
-
-UC Browser для ПК - версия популярного мобильного браузера для настольных компьютеров под управлением ОС Windows. Этот web-обозреватель использует в работе 2 движка - Chromium (Google Chrome) и Trident (Internet Explorer), позволяя при необходимости быстро переключаться между ними. Для того, чтобы переключиться между движками, Вам надо просто нажать на символ в адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8353A8AAF257A08F63C7C895199C58540211D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271520   (146509) от 25.12.2018
-
-К.Н. Лунгу | Линейное программирование: Руководство к решению задач (2005) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Основное внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса. Рассмотрены случаи сведения симплексного метода к наглядному геометрическому способу. Начальный план транспортной задачи строится методом (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087489   (146511) от 27.12.2016
-
-Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146511.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love On The Line (4:41)
-A2. Alright Down Get Boogie (Muala Rusic) (3:58)
-A3. The Song (They Love To Sing) (6:09)
-A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435135   (146513) от 27.12.2020
-
-Журнал | The World of Interiors №2 (февраль 2020) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0031F8C37DD311C045564DA5945276CB1B499ABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969433   (146514) от 27.12.2015
-
-Шаблоны - Перекидной календарь - Calendar 2016 on the year [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перекидной календарь с рамками для фото на 2016 год.
-Автор: FotcaФормат: PNGРазрешение файлов: 3543x5315 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEC58E1D9482CF50C502F3A0E63E6281DAEE463
 ```
 
 

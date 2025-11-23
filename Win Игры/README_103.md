@@ -6,7 +6,7 @@ VED (2024) [Ru/Multi] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29304.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Silent Hill 2 (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Let'sРlay [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29330.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007.28161) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29332.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude [T
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29337.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Water Park Tycoon (2014) [En] (1.2.4) Scene TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29348.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29356.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.113.49697469) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29358.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29383.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sacred  - Антология (2005-2014) [Ru/Multi] (2.28/2.65.2/1.0/1.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29424.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29424.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Winter Falling: Battle Tactics (2022) [En] (7.11) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29430.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Shotgun King: The Final Checkmate (2022) [Ru/Multi] (1.515g) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29449.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 17168908) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29452.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Thing: Remastered (2024) [Ru/Multi] (1.1.1609.1391) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29454.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29461.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rocket Boots Mania (2018) [Ru/Multi] (1.0.3012) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29488.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ WonderLang Spanish (2025) [En] (0.9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29501.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29508.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29508.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29511.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (build 17020908) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29514.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.007) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29525.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29525.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29535.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29535.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VED (2024) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29536.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hidden Deep (2022) [Ru/Multi] (0.96.7/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29538.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Noita (2019) [Ru/Multi] (20250125-1640) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29551.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_29560.jpg" />
 </div>
 
 

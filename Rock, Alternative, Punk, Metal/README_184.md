@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121987.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121988.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121997.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Autumn's Child - Tellus Timeline (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121998.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122001.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aasymar - Corona de Escamas (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122005.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Master - Saints Dispelled (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122006.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ASP - Horrors  A Collection of Gothic Novellas (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122008.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Food For Fish - Ещё не старый (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122010.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Craig Soderberg - Are You OK?! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122011.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dolly Parton - Rockstar (Deluxe) (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122014.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A7232AD7F8FFE72537ADB3F6E871CFAEBE87ED4C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122113.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Saxon - Hell, Fire and Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122141.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Metalite - Expedition One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122144.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122154.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Saxon - Hell, Fire and Damnation (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122162.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:61E2CFEB5A0A426A681017C09C0B65E4E09AB75E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122163.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gotus - Gotus (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122168.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Green Day - Saviors (2024) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122225.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122225.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122240.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122329.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122330.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lilith’s Black Lotus - Triple Six Revolution (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122334.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122336.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122341.jpg" />
 </div>
 
 

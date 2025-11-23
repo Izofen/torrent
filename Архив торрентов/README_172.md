@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41923.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TweakPower 2.061 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41932.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:960BEFBDB6BF9F1BD12746F6CDB17E7A728192F5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41938.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (2909) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41942.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Volume2 1.1.9.467 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41951.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Total Commander 11.03 Extended 24.9 Full / Lite RePack (& Portable) by BurSoft  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41963.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Music Collection 3.7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41973.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E6042368BA0E0654A94DB85A33152E5020ECABC0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41977.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ TweakNow WinSecret Plus! 5.7.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41981.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ XYplorer 26.40.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41984.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ ZD Soft Screen Recorder 12.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41986.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ QOwnNotes 24.9.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41989.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SQLite Expert Professional 5.5.23.634 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42000.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Soft Organizer Pro 9.55 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42001.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CoolUtils Total Audio Converter 6.1.0.274 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42006.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Autorun Organizer 5.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42007.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ iFind Data Recovery 9.7.4.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42008.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Glary Utilities Pro 6.16.0.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42015.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Process Lasso Pro 15.0.1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42016.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Wise Registry Cleaner Pro 11.1.7.722 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42017.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ WinTools.net Premium 24.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42030.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Against the Storm (2022) [Ru/Multi] (1.4.5r/dlc) Repack FitGirl [Complete]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42033.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fast Video Cutter Joiner 6.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42037.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42042.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AOMEI Partition Assistant Technician Edition 10.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42043.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Tor Browser Bundle 13.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42053.jpg" />
 </div>
 
 

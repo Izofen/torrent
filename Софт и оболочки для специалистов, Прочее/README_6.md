@@ -6,7 +6,7 @@ Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [En
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83164.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83194.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84014.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84215.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Bascom-AVR - программная среда для создания испо�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86646.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Drivers BackUp Solution 3.4.10 Final [Multi/Rus]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87707.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88319.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89537.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ StatSoft STATISTICA 8.0.725 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_89550.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_91215.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94626.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94627.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94628.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94631.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94633.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94635.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_94637.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_94637.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ JetBrains CLion 2025.2.3 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94639.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ T-FLEX CAD 16.0.88.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99932.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SolidWorks 2025 SP4.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100837.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ SQL Dynamite 2.5.2.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101649.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft SQL Server 2012 Developer Edition (x86 and x64)  (Russian)
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102549.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102549.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106792.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106792.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106800.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106800.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Find Same Images OK 5.41 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110879.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114559.jpg" />
 </div>
 
 

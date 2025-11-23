@@ -6,7 +6,7 @@ Deacon Street Project - One + Two (2023) 2 x CD, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132717.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132725.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nitrate - Feel The Heat (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132727.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132728.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132741.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Slice of Sorrow - Covered with Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Occul
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132743.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132755.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vitalines - Wheels Within Wheels (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132757.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ewiniar - Another World (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132759.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Femal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132761.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132763.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132765.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132767.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132769.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132777.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132780.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Daimos - A World Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132781.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Flower Kings (Roine Stolt) - 21 albums, 2 Box-sets, 44CD (1994-2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132832.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Queen - The Platinum Collection: Greatest Hits I, II & III (2011) 3xCD Super Jew
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132910.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - 100 from the 90's - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_132977.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133003.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paul Lidel’s Scream Therapy - Paul Lidel’s Scream Therapy (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133010.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133033.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Best of ROAD TRIP Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133035.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Covers the Rock Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133052.jpg" />
 </div>
 
 

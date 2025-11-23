@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27440.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27440.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07FC9DE5C7CEFE3F7C2F9F6C951D89929D52A4B1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27441.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wondershare UniConverter Ultimate 16.2.5.144 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27442.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Change MAC Address 25.01 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27443.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7A9F373BA3C11E71ADC6873C2F630750098AB541
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27444.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27444.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DeathOmen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27445.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ inPixio Photo Focus Pro 4.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27446.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Display Driver Uninstaller 18.0.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27447.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:65E0E29415AFF4D09D91C460954B07A774A9B484
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27448.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27448.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:2C0FEDB02AF3A5FAA8F31F629EDFFDF44353BF03
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27449.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27449.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27450.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27450.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27451.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:78AF4702CB96DC14D71337A16E95C935B9867FD7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27452.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:2FDA093CEB7DA072F79A4859B62023F8A844CD19
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27453.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ InPixio Photo Maximizer Pro 5.3.8624 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27454.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ YT Downloader 9.11.22 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27455.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F05B222B6513F7953EB54B3F5CD25BD6B1322C57
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27456.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27456.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27457.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:90D65F8466F8D74BCDC9EC84C83F4BEFDDB11F4C
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27458.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27458.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dream Theater - Дискография (33 releases) (1989-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_27459.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Office Tool Plus 10.20.15.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27460.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Altus 5.5.2 (Альтернатива WhatsApp Desktop) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27461.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27461.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:454AFBD12D17243D5C4C35874B2D5C1B3606BD0C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27462.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Repack FitGirl [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27463.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ PDF-XChange Editor Plus 10.5.2.395 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27464.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_27465.jpg" />
 </div>
 
 

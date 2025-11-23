@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98211.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A08C5AEBC15C331ABF6E6F65389A931F8E253CB3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98214.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ DJ Premier & Bumpy Knuckles - Kolexxxion (2012) [MP3|320 кб/с]<Underground Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98216.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VA - Танцевальный Рай Русский №33 (2012) [MP3|256 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98217.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98218.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98229.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98229.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98230.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98233.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:C0E3E0B1F4EB20C4A95CCAF2AEC8DB58F7EF2A68
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98236.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98237.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Mythbuntu 12.04 LTS "Precise Pangolin" Beta 2 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98239.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98240.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98242.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Los Angeles Negros - 20 Grandes Exitos (1996) [MP3|320 кб/с]<Pop, Latin, Ball
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98245.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98247.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A4F4321CBA63AC1E1D20E5DB90B2E595C681A64F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98249.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Nassau Beach Palma de Mallorca pres. Balearic Moods Chopin In My Mind (2011
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98250.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98251.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98252.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98253.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98259.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98259.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98260.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98260.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98261.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ cHAMBAo - Endorfinas En La Mente (2004) [MP3|320 кб/с]<Electronic, Latin, Fla
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98263.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Open Xange 2012.04 RC1 [x86_64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98271.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98276.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sullivan Fortner - Moments Preserved (2018) Impulse! [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rodney Whitaker - All Too Soon: The Music Of Duke Ellington (2017) 2019, Origin 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Blue Mitchell - Boss Horn (1966) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115675.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Marian McPartland - Just Friends (1998) Concord Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115676.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Marian McPartland - At The Hickory House (1955) 1992, Jasmine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115798.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115814.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Anita O'Day - At Vine St. Live (1991) DRG Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115816.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Echoes of Swing With Rebecca Kilgore - Winter Days At Schloss Elmau (2018) ACT M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115817.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sullivan Fortner - Aria (2015) Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115818.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F0F3463E1CCDF5877DD017A81CE1B42A686AFFF8
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115832.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115857.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115960.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Donald Byrd & Gigi Gryce - The Complete Jazz Lab Sessions (1955 - 1957) 4CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115964.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Erickson Syndicate - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115968.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Marian McPartland Trio - Live At Yoshi's Nitespot (1996) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115972.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dick Haymes - You'll Never Know: The Best Of Dick Haymes (1943 - 1950) 1990, MCA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115974.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115976.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115995.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116015.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Marian McPartland - In Concert (1951, 1953) 1993, Savoy Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116157.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116163.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116164.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116165.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116166.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116167.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116170.jpg" />
 </div>
 
 

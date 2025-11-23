@@ -1,3 +1,81 @@
+###  Публикация: 1681030   (133155) от 02.12.2023
+
+Копенgаgен - От счастья до меланхолии (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сколько стоит меланхолия? [00:01:29]
+02. Хаос [00:03:33]
+03. 12/60 [00:03:32]
+04. Сердце справа [00:04:01](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7D82D1B1C40D3F04795D2BC379A13707F905E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681351   (133156) от 02.12.2023
+
+Игры разумов (2023) WEBRip [H.264/1080p] (выпуск 30)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальный поединок двух известных людей в телешоу «Игры разумов». В гости к знатокам, известным экспертам и интеллектуалам будут приходить звезды, чтобы на равных сразиться в «разумной» битве. В каждой игре будут вопросы, связанные с профессией или увлечением гостя. Именно он выбирает тему, в которой, как ему кажется, он может превзойти таких профессиональных (   Читать дальше...   )Производство: Россия | "2В Медиа"Жанр: Телепередача, интеллектуальное шоуУчастники: Олег Солнцев, Анатолий ВассерманСубтитры: РусскиеПродолжительность: 00:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE457028955D819B2DCB4FE2F8C456CBF98B82FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681259   (133157) от 02.12.2023
+
+Citizen Soldier - ICU (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife [00:03:22]
+02. Comparison [00:03:28]
+03. Broken Like Me [00:02:52]
+04. Alone With Myself [00:02:51](   Читать дальше...   )Жанр: Alt.Metal, Modern RockПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B214E6AE6E63729541BC64EBC1238AF84A574B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681226   (133158) от 02.12.2023
 
 Минтранс (02.12.2023) WEBRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133158.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:DAA3CFFDBC892482F8F6AC501D640CC548634279
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133159.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133160.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133160.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:1F36A46E9DD52AD85FB2AD75EAF7CCD4F12E3614
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133163.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звез
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133165.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133166.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ magnet:?xt=urn:btih:E8D3893EEE4F18A5273424164D3E467FA3A04FFF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133169.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ magnet:?xt=urn:btih:E064F156C72EB8916C57D85A24F2BFE10B2A5288
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133170.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ magnet:?xt=urn:btih:CD8ACCE950488A1C74DC6EBC10089A0DBF7C4541
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133171.jpg" />
 </div>
 
 
@@ -238,7 +316,7 @@ magnet:?xt=urn:btih:7477EAAED98AAB56C2DB4BC4DFC5F661A4AB0E98
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133172.jpg" />
 </div>
 
 
@@ -262,7 +340,7 @@ Hellfrost - Hellfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133173.jpg" />
 </div>
 
 
@@ -289,7 +367,7 @@ Greydon Fields - Otherworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133175.jpg" />
 </div>
 
 
@@ -316,7 +394,7 @@ magnet:?xt=urn:btih:7987F7D163CC9C3F54603E209C82B21D3BBF08E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133177.jpg" />
 </div>
 
 
@@ -340,7 +418,7 @@ RonyaSoft Poster Designer 2.01.42.02 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133178.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ Sebasteion - Tales +1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133179.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133180.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133181.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133183.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:4ACA65360F9145BCB09C3B790D857A4E432E6047
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133185.jpg" />
 </div>
 
 
@@ -494,7 +572,7 @@ DropDMG 3.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133186.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Kelakos - Hurtling Towards Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133187.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ VA - Alex Ultrawox - YearMix 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133188.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133189.jpg" />
 </div>
 
 
@@ -601,90 +679,6 @@ Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9E6200E9D71F40B9F86AA578B1789EEDDE797C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594918   (133191) от 27.12.2012
-
-Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Holy Night [01:48]
-02. It Came Upon A Midnight Clear [03:20]
-03. Hark! The Herald Angel Sings [01:49]
-04. Away In A Manger [02:13]
-05. Joy To The World [01:40]
-06. The First Noel [01:50]
-07. Silent Night [02:51]
-08. O Come All Ye Faithful [02:45]
-09. Sleep, My Little Jesus [02:17]
-10. Angels We Have Heard On High [01:46](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592831   (133192) от 27.12.2012
-
-Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320 кб/с]<Dark Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morbid Silence - Малоохтинское Кладбище I
-2. Дом Вдовы - Малоохтинское Кладбище II
-3. Morbid Silence - Малоохтинское Кладбище III
-4. Дом Вдовы - Малоохтинское Кладбище IVMorbid Silence - единоличный dark-ambient проект Harakiri. Его музыку можно охарактеризовать как магически-мрачную с почти медитативными, трансовыми переходами между живыми или искаженными звуками природы и созданными искусственно с применением различных техник. По словам автора, каждая композиция непременно пронизана определенной, иногда почти невыражаемой словами, идеей. Тем самым любой трек непременно экстраполируется к теме альбома, обобщающей их общую составляющую. Что зачастую делает альбомы целостными и неделимыми произведениями автора. Все это переливчатое многообразие звуков, порождающее целостные образы, находит проявление через созерцание автором мира через призму собственного мировосприятия и древних идей: хаоса, Ницшеанского безумия и страхаЖанр: Dark AmbientПродолжительность: 06:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594904   (133193) от 27.12.2012
-
-Журнал | 100 битв, которые изменили мир №100 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «100 битв, которые изменили мир» предлагает вам описание самых значительных сражений в мировой истории. В каждом выпуске журнала вы найдете рассказ об одной из самых известных битв, включая ярчайшее описание самого сражения, а также мнения экспертов о противоборствующих сторонах. В каждом номере - воспроизведение сражения; очерки о полководцах; детальное описание хода битвы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018ABD8065363FA9A902E84E1CA926A5BAAB978E
 ```
 
 

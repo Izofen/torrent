@@ -1,3 +1,84 @@
+###  Публикация: 465938   (81333) от 10.03.2012
+
+Станислав Сергеев | Памяти не предав [2012] [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, чего мы боялись, произошло. Гражданская война, атомные бомбардировки, ядерная зима. В небольшом бункере выжили несколько семей офицеров российской армии. Благодаря попавшему им в руки грузу с секретными разработками, удалось пробить туннель в прошлое. Но на том конце туннеля тоже идет война. Снова бомбят города и уничтожают мирных жителей. Там страшный 41-й год…Жанр: фантастика, альтернативная история
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF086196E7DBB8FD3AD3FED40D377F5F5385C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465313   (81334) от 10.03.2012
+
+Государи изъ дома Романовыхъ 1613-1913 [1913] [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81334.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Государи из дома Романовых» - знаменитое юбилейное богато иллюстрированное издание, выпущенное И.Д.Сытиным к 300-летию дома Романовых. Материалы для этого издания готовили виднейшие представители отечественной историографии: С.Ф.Платонов, А.Е.Пресняков, Ю.В.Готье, Н.Д.Чечулин. Николай Дмитриевич Чечулин, осуществлял общую редакцию двухтомника. В статье профессора (   Читать дальше...   )Жанр: Раритеты, научно-популярная литература, историяЯзык: Русский (старая орфография)Издательство: Типографія Т-ва И.Д. Сытина, Москва, Россiйская ИмперiяФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC165469DFBB65A124E015145539426463204E26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465213   (81335) от 10.03.2012
+
+Easy Paint Tool SAI ver 1.1.0 [EN] и [RU] c дополнительными инструментами
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paint Tool SAI - простое и удобное графическое приложение, ориентированное на художников, работающих в стиле аниме и манга.
+Продуманный и по-настоящему интуитивный интерфейс, удобная работа со слоями, полная поддержка популярных графических планшетов, отказоустойчивость делают это приложение лидером в своем классе.
+Основные достоинства Paint Tool SAI:
+- удобный и простой интерфейс
+- экономное использование ресурсов компьютера
+- работа с растровой и векторной графикой
+- корректное сглаживание углов в кривых
+- поддержка графических планшетов с датчиком нажима пера
+- экспорт в форматы JPEG, BMP, PNG, TGA
+- функция экспорта в формат Photoshop PSD для продолжения обработки(   Читать дальше...   )Название программы: Easy Paint Tool SAIЯзык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465321   (81337) от 10.03.2012
 
 WINDOWS 7 ULTIMATE x86 SP1 REACTOR 3.12
@@ -6,7 +87,7 @@ WINDOWS 7 ULTIMATE x86 SP1 REACTOR 3.12
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81337.jpg" />
 </div>
 
 
@@ -31,7 +112,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoЯзык интерфейса
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81339.jpg" />
 </div>
 
 
@@ -55,7 +136,7 @@ Need For Speed: Underground 2 [Wineskin] [Rus]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81340.jpg" />
 </div>
 
 
@@ -79,7 +160,7 @@ Windows 7 Ultimate x64 v.03.2012 (Иваново) Чистая без прогр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81341.jpg" />
 </div>
 
 
@@ -105,7 +186,7 @@ Windows 7 Ultimate x64 v.03.2012 (Иваново) Чистая без прогр
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81343.jpg" />
 </div>
 
 
@@ -133,7 +214,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81344.jpg" />
 </div>
 
 
@@ -157,7 +238,7 @@ Bandicam 1.7.7.185 [Мульти, есть русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81345.jpg" />
 </div>
 
 
@@ -181,7 +262,7 @@ Bandicam — это высококачественная программа дл
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81346.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ Bandicam — это высококачественная программа дл
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81352.jpg" />
 </div>
 
 
@@ -229,7 +310,7 @@ Bandicam — это высококачественная программа дл
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81353.jpg" />
 </div>
 
 
@@ -254,7 +335,7 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81362.jpg" />
 </div>
 
 
@@ -287,7 +368,7 @@ magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81365.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ magnet:?xt=urn:btih:D6F77E6843307989AC918910C24C384A276BE6A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81366.jpg" />
 </div>
 
 
@@ -335,7 +416,7 @@ magnet:?xt=urn:btih:349F378CA2551F31EF5F50B750CFBE60D4814B37
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81370.jpg" />
 </div>
 
 
@@ -359,7 +440,7 @@ magnet:?xt=urn:btih:0B8BFAA3711443CD1F4539B2B1F1498F6A2ACD3B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81371.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ magnet:?xt=urn:btih:6AC5929ACCEC79290D1662A7F66948AF6AB39562
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81374.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ Stan Getz - The Bossa Nova Albums (2008) 5-CD Box Set [MP3|320 кб/с]<Jazz, Bo
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81375.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ magnet:?xt=urn:btih:3D50F293F16D0038830CBC7BBB3970E209C0846A
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81377.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ magnet:?xt=urn:btih:C04D73694BA47DE925375806C158FDEBB25F75DA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81379.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ magnet:?xt=urn:btih:F0BBBD98FCD1B2B83E16B05531790F161F57C580
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81382.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ magnet:?xt=urn:btih:F4A13ECA245A03A89D99C49733B5B8982AC34BD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81383.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81385.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_81386.jpg" />
 </div>
 
 
@@ -596,80 +677,6 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466247   (81397) от 11.03.2012
-
-Машины востока. Золотая эпоха Ислама / Machines of the East (2007) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Исламская цивилизация прошлого, заложила огромный вклад в основу современного мира. Египтяне, греки и римляне были замечательными инженерами, учеными и изобретателями. Но исторические книги, не отражают удивительный период изобретений, когда Исламские ученные, величайшие умы древности произвели революцию в науке и в технологиях.
-Доп. информация: Наконец то Европейские ученные начинают изучать и признавать что без мусульманских ученных в период 8-16 века нынешний мир был бы ни таким продвинутым. Они признают что историю науки должны переписать занова, например они удивляются тому что торпеда как полагалось была изобретена в 19-том веке а оказалось мусульмани использовали её еще в 13-том веке.Жанр: ДокументальныйРежиссер: Stuart Clarke.Актеры: Ben Mole, Стюарт Кларк, Али МакГрэтПеревод: Одноголосый закадровыйПродолжительность: 00.45.08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465923   (81398) от 11.03.2012
-
-Беседа о сотворении мира. Иерей Даниил Сысоев (2010) DVD5
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беседа о творении мира, согласно Священному Писанию. Каждый день описывается подробно с раскрытием смысла слов и последовательности творения. Противопоставление откровения Бога и науки. В беседе приводятся аргументы и указания на сроки творения, на время существования всей вселенной. О месте, где сотворена вселенная. О двух видах вселенной. Почему именно вода сотворена была в первый день. О смысле образов и представлений и о значении времени. О гелео и геоцентрической теориях и аргументы к ним, согласно Библии. Как правильно христианам спорить с представителями науки. Об эволюции, существовании динозавров и сколько лет назад на самом деле это было. О правильном понимании гармонии животного и растительного миров. Беседа также сопровождается множеством душеполезных советов и задает хорошую базу для представления о Великой Тайне мироздания.Жанр: ДокументальныйПродолжительность: 04:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8AF520A6221C2EF8D463FF726028E7B7876957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466054   (81403) от 11.03.2012
-
-Ночевала тучка золотая (1989) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драма по одноимённой повести А. Приставкина.
-О трагической судьбе двух братьев-сирот, в 1944 вывезенных вместе с другими детдомовцами из подмосковного города на Кавказ, откуда было депортировано чеченское население.Жанр: ДрамаРежиссер: Суламбек МамиловАктеры: Андрей Башкиров, Володя Башкиров, Тамерлан Шатаев, Наталья Мерц, Иван Бортник, Вячеслав Баранов, Виллор Кузнецов, Павел Гайдученко, Андрей Гусев, Анатолий Иванов, Николай Погодин, Светлана Светличная, Ольга Семенова, Валентина ТитоваПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E851FD00A12ED5AEEDB91D73808E3AC2D582340E
 ```
 
 

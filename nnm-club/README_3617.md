@@ -1,3 +1,76 @@
+###  Публикация: 1706109   (113724) от 11.03.2024
+
+Video Converter X2 for Mac 1.3.1 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
+Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8816BE0E33C587827DBF9113B9B3FDD1F3C718DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705995   (113725) от 11.03.2024
+
+Анатолий Акимов | Облик физики в 21 веке (2014) [MP3, BIGBAG]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра представляет собой изложение с дополнениями и комментариями выступления академика РАЕН, директора Международного института теоретической и прикладной физики РАЕН Анатолия Евгеньевича Акимова на научно-педагогической конференции "Идеи учения Живой Этики и Тайной Доктрины в современной науке и практической педагогике" (Екатеринбург, 08.08.97 (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 03:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58402EAE3DBF27CF1EECAD0B0FD8FA671EDA0D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706130   (113726) от 11.03.2024
+
+Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113726.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB6A6191220820BC2D520E9714F9910D9136CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706036   (113727) от 11.03.2024
 
 K-Lite Codec Pack Update 18.1.8 [En]
@@ -6,7 +79,7 @@ K-Lite Codec Pack Update 18.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113727.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ Into The Tempest - Black Is All (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113728.jpg" />
 </div>
 
 
@@ -57,7 +130,7 @@ Blocs 5.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113729.jpg" />
 </div>
 
 
@@ -82,7 +155,7 @@ Aiseesoft iPhone Cleaner 1.0.30 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113730.jpg" />
 </div>
 
 
@@ -106,7 +179,7 @@ MotoGP. Этап 01 из 21. Гран-при Катара. Спринт (09.03.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113731.jpg" />
 </div>
 
 
@@ -130,7 +203,7 @@ Saint Renascence - Saint Renascence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113732.jpg" />
 </div>
 
 
@@ -157,7 +230,7 @@ magnet:?xt=urn:btih:C3D3D79084CFAB9416539C40B395863EA92EE046
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113733.jpg" />
 </div>
 
 
@@ -181,7 +254,7 @@ MotoGP. Этап 01 из 21. Гран-при Катара. Гонка (10.03.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113734.jpg" />
 </div>
 
 
@@ -205,7 +278,7 @@ magnet:?xt=urn:btih:6031219241B667B582BE2ADE1E03608939D6B398
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113735.jpg" />
 </div>
 
 
@@ -229,7 +302,7 @@ VA - Rage Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113736.jpg" />
 </div>
 
 
@@ -256,7 +329,7 @@ DJ Mix Pads 2 - Remix Version 6.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113737.jpg" />
 </div>
 
 
@@ -280,7 +353,7 @@ magnet:?xt=urn:btih:6ED5CACDE012A9F369902E049D2ADB2232C70187
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113738.jpg" />
 </div>
 
 
@@ -304,7 +377,7 @@ magnet:?xt=urn:btih:B81DBFD293287BDE67543883396F6D17C2586263
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113739.jpg" />
 </div>
 
 
@@ -331,7 +404,7 @@ magnet:?xt=urn:btih:6313C5E0153FEC3D760D03E660F155D9CF995BD8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113740.jpg" />
 </div>
 
 
@@ -356,7 +429,7 @@ magnet:?xt=urn:btih:CA8C1DD55DCB6DA44896B176A34626E3FBDA5B3B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113741.jpg" />
 </div>
 
 
@@ -383,7 +456,7 @@ magnet:?xt=urn:btih:DE85A6CFA2C982A38D276BA0B4A5135C7A5172FF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113742.jpg" />
 </div>
 
 
@@ -410,7 +483,7 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113743.jpg" />
 </div>
 
 
@@ -437,7 +510,7 @@ Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113744.jpg" />
 </div>
 
 
@@ -464,7 +537,7 @@ Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113745.jpg" />
 </div>
 
 
@@ -491,7 +564,7 @@ Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113746.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113747.jpg" />
 </div>
 
 
@@ -545,7 +618,7 @@ Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113748.jpg" />
 </div>
 
 
@@ -572,7 +645,7 @@ The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113749.jpg" />
 </div>
 
 
@@ -586,84 +659,6 @@ The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D9D15736E9919A089B548AF4ACBAA5DD0B4D68D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705953   (113750) от 10.03.2024
-
-Ландыши - Командировочные (Акустика) (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. К бабам! (Акустика)
-2. Дачная (Акустика)
-3. За Павликом (Акустика)
-4. А в саду у меня тихо... (Акустика)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EB90BAE06389E543078CA6A23F8E8184B5A9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705846   (113751) от 10.03.2024
-
-Имитация жизни / Imitation of Life (1959) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм на основе одноимённого романа Фанни Хёрст (1933)... Провинциальная актриса Лора Мередит, овдовев, отправляется покорять Бродвей. На пляже пути Лоры и её 6-летней дочери Сьюзи пересекаются с афроамериканкой Энни и её светлокожей дочерью Сарой-Джейн. Несмотря на собственное бедственное положение, Лора разрешает Энни поселиться в снимаемой ею квартирке, чтобы (   Читать дальше...   )Производство: США / Universal International PicturesЖанр: драмаРежиссер: Дуглас СиркАктеры: Лана Тёрнер, Джон Гэвин, Сандра Ди, Роберт Алда, Сьюзэн Кохнер, Дэн О`Херлихи, Хуанита Мур, Карин Дикер, Терри Бернэм, Ли Гудман, Энн Робинсон, Трой Донахью, Сандра Гулд, Джек Уэстон, Билли ХаусПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC91ADF0E8EFFCB54D80F242406906808222794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705829   (113752) от 10.03.2024
-
-Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Barcelona (F.Mercury – Moran) 5.38
-02. La Japonaise (F.Mercury – Moran) 4.49
-03. The fallen priest (F.Mercury – Moran – Rice) 5.45(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
 ```
 
 

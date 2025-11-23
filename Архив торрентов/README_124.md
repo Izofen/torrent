@@ -6,7 +6,7 @@ EarthView 7.10.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31076.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31076.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare UniConverter 16.1.1.120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31085.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31085.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Karing 1.0.38.512 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31089.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 (.bundle) [En]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31104.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31104.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PowerISO 9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31109.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31109.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Text Edit Plus 15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31142.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31142.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ TuneIn Radio Pro v36.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31155.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31155.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ StaxRip 2.44.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31161.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31161.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ O&O DiskImage Professional 20.1 Build 330 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31168.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31168.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Calibre 7.24.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31171.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31171.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AIMP 5.40.2653 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31172.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31172.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.18 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31179.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31179.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ YT Downloader 9.11.18 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31189.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31189.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PrivaZer Pro 4.0.97 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31196.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31196.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Rosetta Stone: Изучение языков 8.30.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31201.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31201.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ v2rayN 7.5.6 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31210.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31210.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Altus 5.4.0 (Альтернатива WhatsApp Desktop) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31215.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31215.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ WinToUSB Technician 9.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31220.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31220.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ IObit Driver Booster Pro 12.2.0.542 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31236.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31236.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AI Photo Editor Pro - Polish v1.603.201 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31240.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Sigil 2.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31244.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31244.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ EF Commander 25.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31245.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31245.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ XYplorer 26.70.0600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31246.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31246.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31255.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31255.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ PageEdit 2.4.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31282.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31282.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.8.8 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31286.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31286.jpg" />
 </div>
 
 

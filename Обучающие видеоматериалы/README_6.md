@@ -6,7 +6,7 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16460.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16460.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16639.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DAE56D218B37A8EBC9B2627BFC5D85AF82FC2F42
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16761.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:806B24D76B951869A144CE7011D29C9741536161
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16773.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Stepik, Сергей Бубович | Менталист: искусство у�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16873.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Stepik, Сергей Бубович | Искусство чтения челов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16876.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Mental Room, Сергей Бубович | Face Hunter. Чтение эмоци�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16878.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Mental Room, Сергей Бубович | Стрессовая коммуник
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16881.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Maude Hirst | "Путь к Любви к Себе": Медитационный �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_16892.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17272.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17368.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ ZJ Humbach | Организация идеальной студии для ши�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17380.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17408.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17408.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17583.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9E3BAEB0976B7E5504C1EBBD53A6D7BBFC2AD2F3
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17650.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17692.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17694.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17765.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17778.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17790.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18032.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18047.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18095.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18117.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18262.jpg" />
 </div>
 
 

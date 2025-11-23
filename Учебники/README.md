@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65598A5F7693C79F4280E8FEE59986EB8A920ADF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2046.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E25704067E02EDDD8061EC81377E44A278C197D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2366.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D79F179EA5578F2D9974753AD89B54198E5B1BF0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3231.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EBA519649DAC87FBC2CDBCDE91DEB738CD8C4085
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_3867.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F8EF6CA2D85D64148C0413ED82512CC3275DD38E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_4150.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:95D30420E3D3445FABAE47BA1C4AD01055CD3913
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6129.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:FB4B79B3A80DF520C5735589344CCCDE1B9240B8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7873.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B61DD6919E797F59B2264BAC501F23A90104FADA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7909.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:EDBD31CB4533F98C04C65644E8BFC7B1F3068FF3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8107.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:962039FFF6A64C77BAB275ABDC18D406EB7DFC5A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8255.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2D8527D40A8D72160EF9288647C92001A6C9E2F9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8256.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:2CDA0F274EAA524EDDB632F53197FF03D6872CD8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8257.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A00F67B33CF4672BF053D20123C3FAE98DA964FB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8270.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:596DED3BFF2E760F13F136F20BC6CC1383BC441A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8279.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E0ADBC51CD8E3173456B04C31713DC32A0F9671D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8430.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8430.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:13CEB7BA92D8BEFA9B13376DE4EA3D05283B3C7D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_8521.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:CB186E6AFF4B19E59813E30BA27335D9D43D677C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9232.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:EEA704424C2E37AF669146401969D9C931169E1D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9241.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9304.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9308.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9314.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9315.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9318.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9345.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:49DE4945DB211847099EF99ABC3BC1BA88BDEFC7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_9863.jpg" />
 </div>
 
 

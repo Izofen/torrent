@@ -1,3 +1,75 @@
+###  Публикация: 967470   (158577) от 20.12.2015
+
+Raxco PerfectDisk Professional Business / Server 14.0 Build 885 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raxco PerfectDisk - программа для дефрагментации жесткого диска. Оптимизирует при своей работе файл подкачки, MFT таблицу, а также физическое расположение на жёстком диске файлов и директорий. Для того чтобы начать дефрагментировать какой-либо диск, нужно выбрать сам диск и нажать кнопку запуска. При своей работе программа показывает изменяющуюся графическую таблицу, (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D27FCBC03CD74B1942A9939A3DB686B3990DBB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967283   (158578) от 20.12.2015
+
+Вечерний квартал 95. Выпуск №84 (2015.12.19) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ребята из "Вечернего квартала" продолжают устанавливать свои правила. И ни авторитет звезд шоу-бизнеса, ни статус влиятельных политиков, ни сам "президент Украины" не могут этому помешать. Здесь правила одни для всех, и "квартальщики" внимательно следят за тем, чтобы все "забавные законы" соблюдались. Злостных правонарушителей (   Читать дальше...   )Производство: "Студия 95 квартал", Телеканал "Интер"Телекомпания: 1+1Жанр: ЮморРежиссер: Владимир ЗеленскийАктеры: Владимир Зеленский, Юрий Крапов, Елена Кравец, Евгений Кошевой, Сергей Казанин, Александр Пикалов, Юрий КорявченковПродолжительность: 01:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC02946D63B3CC3F805BCC0C2C1CFAED6A06D724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967112   (158581) от 20.12.2015
+
+GIMP 2.8.16 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158581.jpg" />
+</div>
+
+
+###  Подробнее
+
+GIMP - средство для работы с изображениями. Программа может справиться с задачами создания графики и логотипов, масштабирования и кадрирования фотографий, раскраской, комбинирования изображений с использованием слоев, ретуширования и преобразования изображений в различные форматы. GIMP является одним из первых приложений подобного класса, которое распространяется (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1E95FDDDB0FB2DDD26B4E762F412C46F2907B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967353   (158585) от 20.12.2015
 
 UnHackMe 7.90 Build 490 [Ru/En]
@@ -6,7 +78,7 @@ UnHackMe 7.90 Build 490 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158585.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ VirtualBox 5.0.12 r104815 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158586.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Starus Partition Recovery 2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158590.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ StartIsBack++ 1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158596.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:55FF66D3AAE60CFFFC589F76422BEC0A0FD7FEDF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158599.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ Wise Memory Optimizer 3.42.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158607.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ magnet:?xt=urn:btih:248218AEA331597C2EC641E72707F787E39C313E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158608.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:FE04A1946B759B690F0C99A8336BE5D9DD3B60CA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158617.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ Noiseless CK (Pro) 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158618.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:EFF331700669851B8825CAA0257B7090A6A5D943
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158620.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ Animated Christmas Tree for Desktop 2015 1.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158623.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ Eraser 6.2.0.2970 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158625.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ Future - DS2 (Dirty Sprite 2) (2015) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158627.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Starus Word Recovery 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158628.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:437E81A70F826AF53B3D9175355672F3BFB1222F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158629.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ Anvide Seal Folder 5.25 + Portable + Skins Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158631.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ Starus Photo Recovery 4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158633.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ Starus File Recovery 3.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158634.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158634.jpg" />
 </div>
 
 
@@ -445,7 +517,7 @@ Super MP3 Converter 6.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158640.jpg" />
 </div>
 
 
@@ -469,7 +541,7 @@ Starus NTFS Recovery 2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158642.jpg" />
 </div>
 
 
@@ -493,7 +565,7 @@ magnet:?xt=urn:btih:74A756DE25015DE7A1B1073C5ECEEFE9DDE2F325
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158643.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ iStatistica 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158648.jpg" />
 </div>
 
 
@@ -544,7 +616,7 @@ magnet:?xt=urn:btih:BA4F25095B2B2D8FBE3F5818ABEA7836708D42F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158651.jpg" />
 </div>
 
 
@@ -555,81 +627,6 @@ magnet:?xt=urn:btih:BA4F25095B2B2D8FBE3F5818ABEA7836708D42F5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6799D5B359C8FF89B0D8A4B5910D1591E2D35DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967027   (158653) от 20.12.2015
-
-Chris Brown - Royalty (2015) Deluxe Version [MP3|320 кб/с] <R&B, hip-hop, funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To Sleep (03:22)
-02. Fine By Me (03:28)
-03. Wrist (03:15)
-04. Make Love (03:51)(   Читать дальше...   )Жанр: R&B, hip-hop, funkПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8169D1D7DD92810ED011C23027C9E43074DC9E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967461   (158655) от 20.12.2015
-
-BotRadio 1.3.0.2 + Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158655.jpg" />
-</div>
-
-
-###  Подробнее
-
-BotRadio - простенький, но весьма удобный интернет-радиоприемник, который позволяет слушать на компьютере онлайн-радио абсолютно бесплатно. Список доступных радиостанций достаточно разнообразен и постоянно пополняется: музыкальные каналы разных жанров, новостные, региональные, детские, развлекательные и др. Загрузка станций происходит через плейлисты, которые хранятся (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2488CF43BDA73FEEB9515369280BCE80E1545D91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967424   (158657) от 20.12.2015
-
-Starus Excel Recovery 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление файлов электронных таблиц Microsoft Excel и Open Office, включая файлы со сбойных, отформатированных и заново разбитых на разделы накопителей. Контентный поиск считывает информацию в низкоуровневом режиме, позволяя восстанавливать файлы в самых сложных случаях.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF67F355516DA3C33239F41061578D9BBBAE732
 ```
 
 

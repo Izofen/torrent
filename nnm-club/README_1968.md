@@ -6,7 +6,7 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51523.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5B58DD035FD41689F119B07D98665EA7FF85D0F3
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51524.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7396E629ECAD5B46006C73859A89481662063EF3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51525.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51526.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51527.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51528.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:6A5ECC611DC0E277A0D68926907A3D8070680F62
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51529.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.24.3) Repack FitGirl [Soundtrack Bundle
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51530.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:F635755688C788C12B0B43B58E37DB834358B16E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51531.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Dead War: Rise of Zombies / Dead War: Rise of Combat (2024) [En] (1.0) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51532.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A515625CFF869A1A5F8C1608007832001D13F579
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51533.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:09295A9AE90341BAEEBD35190F0D6E4468B61F7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51534.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:DFAA150F7AF1E3C7B3B37F22250391C6030655C2
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51535.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Chromium 126.0.6478.127 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51536.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7980BDEB620162E221E7F77FE940D57B555041C0
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51537.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:32DC038DFBE6FA0CFED6BAADA44DF48825391B25
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51538.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51539.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51540.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51541.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51542.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51543.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51544.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9AA5A9F9F2D092780A4445D61D5EED4DADE4E342
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51545.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:93B9EB0235CC8390DCCBAA047756C080C3F09E5D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51546.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kaijuu 8 Gou | Kaiju No. 8 | Кайдзю номер 8 [2024, TV, 12 эп.] WEBR
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51547.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:61CBFBD7BD77DEF2CDB2972B9863B3C40F55BDE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51548.jpg" />
 </div>
 
 

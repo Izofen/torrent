@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4149DBED4F2475BA531C547A9C01DA5A65E08BE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56110.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E1E2F31A506641FECF1B3D897225D98855B60483
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56111.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E27ED915AD28880506102BC6708F092872A04FCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56112.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:91B323AB57B251615F0EF947A34303B886431E18
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56113.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E917CE9ED212E6AA60903A50CC0CB39529A8637A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56114.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:90EBD7447F23B22F522DD8284ED97EAD38C8014F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56115.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B4E54673279DCC11A2D72788C10E4DB59D22828D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56116.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:22DD9A1B8E9790C03F77554496E9AF1D0A7F0E07
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56117.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:B5BD4CC0635F814E1CACEAAE0EF5D02C6D4C870C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56118.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:B752EC3EDE58266353109E1A34F776E17D8D14EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56119.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Last Faith (2023) [Ru/Multi] (1.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56120.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6DF60D08DE0B50F8A8FF0EDA7635C8DF0CF4CF94
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56121.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Super Catboy (2023) [Ru/Multi] (1.0.4a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56122.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:588A52A9603B634F4C340ED052DB48D31A253BDE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56123.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:3E969248029E37BB36479B6F584C9F7728C24EDF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56124.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:FD234B10591F85DC52118A5C9BDCFDC39AD030BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56125.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:75C5D0AE73BA87177EC2155083450397842BCADF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56126.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:1D42D8EBDE2817247369DBDEF8FC1CCC5646B997
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56127.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56128.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:BC4340EFCF547EBF2A8EFBC342155431CF4A789F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56129.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:55C8767DAED20A87654A386E7EDC11B2A3242BB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56130.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:FDCAECBB089F1B6A8EE8AA4EB62F0B06F6872C76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56131.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:FDCAECBB089F1B6A8EE8AA4EB62F0B06F6872C76
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56132.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:E04839316A771C075C5A351AB852C7048DE97612
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56133.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_56134.jpg" />
 </div>
 
 

@@ -1,3 +1,187 @@
+###  Публикация: 1347476   (151692) от 23.12.2019
+
+Киана Андервуд | Букеты одним цветом. 40 дизайнерских идей на все времена года (2019) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта потрясающая книга от дизайнера Tulipina Кианы Андервуд научит вас создавать завораживающие монохромные букеты. Андервуд делится секретами создания великолепных композиций, непохожих ни на какие другие, с использованием чудесных цветов, эффектных фактур и ярких красок.
+В книге вы найдете сорок пошаговых уроков по созданию потрясающих букетов на каждое время года. (   Читать дальше...   )Жанр: Растениеводство, ФлористикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657434F8C523E45DA566E41341E88503C02416DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085640   (151693) от 24.12.2016
+
+Лучшие из лучших / Best of the Best (1989) BDRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятеро молодых спортсменов должны забыть о своих разногласиях и личных проблемах для того, чтобы единой командой защищать честь национальной сборной США по таэквондо на международных соревнованиях. Под руководством мудрого тренера им это удается, и они демонстрируют свое мастерство.Производство: США / SVS FilmsЖанр: Боевик, Триллер, Драма, СпортРежиссер: Роберт РэдлерАктеры: Эрик Робертс, Филлип Ри, Джеймс Эрл Джонс, Сэлли Кёркленд, Крис Пенн, Джон Дай, Дэвид Агреста, Том Эверетт, Луиза Флетчер, Джон П. Райан, Эдан Гросс, Саймон Ри, Мастер Хи Иль Чо, Джеймс Лью, Кен НагаямаПеревод: Дублированный, авторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24867796525F3DBD74AB5C05D1276DC03E393B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825720   (151694) от 
+
+Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Soul
+ 02 - Start Again
+ 03 - Butterflies Inside My Heart
+ 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518730   (151697) от 22.12.2021
+
+VA - Taj Mah Lounge, Ambient Grooves, Vol. 3 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Esteban - Dilala (4:49)
+02. Dudubeat - Prinz Igor (3:46)
+03. DJ MNX - Buddha Sphere (4:40)
+04. Yantra Mantra - Jangal (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287E4B7D77F5AAF42D7B93E46C0E45375309EA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588657   (151698) от 14.12.2012
+
+Жёлтая Ветка - UNDERGROUND (2012) [MP3|320 кб/с]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Вот оно
+03. Ниже
+04. Андеграунд
+05. Уезжай feat. Яна Акула
+06. Трюки feat. СНЗЗ и Полумягкие
+07. Это
+08. От Ухты до Вала
+09. За щекой (интерлюдия)
+10. Время течет(   Читать дальше...   )Жанр: RapПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C77CC63FFBD645E0BD393F854F253B4F2992FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968787   (151699) от 25.12.2015
+
+Лина Нейман | Картошка (1930) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97FAD54C176E8E5F75B723E392BE74CBEC4467C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677063   (151700) от 16.11.2023
+
+Avast Premium Security 23.11.6090 RePack by xetrin [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDDE6ED18098A79DC127C6232813B99F3860DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434446   (151701) от 24.12.2020
 
 Ларри Симон. Настоящий клоун / The Perfect Clown (1925) DVDRip
@@ -6,7 +190,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151701.jpg" />
 </div>
 
 
@@ -30,7 +214,7 @@ magnet:?xt=urn:btih:7BF79963B0D707EB6E59272119701A9E419B38CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151702.jpg" />
 </div>
 
 
@@ -54,7 +238,7 @@ Pixelmator Pro 1.5.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151703.jpg" />
 </div>
 
 
@@ -80,7 +264,7 @@ magnet:?xt=urn:btih:B095C0A7DE8405B3BE23726812865307CFA9698D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151704.jpg" />
 </div>
 
 
@@ -104,7 +288,7 @@ VA - CLUBWRK - Best of 2021 (2021) [AAC|~332 Kbps] <House, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151706.jpg" />
 </div>
 
 
@@ -131,7 +315,7 @@ Astrid Monroe & Genesis P-Orridge - When I Was Young (2001) SiRS [FLAC|Lossless]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151708.jpg" />
 </div>
 
 
@@ -158,7 +342,7 @@ magnet:?xt=urn:btih:45A537750A5CECFCF705C26B389668A316336726
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151709.jpg" />
 </div>
 
 
@@ -182,7 +366,7 @@ magnet:?xt=urn:btih:004006FEE6C34FE517A7A022F39243CB8318B28E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151710.jpg" />
 </div>
 
 
@@ -206,7 +390,7 @@ magnet:?xt=urn:btih:FC82F6C565E3020ECEF5D7CFDB00A45885FD3355
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151711.jpg" />
 </div>
 
 
@@ -230,7 +414,7 @@ magnet:?xt=urn:btih:DF4E60157773B1C0C7D6274380F39B98DA39AF76
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151712.jpg" />
 </div>
 
 
@@ -254,7 +438,7 @@ magnet:?xt=urn:btih:B68C5CED0132DBC17174BCEAC0BB9F80A39494FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151713.jpg" />
 </div>
 
 
@@ -278,7 +462,7 @@ VA - Taj Mah Lounge, Ambient Grooves, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151715.jpg" />
 </div>
 
 
@@ -305,7 +489,7 @@ magnet:?xt=urn:btih:49591F1E1E3687111E2AB698C0794AE3D44C2A2A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151717.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151717.jpg" />
 </div>
 
 
@@ -329,7 +513,7 @@ magnet:?xt=urn:btih:369C52A2A32CBAAE8AE93B7FC5733DE853082236
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151718.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151718.jpg" />
 </div>
 
 
@@ -353,7 +537,7 @@ USDownloader 1.3.5.9 Portable (22.12.2019) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151719.jpg" />
 </div>
 
 
@@ -377,7 +561,7 @@ magnet:?xt=urn:btih:5ACE1355D9502E80983C7506CAE4CDBDEA54A003
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151720.jpg" />
 </div>
 
 
@@ -401,7 +585,7 @@ VideoHive - Magic Button - 2D FX animation toolkit [After Effects + Pre-rendered
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151721.jpg" />
 </div>
 
 
@@ -425,7 +609,7 @@ magnet:?xt=urn:btih:7D22D69BDA0DC7672FCF2F0116C233AD4D0B9701
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151722.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151722.jpg" />
 </div>
 
 
@@ -449,7 +633,7 @@ magnet:?xt=urn:btih:EE404CA0E16205F1D51B048C68208F0E975ECB14
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151724.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151724.jpg" />
 </div>
 
 
@@ -460,183 +644,6 @@ magnet:?xt=urn:btih:EE404CA0E16205F1D51B048C68208F0E975ECB14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B089BC25B1C8BAE515511E974B5227A838CDBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968801   (151725) от 25.12.2015
-
-VA - Recoverworld Radio 004 (Mixed by Rich Smith) (2015) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Maguire - It's Complicated (Original Mix) (7:45)
-02. Pablo Anon - Andromeda (Original Mix) (6:44)
-03. Billy Rutts - You're the Cause (Original Mix) (7:24)
-04. Ian Buff - Whatever Whenever (Original Mix) (6:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DF0CBEFD15BA6B7DC4B45524B108D59574AF09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601239   (151727) от 30.12.2022
-
-Череп и кости / Crossbones (2014) BDRemux [H.264/1080p] (сезон 1, серии 1-9 из 9) Рен-ТВ, LostFilm, AlexFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о приключениях пиратов XVIII века снят по мотивам книги Колина Вударда «Республика пиратов». События разворачиваются на одном из багамских островов, Нью-Провиденсе в 1715 году, где вовсю процветает пиратство. На острове обитают злодеи-моряки, преступники и воры, а заправляет всем народом пират Эдвард Тич, которому дали прозвище Черная Борода. Но появившаяся (   Читать дальше...   )Производство: США / Mr. Cross, P + M Image Nation, Universal TVЖанр: Боевик, драма, приключенияРежиссер: Дэниэл Эттиэс, Киаран Доннелли, Деран СарафянАктеры: Джон Малкович, Ричард Койл, Клэр Фой, Ясмин Эл Массри, Дэвид Хофлин, Крис Перфетти, Трэйси Айфичор, Питер Стеббингс, Омар Крус Сото, Ali Akbar SepahiПеревод: Дублированный (Рен-ТВ), Профессиональный многоголосый (LostFilm, AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C969030677A875DED42B060F96DDEA301259A53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271161   (151728) от 22.12.2018
-
-Экшены - GraphicRiver - Fur Generator - 17711137 [ABR, ASL, ATN, GRD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fur Generator - это Фотошоп экшен, вы можете превратить текст и фигуры в мех.Формат: ABR, ASL, ATN, GRD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1522A4067C91564F3D4A9FBA116238098CC603E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677104   (151729) от 16.11.2023
-
-Его единственный сын / His Only Son (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера Авраама подвергается испытанию во время трехдневного пути к месту, где он должен принести в жертву своего сына.Производство: США / Commissioned Pictures, RockBridge ProductionsЖанр: драма, историяРежиссер: Дэвид ХеллингАктеры: Сара Сейед, Николас Муавад, Скот Купер, Луис Фернандес-Хиль, Даниэль да Сильва, Edaan Moskowitz, Стив Джадкинс, Оттавио Таддей, Арианна Уайт, Eta PicoПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: английские (full, SDH)Продолжительность: 01:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F98060C4FC0515A3FD3B23DEA47F2A797AA1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347585   (151730) от 23.12.2019
-
-Тор Хэнсон | Триумф семян: Как семена покорили растительный мир и повлияли на человеческую цивилизацию (2018) [FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга учёного-биолога, известного популяризатора науки Тора Хэнсона «Триумф семян» рассказывает об эволюции семенных и споровых растений и их роли в развитии человеческих цивилизаций. Автор описывает, как учёные исследуют в угольных шахтах палеонтологическую летопись растительного мира, приводит разнообразные исторические факты использования семян людьми. Большой (   Читать дальше...   )Жанр: БиологияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1DD1CAA138D18B6F783AAF6CC4D36A4C2CCE6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194461   (151731) от 27.12.2017
-
-VA - The Workout Mix 2018, 2CD (2017) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam Payne – Strip That Down (Nevada Remix)
-02. Jonas Blue ft William Singe – Mama (Syn Cole Remix)
-03. Justin Beiber & Bloodpop – Friends
-04. Avicii Ft. Rita Ora – Lonely Together(   Читать дальше...   )Жанр: DanceПродолжительность: 02:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE20EB3FDE3236E8298E9FBAB6132F7FC9C76FF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518732   (151733) от 22.12.2021
-
-VA - Taj Mah Lounge, Ambient Grooves, Vol. 4 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Ambient, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bahramji, Mashti - Awareness (7:31)
-02. Smooth Deluxe, Nizam Kharda - Shahmukhi (3:49)
-03. Yantra Mantra - Kabhi Kann, Kabhi Naa (4:23)
-04. Ensemble Ethnique - Aruna Chala (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, Ambient, DowntempoПродолжительность: 01:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE86037529DF270DEACA00B416671F5888FA0F
 ```
 
 

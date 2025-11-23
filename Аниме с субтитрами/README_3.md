@@ -6,7 +6,7 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17188.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17574.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20111.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20111.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20126.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_20425.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20788.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20788.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Momentary Lily | Мгновение Лили [2025, TV, 13 эп. + SP] WebRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21699.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21699.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22047.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22431.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22431.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22462.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22462.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22475.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] WEBRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22739.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_22743.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22751.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22751.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22794.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22794.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23032.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23047.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23047.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожало�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23051.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23051.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23058.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23058.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Sentai Red Isekai de Boukensha ni Naru | Красный рейнджер ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23065.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23065.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23163.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23163.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Farmagia | Фармагия [2025, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23237.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23237.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23289.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23289.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23291.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная боги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23317.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23345.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23345.jpg" />
 </div>
 
 

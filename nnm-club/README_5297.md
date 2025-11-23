@@ -1,3 +1,176 @@
+###  Публикация: 1432764   (163181) от 18.12.2020
+
+Ларри Симон. Продавец бакалеи / The Grocery Clerk (1919) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биг Бен имеет самый большой магазин в городе Новая Ралгия. Его главный клерк влюблен в почтальоншу. И конечно же, попадают в серию неприятностей со своими клиентами ...Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Люсиль Карлайл, Монти Бэнкс, Фрэнк Хэйес, Фрэнк Александр, Пит Гордон, Джек Даффи, Уильям Хаубер, Дороти ВернонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EE3813E3CEDA0A82B2ADC7A605AE1E4CB124AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346316   (163182) от 19.12.2019
+
+Гемини / Gemini Man (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Броган, первоклассный киллер, становится мишенью таинственного оперативника, который, кажется, знает каждый его шаг наперед.Производство: США, Китай, Alibaba Pictures, Fosun Group Forever Pictures, Jerry Bruckheimer Films, Skydance ProductionsЖанр: Боевик, ФантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Теодора Вулли, Ральф Браун, Линда Эмонд, Андреа Суч, Илья ВолохПеревод: Дублированный (звук с онлайн-кинотеатра)Субтитры: АнглийскиеПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39A3FDC6F507229BC14BEF0EEAB3FF78544125C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673911   (163183) от 03.11.2023
+
+Пощёчина / Faccia da schiaffi / Slap Happy (1971) DVD5 [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький Марио, спасаясь от отправки в детский дом, знакомится с Нино. Это молодой человек, привыкший жить один, и не представляющий, как он может заботиться о хулиганистом беспризорнике. Настойчивость Марио не дает Нино шансов избавится от навязчивого друга, и он делит с ним и кров, и еду. Общего у них много: оба не любят работать, оба веселы, оба авантюристы, (   Читать дальше...   )Производство: ИталияЖанр: комедияРежиссер: Армандо КриспиноАктеры: Джанни Моранди, Лаура Белли, Дуилио Кручани, Агостина Белли, Энцо Каннавале, Гритт Фрейберг, Мари ЛуизПеревод: двуголосый любительский (Владислав Данилов, Алёна Соколова)Язык озвучки: русский, итальянскийСубтитры: русские, итальянскиеПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BCF19349DEA563BBC1179D7A682465A8D1AC9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432758   (163184) от 18.12.2020
+
+Шведанутая семейка / Bonusfamiljen (2018) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163184.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Шведанутая семейка" - это комедийно-драматичная история, исследующая сложности взаимоотношений в современной большой, "смешанной" семье.
+
+В центре сериала - пара Лисы (Вера Витали) и Патрика (Эрик Йоханссон). Им за 30 лет, они живут в Стокгольме и недавно развелись со своими бывшими супругами. У обоих сыновья - одногодки, а у Лисы также есть (   Читать дальше...   )Производство: Швеция / FLXЖанр: драма, комедияРежиссер: Мартин Перссон, Феликс Хернгрен, Eddie ÅhgrenАктеры: Вера Витали, Эрик Йоханссон, Петра Меде, Frank Dorsin, Аманда Линд, Jacob Lundqvist, Марианне Мёрк, Анн Петрен, Johan Ulveson и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, английские, испанские, шведские, французские, немецкиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A9077ACF2F3C5AE96BF182B4EEA017D9758D64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346506   (163185) от 19.12.2019
+
+Рэмбо: Последняя кровь / Rambo: Last Blood (2019) BDRemux [H.264/1080p] [Extended Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он хранил секреты всю жизнь, но пришло время взглянуть в глаза прошлому. В последний раз собраться и стать безжалостной машиной для убийства. Рэмбо снова встанет на смертельно опасный путь — путь мести, который ему придется пройти до конца.Производство: США, Испания, Болгария / Lionsgate, Millennium Films, Campbell Grobman FilmsЖанр: Боевик, триллер, приключенияРежиссер: Адриан ГрюнбергАктеры: Сильвестр Сталлоне, Пас Вега, Серхио Перис-Менчета, Адриана Барраса, Ивет Монреаль, Джени Ким, Хоакин Косио, Паскасио Лопес, Оскар Хаэнада, Alexander DimitrovПеревод: Дублированный (iTunes)Субтитры: Русские (Full Enigma), Английские (Full)Продолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C39A6073F72C523EF84F30588E0496F206C61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673901   (163186) от 03.11.2023
+
+Яндекс.Браузер 23.9.4.835 (x32) / 23.9.4.833 (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C257ECDFA003436B808C424E5D4B56EF2E5D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432545   (163187) от 18.12.2020
+
+Terra Lightfoot - Consider The Speed (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Called out Your Name [00:02:53]
+02 - It's over Now [00:03:27]
+03 - Empty House [00:03:01]
+04 - Love You So [00:03:35](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5319F3224D099F3FBFE21C8A787274FE0077A7BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673882   (163188) от 03.11.2023
 
 Audacity 3.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +179,7 @@ Audacity 3.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163188.jpg" />
 </div>
 
 
@@ -30,7 +203,7 @@ magnet:?xt=urn:btih:33ACADD691288A2CAEA42C1715BD69AC29F9F7C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163190.jpg" />
 </div>
 
 
@@ -54,7 +227,7 @@ magnet:?xt=urn:btih:AC84587C0890AFC62ED610761FE88FE05D13B463
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163191.jpg" />
 </div>
 
 
@@ -78,7 +251,7 @@ magnet:?xt=urn:btih:FA561CCB20F6B08D3ADEB2692F60D26A7FBA0C68
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163192.jpg" />
 </div>
 
 
@@ -102,7 +275,7 @@ magnet:?xt=urn:btih:6A81569672F01FD0A5ED713216EB9D10F407FA60
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163193.jpg" />
 </div>
 
 
@@ -126,7 +299,7 @@ magnet:?xt=urn:btih:BA8FBAAAA0456BC955FF827BFF75D01BE4731926
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163194.jpg" />
 </div>
 
 
@@ -150,7 +323,7 @@ magnet:?xt=urn:btih:A8F50669CAB23FFB00F22363FB6E79E969E06200
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163196.jpg" />
 </div>
 
 
@@ -177,7 +350,7 @@ VA - Music News vol.232 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163197.jpg" />
 </div>
 
 
@@ -204,7 +377,7 @@ magnet:?xt=urn:btih:8310CECA74E3A55AA495653F5E2DFB32107C2DA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163198.jpg" />
 </div>
 
 
@@ -228,7 +401,7 @@ Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163199.jpg" />
 </div>
 
 
@@ -255,7 +428,7 @@ magnet:?xt=urn:btih:7688709E0C58CCE5307DB9F9C4FA689D1B17AACF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163200.jpg" />
 </div>
 
 
@@ -279,7 +452,7 @@ magnet:?xt=urn:btih:929594F6CC62D2A07DD8F87E1CA6E82EDB0C2ECE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163201.jpg" />
 </div>
 
 
@@ -303,7 +476,7 @@ magnet:?xt=urn:btih:8316F828D17F3C776AB4E4F65EAC59573F129254
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163202.jpg" />
 </div>
 
 
@@ -327,7 +500,7 @@ magnet:?xt=urn:btih:9D39EE5991B1BD0A81ED665E094041ABE32DA74C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163203.jpg" />
 </div>
 
 
@@ -351,7 +524,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163204.jpg" />
 </div>
 
 
@@ -375,7 +548,7 @@ magnet:?xt=urn:btih:89606B75B1DD2028446A3989B283EAD498B8C08E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163205.jpg" />
 </div>
 
 
@@ -399,7 +572,7 @@ Udemy | Полный курс немецкого от А1 до С2 (2019) WEBRip
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163206.jpg" />
 </div>
 
 
@@ -426,7 +599,7 @@ magnet:?xt=urn:btih:4B9C7B5769B138403EAF98F0B415AB5866398FAF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163207.jpg" />
 </div>
 
 
@@ -453,7 +626,7 @@ magnet:?xt=urn:btih:F4814F6EFF645980D037B3C2ADA1BA6711330F5A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163208.jpg" />
 </div>
 
 
@@ -464,184 +637,6 @@ magnet:?xt=urn:btih:F4814F6EFF645980D037B3C2ADA1BA6711330F5A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8379C2030DCDDF24F6E64D95ED85CAF0A6EC098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673842   (163209) от 03.11.2023
-
-План Ломоносова - План Ломоносова VI (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163209.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вечен и неубиваем
-2. Взахлёб
-3. Квадратный ноль
-4. Мельничный рыцарь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92C9D7E9DC0F3279DD98EE5502AB3FB14CEA438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432712   (163210) от 18.12.2020
-
-ДОМ СОВЕТОВ - Лайк, репост, решётка (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лайк, репост, решётка
-2. Контролируй вещи
-3. Вслепую
-4. Свободная касса(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D23B4049BA4532563D2AA91AA1FCECBCEDA565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432572   (163211) от 18.12.2020
-
-Iced Earth - Iced Earth (1990) 30th Anniversary Edition, 2020 [FLAC|Lossless|tracks + .cue] <Power Metal, Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iced Earth (Remixed & Remastered 2020) [00:05:25]
-02. Written on the Walls (Remixed & Remastered 2020) [00:06:06]
-03. Colors (Remixed & Remastered 2020) [00:04:51]
-04. Curse the Sky (Remixed & Remastered 2020) [00:04:44](   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Thrash MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FEDEF29D452BD961F3E4BD944074C63A34DB39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162961   (163212) от 19.12.2019
-
-Славные парни / Goodfellas (1990) BDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Хилл — начинающий гангстер, занимающийся грабежами вместе с Джими Конвеем и Томми Де Вито, которые с легкостью убивают любого, кто встает у них на пути восхождения к вершинам Мафии. Приходит время когда Генри, сам пострадавший от своих напарников, должен приложить руку к началу конца Джимми и Томми…Производство: СШАЖанр: Драма, Криминал, ТриллерРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Рэй Лиотта, Джо Пеши, Лоррейн Бракко, Пол Сорвино, Фрэнк Сиверо, Тони Дарроу, Майк Старр, Фрэнк Винсент, Деби Мейзар, Сэмюэл Л. ДжексонПеревод: Профессиональный дублированный, Английский, Двухголосый (Гланц и Королёва), Одноголосый (Михалёв)Субтитры: Английские, Испанские, РусскиеПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126588974853A4C3D7EA17A9E1AC2469540F9356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598342   (163213) от 18.12.2022
-
-Журнал | A Radio. Prakticka Elektronika №11 (2022) [PDF][Cz]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чешский радиолюбительский журнал. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. На все конструкции предлагаются печатные платы. Отдельные разделы посвящены применению компьютеров и радиоспортуЖанр: ЭлектроникаЯзык: ЧешскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FA407DD1E234732AF06BBA804F41BA8C4DE643
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517267   (163214) от 14.12.2021
-
-CCleaner 5.88.9346 Free / Professional / Business / Technician_Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163214.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF8F592BA1E3434968988E5CA4DF990301B4906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673837   (163215) от 03.11.2023
-
-Rhinoceros 8 v.8.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 1993-2023 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 12.4 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34310AD26AA4BFF4736DB3715A0CDDB5D64A172
 ```
 
 

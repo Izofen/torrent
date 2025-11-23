@@ -1,3 +1,75 @@
+###  Публикация: 1752870   (103869) от 04.10.2024
+
+Журнал | Главбух №19 (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9908CCF1ED3DC65B1CAF0F99A0E773FA854160D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752859   (103870) от 04.10.2024
+
+Журнал | Наша история №10 (64) (октябрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B615D581FDE2114F91500E5105B07CB9C116110A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752811   (103871) от 04.10.2024
+
+Firefox Browser ESR 128.3.0 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E496BA9551438B71E1F1225B8734D15EFF9D6EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753443   (103872) от 04.10.2024
 
 Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +78,7 @@ Erotica - Serene Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103872.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:C4BA2958B73372417D6E85941160619B71D6DA9C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103873.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:C2075CBD2BF49289BFE97B97676D141B43EEDB02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_103874.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_103874.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ K-Lite Codec Pack Update 18.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103875.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103876.jpg" />
 </div>
 
 
@@ -132,7 +204,7 @@ magnet:?xt=urn:btih:61B9D37E5E3D7F24BE024C79A42453E8D13F4622
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103877.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ Sonny Stitt - Stitt's Bits: The Bebop Recordings (1949 - 1952) 3CD, 2006, Presti
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103878.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:613DE630808AB96057332009A619561CC8E0AF8B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103879.jpg" />
 </div>
 
 
@@ -211,7 +283,7 @@ Soul Asylum - Slowly But Shirley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103880.jpg" />
 </div>
 
 
@@ -238,7 +310,7 @@ magnet:?xt=urn:btih:CA3A67547012775AF8CC97C93C1FA208DACF03C7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103881.jpg" />
 </div>
 
 
@@ -264,7 +336,7 @@ The Wayback Machine - Future History (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103882.jpg" />
 </div>
 
 
@@ -291,7 +363,7 @@ JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103883.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Randall Bramblett - Paradise Breakdown (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103884.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103884.jpg" />
 </div>
 
 
@@ -345,7 +417,7 @@ Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103885.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103886.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103887.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103888.jpg" />
 </div>
 
 
@@ -450,7 +522,7 @@ Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103889.jpg" />
 </div>
 
 
@@ -477,7 +549,7 @@ magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103890.jpg" />
 </div>
 
 
@@ -501,7 +573,7 @@ magnet:?xt=urn:btih:4A3A57B442045885CA4220730FD0D6200B4F635E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103891.jpg" />
 </div>
 
 
@@ -525,7 +597,7 @@ magnet:?xt=urn:btih:25D2961A730826A1810ADB11EDBA78AFF389DC71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103892.jpg" />
 </div>
 
 
@@ -549,7 +621,7 @@ magnet:?xt=urn:btih:1A6A25306E00A82EE4963E013C28CB30F4EC914C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103893.jpg" />
 </div>
 
 
@@ -575,7 +647,7 @@ Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103894.jpg" />
 </div>
 
 
@@ -589,83 +661,6 @@ Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753083   (103895) от 03.10.2024
-
-Виктор Дандре | Портреты с натуры. Анна Павлова (2021) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Портреты с натуры.
-Самая знаменитая балерина прошлого столетия  Анна Павлова (1881–1931). В детстве её считали слишком худой и нескладной, в её успех не верил практически никто, никто, кроме самой Анны Павловой. Оказавшись однажды с матерью на балете в Мариинском театре, девочка буквально «заболела» танцами. С мечтами о них она засыпала и просыпалась, (   Читать дальше...   )Жанр: Русская литература, воспоминания, биография, мемуарыИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 12:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753007   (103896) от 03.10.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лилль (Франция) - Реал (Мадрид, Испания) (02.10.2024)
-СУДЬЯ Мариани Маурицио (Рим, Италия)
-СТАДИОН «Вилльнев д-Аск» (Лилль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752986   (103897) от 03.10.2024
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й.  Ливерпуль (Англия) - Болонья (Италия) (02.10.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Ливерпуль (Англия) - Болонья (Италия) (02.10.2024)
-СУДЬЯ Дабанович Никола (Черногория)
-СТАДИОН «Энфилд» (Ливерпуль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
 ```
 
 

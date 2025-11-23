@@ -6,7 +6,7 @@ VueScan Pro 9.8.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29385.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29385.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OneCommander Pro 3.95.2.0 + Portable 3.95.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29392.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29392.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StaxRip 2.44.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29402.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29402.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Krita 5.2.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29405.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29405.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:95E50541E78B117DC1FC384C1D94BA5716705A18
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29408.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29408.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ HiPER Calc Pro v11.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29413.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29413.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6F49870F72CA1237861B1C8C81AB7ECF805B7CEC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29418.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29418.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (2701) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29429.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29429.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Enigma Virtual Box 11.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29442.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Hetman Partition Recovery 5.0 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29459.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Magic Eraser / Магический ластик v2.17.4 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29463.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29463.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ DisplayFusion Pro  + Portable + MSI 11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29464.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29464.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ BitComet 2.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29467.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29467.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:BCA8EAA2AA4521FAD72CD4DD85AACD67DA684D9B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29470.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29470.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Telegram Desktop 5.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29472.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Draw.io 26.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29482.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29482.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Subtitle Edit 4.0.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29486.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29486.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ PotPlayer 250124 (1.7.22412) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29489.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29489.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ PDF-XChange Editor Plus 10.5.0.393 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29493.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Opera One 116.0.5366.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29495.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29495.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Fast Video Cutter Joiner 6.4.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29496.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29496.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Notepad++ 8.7.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29498.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ PDFsam Basic 5.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29507.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Freemake Video Converter 4.1.13.194 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29510.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Auslogics Driver Updater 2.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29513.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Movavi Video Editor 25.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29529.jpg" />
 </div>
 
 

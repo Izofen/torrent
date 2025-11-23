@@ -1,3 +1,94 @@
+###  Публикация: 969994   (145702) от 28.12.2015
+
+Михаил Прудников | Особое задание (1986) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145702.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе Героя Советского Союза М. С. Прудникова  «Особое задание» рассказывается  о трудной и почетной службе чекистов в годы Великой Отечественной войны.
+В книге нарисованы яркие образы разведчиков, подрывников, коммунистов-подпольщиков, правдиво показаны тяжелые будни партизанской жизни.Жанр: О войнеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA30AAD484C1D76EF14461FA35DB413739925C2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590299   (145703) от 16.12.2012
+
+Пьердоменико Баккаларио | Секретные Дневники Улисса Мура (9 книг) [2010-2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145703.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас в руках первый секретный дневник Улисса Мура, найденный сотрудником нашего издательства на старинной вилле «Арго». Сам Улисс Мур исчез при невыясненных обстоятельствах, но оставил ключи и подсказки для тех, кто сможет их прочесть. Наградой станет невероятное путешествие через время и пространство, полное опасностей и риска.
+Серия Секретные дневники Улисса Мура придётся по вкусу всем любителям книг «Спайдервик. Хроники» и «Гарри Поттер», тем, кто обожает разгадывать тайны и любит приключения.
+Список книг:
+1. Ключи от времени
+2. Лавка забытых карт
+3. Дом зеркал
+4. Остров масок
+5. Каменные стражи
+6. Первый ключ
+7. Затерянный город(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BE1619F3339EE59252D09AC5CC2D757E62EFF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590146   (145712) от 16.12.2012
+
+VA - Dubai Chill Lounge Vol.1,2,3 (Сomplеte Сollection) (2007) [MP3|320 кб/с]<Lo-Fi, Chillout, Lounge, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kid Coconutz - Take On Me
+02 Skyway - Golden Memories
+03 Patrick Marsh Vs. Michael Steep - My Lovin
+04 Citrus Jam - Indian Lounge
+05 Deeparture - Point Of No Return
+06 Sofa Sweeper - Broken Romance
+07 Chillwalker - Sentimental Sunshine
+08 Kid Coconutz - Needed Moonlight
+09 Calido - El Calor
+10 Deeparture - Only Tears(   Читать дальше...   )Жанр: Lo-Fi, Chillout, Lounge, DowntempoПродолжительность: 03:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607DDADACF0F6B816FE27689BABFD6D6B30CBA74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435151   (145719) от 27.12.2020
 
 Cent Browser 4.3.9.241 + Portable [Multi/Ru]
@@ -6,7 +97,7 @@ Cent Browser 4.3.9.241 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145719.jpg" />
 </div>
 
 
@@ -30,7 +121,7 @@ Photo Lab 3.12.77 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145727.jpg" />
 </div>
 
 
@@ -55,7 +146,7 @@ magnet:?xt=urn:btih:9B555A756B1FB80BE66DB799B958ED653105170F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145756.jpg" />
 </div>
 
 
@@ -79,7 +170,7 @@ SupRemo 4.0.3.2214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145760.jpg" />
 </div>
 
 
@@ -104,7 +195,7 @@ magnet:?xt=urn:btih:08EC759021471A98EAE246E40239A06EF258B657
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145775.jpg" />
 </div>
 
 
@@ -128,7 +219,7 @@ magnet:?xt=urn:btih:99BFE77BA95FEF9F6F51AE67DAD5B48FD7F5A6DC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145787.jpg" />
 </div>
 
 
@@ -153,7 +244,7 @@ December People - A Classic Rock Christmas  (2015) [FLAC|lossless|image + .cue] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145791.jpg" />
 </div>
 
 
@@ -180,7 +271,7 @@ Wise Folder Hider 1.31.67 Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145801.jpg" />
 </div>
 
 
@@ -204,7 +295,7 @@ Opera GX 104.0.4944.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145809.jpg" />
 </div>
 
 
@@ -230,7 +321,7 @@ magnet:?xt=urn:btih:ED8FCDAC1774CA4BF555AD625CF77EC856F99686
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145812.jpg" />
 </div>
 
 
@@ -256,7 +347,7 @@ YouTube By Click Premium 2.2.122 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145817.jpg" />
 </div>
 
 
@@ -280,7 +371,7 @@ BBEdit 14.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145827.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145827.jpg" />
 </div>
 
 
@@ -304,7 +395,7 @@ Internet Download Manager 6.36 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145830.jpg" />
 </div>
 
 
@@ -328,7 +419,7 @@ Topaz Video AI for Mac 4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145845.jpg" />
 </div>
 
 
@@ -352,7 +443,7 @@ FabFilter Total Bundle 2019.03.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145869.jpg" />
 </div>
 
 
@@ -376,7 +467,7 @@ magnet:?xt=urn:btih:E3EA239738298572A8276E9138D3672E3442B76E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145878.jpg" />
 </div>
 
 
@@ -402,7 +493,7 @@ Real Steel Boxing Champion v2.5.118 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145880.jpg" />
 </div>
 
 
@@ -426,7 +517,7 @@ SmallCubed MailSuite 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145913.jpg" />
 </div>
 
 
@@ -450,7 +541,7 @@ magnet:?xt=urn:btih:6AAB245C265F61FBE823079244F1ED67B2AE963F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145914.jpg" />
 </div>
 
 
@@ -474,7 +565,7 @@ New year wallpapers 2013 (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145920.jpg" />
 </div>
 
 
@@ -498,7 +589,7 @@ magnet:?xt=urn:btih:0B78437C57F1FEADF6B394FC8B9A3B3D9C9A2551
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145926.jpg" />
 </div>
 
 
@@ -522,7 +613,7 @@ magnet:?xt=urn:btih:81E324A7231934FEC62C67C0F64110AD4812034A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145933.jpg" />
 </div>
 
 
@@ -546,7 +637,7 @@ Dirty Ducks - Yearmix (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145935.jpg" />
 </div>
 
 
@@ -560,95 +651,6 @@ Dirty Ducks - Yearmix (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B695E35BFA2B5A39A3F05C585CDD22084953753D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590345   (145938) от 16.12.2012
-
-Бокс. А.Хан - К.Молина, бой за титул чемпиона мира / WBC: Amir Khan vs Carlos Molina (16-12-2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145938.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОФЕССИОНАЛЬНЫЙ БОКС. Бой за титул чемпиона мира.  А.Хан - К.Молина
-
-Разогревочные поединки:
-ALFREDO ANGULO vs. JORGE SILVA / MIDDLEWEIGHTS
- DEONTAY WILDER vs. KEVIN PRICE / WBC CONTINENTAL AMERICAS  HEAVYWEIGHT TITLE
-
-Основной бой:
-AMIR KHAN vs. CARLOS MOLINAЖанр: СпортТелекомпания: СпортПеревод: Одноголосый закадровый, Владимир Гендлин младший.Формат: tsПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC6DB76C78DD840281FD7BD6A083D0CF673EEF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969846   (145939) от 28.12.2015
-
-Фигурное Катание. Чемпионат России 2015. Женщины. Короткая программа. (25.12.2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четверг в Екатеринбурге стартует чемпионат России по фигурному катанию, который станет отборочным турниром к чемпионату Европы, стартующему в конце января в Братиславе.
-"Девочек у нас много, и все хорошие, - сказала Тарасова по телефону. - Женя Медведева очень здорово выступала в серии Гран-при, шла на мировой рекорд в Финале Гран-при. У нее хорошие шансы (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE22013CD7F9914DFF16BACE36E21905905EE4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589531   (145945) от 16.12.2012
-
-MJG - Bitches Money Guns (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BMG Intro
-02. BMG
-03. By Myself (feat. TMack & Young Buck)
-04. F*ck That (feat. Wooh Da Kid & Pastor Troy)
-05. Smokin Chokin Skit
-06. Smokin Chokin (feat. 8ightball & Snoop Dogg)
-07. Smoke Out (feat. GC Eternal)
-08. Interlude
-09. Free
-10. YNS (feat. Lil Rickey of PBZ & 2 Deep)(   Читать дальше...   )Жанр: Dirty South, Southern RapПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
 ```
 
 

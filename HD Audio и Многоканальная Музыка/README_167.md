@@ -6,7 +6,7 @@ Cynic - The Portal Tapes (2012) Compilation)[FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115815.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Samsas Traum - Pussy Supremacy – Trauma Tales Sampler, Vol. I (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115823.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Buddy Blake Band - Seven Ways From Someday (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115828.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115833.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115834.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115837.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115838.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sexual Music Collection - Midnight Jazz Confessions: Sultry Jazz for a Romantic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115843.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Soft Jazz Mood, Erotica - Intimate Nights: Erotic Valentine’s Day, Jazz Love S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115848.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kim Wilde - Love Blonde: The RAK Years (2024) 2020 Remastered, 4CD + Digital Boo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115860.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tarja Turunen - Dark Star (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115862.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Sexual Music Collection - Sex for an Aperitif: Erotic Jazz Background Music (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115866.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sexual Music Collection, Cuban Latin Collection - Erótica Nights: Sensual Latin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115878.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Ace Frehley - Studio Albums (6 releases) (2009-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115894.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115963.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115965.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115970.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115971.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115991.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Amaranthe - The Catalyst (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115997.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116022.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116096.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116171.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jeremy Harry Harris - Walking With My Darkness (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116322.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Blackberry Smoke - Be Right Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116342.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116478.jpg" />
 </div>
 
 

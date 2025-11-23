@@ -6,7 +6,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59959.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CD4E1BF1310FC7670AD52D501EA8EF555CC7A189
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59960.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Microsoft  Visual C++ Runtimes AIO v0.81.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59961.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8F9851D102CC03A4EF1B818973A20A1F1AFC5562
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59962.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8BB9850EFE3982E50C91956C615028FB6926C2E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59963.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Topaz Photo AI 3.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59964.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D1FBA1FEF4912256F9A3BFAA6111068A88719455
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59965.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Office Installer & Office Installer+ 1.13 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59966.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59967.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Spring Car Music Hits 2024 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59968.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:887DF804EAED367FE7C36FA19AF371F77534D0BE
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59969.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:887DF804EAED367FE7C36FA19AF371F77534D0BE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59970.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8B14C70150997C27D528F1BAFA14AAD0A4782F02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59971.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mark Knopfler - One Deep River (2024) 2 x CD, Deluxe Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59972.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: История Индии с Майклом Вудом / The Story of India
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59973.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Call of Duty: Strike Team 1.0.40 Mod by Dhаmpir & Eastlion [Ru/Uk]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59974.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B1764D9E48546A99CCF7DCA67654886C81CC0FDB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59975.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:80F4DD388EAD838B778A9B8AF5518A23B6110ED6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59976.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A5478B82C4F41DECDEBCC263413B2710527A912C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59977.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:95A680E86D8EC87D0417B94C6FF5641691927A88
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59978.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Lou Gramm & Projects - 7 albums, 1 Box-set, 14CD (1975-2021)  [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59979.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:204E6F52A6E5382DE145CCFBAF0910331293D755
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59980.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59981.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:79B8F72092651554F6EE153EC457C41400F918B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_59982.jpg" />
 </div>
 
 

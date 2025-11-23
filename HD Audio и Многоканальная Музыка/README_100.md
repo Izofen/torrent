@@ -6,7 +6,7 @@ Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lonerider - Down in the Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103079.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Distant Past - Solaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103080.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Desert Song - Desert Song (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103081.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eden On Fire - Unresolved (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103108.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103118.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103120.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Damned - Darkadelic (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103127.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103130.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103131.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Don Henley (Eagles) - Building The Perfect Beast (1984) Remastered 2024 [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103135.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103150.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ As I Lay Dying - Studio Albums (10 releases) (2001-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103154.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Letdown. - Be OK (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103169.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103170.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Heathensun - Murda Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103182.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Julien Dore - Imposteur (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, French 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103190.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Karfagen - Mysterious Forest: The Working Tapes (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103192.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103197.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Nell Bryden - I Love You So Much I’m Blind (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103200.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ As I May - Dark Royal Revy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103201.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103202.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Tragically Hip - Up To Here (1989) Deluxe Edition, Remastered, 2024, Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103203.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103204.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Impellitteri - War Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103210.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Skinny Hightower - THE MAN (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103215.jpg" />
 </div>
 
 

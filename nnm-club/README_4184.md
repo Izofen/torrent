@@ -1,3 +1,75 @@
+###  Публикация: 1683639   (128471) от 11.12.2023
+
+Алексей Ковтунов, Антон Панарин | Поглощение (Книга 1). Поглощение. Том 1 (2023) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли офисный планктон питаться акулами? Или скорпионоподобными тварями размером с грузовик?Легко! Дайте только немного времени привести себя в форму, отрастить новую руку, и нажраться сфер развития. А потом держите меня семеро!Жанр: Боевая фантастика, ПопаданцыИздательство: ЛитРес: чтец, АвторПродолжительность: 08:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773270BF115AFB5F7468CEEF8FC7C3167FC400B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683434   (128472) от 11.12.2023
+
+Семейный обмен / Family Switch (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незадолго до Рождества жизнь одной семьи превращается в хаос, когда редкое космическое явление заставляет родителей и их детей-подростков поменяться телами.Производство: США / Grey Matter Productions, Imagine Entertainment, Talent One, Linden EntertainmentЖанр: комедия, фэнтезиРежиссер: МакДжиАктеры: Дженнифер Гарнер, Эмма Майерс, Рита Морено, Пит Холмс, Илайя Изорелис Паулино, Эд Хелмс, Маттиас Швайгхёфер, Пол Шир, Брэйди Нун, Форчун ФеймстерПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH), французские, украинские, немецкиеПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31276473B35D7C2608A1DAE1C879883EC1287499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680489   (128473) от 11.12.2023
+
+Судьба человека (1959) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по раасказу М. Шолохова... С началом Великой Отечественной войны шофёру Андрею Соколову приходится расстаться с семьёй. В мае 1942 года он контуженным попадает в немецкий плен. Соколов переносит ад нацистского концлагеря, благодаря своему мужеству избегает расстрела и, наконец, бежит из плена за линию фронта к своим. В коротком фронтовом отпуске на малую родину (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драма, военныйРежиссер: Сергей Бондарчук ст.Актеры: Сергей Бондарчук ст., Паша Борискин, Зинаида Кириенко, Павел Волков, Юрий Аверин, Кирилл Алексеев, Павел Винников, Евгений Тетерин, Анатолий Чемодуров, Лев БорисовПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF97A8CF2F148D69414CFEB6C0A7E3D49A74980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683550   (128474) от 11.12.2023
 
 Свадебная резня / Til Death Do Us Part (2023) BDRemux [H.264/1080p]
@@ -6,7 +78,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128474.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:92FA2772AD1AD328449C1288E273FF2A2F8166C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128475.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:92FA2772AD1AD328449C1288E273FF2A2F8166C3
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128476.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ magnet:?xt=urn:btih:A3FDF03B5263BA830414A50DC866F7B674B78D52
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128477.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:90C8FCF10CF7C6FB3B1ED5D5022D15EF2B658E9C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128478.jpg" />
 </div>
 
 
@@ -129,7 +201,7 @@ magnet:?xt=urn:btih:5A47F7C55870C67681E8C13B85A80CD295C7496E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128479.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ PowerISO 8.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128480.jpg" />
 </div>
 
 
@@ -180,7 +252,7 @@ magnet:?xt=urn:btih:49CB346A2E54C6BA85996668588CC9EA51405C1E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128481.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ magnet:?xt=urn:btih:0CBE4C5A9B6A360CAEC9CE60114AA0D8CFB2E4B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128482.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ magnet:?xt=urn:btih:2CC9139D9BD29ECE9D42DC80D70F8C6B96172F46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128483.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:5509374F200A3F3371B8363F130AAA2149052C50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128484.jpg" />
 </div>
 
 
@@ -279,7 +351,7 @@ Adobe Media Encoder 2024 24.1.0.68 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128485.jpg" />
 </div>
 
 
@@ -303,7 +375,7 @@ magnet:?xt=urn:btih:B4A422DE4B57F86E9CBB84FC6053E136B053B1AC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128486.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ magnet:?xt=urn:btih:FD79C745843BC7929884F1941F484951FEBA1470
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128487.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:FD79C745843BC7929884F1941F484951FEBA1470
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128488.jpg" />
 </div>
 
 
@@ -377,7 +449,7 @@ magnet:?xt=urn:btih:EE8683EC84F224235C2919CAD144C509C9E2BD68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128489.jpg" />
 </div>
 
 
@@ -401,7 +473,7 @@ AOMEI Partition Assistant Pro 10.2.1.0 (акция Comss) [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128490.jpg" />
 </div>
 
 
@@ -426,7 +498,7 @@ magnet:?xt=urn:btih:150D4F4AD933EF689F192952AEFA2218015817BA
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128491.jpg" />
 </div>
 
 
@@ -451,7 +523,7 @@ magnet:?xt=urn:btih:3E83C77E2CAD0E5EF80AB7E4E3842E15F17E7948
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128492.jpg" />
 </div>
 
 
@@ -475,7 +547,7 @@ magnet:?xt=urn:btih:5E5243BF50EB640BEFEF107F60FCB79C22673969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128493.jpg" />
 </div>
 
 
@@ -499,7 +571,7 @@ magnet:?xt=urn:btih:193CB2ACA44F6648D9AC058D8FC3076191E5AEC8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128494.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:221C8EFCAF5A97F11BFD3C82E9266946892FC9F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128495.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128496.jpg" />
 </div>
 
 
@@ -558,79 +630,6 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4FDE1F7C5F14D3D074711F0095246976BDEA091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683545   (128497) от 11.12.2023
-
-Хоккей. НХЛ 2023-2024. Вашингтон Кэпиталз - Чикаго Блэкхоукс (10.12.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128497.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2023, понедельник. 03:00 МСК. Стадион: Юнайтед-центр (Чикаго, США), 18 258 зрителей (81% при вместимости 22 428)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Дэн Келли (США)Телекомпания: MNNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F244D6767C57CA4506F22847C0D3D999C3A8BA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683452   (128498) от 11.12.2023
-
-Книжная серия | Мир приключений (1955 - 1990) [DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Мир приключений», издательства «Детская литература», печаталось с 1955 по 1990 год. Всего было издано 33 тома. Одна из лучших, классических серий советской фантастики. В серии печатались произведения следующих жанров - фантастика, приключения, детективы, художественные очерки, обзоры и библиографии изданных произведений в жанре фантастики.Жанр: Приключения, Детектив, ФантастикаИздательство: Детская литератураФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5943B5356FDFB2DB05831C7AB582D32747EC6D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683382   (128499) от 11.12.2023
-
-Малавита / The Family (2013) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о своих соседях? Особенно о тех, которые заявляются среди ночи… Так, однажды на тихой улочке провинциального французского городка поселился писатель по фамилии Блейк, со своим семейством и собакой Малавитой. На этом многовековое спокойствие города закончилось. Почему сгорел местный супермаркет? Чем рискует медлительный водопроводчик? Что лежит в рюкзаке (   Читать дальше...   )Производство: США, Франция | EuropaCorp, Relativity Media, TF1 Films ProductionЖанр: криминал, комедия, боевикРежиссер: Люк БессонАктеры: Роберт Де Ниро, Мишель Пфайффер, Томми Ли Джонс, Дианна Агрон, Джон Д’Лео, Джон Фреда, Джимми Палумбо, Доменик ЛомбардоззиПеревод: Дублированный (Лицензия)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25ED9410992ACFCB387712AEA58E10231CF4435
 ```
 
 

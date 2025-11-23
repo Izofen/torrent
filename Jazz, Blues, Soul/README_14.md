@@ -6,7 +6,7 @@ Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39502.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39506.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39525.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Catfish - London (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39547.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Augie Meyers - Chicken Fried Bacon Grease (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39549.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ John Haydock - Haunted Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39550.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Harry Connick, Jr. - 20 (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39553.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Trevor B. Power Band - Are We Ever Free (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39554.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mark Hummel - True Believer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmoni
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39555.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ric Harris and the Heat Merchants - Along the Avenue (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39556.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jovin Webb - Drifter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39557.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Martin Harley - Morning Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39558.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Benny Turner - BT (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39559.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gary Burton & Paul Bley - Right Time Right Place (1991) GNP Crescendo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39560.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Conrad Herwig - The Latin Side Of Mingus (2022) Savant [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39562.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39599.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Italian Restaurant Lounge Music Vol 2 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39671.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sarah Vaughan - Crazy And Mixed Up (1987) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39687.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sarah Vaughan - Come Rain Or Come Shine (2000) [FLAC|Lossless|tracks+.cue]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39690.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sarah Vaughan & Michel Legrand - Orchestra Arranged And Conducted By Michel Legr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39703.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sarah Vaughan - Live In Japan (2000) 2CD [FLAC|Lossless|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39712.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39712.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Eddie Henderson - Realization & Inside Out : Anthology, Volume 2, The Capricorn 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39795.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sarah Vaughan - The Mercury Recordings 1954 - 1960 (2014) 3CD, Not Now Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39855.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Nat King Cole - The Complete Capitol Recordings Of The Nat King Cole Trio (1942 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39966.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chris Daniels & The Kings - 40: Blues with Horns, Vol. II (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40060.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_40062.jpg" />
 </div>
 
 

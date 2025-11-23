@@ -1,3 +1,84 @@
+###  Публикация: 1590072   (189397) от 12.11.2022
+
+Ундервуд - За горизонтом (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Когда-нибудь
+2. Ради контента
+3. Лавацца
+4. Шуры-муры(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36071DB2402C3DEBF81A73AD1E3F91F7182D855E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589504   (190030) от 10.11.2022
+
+Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guests From My Nightmares (Instrumental)
+02. Small Toy Soldier
+03. Riders Of Steel
+04. We Will Rise Again(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB605C1AECB1E3E5FF46BCEF8B289E7496FABFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659121   (190195) от 11.09.2023
+
+Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy [00:05:04]
+02. Coma [00:03:56]
+03. Hunger [00:04:21]
+04. Sacrifice [00:04:31](   Читать дальше...   )Жанр: Black Metal, HardcoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE73D1389C8A41B25E718B8847B33DF5FC506C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659503   (190219) от 11.09.2023
 
 Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dark Metal>
@@ -6,7 +87,7 @@ Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190219.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190230.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190542.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190609.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ magnet:?xt=urn:btih:E33B31E661FA93A404F3B12929A7A2F33833094A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190650.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190974.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190974.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190982.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190982.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190985.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191000.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191004.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191004.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191008.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191111.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191117.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191136.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ magnet:?xt=urn:btih:059C7EADA356B5027DF58D1E4373594F8E069A39
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191396.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191396.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ magnet:?xt=urn:btih:975BEAF77188AB1FA34D3D048D0EAE1D590F7BE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191495.jpg" />
 </div>
 
 
@@ -438,7 +519,7 @@ Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191620.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191627.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ magnet:?xt=urn:btih:E849FF3F06D68F82BF245212B9F51C8BBF1BB78B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191631.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ magnet:?xt=urn:btih:43B56572F4EDB55C59DF40F4A5797F12696C0CED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191633.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ magnet:?xt=urn:btih:0BB96847735B69F2B927F67F9D627E4C833DBA00
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192015.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192134.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192371.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_192371.jpg" />
 </div>
 
 
@@ -611,87 +692,6 @@ magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AC4CC84E81FA9077341EB923250F1070666AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587233   (192396) от 01.11.2022
-
-Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaos Reigns [00:03:25]
-02. Peace Death [00:03:04]
-03. Birch [00:05:56]
-04. More Dark [00:03:44](   Читать дальше...   )Жанр: Electro Industrial PunkПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657347   (192695) от 03.09.2023
-
-Тайм-Аут - Здрасьтенафиг! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не зови [00:03:59]
-02. Жизнь без бабла [00:03:40]
-03. Кошмарный сон [00:03:15]
-04. Лифт [00:03:17](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33754520C6091A16CCE1C022013820F8799CD6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657420   (192740) от 03.09.2023
-
-Атака Сверху - Прощай, панк-рок (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настало время [00:02:32]
-02. На шаг ближе [00:03:33]
-03. На мосту [00:02:29]
-04. Открой глаза [00:02:33](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D49C3D45AB829D8289C5A59F738190457496C18
 ```
 
 

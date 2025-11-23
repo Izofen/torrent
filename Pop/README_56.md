@@ -6,7 +6,7 @@ VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137721.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137721.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137740.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137793.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137866.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137872.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Gallina - 4 Альбома (2000 - 2010) [FLAC|Lossless|image + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137923.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137944.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138018.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138030.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Hit News Vol. 5 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138132.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138260.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Alesha Dixon - Fired Up (2006) Deluxe Edition, 2023, Back On Wax [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138370.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Хорошо сидим ! Песни русского застолья (199
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138480.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138587.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:0410DC2DBBE57F58A8F9AEE8E4D05C6AA68C8854
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138632.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Silent Circle - Chapter 80s (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138684.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:445B677A6AC8AC074FA53368387E698C93AC7361
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138719.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138719.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138733.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138799.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138799.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138838.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Oren Lavie - Bedroom Crimes (2017) [FLAC|Lossless|tracks + .cue] <Folk, Indie, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138915.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138991.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Now That's What I Call Movies (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139004.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Now Xmas (2015) [FLAC|track+.cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139033.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139037.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ VA - 40 Jahre Disco - Ilja Richter Prasentiert (2011) 14 CD [FLAC|Lossless]<Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_139102.jpg" />
 </div>
 
 

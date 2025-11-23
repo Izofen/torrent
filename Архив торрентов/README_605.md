@@ -6,7 +6,7 @@ IrfanView 4.65 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9776A5DF7B26BB768A71F404F0981D1CDBCB7DED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130818.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9776A5DF7B26BB768A71F404F0981D1CDBCB7DED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130823.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D7E0017AB0BA63D868A4DA36039C67921412875A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130824.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ PGWare SuperRam 6.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130826.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130826.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ HomeBank 5.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130837.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130837.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ PDF24 Creator 11.15.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130842.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Soulsavers - The Light The Dead See (2012) [FLAC|Lossless]<Alternative>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130843.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ PGWare Throttle 6.1.1.2013 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130859.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ USB Safely Remove 7.0.5.1320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130874.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:889E4E5961D230DD061944D52573DC67320006D7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130879.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:7D6ECD65C31F6AFFE00DDF3F8959E280CC5535E1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130883.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Advanced SystemCare Pro 17.1.0.157 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130893.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Mozart - Symphonies 39, 40 & 41, A Little Night Music, Divertismento 17, Serenad
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130895.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:48BE1B38F92398F65B15E8EB7DECE42CAA2B450C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130903.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:3B85CF9AD24CB04A2B8E7A42ACBB0B296C5B3F53
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130907.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Hard Disk Sentinel PRO 6.10.7 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130915.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ PGWare PCBoost 4.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130931.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Incredible Mixed Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130932.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Krita 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130934.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Transmission 4.0.5 (a6fe2a64aa) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130949.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Viber 21.4.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130960.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130964.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130976.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:7FA0585B8859FA47DBDC81F191A318EB6D8D6808
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130980.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8F4DDAC8246530E52CBE21C530CDA45D5B404600
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130983.jpg" />
 </div>
 
 

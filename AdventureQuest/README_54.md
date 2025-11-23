@@ -1,3 +1,123 @@
+###  Публикация: 1591883   (184832) от 20.11.2022
+
+The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_184832.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Entropy Centre - умопомрачительное приключение в мире загадок, где вам предстоит перемещать предметы во времени, чтобы обойти невероятные препятствия и решить сложные загадки. Управляйте ходом времени, проходя через набитые головоломками комнаты к сердцу космической станции на орбите Земли.Тип издания: RepackРазработчик: Stubby GamesЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529015615C470CEA6B6471F0595AB2C5299D813F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664548   (185043) от 26.09.2023
+
+Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_185043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paranormal VHS отправляет в захватывающее путешествие в мир расследований паранормальных явлений. В этом захватывающем повествовании вы становитесь на место Джеймса, бесстрашного влогера, известного своим каналом Paranormal VHS. Вооружившись лишь видеокамерой, он отправляется в ночные приключения по заброшенным местам с привидениями, стремясь запечатлеть сверхъестественное. (   Читать дальше...   )Тип издания: SceneРазработчик: Elite Lords StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DB8FA85D0A9E48AE7753EEFF0AD06293E87CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658922   (185634) от 25.09.2023
+
+Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигантский, таинственный инопланетный артефакт вышел на околоземную орбиту, вызвав всепланетный фурор. Земляне окрестили артефакт метаэдром и отправили для его изучения отряд по изучению форм жизни и коммуникации (SCAR), состоявший из ученых и инженеров. Однако все вышло не так, как задумано: метаэдр неожиданно перенес команду на загадочную планету за пределами Солнечной (   Читать дальше...   )Тип издания: SceneРазработчик: Mad Head GamesЖанр: Action, Adventure (Horror), 3rd Person, 3DЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC44C94B429E1F5DA69A5FBBB06A80CE7375860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664194   (185849) от 25.09.2023
+
+Heart of the Woods (2019) [Multi] (2.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_185849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heart of the Woods – фентезийная визуальная новелла, что объединила в себе множество элементов нереального, например, фей, девушек-призраков, магию и потустороннюю активность. Проект является максимально дружелюбным к меньшинствам, ведь главная героиня – Мэдди Рейнс, имеющая лучшую подругу по имени Тара - влогершу, занимающуюся развитием собственного блога в интернете (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio ÉlanЖанр: Adventure, Visual Novel, NarrativeЯзык озвучки: АнглийскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10560F577006FC4AF5E67B84D3E680BDB4DB9BDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591157   (187337) от 17.11.2022
+
+EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мия Лоренсон просыпается в заброшенной больнице и сталкивается со множеством вопросов. Что случилось с ней самой? Что случилось с миром? Edengate: The Edge of Life — это интерактивная игра, призванная передать ощущение неуверенности, изоляции и надежды.Тип издания: RepackРазработчик: HOOKЖанр: Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554161F9D099D82E98DF00327525EB92E38AA044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590909   (187654) от 16.11.2022
 
 Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
@@ -6,7 +126,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187654.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187654.jpg" />
 </div>
 
 
@@ -30,7 +150,7 @@ Lorelai (2019) [Ru/Multi] (1.1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187836.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187836.jpg" />
 </div>
 
 
@@ -54,7 +174,7 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187842.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187842.jpg" />
 </div>
 
 
@@ -78,7 +198,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187983.jpg" />
 </div>
 
 
@@ -102,7 +222,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188138.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188138.jpg" />
 </div>
 
 
@@ -126,7 +246,7 @@ magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188144.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188144.jpg" />
 </div>
 
 
@@ -150,7 +270,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188328.jpg" />
 </div>
 
 
@@ -174,7 +294,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188350.jpg" />
 </div>
 
 
@@ -198,7 +318,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188363.jpg" />
 </div>
 
 
@@ -222,7 +342,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188410.jpg" />
 </div>
 
 
@@ -246,7 +366,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188660.jpg" />
 </div>
 
 
@@ -270,7 +390,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188678.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188678.jpg" />
 </div>
 
 
@@ -294,7 +414,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188683.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188683.jpg" />
 </div>
 
 
@@ -318,7 +438,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188720.jpg" />
 </div>
 
 
@@ -342,7 +462,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189098.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189098.jpg" />
 </div>
 
 
@@ -366,7 +486,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -390,7 +510,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -414,7 +534,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189604.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189604.jpg" />
 </div>
 
 
@@ -438,7 +558,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_190760.jpg" />
 </div>
 
 
@@ -462,7 +582,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191064.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_191064.jpg" />
 </div>
 
 
@@ -486,7 +606,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191182.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_191182.jpg" />
 </div>
 
 
@@ -497,126 +617,6 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F07DE408657593D2B3BE324E3E1613EB7EDC93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588333   (191570) от 04.11.2022
-
-Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Янди, одинокий и потерянный в джунглях после ужасного оползня, должен найти путь домой к своей возлюбленной Адиратне. Ему предстоит избежать массы опасностей и раскрыть множество тайн, пробираясь через бескрайние просторы неизведанного леса и пустынных пустошей. Присоединитесь к Янди в его эпическом приключении и помогите ему выжить.Тип издания: LicenseРазработчик: Cloak and Dagger GamesЖанр: Adventure, Point-and-click, PuzzleЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D337000F742F5CEC8D2F6698C05FA52AE8AF8963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656595   (191651) от 06.09.2023
-
-Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Under the Waves (В глубинах океана) – это повествовательная приключенческая игра о всепоглощающей силе горя. События разворачиваются в технофутуристических 70-х годах прошлого века в пучине Северного моря, где профессиональный водолаз Стэн изо всех сил пытается преодолеть последствия утраты, которая перевернула его жизнь, и принять новое будущее. Изоляция в морских (   Читать дальше...   )Тип издания: RepackРазработчик: Parallel StudioЖанр: Adventure, 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC35B8CC0E033B58D432B729072AE4C9768875B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657989   (191653) от 06.09.2023
-
-Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Solis - сюжетный триллер от третьего лица, рассчитанный на одиночное прохождение, события которого разворачиваются на дальней стороне Марса. Инженер Джек Лири получает сигнал тревоги, поступивший с форта Солис. Прибыв на станцию, герой не находит членов персонала, зато встречает нечто, что явно ему не радо. Помогите Джеку спастись, сохранив то, что он обнаружил, (   Читать дальше...   )Тип издания: RepackРазработчик: Fallen Leaf, Black Drakkar GamesЖанр: Adventure (Thriller), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8256B51C502069F6C1BC3769C85CE7F315A67B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658035   (191664) от 06.09.2023
-
-Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Great North Shelter 2 — приключение от первого лица, в котором есть юмор, хоррор и необычные игровые механики. Вы будете играть за бесстрашную главную героиню, решившую раскрыть правду о странных событиях. Соберите воедино запутанные жизни и биографии исчезнувших обитателей парка. Раскрывайте тёмные тайны, сталкивайтесь с паранормальными явлениями и получайте удовольствие (   Читать дальше...   )Тип издания: RepackРазработчик: Renderville GamesЖанр: Adventure (Walking simulators), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A743144728CFE87B16E842230C15CC56483D2C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658025   (191748) от 06.09.2023
-
-Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Great North Shelter - это самый странный Национальный Парк, который вы когда-либо видели. Отправляясь в это головокружительное путешествие, вы будете играть за бесстрашную главную героиню, решившую раскрыть правду о странных событиях. Соберите воедино запутанные жизни и биографии исчезнувших обитателей парка. Основной жанр этой игры - симулятор прогулок. Вам нужно (   Читать дальше...   )Тип издания: SceneРазработчик: Renderville GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A6D976A927510E910A93646D06D179F887F402
 ```
 
 

@@ -6,7 +6,7 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160845.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160956.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E065A020A6A97C7E88734ECE875BCAD4C2B34CDB
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160965.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160986.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161098.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161143.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Avalanches - We Will Always Love You (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161239.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161267.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Special D. - You (2023 mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161331.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Anjunadeep Explorations 24 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal/Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161349.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161352.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161402.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161580.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks +
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161664.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161666.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [FLAC|Lossless|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161671.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161680.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Nina Hagen - Unity (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock, Pu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161856.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ DJ RumBuRak  - The Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161902.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Music To Watch Girls By (2019) 3xCD, Compilation [FLAC|Lossless|image + .cu
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161925.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161989.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - High School Music Band - Je T'aime... Moi Non Plus (2018) [MP3|320 Kbps] <E
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162069.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:80293D1FC8DA3DF40AAABF925BF328B0617E4280
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162328.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Kombinat 100 - Wege Ubers Land (2023) (Remastered 2007)[FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162418.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Nicolas Barnes - Liquid Tools (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162484.jpg" />
 </div>
 
 

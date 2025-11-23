@@ -6,7 +6,7 @@ Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112294.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112299.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E3DB000C395B8A61E07E89C82CF07A94BF707FCC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112414.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:502FF351C4FCC9DF1D624A34241C6558360BE1B4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112590.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112590.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Modern Heroes - Magic-The 1st Album (2024) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112666.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112690.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112877.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112889.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112890.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112891.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112897.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, La
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112982.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113099.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113163.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113292.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113305.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113358.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113453.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Fun Fun - Double Fun (1987) Reissue, 2023, ESonCD [FLAC|Lossless|image + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113520.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113579.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113664.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113759.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - К прошлому-не ревнуй (1997) [FLAC|Lossless|tracks + .cue] 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113821.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113885.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113913.jpg" />
 </div>
 
 

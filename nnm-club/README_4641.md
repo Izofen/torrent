@@ -1,3 +1,154 @@
+###  Публикация: 590250   (143850) от 16.12.2012
+
+Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 16.12.2012
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970229   (143851) от 29.12.2015
+
+Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143851.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mother Television
+2. Rewrite History
+3. Paul Revere's Last Ride
+4. Age Of Kings(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289DD05AADD5620EAD36E205AD1F8CC98DD5D432
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520235   (143853) от 27.12.2021
+
+Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days (03:30)
+02. The Universe Can Sing (03:26)
+03. Make You Feel (03:47)
+04. Should Know (03:04)(   Читать дальше...   )Жанр: Melodic Metal, Female VocalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195215   (143854) от 28.12.2017
+
+Андрей Анатольевич Зализняк | Подборка книг [12 книг] (1967 - 2014) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Анатольевич Зализняк родился 29 апреля 1935 года в Москве в семье инженера Анатолия Андреевича Зализняка и химика Татьяны Константиновны Крапивиной.
+В 1958 году окончил романо-германское отделение филологического факультета Московского государственного университета им. М. В. Ломоносова. В 1956-1957 годах стажировался в Высшей нормальной школе (Ecole normale (   Читать дальше...   )Жанр: Филология, лингвистика, славистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F556E21D986B474605B74FA791D560DE071F42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272200   (143855) от 27.12.2018
+
+Movavi Video Converter Premium 8.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальное приложение для конвертации видео, фото и аудио на macOS! Movavi Конвертер Видео поможет сохранить ваши медиафайлы в любой формат и экспортировать их для мобильных устройств, чтобы вы могли наслаждаться любимыми фильмами и музыкой, где бы вы ни находились. При этом пользоваться нашим видеоконвертером невероятно просто: загрузите файлы в программу, укажите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2018Разработчик: MovaviПоддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D878F89BE7C854807DF3D55E8E4CA1CA312F4BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087616   (143856) от 28.12.2016
+
+The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435424   (143857) от 28.12.2020
 
 Ведьмы / The Witches (2020) BDRip [1080p] ATV3
@@ -6,7 +157,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143857.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ magnet:?xt=urn:btih:A45911BB8B4C128C7D822CC4BE9689BA92C45EDA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143858.jpg" />
 </div>
 
 
@@ -54,7 +205,7 @@ magnet:?xt=urn:btih:A45911BB8B4C128C7D822CC4BE9689BA92C45EDA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143859.jpg" />
 </div>
 
 
@@ -78,7 +229,7 @@ magnet:?xt=urn:btih:30ADBDCDB54CC5AB31BCBAA310DAA53B6C45E609
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143860.jpg" />
 </div>
 
 
@@ -104,7 +255,7 @@ magnet:?xt=urn:btih:B0F3280F477F8442F5781F14DC231990A5DF3765
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143861.jpg" />
 </div>
 
 
@@ -130,7 +281,7 @@ magnet:?xt=urn:btih:58A9022007868C508604D6E84F18DA9AAECC22AB
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143862.jpg" />
 </div>
 
 
@@ -154,7 +305,7 @@ magnet:?xt=urn:btih:8704EC575393253E7B4779D2D6C26B940A4142AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143864.jpg" />
 </div>
 
 
@@ -178,7 +329,7 @@ Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143865.jpg" />
 </div>
 
 
@@ -205,7 +356,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143866.jpg" />
 </div>
 
 
@@ -231,7 +382,7 @@ magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143867.jpg" />
 </div>
 
 
@@ -255,7 +406,7 @@ magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143868.jpg" />
 </div>
 
 
@@ -279,7 +430,7 @@ magnet:?xt=urn:btih:DC9DAB47F70944F200896495E2062AED967A94F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143869.jpg" />
 </div>
 
 
@@ -303,7 +454,7 @@ magnet:?xt=urn:btih:553729881D9A84C99C4F07BDE17726D0BD6D59A3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143870.jpg" />
 </div>
 
 
@@ -327,7 +478,7 @@ magnet:?xt=urn:btih:6CDFAE7C6AF9A81C2E553CBDFDC423BBD6C87026
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143871.jpg" />
 </div>
 
 
@@ -351,7 +502,7 @@ VLC Media Player 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143872.jpg" />
 </div>
 
 
@@ -375,7 +526,7 @@ ESET Smart Security 5.2.15.1 RePack (x86/x64) by SmokieBlahBlah [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143874.jpg" />
 </div>
 
 
@@ -399,7 +550,7 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143876.jpg" />
 </div>
 
 
@@ -426,7 +577,7 @@ magnet:?xt=urn:btih:C81467E5FD31C3B965A72E648FED1218B5E08E8E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143877.jpg" />
 </div>
 
 
@@ -450,7 +601,7 @@ magnet:?xt=urn:btih:4ECAEE382913B2F42B87CE4E87CF4C37CCF957D4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143878.jpg" />
 </div>
 
 
@@ -474,7 +625,7 @@ MKVToolNix 9.7.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143879.jpg" />
 </div>
 
 
@@ -485,161 +636,6 @@ MKVToolnix - функциональный набор инструментов д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EC3923AC56091B57D736CB1BB537CE3085CE749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194851   (143880) от 28.12.2017
-
-Елена Темникова - 2 альбома, 1 макси-сингл, 10 синглов (2014-2017) [MP3|320 Kbps] <Pop, Club>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143880.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Temnikova I
-2017 - Temnikova II
-2014 - Зависимость
-2015 - Наверно (& Natan)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B5016225C87247182DCE203934CC0F1A86C48A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348407   (143881) от 27.12.2019
-
-Need for Speed: Heat (2019) [Ru] (1.0) Origin-Rip InsaneRamZes [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Heat – очередная часть гоночной серии NFS, в которой вас ждут как дневные официальные гоночные соревнования Speedhunters Showdown, так и нелегальные уличные заезды.Тип издания: Origin-RipРазработчик: Ghost GamesЖанр: Racing, ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2368C7EAF66E0136A7195B9F2D179CFCAA1473A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272266   (143882) от 27.12.2018
-
-Владимир Поселягин | Шатун (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Странствующий маг».
-
-Будущее не предопределено. Новый-старый мир, всё знакомо, и всё так изменилось! Да, похоже, амулет, используемый святошами, сработал так, что отправил его в будущее, очень и очень далёкое. Будущее не предопределено, но своё решение попутешествовать Борис не изменил. Какая разница, где это делать, в прошлом или будущем? Тем (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13215EA26953165730D0EDBC2015E5C7C5728A44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520044   (143883) от 27.12.2021
-
-Кэтрин Купер | Шале (2021) [MP3, Игорь Богданов, Юлия  Санникова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французские Альпы, 1998 год. Два молодых человека поехали кататься на горных лыжах в буран.
-Назад вернулся только один. 20 лет спустя.
-Четверо людей, так или иначе связанных с пропавшим, оказались в одном роскошном шале на том же самом курорте. Каждый из них хранит свой секрет. У двоих руки обагрены кровью. Один из них готовит убийство. А кое-кто точно знает, что (   Читать дальше...   )Жанр: Зарубежные детективы, триллерыПродолжительность: 07:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9CC4040313A851DD46C7EE41F3CCDECBD9346C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435238   (143884) от 28.12.2020
-
-Новогодний голубой огонек (1983) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1983 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB7E980016DC1D6B28244CAE15B0469DD232889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589694   (143885) от 16.12.2012
-
-FreeBSD 9.1 RELEASE [i386] (1xDVD+1xCD+USB IMG+BootOnlyCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143885.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeBSD — свободная Unix-подобная операционная система, потомок AT&T Unix по линии BSD, созданной в университете Беркли. FreeBSD работает на PC-совместимых системах семейства x86, включая Microsoft Xbox, а также на DEC Alpha, Sun UltraSPARC, IA-64, AMD64, PowerPC, NEC PC-98, ARM. Готовится поддержка архитектуры MIPS.
-
-FreeBSD разрабатывается как целостная операционная система. Исходный код ядра, драйверов устройств и базовых пользовательских программ (т. н. userland), таких как командные оболочки и т. п., содержится в одном дереве системы управления версиями (до 31 мая 2008 — CVS, сейчас — SVN). Это отличает FreeBSD от Linux — другой свободной UNIX-подобной операционной системы — в которой ядро разрабатывается одной группой разработчиков, а набор пользовательских программ — другими (например, проект GNU), а многочисленные группы собирают это всё в единое целое и выпускают в виде различных дистрибутивов Linux.
-
-Помимо своей стабильности, FreeBSD популярна и благодаря своей лицензии, которая существенно отличается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

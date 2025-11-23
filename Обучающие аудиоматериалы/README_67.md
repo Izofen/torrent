@@ -1,3 +1,51 @@
+###  Публикация: 1562913   (212688) от 11.07.2022
+
+Библия в современном русском переводе. Аудиоверсия (2022) [MP3, Никита Семенов-Прозоровский]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_212688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание нового русского перевода Библии — совместный проект ББИ и Института перевода Библии в Заокском. Новый перевод осуществлялся под эгидой Института перевода Библии в Заокском группой ведущих российских ученых – библеистов и филологов, принадлежащих разным христианским конфессиям. Именно этот совместный труд дал возможность сделать перевод свободным от узко-конфессиональных (   Читать дальше...   )Жанр: Священное ПисаниеПродолжительность: 122:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCF11DBADE584F57BD504BAFF183F75FC104600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 23000   (213050) от 26.06.2022
+
+Лев Выготский | Вопросы теории и истории психологии (Том 1) (2004) [MP3, Леонтина Броцкая]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_213050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание открывает 6-томное Собрание сочинений автора - первое   систематическое изложение его основных идей. В диск вошли работы, посвященные   методологическим основам научной психологии, которые анализируют историю   развития психологической мысли в России и за рубежом. Сюда входит и впервые   публикуемый труд Л.С. Выготского "Исторический смысл психологического (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 27:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC923256F993987B2EFBEF12D8BD09787EDCFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832267   (213485) от 30.10.2025
 
 Довгань | Бодрость и сила на всю жизнь (2000) [MP3, Владимир Довгань]
@@ -6,7 +54,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213485.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213485.jpg" />
 </div>
 
 
@@ -32,7 +80,7 @@ magnet:?xt=urn:btih:CBA0CDBC09F26AE32F816AE9006F74C18E3E74E4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213486.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213486.jpg" />
 </div>
 
 
@@ -56,7 +104,7 @@ magnet:?xt=urn:btih:F4D897E54A209F6F2AB5292AD9C2177FE543DB72
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213500.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213500.jpg" />
 </div>
 
 
@@ -82,7 +130,7 @@ magnet:?xt=urn:btih:3E5527DCE9E9A0422ADE8D7F73B064B460879F6D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213605.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213605.jpg" />
 </div>
 
 
@@ -106,7 +154,7 @@ magnet:?xt=urn:btih:9F78E0C1517C432862C3F0BAA65992A10EBEC725
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214175.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214175.jpg" />
 </div>
 
 
@@ -131,7 +179,7 @@ magnet:?xt=urn:btih:479FFEE5EB97B29B408B64A8CD88B5C80D933AA4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214345.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_214345.jpg" />
 </div>
 
 
@@ -158,7 +206,7 @@ magnet:?xt=urn:btih:2614EADDB0B2CFAB4890F73F303972BF5F145FF4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_214569.jpg" />
 </div>
 
 
@@ -182,7 +230,7 @@ magnet:?xt=urn:btih:652D1EBFEB2D9FC9C6B646F39D06D9A618C4057A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215159.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_215159.jpg" />
 </div>
 
 
@@ -206,7 +254,7 @@ magnet:?xt=urn:btih:8AFBD91F1424A573A6C55DFA37BA92C1F5731CC9
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215170.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_215170.jpg" />
 </div>
 
 
@@ -232,7 +280,7 @@ magnet:?xt=urn:btih:51363A0CD4963EFA2D026B88716C11D9B31D9582
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215971.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_215971.jpg" />
 </div>
 
 
@@ -258,7 +306,7 @@ magnet:?xt=urn:btih:B4E01DD1BEF6AC976C02D8CBEB0AB4A731BE0807
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215994.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_215994.jpg" />
 </div>
 
 
@@ -282,7 +330,7 @@ magnet:?xt=urn:btih:C5BD5C3D8B574489598476BCFF80ECFA678A9E1E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216003.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216003.jpg" />
 </div>
 
 
@@ -306,7 +354,7 @@ magnet:?xt=urn:btih:D23B77F59966D1D7E96CE60ED45592A007B133F5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216027.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216027.jpg" />
 </div>
 
 
@@ -330,7 +378,7 @@ magnet:?xt=urn:btih:6A1F31B6BE3DEDCB42D639082E0FCCA0816448F0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217503.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217503.jpg" />
 </div>
 
 
@@ -355,7 +403,7 @@ magnet:?xt=urn:btih:A6FD669CCFE5308711D501721501B3C818CD0733
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217679.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_217679.jpg" />
 </div>
 
 
@@ -379,7 +427,7 @@ magnet:?xt=urn:btih:61E6B6512890CEBFB5B160975D8683AA25C8A7F7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_218899.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_218899.jpg" />
 </div>
 
 
@@ -403,7 +451,7 @@ magnet:?xt=urn:btih:AF99D8DF72050088297718E88D4BD2FF8F147F30
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219463.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_219463.jpg" />
 </div>
 
 
@@ -427,7 +475,7 @@ magnet:?xt=urn:btih:AEE8ABDA013B35971FBA58AE38C045F3D4E0CBA3
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219642.jpg" />
 </div>
 
 
@@ -452,7 +500,7 @@ magnet:?xt=urn:btih:421F557269167CF47B7D22C612157F95D2080253
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219843.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219843.jpg" />
 </div>
 
 
@@ -476,7 +524,7 @@ magnet:?xt=urn:btih:5D74DEEF2BDB5A7E46E631072CE01EEE2AC13B5B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220203.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220203.jpg" />
 </div>
 
 
@@ -500,7 +548,7 @@ magnet:?xt=urn:btih:3AB0465B9D47F79E2844539A2ACF58CC23D0479A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220886.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_220886.jpg" />
 </div>
 
 
@@ -524,7 +572,7 @@ magnet:?xt=urn:btih:3361209EF2C500AFE2D8ECD2FE790B7E1435F321
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220890.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220890.jpg" />
 </div>
 
 
@@ -548,7 +596,7 @@ magnet:?xt=urn:btih:A4B9662B292849851AF6ADE202986E63209E11EB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221599.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_221599.jpg" />
 </div>
 
 
@@ -574,7 +622,7 @@ magnet:?xt=urn:btih:E8D48E9B5F0634B840CEA0338A50A6844F55A439
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221703.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_221703.jpg" />
 </div>
 
 
@@ -587,56 +635,6 @@ magnet:?xt=urn:btih:E8D48E9B5F0634B840CEA0338A50A6844F55A439
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD86C1E3007795DDD28E4A89C016ECAD7D93B31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965997   (222031) от 16.12.2015
-
-Игорь Борщенко | Умный позвоночник. Курс упражнений (2014) [MP3]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игорь Борщенко - врач Медицинского центра вертебрологии и ортопедии, известный нейрохирург.
-Известно ли вам, что после пребывания в невесомости, где мышцы лишены гравитационной нагрузки, позвоночник космонавта становится аномально гибким, а мышцы ослабевают настолько, что космонавт теряет способность принимать сидячее положение? Этого удается избежать только благодаря (   Читать дальше...   )Жанр: Лечебная физкультураПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA2B9696EA5829770487782DF6FC205E17625E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268421   (222350) от 13.12.2018
-
-Дарья Варламова, Елена Фоер | Секс: От нейробиологии либидо до виртуального порно (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тему секса зачастую рассматривают либо с точки зрения биологии, либо с точки зрения культуры. Перед вами – попытка объединить оба подхода и написать гид по человеческой сексуальности, рассказывающий о том, как поверх могучих природных инстинктов наслаиваются разнообразные психологические нюансы, культурные коды и табу.
-В поисках ответа на вопрос, почему одни и те (   Читать дальше...   )Жанр: Популярная психологияПродолжительность: 08:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC692069E73585A609594644DDD5605C29B2725
 ```
 
 

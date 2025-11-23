@@ -1,3 +1,75 @@
+###  Публикация: 1683261   (128757) от 10.12.2023
+
+В доме моего отца / In My Father's Den (2004) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе Мориса Джи... Фотожурналист Пол Прайор, прославившийся своими репортажами из горячих точек планеты, спустя 17 лет возвращается в родной городок в новозеландской провинции. Поводом этому послужила смерть отца. Встреча с братом Эндрю и прежними знакомыми, а также посещение отцовского дома, пробуждает в его душе многочисленные воспоминания. (   Читать дальше...   )Производство: Великобритания, Новая Зеландия, Element X, Film Council, IFMD Ltd...Жанр: драма, детектив, триллерРежиссер: Брэд МакГэннАктеры: Мэттью Макфэдьен, Миранда Отто, Эмили Барклай, Колин Мой, Джимми Кин, Джоди Риммер, Тоби Александр, Вики Хофтон, Николас Хейярд, Лайам ХербертПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (18+), английскиеПродолжительность: 02:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D645A3C749B82C7E826647115E149F78686FD1CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343768   (128758) от 10.12.2023
+
+Погоня / Tǝqib (1984) WEBRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночью мальчик сторожил огород и заснул. Зайчик пришёл за морковкой, мальчик проснулся и побежал за ним в погоню, которая потом превратилась в весёлые догонялкиПроизводство: СССР, АзербайджанфильмЖанр: Мультфильм, Рисованная анимация, Детский, КороткометражныйРежиссер: Вахид ТалыбовСубтитры: отсутствуютПродолжительность: 00:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75EC265E6082B42C3B3AA2B19D6EF5B01A612E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683195   (128759) от 10.12.2023
+
+Кто не спрятался... / The Sacrifice Game (2023) WEBRip [H.264] [звук с ТS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для нескольких студенток, оставшихся на кампусе в рождественские каникулы, наступающий праздник казался настоящей катастрофой. Но он превратился в сущий кошмар, когда туда пожаловала банда одержимых головорезов. Их цели безумны — призвать некое темное зло. Теперь девушкам придется сделать невозможное, если они хотят остаться в живых.Производство: США, Amg Music Film Television, Convoke Media, Real by FakeЖанр: ужасыРежиссер: Дженнифер УэкслерАктеры: Мэдисон Бэйнс, Джорджия Акен, Оливия Уэлш, Мена Массуд, Хлоя Ливайн, Гас Кенуорти, Дерек Джонс, Лорен Питре, Изабель Болтон, Патрик КертонПеревод: Дублированный (звук с ТС)Язык озвучки: Русский, УкраинскийСубтитры: отсутствуютПродолжительность: 01:39:06Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683406   (128760) от 10.12.2023
 
 Джон Леннон: Убийство без суда / John Lennon: Murder Without A Trial (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (серии 1-3 из 3) [VO]
@@ -6,7 +78,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128760.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Topaz Video AI 4.0.6 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128761.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:BE39B7E7702FD651B6AE8B0A7FA2438E186A0325
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128762.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:5773B3176840D4A7F3477BE06DF8199BC66F3844
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128763.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ PDF Extra PDF Editor & Scanner v10.8.2228 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128764.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ VA - A State of Trance Year Mix 2023 (Mixed by Armin van Buuren) (2023) [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128765.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ PowerISO 8.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128766.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ magnet:?xt=urn:btih:68C8E743A9B68F185CD266612D3141133E3C0EA9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128767.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:ED8EE9A578DF459359858F0B4803AE52FEC53DB1
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128768.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ magnet:?xt=urn:btih:1355BB33525EB5F301BBB7DA8133B95762E6589C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128769.jpg" />
 </div>
 
 
@@ -249,7 +321,7 @@ magnet:?xt=urn:btih:1355BB33525EB5F301BBB7DA8133B95762E6589C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128770.jpg" />
 </div>
 
 
@@ -273,7 +345,7 @@ magnet:?xt=urn:btih:BA6456613FA7EB46CD349E91363F60099B2F1B0F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128771.jpg" />
 </div>
 
 
@@ -297,7 +369,7 @@ magnet:?xt=urn:btih:2B3B090887CC9BD7A68285981E74C4F0C5A8FFA3
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128772.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Topaz Photo AI 2.1.4 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128773.jpg" />
 </div>
 
 
@@ -346,7 +418,7 @@ magnet:?xt=urn:btih:F1A8CDA57D7A8596D24DE959124B13FD19023A8D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128774.jpg" />
 </div>
 
 
@@ -370,7 +442,7 @@ magnet:?xt=urn:btih:B94B03038AE7B79DDA24C020005EB3B50CC0B150
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128775.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ magnet:?xt=urn:btih:D212EAB334BF4FA76BF2704FDD4FCA13481D2323
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128776.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:3359F720C6F0E38CCE2A9315BC6049FF60555CC4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128777.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ magnet:?xt=urn:btih:59113F923A947B192446862B8052CB4DA4885EAE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128778.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ W10Privacy 5.0.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128779.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ magnet:?xt=urn:btih:5A2FC06FD904AC8801AADC8E09C2DDBB57D3EBC6
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128780.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Topaz Photo AI 2.1.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128781.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:C01B1F70F2F3995695CC56D2DB774EE4900136D4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_128782.jpg" />
 </div>
 
 
@@ -553,82 +625,6 @@ magnet:?xt=urn:btih:C01B1F70F2F3995695CC56D2DB774EE4900136D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C4389A3659E70513028C9E2DD92F744AA26105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683313   (128783) от 10.12.2023
-
-Правое Полушарие Интроверта, Аркадий Романов, Александр Сбродов, Никита Добряков и др. | История масонства (2022) WEBRip [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовое мнение от экспертов, чтобы узнать правду о самой загадочной организации. Вместо сотни странных видео из интернета, подозрительных знаменитостей и шапочки из фольги.
-
-Начните просмотр, если:
-✅ Вы уверены, что Тейлор Свифт — масонка.(   Читать дальше...   )Производство: Правое Полушарие ИнтровертаЖанр: Обучающие видеоЯзык озвучки: РусскийПродолжительность: 08:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF304EBA5E43BFB2B0259E1D845961801A37D4EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683146   (128784) от 10.12.2023
-
-Никогда не говори «никогда» / Ba jiao long zhong (2023) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сян Тэнгуй организует школу боевых искусств для обездоленных детей и вкладывает всю душу в их воспитание, давая им проблеск надежды на будущее. Однако в сеть просачиваются видеозаписи прошлых выступлений со сценами, которые выглядят жестокими, и это накаляет общественное мнение. Жизнь Сян Тэнгуя и будущее детей оказывается в руках людей, утверждающих, что они действуют (   Читать дальше...   )Производство: Китай / Beijing Happy Pictures Cultural Communications Co., Tianjin Maoyan Weying Media, Tumxuk Sunflower Pictures, Wuxi Baotang PicturesЖанр: Спорт, драма, боевикРежиссер: Ван БаоцянАктеры: Ван Баоцян, Чэнь Юншэн, Ши Пэнъюань, Ван Сюнь, Yitong Zhang, Ху Хаофань, Hu Ma, Debowen Zhou, Бао Чжэньцзян, Чи ПэнПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:50Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0E57F3882FBA81FC475EBB8D427E15682CD4D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683238   (128785) от 10.12.2023
-
-Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите основные методы рисования, чтобы создавать архитектурные эскизы от руки и воплощать их в жизнь в Photoshop с помощью цвета и текстуры.
-Возьмите с собой в дорогу карандаш и альбом для рисования, чтобы запечатлеть суть окружающей архитектуры, и вы сможете находиться в настоящем моменте. Однако воплощение этих эскизов в жизнь в Photoshop — это то, что архитектор (   Читать дальше...   )Производство: DomestikaЖанр: Дизайн, рисованияЯзык озвучки: АнглийскийПродолжительность: 03:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE431BDE8149B551D5A392FDE26484F93C9D72F
 ```
 
 

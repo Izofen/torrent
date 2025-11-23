@@ -1,3 +1,75 @@
+###  Публикация: 1837268   (256728) от 16.11.2025
+
+PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 14.11.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837233   (256733) от 16.11.2025
+
+Йога на стуле v1.0.9 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение «Йога на стуле» для пожилых – простые и безопасные движения для улучшения гибкости, баланса и силы! Присоединяйтесь к нашему персонализированному 30-дневному плану йоги на стуле с мягкими и низкоударными движениями, которые помогают снизить риск падений, укрепить мышцы, поддерживать контроль веса и улучшить общее самочувствие.Тип издания: PremiumРелиз состоялся: 14.11.2025Разработчик: EZ HealthПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837380   (256734) от 16.11.2025
+
+Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_256734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 16.11.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837237   (256739) от 16.11.2025
 
 Лайт HD ТВ v4.5.1 Mod by vadj [Ru]
@@ -6,7 +78,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256739.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256739.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256740.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256740.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256753.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256753.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256754.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256754.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ DRM-Play v1.45 / v1.56.2 Lite Mod by ajrys [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256808.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256808.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256809.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256809.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Smart Tools v2.1.16 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256810.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256810.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256814.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256814.jpg" />
 </div>
 
 
@@ -199,7 +271,7 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256815.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256815.jpg" />
 </div>
 
 
@@ -223,7 +295,7 @@ magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256827.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256827.jpg" />
 </div>
 
 
@@ -247,7 +319,7 @@ magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256828.jpg" />
 </div>
 
 
@@ -271,7 +343,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.7 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256829.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256829.jpg" />
 </div>
 
 
@@ -295,7 +367,7 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256838.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256838.jpg" />
 </div>
 
 
@@ -319,7 +391,7 @@ magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256839.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256839.jpg" />
 </div>
 
 
@@ -343,7 +415,7 @@ magnet:?xt=urn:btih:53BE5164D3D85DBBEBC48E7C4C28427D95453AB3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256854.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256854.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ magnet:?xt=urn:btih:D0692E961F4E4F374EA1D9D93D890D388317A26F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256856.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256856.jpg" />
 </div>
 
 
@@ -391,7 +463,7 @@ magnet:?xt=urn:btih:11D597E3068582F071D4331492373E5C9170650F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256857.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256857.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ Screenshot touch v2.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256869.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256869.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ magnet:?xt=urn:btih:70FA1FBE7D2A604996485DA80D16112F1060F3E2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257066.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257066.jpg" />
 </div>
 
 
@@ -463,7 +535,7 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257569.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257569.jpg" />
 </div>
 
 
@@ -487,7 +559,7 @@ FacePic - AI Face App v3.2.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257570.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257570.jpg" />
 </div>
 
 
@@ -511,7 +583,7 @@ Rock Identifier - Stone ID v2.3.56 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257571.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257571.jpg" />
 </div>
 
 
@@ -535,7 +607,7 @@ magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257900.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257900.jpg" />
 </div>
 
 
@@ -546,54 +618,6 @@ magnet:?xt=urn:btih:48566462CA6E6F202ACD48905750467DB1A78F2A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809704A9B83125444B95E07F9218E1C60EDFE350
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837934   (257905) от 19.11.2025
-
-LazyMedia Deluxe v3.413 Mod by Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257905.jpg" />
-</div>
-
-
-###  Подробнее
-
-LazyMedia Deluxe это Android TV приложение, которое можно запустить не только на профильных Android TV приставках, но и на обычных TV-Box с версией андроид выше 4.2. Приложение предназначено для онлайн просмотра фильмов и сериалов с популярных ресурсов. Гибкие параметры настройки, позволяют подстроить интерфейс под свои нужды. Это приложение само ничего не воспроизводит (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 18.11.2025Разработчик: LazyCat SoftwareПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53ADE9FFFFEC48DA3F7555A59A5377D532E81042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837933   (257907) от 19.11.2025
-
-µTorrent® - Torrent Downloader v8.2.58 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный торрент клиент для Android. Находите и загружайте торренты прямо на ваш смартфон с помощью Torrent! Поиск и загрузка торрентов прямо на ваш смартфон или планшет - и всё это в одном удобном торрент приложении от команды, которая изобрела BitTorrent протокол более 10 лет назад. Подписывайтесь на RSS-каналы, смотрите контент и т.д. Это мощное приложение (   Читать дальше...   )Тип издания: Pro  / ModРелиз состоялся: 18.11.2025Разработчик: BitTorrent IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5C386BA639E1D0B1E175EEEA226C9E485FA278
 ```
 
 

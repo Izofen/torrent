@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46895A5DBFC7311B1E929BD62F33D651E5487212
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53640.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C442C70B1C1D9E8A7778256C7C6550080EDB7B88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53641.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Митьки. 3 Альбома (1996-2002) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53642.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53642.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2FE0A729F03063C0BB849F9F63EFDD1C73D52214
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53643.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Guitar Pete - 7 Albums (1998 - 2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53644.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Discotron - Last Night A DJ Saved My Life (2017) [FLAC|Lossless|tracks] <Nu-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53645.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53645.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - DJ Hits 44 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53646.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Chill With Style, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53647.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:19E4962E4D6E66D738A5B626DAF8FCCAD9BE8368
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53648.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:F2B7CB0BF698B74F6FBFA12F796ACAEF8FA48EE1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53649.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53650.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53651.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:157CEB5AADF32A80EF2D671F539B136D985A4F3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53652.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2B2B281AA849F728D9B425002A48953856F01922
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53653.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:EE8D714D4627E002D6CC5BE108198AB21A8B102A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53654.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Firefox Browser ESR 115.12.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53655.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:C65113BF50410261A6638A529F286AC7986152E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53656.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Firefox Browser 127.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53657.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:9BF9EA19247EADF0A8AB5440EBC52B738EA62765
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53658.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:F07DFAFB7F4879AE520F5694EEACCCFA3B2184A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53659.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Adriano Celentano Compilation - Anni '60 (2024) [MP3|320 Kbps] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53660.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53661.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ JetBrains GoLand 2024.1.3 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53662.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:AE430CD278A142BDAED4DE87842690B79E0021C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53663.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:AA91E3EFA90ECB50F8B29F4C908F310AD0FB3331
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53664.jpg" />
 </div>
 
 

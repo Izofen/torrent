@@ -6,7 +6,7 @@ StaxRip 2.44.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33552.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ QOwnNotes 24.12.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33557.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3014 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33560.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ XYplorer 26.70.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33562.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ GeoGebra 6.0.871.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33563.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ DisplayFusion Pro  + Portable + MSI 11.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33568.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ TweakPower 2.066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33577.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Desktop Calendar 3.19.217.6900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33579.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Firefox Browser ESR 115.18.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33583.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Wondershare PDFelement 11.4.3.3273 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33591.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Paint.NET 5.1.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33595.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Topaz Photo AI 3.4.2 RC (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33598.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Photoshop 2025 26.2.0.140 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33606.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Photoshop 2024 25.12.1.994 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33608.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Photoshop 2024 25.12.1.994 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33627.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adobe Photoshop 2025 26.2.0.140 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33635.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33635.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Office Installer & Office Installer+ 1.22 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33641.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kdenlive 24.12.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33648.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Subtitle Edit 4.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33653.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Text Editor Pro 31.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33663.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ KORG - Opsix Native 1.3.0 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33665.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ XRecode 3 1.160 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33675.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ IObit Uninstaller Pro 14.1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33680.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ FliFlik KlearMax for Photo 2.1.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33694.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Google Chrome 131.0.6778.205 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33696.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ W10Privacy 5.1.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33699.jpg" />
 </div>
 
 

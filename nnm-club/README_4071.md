@@ -1,3 +1,75 @@
+###  Публикация: 1532941   (125528) от 27.12.2023
+
+Корабль-призрак / Ghost Ship (2002) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отдаленной области Берингова моря команда спасателей обнаруживает останки огромного пассажирского лайнера, который считался погибшим более 40 лет назад. Оказавшись на борту судна, спасатели сталкиваются с жутким прошлым корабля и вынуждены вступить в смертельную схватку…Производство: США, Австралия / Warner Bros.Жанр: Ужасы, триллерРежиссер: Стив БекАктеры: Гэбриел Бирн, Джулианна Маргулис, Рон Элдард, Десмонд Харрингтон, Айзэйя Вашингтон, Алекс Димитриадес, Карл Урбан, Эмили Браунинг, Франческа Реттондини, Борис БркичПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D9F17074BE638D799092FA05441BCBF382BD4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686815   (125529) от 27.12.2023
+
+Квантовый коллапс: США и Китай вступили в гонку с высокими ставками
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125529.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере приближения зловещего «Дня Q» между США и Китаем разворачивается глобальная борьба за безопасность цифрового будущего. Канадская компания Quantum Defen5e (QD5), специализирующаяся на кибербезопасности, предупреждает, что к 2025 году квантовые компьютеры могут сделать нынешние методы шифрования устаревшими и раскрыть все мировые секреты. В тайной борьбе страны (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687878   (125530) от 27.12.2023
+
+Сестра Смерть / Hermana muerte (2023) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125530.jpg" />
+</div>
+
+
+###  Подробнее
+
+1949 год. Молодая послушница Нарсиса, в прошлом — творившая чудеса девочка, приезжает в монастырь и по совместительству женскую школу, чтобы заменить сестру-учительницу. В своей комнате девушка находит посмертную фотографию одной из сестёр, и после этого её начинают мучать кошмары во сне и мерещиться всякое наяву, и кроме того, её маленькие ученицы явно чего-то боятся.Производство: Испания / El Estudio, NetflixЖанр: ужасыРежиссер: Пако ПласаАктеры: Ария Бедмар, Альмудена Амор, Мару Вальдивьельсо, Луиза Мерелас, Чело Виварес, Адриана Камарена, Марсело Карвахал, Даниэла Касас, Марина Дельгадо, Клаудия Фернандес АрройоПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, Испанский, АнглийскиСубтитры: Английские (Full, SDH, Forced), Испанские (Full, SDH), УкраинскиеПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2D75ECCAB1DEC9E48915F17C501AAEA4A56AFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683874   (125531) от 27.12.2023
 
 Девушки с Макаровым (2023) WEBRip [H.264/720p] (сезон 4, серии 1-20 из 20)
@@ -6,7 +78,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125531.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:51892075181254C0C1AE38CFEBD5FC445D2A3E0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125532.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:0110C44A10BCF71C3EDEA6444B59CC48FB1E954A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125533.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ magnet:?xt=urn:btih:74B01344B262987A92AB2D0042C56B867F46100D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125534.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ Tearmoon Teikoku Monogatari | Tearmoon Empire | Хроники империи Т
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125535.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ AIMP 5.30 Build 2533 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125536.jpg" />
 </div>
 
 
@@ -151,7 +223,7 @@ magnet:?xt=urn:btih:8A8FB927BB3DB1BB1D7E6B637907DDA1386B1EE0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125537.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ magnet:?xt=urn:btih:7A7D03781FCB65C7C168E18762EA4900232FB87D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125538.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ FastStone Capture 10.4 (26.12.2023) Final RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125539.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ magnet:?xt=urn:btih:63497E1599D0202A165BD70A69A7D4395A1A3D22
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125540.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ magnet:?xt=urn:btih:14190EDDE27ADB7B9850B5E33B643453BEE6B2D5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125541.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:D41EA95B3CE6DF7D4A2D5A539649937170BFE7DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125542.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125543.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ magnet:?xt=urn:btih:E0EF508844ED30521FCEB167AE8F33022801A802
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125544.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Windows 11 PRO 23H2 22631.2861 Update 4 by Ghost Spectre x64 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125545.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ magnet:?xt=urn:btih:0A157A5D71A33BDB282FCB476594B8AC9113F01E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125546.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125547.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ The Elder Scrolls IV: Oblivion - Oblivion Association: Era of Change HD (2006) [
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125548.jpg" />
 </div>
 
 
@@ -447,7 +519,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.3803 x
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125549.jpg" />
 </div>
 
 
@@ -474,7 +546,7 @@ Rival Sons - 9 Albums (2009 - 2023) 10 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125550.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ magnet:?xt=urn:btih:4689718047EC81CB52AE7D5FE58D393487DC961D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125551.jpg" />
 </div>
 
 
@@ -528,7 +600,7 @@ magnet:?xt=urn:btih:DE2D5F788D6310C0C7B1CF90EFE95C4AFF536AF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125552.jpg" />
 </div>
 
 
@@ -552,7 +624,7 @@ magnet:?xt=urn:btih:92C6A7348F74C8C0170A5EC3CF8A346EF8946CAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_125553.jpg" />
 </div>
 
 
@@ -563,78 +635,6 @@ magnet:?xt=urn:btih:92C6A7348F74C8C0170A5EC3CF8A346EF8946CAA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AB253F465D07650C8E695D6FEB0257D29FD713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314672   (125554) от 27.12.2023
-
-X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение высоко оцененной стратегии X²: The Threat включает в себя новый 3D-движок, новый сюжет, корабли и элементы геймплея, с которыми вселенная Х станет еще разнообразнее. Экономика в «X³: Воссоединение» стала еще более комплексной, чем в предыдущих частях серии. Неигровые персонажи самостоятельно торгуют и строят фабрики, войны влияют на положение (   Читать дальше...   )Тип издания: LicenseРазработчик: EgosoftЖанр: Симулятор, Экшны, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687810   (125555) от 27.12.2023
-
-Стенографист / Walden (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолден Дин, скромный стенографист суда в маленьком южном городке, когда он обнаруживает, что умирает, он решает отомстить преступникам, избежавшим судебного преследования.Производство: США / Benacus Productions, RNF ProductionsЖанр: триллерРежиссер: Майкл ДэвисАктеры: Эмиль Хирш, Шейн Уэст, Келли Гарнер, Таня Рэймонд, Дэвид Кит, Стив Култер, Сет Майклс, Санни Мабри, Luke Davis, Сара СометтиПеревод: Многоголосый профессиональный (NewStudio | 18+)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABD99173B3DB3E19CB23CFB0D6764CF40F9012D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687047   (125556) от 27.12.2023
-
-Герой наших снов / Dream Scenario (2023) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь обычного профессора Пола Мэтьюса внезапно переворачивается с ног на голову, когда он начинает появляться во снах других людей. В одночасье он становится самым узнаваемым человеком не только у себя в городе, но и во всем мире. Его приглашают на телевизионные шоу, о нем пишут газеты, а толпы папарацци и поклонников жаждут его внимания. Но эйфория от всеобщей (   Читать дальше...   )Производство: США / A24, Square Peg, Wildling PicturesЖанр: драма, комедия, фантастикаРежиссер: Кристоффер БорглиАктеры: Николас Кейдж, Лили Бёрд, Джулианна Николсон, Джессика Клемент, Стар Слэйд, Дэвид Клейн, Калеб Хорн, Лиз Аджеи, Паула Бодро, Марни МакПайлПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: русский , английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0463E4D36126F3498ABC2EC4E2E485892A5956
 ```
 
 

@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_153184.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pra(Killa'Gramm) - БЕЗОБРАЗИЕ (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155607.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lindemann - Mathematik (2018) Single [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156980.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, T
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157548.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E2DA575CA4CEF5484422DD726B0A5ED3BD54FAFC
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158171.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159789.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Noize MC - Выход в город (2021) Deluxe Edition [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161418.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161418.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:4B9133F8BB83D813000E8DEA70D13A5C7EC1A36A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161432.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5CFADB2386922654631A37B8DE01D01B614E92A3
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161595.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161798.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:84D0D4D0F02CECC896FB6F0AFFC2FE5CCB7A6908
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_161921.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162890.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163127.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Alicia Keys - Keys (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164207.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F94A4FEB8D3B10DFA8693D5F0AB1071D3DD5D7CE
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164932.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164988.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Рэп со знаком качества 6 (2010) [FLAC|Lossless|image + .
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165603.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Onyx & Snowgoons - SnowMads (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165760.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:764BC3D82D97AF15BAEBD21B8CA0A04AD359CC1E
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165867.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ BOULEVARD DEPO, SP4K - QWERTY LANG (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166904.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6020E3BDB55B780C52902BFAAF2647BA7B203EB6
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167881.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Murda Killa - Один Восемь Семь (2022) [MP3|320 Kbps] <Rap, Hip-Hop
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168272.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:BD4D6CBA2765C748C65E8656F331C08B6A1D5CF8
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168387.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B192C4F8C498727E9058CAA12E1E880F00B930E0
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168912.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Loqiemean - Пов3стка (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169018.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Horus - Рифмономикон 2 (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169090.jpg" />
 </div>
 
 

@@ -1,3 +1,76 @@
+###  Публикация: 1598571   (162466) от 19.12.2022
+
+Commander One PRO Pack 3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4F53A295801EECCD63735247121900E58AB146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598518   (162470) от 19.12.2022
+
+WinUtilities Professional Edition 15.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162470.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6DEFF76D1AFB8BAEF475E3B622B453DFD53562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598504   (162471) от 19.12.2022
+
+WonderFox HD Video Converter Factory Pro 25.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162471.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2F262B3A293A70B63EB741D20F3728BB8E1523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673810   (162492) от 04.11.2023
 
 High-Logic FontCreator Professional 15.0.0.2949 Portable by 7997 [En]
@@ -6,7 +79,7 @@ High-Logic FontCreator Professional 15.0.0.2949 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162492.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162497.jpg" />
 </div>
 
 
@@ -55,7 +128,7 @@ PhotoDirector - Редактор фото 18.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162502.jpg" />
 </div>
 
 
@@ -79,7 +152,7 @@ PeaZip 9.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162507.jpg" />
 </div>
 
 
@@ -103,7 +176,7 @@ PrivaZer (Donors) 4.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162512.jpg" />
 </div>
 
 
@@ -127,7 +200,7 @@ One Commander Pro 3.27.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162514.jpg" />
 </div>
 
 
@@ -152,7 +225,7 @@ NIUBI Partition Editor 9.2.2 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162518.jpg" />
 </div>
 
 
@@ -177,7 +250,7 @@ TG Pro (Temperature Gauge Pro) 2.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162530.jpg" />
 </div>
 
 
@@ -202,7 +275,7 @@ Adobe Acrobat Pro DC 2020.013.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162531.jpg" />
 </div>
 
 
@@ -226,7 +299,7 @@ Commander One PRO - FTP client 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162543.jpg" />
 </div>
 
 
@@ -252,7 +325,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162557.jpg" />
 </div>
 
 
@@ -276,7 +349,7 @@ Speedtest от Ookla 5.2.3 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162587.jpg" />
 </div>
 
 
@@ -300,7 +373,7 @@ Sandboxie plus 1.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162593.jpg" />
 </div>
 
 
@@ -324,7 +397,7 @@ magnet:?xt=urn:btih:B6D870CB04D44C9D3595BFC68A5FB23DEA3563E1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162595.jpg" />
 </div>
 
 
@@ -348,7 +421,7 @@ FreeCAD 0.19.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162600.jpg" />
 </div>
 
 
@@ -372,7 +445,7 @@ magnet:?xt=urn:btih:3DEE2CE2A0C95E7B915237ED47EB16AAE5B4E9FB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162605.jpg" />
 </div>
 
 
@@ -396,7 +469,7 @@ Blocs 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162612.jpg" />
 </div>
 
 
@@ -421,7 +494,7 @@ Adobe Premiere Pro 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162617.jpg" />
 </div>
 
 
@@ -445,7 +518,7 @@ NCH WavePad Audio Editor Pro 17.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162619.jpg" />
 </div>
 
 
@@ -469,7 +542,7 @@ Sandboxie 5.61.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162623.jpg" />
 </div>
 
 
@@ -493,7 +566,7 @@ Amadine 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162627.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162627.jpg" />
 </div>
 
 
@@ -518,7 +591,7 @@ magnet:?xt=urn:btih:39EC44DD62B58DCF54B25332D38BA99FDD533A53
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162629.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162629.jpg" />
 </div>
 
 
@@ -542,7 +615,7 @@ Nevercenter CameraBag Pro 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162631.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_162631.jpg" />
 </div>
 
 
@@ -553,80 +626,6 @@ CameraBag позволяет мгновенно применить одну из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4046F8066A1BA15E8D3C441F722211C1553B4D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674289   (162637) от 04.11.2023
-
-Nevercenter CameraBag Photo 2023.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517500   (162641) от 15.12.2021
-
-Microsoft .NET 6.0.1 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598621   (162643) от 19.12.2022
-
-SuperDuper! 3.7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162643.jpg" />
-</div>
-
-
-###  Подробнее
-
-SuperDuper! - утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FC623896753894466C0607988B728F932477D1
 ```
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53119.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53120.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:379A260C9C7BAFC6600C8F8144918E0ABF54F423
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53121.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1BB089617E8571CB1B285BDCE643D248F912C877
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53122.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:961B559EDEC879126B6BF7B577A7BAD5BE0549BD
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53123.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B16F1E7E7C7784DFEC5DBB252664BB6D5BCF2321
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53124.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Electronic compilation part 87 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53125.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53126.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0AF8B33375E3FF0822A0EA87A19DB8FA28AE8EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53127.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53127.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:64EC0A6FD4A2D8CC710582659D663A2519FCF7C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53128.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:35505BA31871E6309B1EB36ECFD002FEA49A5E43
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53129.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53129.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:478E1B7BA0002388ECDD737AFB2EBB39558291F1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53130.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53130.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Internet Download Manager 6.42 Build 11 RePack by elchupacabra (16.06.2024) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53131.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4C39420A740FC4B8252A2BCC2C940E29D8EB3F20
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53132.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:A2EB7FC7CCD0081B45071E377A51CF0FA0AB7A1C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53133.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53133.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0A036B9902983A4C460A24403A88ADFFD187C33F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53134.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53134.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53135.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53136.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53137.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:F8493A0F6CA0DBA7D445DCC24032DB8984974EAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53138.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:A95A383C173A45C63AF534A0A80420E81830B86E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53139.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0D56BA120F9A1822AE707664E643384B7D9CF4AD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53140.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Multi Commander Full Edition 14.0 Build 3016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53141.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:88BE5DBA2877ACC99C392A3FCB7D896FD3DB9710
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53142.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:D762B49646984871951A0FA45166897DDFC29CA7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53143.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:EE485775DC5474080CF28BA2AC72A23470FD7AAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53144.jpg" />
 </div>
 
 

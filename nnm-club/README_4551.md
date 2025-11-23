@@ -1,3 +1,153 @@
+###  Публикация: 1348504   (140908) от 29.12.2019
+
+Мандалорец / The Mandalorian (2019) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) Kerob [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Кайл Пацек, Педро Паскаль, Брендан Уэйн, Бернард Баллен, Александра Гилман, Тейт Флетчер, Омид Абтахи и др.Перевод: Многоголосый любительский (Kerob)Продолжительность: ~00:39:00 серияРеклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D80F54E76E1D19EC085DB0117FC8B51FB5FC55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970385   (140909) от 30.12.2015
+
+VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Паола - Новогодняя Сказка
+002. Согдиана - Эпидемия
+003. Ольга Орлова - Птица
+004. Dan Balan - Плачь(   Читать дальше...   )Жанр: PopПродолжительность: 12:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272711   (140910) от 29.12.2018
+
+Стивен Эриксон | Память льда (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетное продолжение Садов Луны с действием, происходящим параллельно Вратам Мертвого дома. Новая война, новые враги, новый Дом; многое проясняется и еще больше запутывается. Боги все ближе, чтобы «взойти» достаточно всего лишь отрубить тысячи голов, спасая одну жизнь под флагом окровавленной детской рубашки; некоторые небожители уже спустились (были сброшены) вниз. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 40:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F816F56866B79FD509BD29148458ECC54997975
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435717   (140911) от 29.12.2020
+
+Hard Disk Sentinel PRO 5.61.15 Build 11973 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0E9EDC084D1821C40B7ED88968E1A74FD8CE0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088187   (140912) от 30.12.2016
+
+Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Downtempo, Future Garage>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная, романтичная электроника в сочетании с ломаными битами в разных их формах. Это не концептуальный альбом, а скорее сборник разных по настроению треков, которым автор подводит некую черту в своём творчестве. Каждый трек - отражение каких-то воспоминаний, чувств и мыслей.01. Your Cloud [03:47]
+02. Morning [03:04]
+03. Event Horizon [04:49]
+04. Four [03:21](   Читать дальше...   )Жанр: Atmospheric Breaks, Downtempo, IDM, Future GarageПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679007   (140913) от 23.11.2023
+
+Слепой / The Blind (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задолго до того, как Фил Робертсон из "Утиной династии" стал звездой реалити-шоу, он влюбился в мисс Кей и создал семью, но его демоны грозили разрушить их жизнь. В фильме "Слепой", действие которого происходит в глухих болотах Луизианы 1960-х годов, рассказывается о никогда ранее не раскрывавшихся моментах жизни Фила, когда он пытается победить (   Читать дальше...   )Производство: США / GND Media Group, Stacey Films, Tread LivelyЖанр: драмаРежиссер: Эндрю ХайаттАктеры: Арон фон Андриан, Амелия Ив, Мэттью Эрик Уайт, Бриэль Робиллард, Коннор Тиллман, Джон Алес, Ронан Кэрролл, Скарлетт Абинанте, Керри Кнуппе, Аарон Далла ВиллаПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240F1CBFB127F80003797EF8D466FD2E6982E50D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195851   (140914) от 30.12.2017
 
 Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo>
@@ -6,7 +156,7 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140914.jpg" />
 </div>
 
 
@@ -33,7 +183,7 @@ magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140916.jpg" />
 </div>
 
 
@@ -57,7 +207,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140917.jpg" />
 </div>
 
 
@@ -81,7 +231,7 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140918.jpg" />
 </div>
 
 
@@ -108,7 +258,7 @@ iSoftPhone Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140919.jpg" />
 </div>
 
 
@@ -133,7 +283,7 @@ magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140920.jpg" />
 </div>
 
 
@@ -160,7 +310,7 @@ Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140921.jpg" />
 </div>
 
 
@@ -187,7 +337,7 @@ magnet:?xt=urn:btih:7EA00052E828A19D57D97261539002747A8782D1
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140924.jpg" />
 </div>
 
 
@@ -211,7 +361,7 @@ magnet:?xt=urn:btih:9276234A1564EDCCB8FD84F6268291B5C6AAC088
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140925.jpg" />
 </div>
 
 
@@ -236,7 +386,7 @@ Torch Browser 45.0.0.10802 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140926.jpg" />
 </div>
 
 
@@ -260,7 +410,7 @@ Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140927.jpg" />
 </div>
 
 
@@ -287,7 +437,7 @@ Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140928.jpg" />
 </div>
 
 
@@ -314,7 +464,7 @@ magnet:?xt=urn:btih:C64D865DCD8781B67ED0383B77E0BD00FE612395
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140929.jpg" />
 </div>
 
 
@@ -338,7 +488,7 @@ Agnitum Outpost Firewall PRO 8.0.4164.639.1856.489 Final [MULTi / Русский
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140930.jpg" />
 </div>
 
 
@@ -364,7 +514,7 @@ Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140931.jpg" />
 </div>
 
 
@@ -388,7 +538,7 @@ magnet:?xt=urn:btih:D6FAD5115D060ACEE2CE3C55FC942292037AB4D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140932.jpg" />
 </div>
 
 
@@ -415,7 +565,7 @@ magnet:?xt=urn:btih:9A84457FCDB192C2E3274E2CED9A2D19960D5BDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140933.jpg" />
 </div>
 
 
@@ -440,7 +590,7 @@ magnet:?xt=urn:btih:FA688051EF2B57443AC161A76262D369FCE87C05
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140934.jpg" />
 </div>
 
 
@@ -465,7 +615,7 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140936.jpg" />
 </div>
 
 
@@ -489,7 +639,7 @@ Bulk Image Downloader Lite 5.86.0.0 repack by Wadimus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140937.jpg" />
 </div>
 
 
@@ -500,162 +650,6 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3E5ED5B0F3F54606E39F686088DF851B7C8A85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272733   (140939) от 29.12.2018
-
-Валерий Атамашкин | Я – Спартак! Битва за Рим (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Я – Спартак!».
-Продолжение противостояния лейтенанта ФСБ Спартака Гладкова и олигарха Марка Красовского, угодивших в Древний Рим.
-Благодаря вмешательству лейтенанта Гладкова восстание рабов не потерпело поражение, но угроза все еще высока: в повстанческий лагерь доходят неутешительные вести – армии Красса и Лукулла готовы объединиться и добить (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B9CD11B90A2B0DB41C305F023C6FC3FCEB69F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088408   (140940) от 30.12.2016
-
-VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saber Wolf - Sacri [00:02:17]
-02. Sources - Just [00:03:14]
-03. Stereofield - Trans [00:03:14]
-04. Qamil Stello - Lead [00:02:48](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853763   (140941) от 30.12.2014
-
-Дятьковский хрусталь  (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрусталь пленяет бриллиантовым блеском, поражает чистотой и изяществом форм. А технология его производства остается неизменной вот уже много веков. Хрусталь хрупок и податлив одновременно. Чтобы овладеть искусством его обработки, нужны годы кропотливого труда, верный глаз и твердая рука. От мельчайшей песчинки кварца до готового изделия долгий путь. Проследите за (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970511   (140942) от 30.12.2015
-
-Utsuro no Hako to Zero no Maria / The Empty Box and The Zeroth Maria / Пустая шкатулка и нулевая Мария (2009) [7 томов] [Ранобэ] [Русский] [FB2, EPUB, DOCX] [Завершен]
-
->>Манга и Арт
->>Ранобэ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140942.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе стоял март, когда новенькая по имени Ая Отонаси вошла в наш кабинет. Весь класс был ошеломлен ее красотой и сгорал от любопытства, почему она перевелась в конце учебного года.
-Ее «представление», однако, ограничилось простым сообщением имени, после чего над классом повисла мертвая тишина.
-По крайней мере, пока…
-— Кадзуки Хосино.(   Читать дальше...   )Жанр: Экшен, мистика, драма, ужас, романтика, школа, сверхъестественное, психология, триллерФормат: FB2, EPUB, DOCXПродолжительность: 07.01.2009 - 10.06.2015, выпуск завершён
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B089298B56AA9BE482668E1B1C7CDD402B851F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435763   (140943) от 29.12.2020
-
-PDF Expert 2.5.16 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140943.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - редактор  PDF
-Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому!
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50ECAD71826ECFB8BEB530BCF4579CCCE6B0B6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590826   (140944) от 17.12.2012
-
-Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 из 2] BDrip 1080 raw + rus x2
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рынок японских эрогэ перенасыщен, и что может предложить захолустная компания «Голубой март», чтобы конкурировать с китами жанра? 28-летняя Яёй Аояги, лидер компании, считает, что ответ прост: их козырь – душевная, искренняя и вдохновенная игра сэйю, которая поможет вдохнуть жизнь в любой избитый сюжет (а в этих играх иных и не бывает)! Так как для любого японца фирма – это семья и жизнь, хитроумная Яёй мобилизует в труженицы микрофона младшую сестренку, старшеклассницу Канну, девушку скромную, но с исключительно богатым воображением.
-
-И кого волнует, что Канна несовершеннолетняя? В шоу-бизнесе подобное скорее правило, чем исключение. Гораздо важнее то, что по причине природной простоты и наивности новая актриса теряет голос, стоит ей услышать, а потом попробовать произнести пару строк сценария «про это». Но гены есть гены – стоило младшей Аояги потихоньку втянуться, и процесс пошел… дальше вы поняли. Не зря говорят – корни и успехов, и неудач лежат исключительно внутри нас!Жанр: комедия, эротикаРежиссер: Хосода НаотоПродолжительность: (2 эп.), 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ACD3A2DA01D012863AAEE18BEEDCBF58353171
 ```
 
 

@@ -6,7 +6,7 @@ Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51944.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51948.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kaii to Otome to Kamikakushi / Mysterious Disappearances / Мистика, юн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51978.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Date a Live V / Рандеву с Жизнью 5 [2024, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51980.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52138.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Unnamed Memory / Безымянное воспоминание [2024, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52184.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Kami wa Game ni Uete Iru. / Gods' Games We Play / Богиня жаждет иг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52310.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52310.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52414.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kuroshitsuji: Kishuku Gakkou Hen | Black Butler: Public School Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52422.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Shinigami Bocchan to Kuro Maid (2024) | The Duke of Death and His Maid (2024) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52425.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The Idolmaster Shiny Colors | Идолмастер: Яркие цвета [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52610.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52610.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Astro Note | Записи Астро [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52633.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52633.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница эксц�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52730.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hananoi-kun to Koi no Yamai | A Condition Called Love | Любовная бол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52742.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bartender: Kami no Glass | Bartender: Glass of God | Бармен: Бокал б
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52832.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52832.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_52866.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53074.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53137.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Jii-san Baa-san Wakagaeru / Grandpa and Grandma Turn Young Again / Дедушк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53157.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53166.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. / Studio Apartment, Good Lighting, Angel
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53253.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53498.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53775.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54622.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_55120.jpg" />
 </div>
 
 

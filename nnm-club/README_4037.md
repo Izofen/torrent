@@ -1,3 +1,81 @@
+###  Публикация: 1689449   (124644) от 02.01.2024
+
+Анастасия Галкина, Екатерина Ладатко, Полина Пономарёва | По следам динозавров. Путешествие в меловой период (2019) [MP3, Мария Лутовинова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды заветная мечта близнецов Риты и Никиты исполнилась - они отправились в лагерь палеонтологов на настоящие раскопки. Внезапно волшебная книга перенесла их вместе с бабушкой в меловой период. Близнецов ждут захватывающие приключения! Они откроют тайну гибели дейнонихов, понаблюдают за птеродактилями и покатаются на спине игуанодона. Сумеют ли Рита и Никита спасти (   Читать дальше...   )Жанр: книги о животных, энциклопедииИздательство: CLEVERПродолжительность: 00:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA403FC40CD310E35F5EC70FA24F18D3F63F8333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689530   (124645) от 02.01.2024
+
+Ананас - Новый год (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новый год [00:05:18]
+02. Старое кафе [00:03:55]
+03. Супер звезда [00:04:31]
+04. Издалека [00:04:02](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB6C1C3473968B82258313DBBAE7194698439AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689459   (124646) от 02.01.2024
+
+Chris Thompson (ex-Mannfred Mann's Earth Band) - The Final Round - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiter There's A Yawn In My Ear (Live) [00:06:15]
+02. Demolition Man (Live) [00:06:43]
+03. You Angel You (Live) [00:03:57]
+04. Angels At My Gate (Live) [00:05:48](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC09C5627E4A8B6813CE210C4F5AE7505B0EF5E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689486   (124647) от 02.01.2024
 
 Fallen Land Records - Dehamanized (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +84,7 @@ Fallen Land Records - Dehamanized (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124647.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Hooligans - Fekete Fekete szivarvany (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124648.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124649.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ magnet:?xt=urn:btih:B0BE7D16C46FC13209A449EA7066AE7D5D3D42F7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124650.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124651.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Todd Grubbs - Inside Your Brain (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124652.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Retaliate - IV (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124653.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ Valfreyja - Valfreyja (2023) Master Version [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124654.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ magnet:?xt=urn:btih:EA5990EB75365FCCA7620B0B45BEDF4704268FD3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124655.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Harbinger of Storms - All of the Stars are Dead (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124656.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Marco Cusato - Untamed Souls (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124657.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ magnet:?xt=urn:btih:0C9F16BB0194AA1D007B5C68804D0775256FC73B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124658.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Mark Knopfler And Emmylou Harris - Balcony Of Love (2020) Unofficial Release [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124659.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ magnet:?xt=urn:btih:E9BF777D782BDCE3CC074A0D7EAEA2147D32354E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124660.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ magnet:?xt=urn:btih:B5208C066C8E4B91F513621AE7ACBFC00B74A286
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124661.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ magnet:?xt=urn:btih:AB9F2EB25DF454D1AC32A1799F7D1EA69AEF8458
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124662.jpg" />
 </div>
 
 
@@ -421,7 +499,7 @@ magnet:?xt=urn:btih:9E5263C8942A43E8FABE6ECDC6F12C43A1AD5274
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124663.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ Photo Studio PRO v2.7.2.2191 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124664.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ magnet:?xt=urn:btih:945CCD7C575668BC78313B54F2DF9B54988143C3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124665.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.000.1431 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124666.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ magnet:?xt=urn:btih:3F660F8DD4B802F9B61A78F8D278C7453EECC063
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124667.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ magnet:?xt=urn:btih:8ABAC2636B72A1C681B38968BFB3C45B7141E7F4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124668.jpg" />
 </div>
 
 
@@ -572,7 +650,7 @@ magnet:?xt=urn:btih:343207EFA3945981E00AE586CD9A9B4096D5BFFA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_124669.jpg" />
 </div>
 
 
@@ -585,80 +663,6 @@ magnet:?xt=urn:btih:343207EFA3945981E00AE586CD9A9B4096D5BFFA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B47C5B093863BA1137E7B3533D6FF872DEA9E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689550   (124670) от 02.01.2024
-
-Святитель Иоанн Златоуст | Толкование на Евангелия от Матфея и Иоанна [3 тома] (2010) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Иоанн Златоуст – один из величайших отцов Вселенской Церкви. Он оставил нам огромное литературное и литургическое наследия. В своем изъяснении Священного Писания святитель показывал, как Библия может стать подлинной наставницей человека. Объясняя священные книги, он часто делал отступления на современные ему общественные и моральные темы, постоянно подчеркивая (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E7007AFFE1B4C1F2A2ECC47FE614BC7E5A7F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689481   (124671) от 02.01.2024
-
-Непонятый / Misunderstood (1984) HDTV [H.264/1080i] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два маленьких брата живут во "дворце" на берегу моря. Их жизнь что-то вроде сказки, пока их мама внезапно не умирает...Производство: Италия, США / Accent Films B.V., Producers Sales Organization (PSO), Vides CinematograficaЖанр: драмаРежиссер: Джерри ШацбергАктеры: Джин Хэкмен, Генри Томас, Рип Торн, Хаклберри Фокс, Морин Кервин, Сьюзен Энспак, Джун Браун, Хелен Райан, Надим Савалха, Nidal Al-AskharПеревод: авторский (Антон Алексеев)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BF79FF62876EEDF387EB9DF0DA9AADF43D217D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689466   (124672) от 02.01.2024
-
-Елена Новосёлова | Лекция «Мифы о браке в современном мире. Руководство к устранению» (2017) [MP3, Елена Новосёлова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парадоксально, но часто препятствием к нашему собственному счастью становимся мы сами, точнее, наши страхи и стереотипы. Каждый из нас, ещё до вступления в брак, знает, что хорошо и что плохо, чего нужно опасаться, а чего – нет.
-
-Но в современном мире модель семьи поменялась, сегодня нам просто жизненно необходимо поменять стереотипы и модели поведения в браке. На (   Читать дальше...   )Жанр: социальная психология, сексологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD137C239E938706A2F90731883BA35F2FFF963
 ```
 
 

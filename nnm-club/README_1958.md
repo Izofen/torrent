@@ -6,7 +6,7 @@ Psiphon Pro 397 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51263.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A4FF305BB09C11550FF70B27EE15B22E6A85D647
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51264.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corona Renderer 12.0 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51265.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:010F2B2DC17995A32D674227F8E9648A9AF26B32
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51266.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:34DB8B92AD89889B6D895108F0849D8FCED23A76
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51267.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9BFB3AA5E5C6DAC8EA232171A29FA1DFF69796C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51268.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.2.1 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51269.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.9.1 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51270.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:0E7D30DC63717E13EA1306C1B8711BBBCAF54559
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51271.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Scooter - I want you to stream! (Live) (2020) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51272.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.2 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51273.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:86C6CEA6C78AE40D097EBF8405AC9DC2BD0083D6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51274.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:528A2FD328C8E7DAED21F62B61BF499A430D7951
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51275.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A560FF363E38EB7CC4F83AE817B957A57615A0E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51276.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ WinToUSB Technician 8.9.1 (x64) Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51277.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Summer Beach Chill Relax (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51278.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Compilation part 94 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51279.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ EssentialPIM Pro 12.0.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51280.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ R.E.M. - R.E.M.'s Top Forty Playlist (according to Berry, Buck, Mills and Stipe)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51281.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0629) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51282.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.9 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51283.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:01E3D7266C9FEC363FAAEA2773A60D6EAA522BA4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51284.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:513E9C87F6833EDCC5A34ED206BDE0AA04CD2076
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51285.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:4C2AF7EAC68C53053B3FCE703C9CA91DD0E57F56
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51286.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D9A1777A81C36E2CE47ED969925B15BAB68D7407
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51287.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Sandboxie plus 1.14.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_51288.jpg" />
 </div>
 
 

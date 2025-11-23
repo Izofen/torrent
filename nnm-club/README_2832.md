@@ -1,3 +1,86 @@
+###  Публикация: 467721   (82073) от 14.03.2012
+
+VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|Lossless]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Bowie - China Girl (4:16)
+02.Rod Stewart - You're In My Heart (4:29)
+03.Marillion - Kayleigh (3:36)
+04.Marc Cohn - Walking In Memphis (4:16)
+05.The Cars - Drive (3:55)
+06.Chris Rea - Fool ( If You Think It's Over ) (4:04)
+07.Bob Dylan - Knockin' On Heaven's Door (2:30)
+08.Deacon Blue - Real Gone Kid (4:06)
+09.The Doobie Bros - What A Fool Believes (3:44)
+10.Alannah Myles - Black Velvet (4:47)(   Читать дальше...   )1997Жанр: RockПродолжительность: 02:35:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467871   (82075) от 14.03.2012
+
+[Lossless RePack] Warp [En] 2012 | RG Packers
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82075.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Warp игрокам предстоит выступить в роли Нуля – смертоносного, но милого оранжевого малютки-пришельца, оказавшегося в непростой ситуации. Захваченный в плен группой жестоких ученых, которые собираются ставить на нем опыты, Нуль должен сбежать из исследовательской лаборатории, полагаясь только на свои уникальные способности. Игрокам предстоит определиться с планом побега: это может быть кровавая месть каждому попавшемуся на пути человеку или хорошо спланированное скрытное прохождение игровых эпизодов. Бесчисленное количество комбинаций способностей главного героя и возможность совершенствовать их позволяют игроку находить максимально эффективные пути для решения головоломок и продвижения по уровням игры Warp, оттачивая свое мастерство и устанавливая новые рекорды.Тип издания: RePackРазработчик: TrapdoorЖанр: Arcade / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467935   (82076) от 14.03.2012
+
+Д. Гринбергер, К. Падески | Управление настроением. Методы и упражнения [2008] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанная двумя блестящими клиническими психологами, эта книга научит вас, как улучшить свою жизнь с помощью наиболее эффективной и широко используемой формы психотерапии — когнитивной. Задания, предлагаемые авторами, позволят вам освоить навыки, которые уже помогли тысячам людей победить депрессию, тревогу, гнев, стресс, тягу к алкоголю и наркотикам, трудности в отношениях с другими людьми.
+Наблюдая за собой и выполняя упражнения, вы не только научитесь изменять мысли, от которых чувствуете эмоциональный дискомфорт, но и отработаете навыки решения самых разных проблем.
+Книга адресована широкому кругу читателей.2008Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467831   (82077) от 14.03.2012
 
 7 дней и ночей с Мэрилин / My Week with Marilyn (2011) DVD5
@@ -6,7 +89,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82077.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82077.jpg" />
 </div>
 
 
@@ -30,7 +113,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82078.jpg" />
 </div>
 
 
@@ -54,7 +137,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82079.jpg" />
 </div>
 
 
@@ -79,7 +162,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82081.jpg" />
 </div>
 
 
@@ -105,7 +188,7 @@ magnet:?xt=urn:btih:9B023E1809EE81899BE1945C9AFBCCD91C778F3A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82083.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82083.jpg" />
 </div>
 
 
@@ -131,7 +214,7 @@ NG: Дубаи: Чудо или мираж? / Dubai: Miracle or Mirage? (2007) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82084.jpg" />
 </div>
 
 
@@ -155,7 +238,7 @@ NG: Дубаи: Чудо или мираж? / Dubai: Miracle or Mirage? (2007) H
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82085.jpg" />
 </div>
 
 
@@ -179,7 +262,7 @@ LMFAO - Sorry For Party Rocking (2011) [MP3|320 кб/с]<Electro, Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82086.jpg" />
 </div>
 
 
@@ -206,7 +289,7 @@ magnet:?xt=urn:btih:39EB1883C0FA214B2D7DA06EFD208D01D7C3FEDB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82087.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82087.jpg" />
 </div>
 
 
@@ -230,7 +313,7 @@ magnet:?xt=urn:btih:3D2B880F801192736ABEB3136200676FC0F521F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82088.jpg" />
 </div>
 
 
@@ -254,7 +337,7 @@ magnet:?xt=urn:btih:C9B27FAD1AC48FD634559647C9876E071653F335
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82089.jpg" />
 </div>
 
 
@@ -279,7 +362,7 @@ magnet:?xt=urn:btih:C9B27FAD1AC48FD634559647C9876E071653F335
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82091.jpg" />
 </div>
 
 
@@ -303,7 +386,7 @@ magnet:?xt=urn:btih:182CE28A9C9827F478471D6D8C8F3D94201ECB35
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82092.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82092.jpg" />
 </div>
 
 
@@ -327,7 +410,7 @@ magnet:?xt=urn:btih:C59570CCB8DDCB44F03970658CE4EEA42773501B
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82093.jpg" />
 </div>
 
 
@@ -351,7 +434,7 @@ magnet:?xt=urn:btih:76A492237A7611B992127A74455B8A2BFD49338B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82094.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82094.jpg" />
 </div>
 
 
@@ -375,7 +458,7 @@ magnet:?xt=urn:btih:3DC39F266DFE1675C7E1D5643CADCC71F92774CB
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82097.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ magnet:?xt=urn:btih:4A9FDA0CB5A522A72E49E2B20ADBFEDB6E5286D4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82098.jpg" />
 </div>
 
 
@@ -423,7 +506,7 @@ magnet:?xt=urn:btih:4A9FDA0CB5A522A72E49E2B20ADBFEDB6E5286D4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82100.jpg" />
 </div>
 
 
@@ -447,7 +530,7 @@ nVIDIA GeForce Verde R295 Driver (for Notebooks) 296.10 WHQL [Многоязыч
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82101.jpg" />
 </div>
 
 
@@ -471,7 +554,7 @@ nVIDIA GeForce Verde R295 Driver (for Notebooks) 296.10 WHQL [Многоязыч
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82103.jpg" />
 </div>
 
 
@@ -495,7 +578,7 @@ magnet:?xt=urn:btih:6161A0DF2707F7D537FC19BA4C85B6AC9F8CB690
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82105.jpg" />
 </div>
 
 
@@ -521,7 +604,7 @@ Iron Grip: Warlord [MacOS X] [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82106.jpg" />
 </div>
 
 
@@ -547,7 +630,7 @@ magnet:?xt=urn:btih:7DA309FB6BAD5F31190EC668BA64891F35E45551
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_82108.jpg" />
 </div>
 
 
@@ -558,87 +641,6 @@ magnet:?xt=urn:btih:7DA309FB6BAD5F31190EC668BA64891F35E45551
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467696   (82110) от 14.03.2012
-
-Ева: Искусственный разум / Eva (2011) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс, известный инженер в сфере кибернетики, возвращается в Санта-Ирину, чтобы заняться необычным проектом для факультета Робототехники своего университета - созданием робота-ребёнка. В течение десяти лет, пока его не было в городе, жизнь для его брата Дэвида и девушки Ланы шла своим чередом: теперь они живут вместе и у них есть дочь Ева. Между Алексом и Евой сразу налаживаются хорошие отношения, и так получается, что Ева самым неожиданным образом меняет подход Алекса к его разработкам. Для них начинается путешествие, которое обещает интригующую кульминацию.Жанр: Фантастика, Фэнтези, ДрамаРежиссер: Кике МаильоАктеры: Даниэль Брюль, Альберто Эмманн, Марта Этура, Сара Роза, Анн Кановас, Клаудия Вега, Джорди ДиазПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B57CE9B849B94931415F3AA4B461A72F67BFC91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467879   (82113) от 14.03.2012
-
-Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320 кб/с]<Piano, Cello, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Meets Mozart (5:17)
-02. Moonlight (3:27)
-03. Without You (3:37)
-04. The Cello Song (3:17)
-05. Rolling In The Deep (3:52)
-06. Cello Wars (Radio Edit) (3:09)
-07. O Fortuna (Carmina Burana) (3:20)
-08. Bring Him Home (Les Miserables) (4:16)
-09. Charlie Brown Medley (3:01)
-10. Rock Meets Rachmaninoff (3:20)(   Читать дальше...   )Жанр: Piano, Cello, InstrumentalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227A174307500D1D72FDBC2CC982FC589DA35F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467714   (82114) от 14.03.2012
-
-Вкушаем плоды райских кущ / Ovoce stromu rajskych jime (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82114.jpg" />
-</div>
-
-
-###  Подробнее
-
-В короткий период оттепели в Чехословакии яркий представитель новой волны Вера Хитилова сняла сюрреалистический детектив, насыщенный эротическими символами. Прежде всего она задается идеей поиска правды относительно того общества, которое родилось к концу 60-х годов и не хочет принимать эту правду. И действительно, что лучше - знать горькую правду и стать несчастным или пребывать в счастливом неведении, закрывая глаза на то, что царит вокруг? Хитилова рассказывает историю любовного треугольника , опираясь на неясный иррациональный сюжет, многозначно расшифровываемые аллюзии и таинственные связи криминального эротического действа, в котором явь переплетается с галлюцинациями , а страх преследования деформирует реальность. В конце 60-х фильм был запрещен к прокату в Чехословакии, а Вера Хитилова не снимала полнометражные фильмы последующие 7 лет. Очень красочная авангардная работа.Жанр: Сюрреалистический детектив, Эротика, АвангардРежиссер: Вера ХитиловаАктеры: Житка Новакова, Карел Новак, Жан Шмид, Юлиус Альберт, Алиса Ауспергерова, Ян Клусак, Людек Собота, Йозеф ШомрПеревод: Одноголосый закадровыйПродолжительность: 01:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDD35609A5E21F9E50AAAD425C859580D9B927A
 ```
 
 

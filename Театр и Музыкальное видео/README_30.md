@@ -6,7 +6,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102245.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102245.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102713.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103377.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:7127E2A5B56E89586DC55F7780BCE316C9EB95B1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103842.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:6794B4647FB0336CC537D542F0EBD6D5946FBD06
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_103873.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:C2075CBD2BF49289BFE97B97676D141B43EEDB02
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105260.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:64282E72B0995B55059CF8BF8A9A240E9086501E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105592.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106390.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107125.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107125.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107541.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107668.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ BAND-MAID - The Day of Maid (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107813.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BAND-MAID - Online Okyu-Ji (2021) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107816.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8A8496D052DA780307DAB37ED07C42D9F851F231
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_107960.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Lovebites: Knockin' At Heaven's Gate (2023) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108060.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:449FA62745FEACD2F18D4531B8CEE3B6AF704521
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109120.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109798.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109798.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110088.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110670.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DBC7993ACB8D7042AE929B18DCA1A0CCBFBFC3D1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110779.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:203FFD6364A78ACADDD02FD609AB58F0C97F6F28
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111049.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Arcade Fire - Lollapalooza (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111348.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:BC61D778F82D96C6341330D2445F64656ED883F3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111628.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:450A21E8A67DC87C9F6B6B7B886E252A1E1F96EF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111732.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Lovebites: Five Of A Kind (2020) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111874.jpg" />
 </div>
 
 

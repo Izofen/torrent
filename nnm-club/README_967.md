@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25490.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE01ED09B2B2C21BE3497090696275956D36F22D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25491.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25491.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25492.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25493.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25493.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C67842567755B31D33E5AE04F9C20E80AE170E8A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25494.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25494.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B45CA729CBF3F28433658C99D4B8ECEF5999AEE8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25495.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:53F63819EAAE0E27D2DAD275C69FD60EDC69D67E
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25496.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A8B2478C24814CD029C1C9694C0927463B6485D8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25497.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:CE0BEF045DB7ECA3B20F8B4BADE1A0289630B0E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25498.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25498.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25499.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VMware Workstation 17 Pro 17.6.3 Build 24583834 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25500.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25500.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:94197B0990F93E89D0C1AFEE51058928596CE67B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25501.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25501.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:94197B0990F93E89D0C1AFEE51058928596CE67B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25502.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25502.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Google Chrome 134.0.6998.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25503.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25503.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lady Gaga - Mayhem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25504.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25504.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Kiss - Creatures Of The Night 40th Anniversary Super Deluxe Edition (1982) 5 x C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25505.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25505.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:419ACA4DD4D95F167529BDBB4B56E23764913ED2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25506.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25506.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Alfa eBooks Manager 9.1.24 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25507.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25507.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25508.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25508.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4AC70D78CD7A606BC525B5F9130EE76C5DFDCA90
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25509.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25509.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3529D520089D26E1B1B9BF159D3B9B6ADA72B653
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25510.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25510.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PrivaZer Pro 4.0.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25511.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25511.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AF397F4DCE306490912D53420878968FBA1A82B3
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25512.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25512.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25513.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25513.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25514.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25514.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Firefox Browser 136.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25515.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25515.jpg" />
 </div>
 
 

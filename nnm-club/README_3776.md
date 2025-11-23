@@ -1,3 +1,75 @@
+###  Публикация: 1699381   (117858) от 13.02.2024
+
+Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцать великолепных столов для игры в пинбол и совместимая с Steam Deck со скоростью 60 кадров в секунду. Новые столы имеют более крупные игровые поля, лучшую физику, лучшую графику, лучшие спецэффекты, лучшие ракурсы камеры, более длинные саундтреки, полную поддержку контроллеров, онлайн-таблицы лидеров и больше снимков на игровых автоматах!Тип издания: RepackРазработчик: Pinblend StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB776AC44772B828A6511AC60D7B79E24AFB1A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699405   (117859) от 13.02.2024
+
+Ирина Логвиненко, Валентин Шишкин | Альфа код. Невербальный язык телодвижений высшего статуса (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами глубокое и ценное знание о возможностях человеческого тела. Наши инстинкты владеют этим с рождения. Невербально мы считываем с человека всё: его социальный и материальный статус, уровень воспитания, реализации, уверенности в себе. Эта книга переводит подсказки интуиции в доступные всем знания и навыки. Вы сможете изменить свою невербалику и превзойти себя, (   Читать дальше...   )Жанр: ПсихологияИздательство: СамиздатФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF24EA9717BDC2E3A0D10C6FDCA995115982EC92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699546   (117860) от 13.02.2024
+
+Wondershare UniConverter Ultimate 15.5.0.9 (х64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0180D841BDF0C261CB80BCA3D252D4EE91A591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699396   (117861) от 13.02.2024
 
 Николаева А. Н. | Скандинавские мифы (2023) [FB2]
@@ -6,7 +78,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117861.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:7BF5C093E2BB46DEFC036FA2BC85BF7F89F815EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117862.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:7BF5C093E2BB46DEFC036FA2BC85BF7F89F815EE
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117863.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ magnet:?xt=urn:btih:B54991192E2D625AA5D82100B0B1D795FA8E1E1A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117864.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ Psiphon 3 build 181 (12.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117865.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:D0B119F859B23846276A531E0F36B06CABFDFE5A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117866.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ Deepin 20.9 [x64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117867.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:E20C839C39E4521F6B4DD7D975B52F33F36CFEF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117868.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ magnet:?xt=urn:btih:F0D666B7AEA417736DAF979E324D4FD17C17BAD7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117869.jpg" />
 </div>
 
 
@@ -227,7 +299,7 @@ magnet:?xt=urn:btih:5B62F3B74E120030B345DBA00C77DB6DD0A81B51
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117870.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117871.jpg" />
 </div>
 
 
@@ -276,7 +348,7 @@ magnet:?xt=urn:btih:CE915743A04A49ED640FD9860C08571DCECB94EE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117872.jpg" />
 </div>
 
 
@@ -300,7 +372,7 @@ magnet:?xt=urn:btih:FDE82885E9BDC9BAFA5AD21F10986D2F4556E7EB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117873.jpg" />
 </div>
 
 
@@ -324,7 +396,7 @@ Corel VideoStudio Ultimate 2023 26.1.0.268 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117874.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ magnet:?xt=urn:btih:65C476AEC269F063A69C8DF3BC43ABD7BB14AEEC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117875.jpg" />
 </div>
 
 
@@ -373,7 +445,7 @@ magnet:?xt=urn:btih:640419ACDD8E82B1CBB19629135C83C3E8C67087
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117876.jpg" />
 </div>
 
 
@@ -397,7 +469,7 @@ magnet:?xt=urn:btih:22B28DCD7F3EE5A05F9B71B25C5E440A28F87E2C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117877.jpg" />
 </div>
 
 
@@ -421,7 +493,7 @@ magnet:?xt=urn:btih:4200AAFDBBB5CC6309C5F48D52371BB6AA06F38B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117878.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117879.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ magnet:?xt=urn:btih:0AB6EFDFA368D8B85ADE5BABED7697973F707D62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117880.jpg" />
 </div>
 
 
@@ -494,7 +566,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117881.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117881.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117882.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117883.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117883.jpg" />
 </div>
 
 
@@ -555,79 +627,6 @@ magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397662369CB540CED43AAED04CAEDA87259FA0EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383530   (117884) от 13.02.2024
-
-Владимир Маяковский | Про это (2005) [MP3, Лиля Брик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Лиля Брик умела быть грустной, женственной, капризной, гордой, пустой, непостоянной, влюбленной, умной и какой угодно. Одни современники считали ее Музой Маяковского, другие – его злым гением, одни восторгались ею, а другие испытывали к ней острую неприязнь. Но в памяти потомков она останется, прежде всего, женщиной, которой Владимир (   Читать дальше...   )Жанр: Русская литература, классика, проза, поэзияИздательство: Студия «АРДИС»Продолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FCFAF82FAC57108E5DA52E511C5B56384E4D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699565   (117885) от 13.02.2024
-
-Adobe Acrobat Reader 2023.008.20533.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Reader — приложение Reader для самых важных документов. Работайте с файлами PDF на любых устройствах. Бесплатная программа Adobe Acrobat Reader DC предлагает больше возможностей, чем другие программы для чтения, печати и рецензирования файлов PDF. Интеграция с облачными сервисами Adobe Document Cloud дает дополнительное преимущество — теперь работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2658B8EA53F8C273A4A65B484639E8CB788C0289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699386   (117886) от 13.02.2024
-
-The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Backrooms Deluxe - отправьтесь навстречу запутанным коридорам и самым настоящим опасностям! Окунитесь с головой в невероятное приключение по проработанному миру, где реальность и ужасы перемешаются в сумасшедшей последовательности помещений. Вы к такому готовы? В данной игре предусмотрены разнообразные уровни и опасности, а также с каждым новым шагом вы будете (   Читать дальше...   )Тип издания: RepackРазработчик: Lory GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
 ```
 
 

@@ -1,3 +1,183 @@
+###  Публикация: 1518277   (156089) от 19.12.2021
+
+VA - Ultimate Christmas Soulful House (2021) [AAC|~335 Kbps] <Soulful House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stalker Studio - The Christmas Song (5:25)
+02. M-Swift, Vanessa Haynes - This Christmas (5:50)
+03. Papik, Dario Daneluz - Last Christmas (Francesco Cofano Remix) (6:12)
+04. Papik, Ely Bruna - All I Want For Christmas Is You (Francesco Cofano Remix) (5:28)(   Читать дальше...   )Жанр: Soulful House, Deep HouseПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DA8425B36CB61B5080A9E8F9F497447E99AAB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433574   (156091) от 21.12.2020
+
+Проекты - Motion Array - Christmas Opener - 877700 [AEP]
+
+>>Проекты
+>>Праздничные (проекты)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156091.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Christmas Opener» - это уникальный шаблон After Effects со стильным дизайном. Он содержит 9 заполнителей для фото / видео, 8 заполнителей для текста, 24 заполнителя для иконок и 2 заполнителя для логотипов.
+Используйте проект, как краткое вступление к вашим Рождественским и Новогодним видео. Произведите впечатление на свою аудиторию этим потрясающим шаблоном AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93049281B35512E0C853646A9EF55A0E2244A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082378   (156092) от 20.12.2019
+
+Легенды госбезопасности (2016-2019) SATRip (1-4 сезон, 1-34 серия из ??) (Обновляемая)
+
+>>След.
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они всегда оставались за кадром, но по их биографиям сняты самые известные шпионские фильмы. О них не писали газеты, но результаты их работы были в центре внимания всех СМИ мира. Их решения влияли на судьбы целых государств. Они останавливали войны и меняли правительства. Защищали секреты своей страны и решали, казалось бы, нерешаемые задачи. Они были людьми без (   Читать дальше...   )Телекомпания: Россия, ООО «ВИАНЖ ПРОДАКШИН», ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, спецслужбы, война, историяРежиссер: Вадим Гасанов, Екатерина Китайцева, Александр Гурешидзе, Алексей КитайцевПродолжительность: 34 x ~ 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAAC90F5FDFD83207F2F61EE198D474CC20A9B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676349   (156093) от 13.11.2023
+
+Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/Multi]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hogwarts Legacy - ролевая игра по мотивам знаменитых книг о мальчике-волшебнике "Гарри Поттер". События Хогвартс: Наследие развиваются задолго до рождения главного героя книг и фильмов. История берет свое начало в XIX веке, а именно в 1800-х годах. Действие игры развивается в той же вселенной и в той же школе, поэтому поклонники оригинальной саги найдут (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0089C0AE8F3E454A3A30726E02D6C1EE25C919E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270799   (156094) от 20.12.2018
+
+Moviola - The Durable Dream (1999) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flag You Down (3:02)
+ 02. Waltz on the Railroad (2:38)
+ 03. Crowding the Sky (2:48)
+ 04. The Durable Dream (3:00)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1CFD5311C7CDAC8E9B81877E68BB550ADBFE78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193369   (156095) от 24.12.2017
+
+Microsoft Windows 10 10.0.16299.125 Version 1709 (Updated Dec. 2017) - Оригинальные образы от Microsoft [VLSC/MSDN] [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 Fall Creators Update (версия 1709 16299.125) VLSC/MSDN.
+Зимнее обновление Windows 10 Fall Creators Update (Redstone 3) от 19 декабря 2017 года.
+С обновлением Windows 10 Fall Creators Update (версия 1709) должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78091D78EE07E914A9529E73FB36B0C15BE4CCB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968394   (156096) от 23.12.2015
+
+VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Согдиана - Эпидемия
+002. Ольга Орлова - Птица
+003. Артем Пивоваров - Хвилини
+004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDD39C1953C1EB8DFFF8FC56265F8791A93449A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600702   (156097) от 28.12.2022
 
 Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Groove Metal, Rapcore>
@@ -6,7 +186,7 @@ Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156097.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156097.jpg" />
 </div>
 
 
@@ -33,7 +213,7 @@ Benny Carter - Further Definitions (1961, 1966) 2005, Impulse! [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156098.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156098.jpg" />
 </div>
 
 
@@ -60,7 +240,7 @@ magnet:?xt=urn:btih:99A1DCC369E2E9C6D6DB1677E10BD09D94D72945
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156099.jpg" />
 </div>
 
 
@@ -84,7 +264,7 @@ magnet:?xt=urn:btih:E4AA20145453EA2E1F6BE43500E561758040BAFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156100.jpg" />
 </div>
 
 
@@ -108,7 +288,7 @@ magnet:?xt=urn:btih:E4AA20145453EA2E1F6BE43500E561758040BAFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156101.jpg" />
 </div>
 
 
@@ -132,7 +312,7 @@ magnet:?xt=urn:btih:0EC6BE1A3C9BE81E97FBB17DA6017CE45013338A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156103.jpg" />
 </div>
 
 
@@ -158,7 +338,7 @@ Hoax - Conscience (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Thrash, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156104.jpg" />
 </div>
 
 
@@ -183,7 +363,7 @@ Sila Slona - 3 Albums (2017-2022) [MP3|320 Kbps] <Contemporary Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156105.jpg" />
 </div>
 
 
@@ -210,7 +390,7 @@ magnet:?xt=urn:btih:0ABE56F3745145A165C446CCAFAD6AB85163C394
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156106.jpg" />
 </div>
 
 
@@ -234,7 +414,7 @@ VA - Fabulous Lounge (The Most Wanted Lounge Grooves), Vol. 1 (2021) [AAC|~329 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156107.jpg" />
 </div>
 
 
@@ -261,7 +441,7 @@ magnet:?xt=urn:btih:EAE14E418A1A40BA1F9B05ABCB6EC8654F032DB9
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156108.jpg" />
 </div>
 
 
@@ -285,7 +465,7 @@ magnet:?xt=urn:btih:3A96DF74112E28D8A42A34BD8D02CC5B0FC390F3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156109.jpg" />
 </div>
 
 
@@ -310,7 +490,7 @@ magnet:?xt=urn:btih:5C4D21D3A346AC163347216588FAD5A3504AF000
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156110.jpg" />
 </div>
 
 
@@ -334,7 +514,7 @@ magnet:?xt=urn:btih:1AB8D38C5645AD4A3DDF680A093572EBBDB20394
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156111.jpg" />
 </div>
 
 
@@ -358,7 +538,7 @@ Spleen - Ocaso (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156113.jpg" />
 </div>
 
 
@@ -385,7 +565,7 @@ Act-3D Lumion Pro 8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156114.jpg" />
 </div>
 
 
@@ -409,7 +589,7 @@ Oneyed Jack - Prepare To Reactivate Sampler (2001) Single [FLAC|Lossless|tracks 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156115.jpg" />
 </div>
 
 
@@ -436,7 +616,7 @@ magnet:?xt=urn:btih:45FB72BB30B1BAF6FE378AB2AD6BB1084ACFDA93
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156116.jpg" />
 </div>
 
 
@@ -460,7 +640,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11629 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156117.jpg" />
 </div>
 
 
@@ -471,183 +651,6 @@ ON1 Photo RAW включает в себя ключевые обновления
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CF0CC80CABB2BDF0DAC00B6DC46A544B4F09EEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968422   (156119) от 23.12.2015
-
-Тони Крэбб | БезУмно занят. Как выбраться из водоворота бесконечных дел (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156119.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современной культуре возник стереотип о том, что занятость – синоним успешности. Мы хвастаемся своей многозадачностью, не понимая при этом, что занятость – это не здоровое состояние, а проблема. Мы обманываем сами себя, делая кучу дел одновременно и лишь создаем видимость занятости, не оставляя времени на важное. Автор книги разоблачает миф о том, что загруженность (   Читать дальше...   )Жанр: Достижение успеха в жизниФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1C08D4F712997F49DA38036F82F0DE759240D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527473   (156120) от 13.11.2023
-
-Куив Макдоннелл | Сборник произведений [6 книг] (2021-2024) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куив Макдоннелл (родился: 1975 г.) — ирландский писатель, профессиональный стендап-комик, автор и телесценарист.
-Дебютный роман Макдоннелла "Человек с одним из многих лиц" (A Man With One of Those Faces), открывший  Дублинскую трилогию в 2016г., надолго попал в чарты бестселлеров с обеих сторон Атлантического океана.
-К настоящему времени в рамках "Трилогии" (   Читать дальше...   )Жанр: Детектив, Триллер, Юмористическая фантастика, ФэнтезиИздательство: Манн, Иванов и ФерберФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6893574FD8497AB8ADD078D51A2D0000C62B775D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346609   (156121) от 20.12.2019
-
-Adobe Acrobat Pro DC 2019.021.20061 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C50957680534F71945B684D7633C9498CB4C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433651   (156122) от 21.12.2020
-
-Кен Окона-Менса | Взламывая анатомию (2020) [PDF, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше тело – удивительная и сложная машина, все части которой работают слаженно, взаимодействуют с окружающей средой и даже учатся у нее.
-Эта книга подробно рассказывает об устройстве и работе тела, помогая понять, как развивались наши знания о нем. Она дает представление обо всех системах организма, объясняет медицинскую терминологию и отвечает на важнейшие вопросы. (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеПеревод: О.Д. СайфудиноваФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413F0B12FC1CE9CE241ED782BF159A0DCAF5321C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518349   (156124) от 19.12.2021
-
-VA - Best Of Toolroom 2021 (2021) [AAC|~338 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC Lights, Leo Stannard - Cold Light (Extended Mix) (5:23)
-02. Mark Knight, Beverley Knight, London Community Gospel Choir - Everything's Gonna Be Alright (Extended Mix) (6:10)
-03. Martin Ikin, Chenai - You (Extended Mix) (5:52)
-04. Leftwing : Kody - If You Wanna (Extended Mix) (5:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0043D5118B831BE791DF90D10B71EFB7DBE7A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588365   (156125) от 13.12.2012
-
-Кунг-фу Панда: Захватывающие легенды / Kung Fu Panda: Legends of Awesomeness (2011-2012) WEB-DLRip [1 сезон, 1-26 из 26 серий]  [720p]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о продолжении приключений Панды По, о том, как он тренируется, защищается, борется, учит и учится, говорит слишком много и выступает в роли нового героя Долины Мира. И теперь, живя вместе с Неистовой Пятеркой, По придется взять на себя много новых обязанностей, ведь он Воин Дракона.Жанр: Приключения, Комедия, ДетскийРежиссер: Джим ШуманнПеревод: ДублированныйПродолжительность: Каждая серия ~ 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DB7693D13C7B6A6ACD4667859D3F26E8C5BC4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600637   (156126) от 28.12.2022
-
-Tony Parenti's All Stars - Happy Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Good Old Summertime [7:23]
-02. Frankie And Johnny [4:09]
-03. Tony's Rag [3:12]
-04. Maple Leaf Rag [4:34](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB7AE215001796AF67F1B19B25573BC84DB38F6
 ```
 
 

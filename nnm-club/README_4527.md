@@ -1,3 +1,155 @@
+###  Публикация: 1520706   (140137) от 29.12.2021
+
+Брендон Сандерсон | «Архив Буресвета» Книга 1. Путь королей (2021) [MP3, Станислав Федорчук]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабная сага погружает читателя в удивительный мир, не уступающий мирам Р. Р. Толкиена, Р. Джордана и Р. Сальваторе. Уникальная флора и фауна, тщательно продуманное политическое устройство и богатая духовная культура – здесь нет ничего случайного.
+Рошар – мир во власти великих бурь, сметающих все живое на своем пути. Но есть и то, что страшнее любой великой бури, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 43:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B00F86C2F4BBCCD3A9ED92ABEEF511BF4A03B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088342   (140138) от 30.12.2016
+
+Мельница - Химера (2016) [FLAC|lossless|image + .cue] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бес джиги (04:13)
+02. Голубая трава (04:14)
+03. Изольда (03:14)
+04. Чёрный дрозд  (feat Гребенщиков) (04:11)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9006E7046E4CDB139F4C4494A65D2DA0B2C2E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435572   (140139) от 29.12.2020
+
+Алексей Марков | Хулиномика 4.0: хулиганская экономика. Ещё толще. Ещё длиннее (2021) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный учебник для тех, кто не любит учиться по скучным талмудам!
+Экономика – это очень скучно. Куча непонятных заумных слов и формул? Кто вам такое сказал? Экономика это интересно и просто! Вы просто не знаете, с каким соусом ее нужно подавать, на какой стороне пережевывать и долго ли жевать. Самое полное издание.Жанр: Книги по экономике, Просто о бизнесеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A20DDF2C6AB7D87AE188900945740D69DA47A3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679174   (140140) от 24.11.2023
+
+Нора Робертс | Коллекционер (2023) [MP3, Валерия Савельева]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из окна небоскреба в Нью-Йорке выпадает известная супермодель, а в ее квартире находят труп богатого наследника Оливера Арчера. Все обставлено как самоубийство, однако Лайла, случайно увидевшая момент падения из своего окна, так не считает. В квартире был кто-то еще, и этот кто-то явно имеет отношение к яйцу Фаберже, которое брат Оливера, Эштон, нашел в своей банковской (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 19:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E161118F4945BE4ED1DF2418FF14ED7CDA3199E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349022   (140143) от 30.12.2019
+
+Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140143.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. There's No Place Like Home for the Holidays [4:40]
+02. Sleigh Ride [3:47]
+03. Christmas Lullaby [3:04](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10BFC406E2594000E92FE776374F76B9532A8BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945666   (140144) от 30.12.2015
+
+Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антимагической Академии [2015, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого «школьного боевого фэнтези» разворачивается в мире, где магия, в принципе, существует, но вот люди, обладающие соответствующими силами, практически вымерли. Собственно, развитие местной военной мысли шло по пути «Мечи – магия – огнестрельное оружие». Такеру Кусанаги учится в Антимагической Академии – специальном заведении, где тренируют Инквизиторов, (   Читать дальше...   )Жанр: боевик, фэнтези, школаРежиссер: Кавамура ТомоюкиПеревод: nnm-club^animeЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4B4DE172D6D370F974DFF70F927B01AA10DB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086967   (140146) от 30.12.2016
 
 OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
@@ -6,7 +158,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140146.jpg" />
 </div>
 
 
@@ -30,7 +182,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.0 Build 6767 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140147.jpg" />
 </div>
 
 
@@ -56,7 +208,7 @@ magnet:?xt=urn:btih:38D7184F54937B6DE472AB3EDFBE11BB61AB4886
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140148.jpg" />
 </div>
 
 
@@ -80,7 +232,7 @@ magnet:?xt=urn:btih:8BFAABD3093F01A65A2C8C76836E4877AD183524
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140149.jpg" />
 </div>
 
 
@@ -106,7 +258,7 @@ magnet:?xt=urn:btih:CDD70CB20A60816B88AA99EE4F94790BFB5CD252
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140150.jpg" />
 </div>
 
 
@@ -130,7 +282,7 @@ magnet:?xt=urn:btih:BB144040FC550DCC98F31968A9DAE2D64FA40B3B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140151.jpg" />
 </div>
 
 
@@ -155,7 +307,7 @@ magnet:?xt=urn:btih:B39603E8125EC1C5ECB6C552B75CD7095C4E6A53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140153.jpg" />
 </div>
 
 
@@ -179,7 +331,7 @@ magnet:?xt=urn:btih:2602E6F457B2754AB1EB761F1F95286D135FAEBE
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140156.jpg" />
 </div>
 
 
@@ -206,7 +358,7 @@ magnet:?xt=urn:btih:DEFFDB444D9C88E24B7079D0F1FAE94F62A0DD83
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140157.jpg" />
 </div>
 
 
@@ -233,7 +385,7 @@ magnet:?xt=urn:btih:147F3B3B58CE768347AE36289F7DCD6B3C3CA596
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140158.jpg" />
 </div>
 
 
@@ -257,7 +409,7 @@ magnet:?xt=urn:btih:A90FBD68ED5BE68F6D31AE3063A95BC53DFE0E46
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140159.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140159.jpg" />
 </div>
 
 
@@ -281,7 +433,7 @@ magnet:?xt=urn:btih:85CD4A0578B17CC2600DE599116F3E738EE611B9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140161.jpg" />
 </div>
 
 
@@ -305,7 +457,7 @@ magnet:?xt=urn:btih:85B49CB3FDC563C6F825A5380A860A4899A79033
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140162.jpg" />
 </div>
 
 
@@ -329,7 +481,7 @@ Adobe SpeedGrade CC 2015 (v9.1.0) RUS/ENG Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140165.jpg" />
 </div>
 
 
@@ -353,7 +505,7 @@ Scorpions - Gentle Power (Best Of The Ballads) (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140166.jpg" />
 </div>
 
 
@@ -380,7 +532,7 @@ Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle | Сон в замке
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140167.jpg" />
 </div>
 
 
@@ -404,7 +556,7 @@ magnet:?xt=urn:btih:BB5E7465762418075FA7B65235281895231BD2BE
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140168.jpg" />
 </div>
 
 
@@ -428,7 +580,7 @@ magnet:?xt=urn:btih:40C76E06AF0A3509AEA353C3A7A6E9BD8053099C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140170.jpg" />
 </div>
 
 
@@ -452,7 +604,7 @@ magnet:?xt=urn:btih:54BC4A0EBBDC55D2AF502EB17C0EA97D94FAC1C3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140171.jpg" />
 </div>
 
 
@@ -476,7 +628,7 @@ magnet:?xt=urn:btih:9A564B50F424F3FC1F27737E0874C88E81763B02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140172.jpg" />
 </div>
 
 
@@ -487,152 +639,6 @@ magnet:?xt=urn:btih:9A564B50F424F3FC1F27737E0874C88E81763B02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3FC175643FB6BB32E538F8E38162AD3E60D2337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088413   (140173) от 30.12.2016
-
-Валерий Шамбаров | Солдаты шутят. Энциклопедия армейского юмора (2017) [PDF]
-
->>Художественная литература
->>Сатира, Юмор
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые веселые и жизнерадостные люди на свете – это не юмористы, не студенты, не одесситы. Это русские военные.
-Они шутят всегда и везде, в любой ситуации, даже когда совсем худо, и остается только позубоскалить над своим положением.
-Известный писатель Валерий Шамбаров, долгое время прослуживший в армии и до сих пор сотрудничающий с военными структурами, представляет (   Читать дальше...   )Жанр: Юмор, АнекдотыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3226579C1208F122B081C2415C764639D6D72D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970184   (140177) от 30.12.2015
-
-Волна / Bolgen (2015) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сигнал тревоги разносится над спящим городом. То, чего так боялись сейсмологи, сбылось — сильнейший тектонический сдвиг вызывает обрушение горного массива. Теперь гигантское смертоносное цунами движется прямо на людей. Опытный геолог Кристиан Айкорд оказывается в эпицентре самого страшного кошмара своей жизни.Производство: НорвегияЖанр: Боевик, триллер, драмаРежиссер: Роар УтхаугАктеры: Томас Бо Ларсен, Кристоффер Йонер, Эни Даль Торп, Фридтьов Сохейм, Йонас Хофф Офтебро, Ладо Хаджик, Артур Бернинг, Эдит Хогенруд-Сэнд, Элли Харбоа, Метта Агнета ХорнПеревод: Дублированный (iTunes)Субтитры: Английские, норвежские, датские, шведскиеПродолжительность: 01:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC89F61BA1D784060C948C60017191E21D23E922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520694   (140178) от 29.12.2021
-
-Шаблоны - NNM-Club - Шаблон календаря на 2022 от Warrior 123 - 1520694 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон созданный нашим одноклубником Warrior 123Формат: PSDРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08A16228EEB8D4FFABA0C71C6F45987E434A262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272740   (140179) от 29.12.2018
-
-Проекты - VideoHive - Christmas and New Year Greeting Cards - 22749899 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте с этим шаблонам свою красивую Новогоднюю или Рождественскую открытку, для поздравления родных и близких.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD60989A19F5C9DFF45AA7AEE9CD996DAC270C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088280   (140180) от 30.12.2016
-
-Шпионы по соседству / Keeping Up with the Joneses (2016) WEB-DLRip [H.264][MP4|1024x428]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супружеская пара из пригорода оказывается втянутой в международный шпионский заговор, когда обнаруживает, что их, казалось бы, идеальные новые соседи являются правительственными агентами.Производство: США / Fox 2000 Pictures, Parkes+MacDonald Image NationЖанр: Боевик, КомедияРежиссер: Грег МоттолаАктеры: Зак Галифианакис, Айла Фишер, Джон Хэмм, Галь Гадот, Пэттон Освальт, Минг Жао, Мэтт Уолш, Мэрибет Монро, Майкл Лью, Кевин ДаннПеревод: Дублированный - (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C28B3196E64E5B85D314C7E86614152F6615963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195856   (140181) от 30.12.2017
-
-Anvir Task Manager 9.1.7 Final RePack (& Portable) by KpoJIuK  [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140181.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E058FE74CE43E8A3CBD8AD7E7F0BE21E86F7AF22
 ```
 
 

@@ -6,7 +6,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sante DICOM Viewer Pro 14.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117244.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Microsoft .NET 7.0.16 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117248.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Topaz Video AI 4.1.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117253.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Wireshark 4.2.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117259.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117263.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tablacus Explorer 24.2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117266.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.5 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117267.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ SplitCam 10.7.32 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117271.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CrystalDiskInfo 9.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117272.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ AllDup 4.5.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117277.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ HandBrake 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117278.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Photo AI 2.3.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117279.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Topaz Gigapixel AI 7.0.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117281.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Topaz Photo AI 2.3.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117285.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WonderFox HD Video Converter Factory Pro 26.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117289.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Windows Firewall Control 6.9.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117290.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ MSI Kombustor 4.1.28.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117291.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Microsoft .Net Packages AIO 13.02.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117302.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ CrystalDiskInfo 9.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117304.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FurMark 1.38.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117305.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Scene Rune [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117313.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ StartAllBack 3.7.3 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117319.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117319.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Folder-Factory 7.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117356.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117357.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ EazyDraw 11.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117359.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30019.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EA84055B517BECEE9A1C87DF6023ECB4FE46A4D4
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30020.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30020.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:577F3D838E655DB808655D1F8A26E6D7559EF3BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30021.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30021.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EF9A375BE98E4D0D4842C9DE54F741DEB5D1472F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30022.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30022.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:04602AA5E39151AC7C11AAAF7AB170206D61FF93
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30023.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30023.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:73445DE515A3A6FE4561962729DA47E32737CE98
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30024.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30024.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B8AC764A051054A66BFB6D361090FA034117CDC4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30025.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30025.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:30E319211C5B91FA254966DCC36344B963B3A7A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30026.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30026.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Bonfire - Higher Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30027.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30027.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ W.A.S.P. - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30028.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30028.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30029.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30029.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:23D847AAECE35F19B80B13DC36EE81C24CAFDD39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30030.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30030.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:23D847AAECE35F19B80B13DC36EE81C24CAFDD39
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30031.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30031.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Vivaldi 7.1.3570.39 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30032.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30032.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:504191A33F7683AC1395891FF88574D102DBE202
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30033.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30033.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:873BE91959219D0DDCBB74FC0A53FD871369B973
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30034.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30034.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:AE9D37652A8EB8E4716A26EFFDA8FA337A7511FB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30035.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30035.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Rebelway, Sina Mehralinia | Advanced Shading in Redshift (2024) WEBRip [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30036.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30036.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Musify Music Downloader 3.9.2 RePack (& Portable) by elchupacabra [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30037.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30037.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:2284F4583F3DC90DB5F6C6CF7BEED56EEA514E90
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30038.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30038.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.1.54744 Extra Mod by Balatan [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30039.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30039.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:4F729C28D11D95DA256FB8797529E69A3C6D8720
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30040.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30040.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ OCCT 13.1.13 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30041.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30041.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:5BD7E43FC712F766AB4FA2F5817E9DC934783B2B
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30042.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30042.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Karing 1.0.39.527 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30043.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30043.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30044.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30044.jpg" />
 </div>
 
 

@@ -1,3 +1,79 @@
+###  Публикация: 1727266   (108498) от 02.06.2024
+
+Своя игра (01.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108498.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
+
+Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A292B4B60832E9D836FE0392136D6741DC4AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727448   (108499) от 02.06.2024
+
+Судьба человека с Борисом Корчевниковым. Судьба Михаила Любимова (31.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108499.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
+
+В программе (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: Михаил ЛюбимовЯзык озвучки: РусскийПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EF72BC4F3AE4D466D1D71EC9486E0CD8D6CAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727482   (108500) от 02.06.2024
+
+НашПотребНадзор (02.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая доступная всем россиянам рыба, которой многие пренебрегают, — деликатес, любимый гурманами и шеф-поварами разных стран? Как ее вкусно и быстро готовить? И какой рыбой подменяют культовую корюшку? Маринованный шашлык: в мясе от каких брендов кишат бактерии, а в каких ведерках — просроченный опасный полуфабрикат? Как выбрать керамическую плитку, чтобы она не (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBF650E6FA198444B9A59BBBE9C04A861AA6BBAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727282   (108501) от 02.06.2024
 
 Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
@@ -6,7 +82,7 @@ Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108501.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108501.jpg" />
 </div>
 
 
@@ -33,7 +109,7 @@ magnet:?xt=urn:btih:9DF67B864CA7369C71C1124E46ABF77C9960C95C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108502.jpg" />
 </div>
 
 
@@ -57,7 +133,7 @@ Chromium 125.0.6422.142 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108503.jpg" />
 </div>
 
 
@@ -81,7 +157,7 @@ magnet:?xt=urn:btih:6F19A3157163C9DABD96399CEDBC7977231256F2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108504.jpg" />
 </div>
 
 
@@ -108,7 +184,7 @@ magnet:?xt=urn:btih:915FD3E0452CA2E5278E6B1C74E769FE0906B065
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108505.jpg" />
 </div>
 
 
@@ -132,7 +208,7 @@ Omamori Himari | Защитница Химари [2010, TV, 12 эп.] BDRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108506.jpg" />
 </div>
 
 
@@ -156,7 +232,7 @@ TapScanner v3.0.24 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108507.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108507.jpg" />
 </div>
 
 
@@ -183,7 +259,7 @@ magnet:?xt=urn:btih:2918470FFF5E48C9487F03C6C84E87A242338B2A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108508.jpg" />
 </div>
 
 
@@ -208,7 +284,7 @@ magnet:?xt=urn:btih:648A86D8D1451D18860598FB7D68B40F6C4A6C24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108509.jpg" />
 </div>
 
 
@@ -232,7 +308,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC|Lossless|tracks + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108510.jpg" />
 </div>
 
 
@@ -259,7 +335,7 @@ Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108511.jpg" />
 </div>
 
 
@@ -283,7 +359,7 @@ magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108512.jpg" />
 </div>
 
 
@@ -309,7 +385,7 @@ magnet:?xt=urn:btih:F5EDB81E0731E4E7A337E0EB37951CEAFEEC76E1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108513.jpg" />
 </div>
 
 
@@ -335,7 +411,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG [MP3|320 Kbps] <Synthpop, Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108514.jpg" />
 </div>
 
 
@@ -362,7 +438,7 @@ magnet:?xt=urn:btih:12F13AD30916FB6C4F1937DAA9B94578B059F755
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108515.jpg" />
 </div>
 
 
@@ -386,7 +462,7 @@ VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108516.jpg" />
 </div>
 
 
@@ -413,7 +489,7 @@ Voskod - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108517.jpg" />
 </div>
 
 
@@ -440,7 +516,7 @@ Sexy Lovers Music Collection, Sexual Music Collection - Steamy Foreplay Exciteme
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108518.jpg" />
 </div>
 
 
@@ -467,7 +543,7 @@ Týr - Best Of - The Napalm Years (2024) Remaster [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108519.jpg" />
 </div>
 
 
@@ -494,7 +570,7 @@ magnet:?xt=urn:btih:0E512FAD6CF0DBAB9EE2A86120761E5A1A6F8A0A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108520.jpg" />
 </div>
 
 
@@ -518,7 +594,7 @@ VA - Erotic Chillout & Lounge Perfect Playlist (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108521.jpg" />
 </div>
 
 
@@ -545,7 +621,7 @@ LibreWolf 126.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108522.jpg" />
 </div>
 
 
@@ -571,7 +647,7 @@ VA - Electronic compilation part 83 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108523.jpg" />
 </div>
 
 
@@ -585,81 +661,6 @@ VA - Electronic compilation part 83 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9770BA7C2F23C065ACBDE25B76A85901C7F2C00F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727500   (108524) от 02.06.2024
-
-Уильям Вудворд | Хлеба и зрелищ (2024) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108524.jpg" />
-</div>
-
-
-###  Подробнее
-
-После издания монументального трактата, озаглавленного «Как важно быть второсортным» и открытия бюро «По поставке мыслей на каждый день» дела Майкла Уэбба пошли в гору. Контора была битком набита хорошо одетыми клиентами; секретари назначали дни консультаций; случалось, что советы давались заочно. Предприятие так разрослось, что одному человеку не под силу было им (   Читать дальше...   )Жанр: зарубежная классикаИздательство: СоюзПродолжительность: 08:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02831D16D44FCF0469CA7C3F3A4AEA88BF4B7872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727548   (108525) от 02.06.2024
-
-Subtitle Edit 4.0.6 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subtitle Edit - редактор субтитров. При помощи этой программы вы сможете синхронизировать субтитры с видео, а также создавать новые субтитры. Subtitle Edit позволяет импортировать субтитры (в т.ч. - OCR), объединять и разбивать их на несколько фрагментов, настраивать их кодировку и частоту кадров, переводить их с одного языка на другой и многое другое. Пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B3412D2C04450F91D51BDDF21C5C56BE6B6F73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557168   (108526) от 02.06.2024
-
-Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust Punk, Doom, Sludge, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Doomsday Dementia - 2016 - Doomsday Dementia (24bit-44.1kHz)
-Doomsday Dementia - 2021 - the 3 blind mice demo (ep) (24bit-44.1kHz)
-Doomsday Dementia - 2022 - 3 songs from nov.2021 session outtakes, covid 19 jamroom demos (24bit-44.1kHz)(   Читать дальше...   )Жанр: Crust Punk, Doom, Sludge, Stoner MetalПродолжительность: 5 CD, 03:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7178F17605D3FF945702D54483A6179949B2D04
 ```
 
 

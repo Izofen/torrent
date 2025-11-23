@@ -6,7 +6,7 @@ Without Me - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115669.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Public Image Limited - End Of World (2023) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115682.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Without Me - Revelations (2022) Deluxe Edition, 2024, Without Me [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115686.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Beau Geste - Another Night in the City (1986) Reissue, Magada Heritage, 1993 [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115692.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Timson - Forever's Not Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115693.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Beau Geste - Another Night in the City (1986) Remaster, Unidisc, 1998 [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115694.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Job for a Cowboy - Moon Healer (2024) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115695.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Distant - Heritage (2023) 3CD Absolute Deluxe Edition, 2024, Century Media [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115696.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115701.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bon Jovi - Superrock Japan 1984 (Live) (2024) [MP3|320 Kbps] <Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115705.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dissolving of Prodigy - Lamentations of Innocents (1995) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115797.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Traveler - Prequel To Madness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115803.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Whiteabbey - Words That Form The Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115807.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Toxikull - Under The Southern Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115809.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115811.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115831.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115831.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115835.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115836.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115839.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Takida - The Agony Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115842.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mick Mars - The Other Side Of Mars (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115849.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:C7525976EAD231AFFAA48E6559F707F1ABDC37B9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115892.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:9B2029CC71E66C774B945CA35F117554A8012C37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115893.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115961.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115962.jpg" />
 </div>
 
 

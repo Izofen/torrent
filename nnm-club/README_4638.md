@@ -1,3 +1,153 @@
+###  Публикация: 1348656   (143754) от 28.12.2019
+
+Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoner
+02. Harmless Hero
+03. Everyone Of Us
+04. Hazardous(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2FC8BFE259BB6CA246864E02819CD0524BB810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087612   (143755) от 28.12.2016
+
+Расплата / The Accountant (2016) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США / Warner Bros. Pictures, RatPac-Dune Entertainment, Zero Gravity ManagementЖанр: боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Язык субтитров: Русский (форсированные)Продолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DB3A50F50375D3E86C131B4B88B0AC3B7AEAB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195234   (143756) от 28.12.2017
+
+Андрей Шляхов | Криминальные будни психиатра (2017) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитому врачу-психиатру придется снова разнообразить свои будни. В Москве происходит ряд жестоких и таинственных убийств. Возле каждого трупа находят страницу, вырванную из кулинарной книги. Убийца, получивший кличку Кулинар, неуловим и не оставляет следов. Жертвы никак не связаны между собой, полиция оказывается бессильна. Чтобы поймать – надо понять, но, кажется, (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишьПродолжительность: 07:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF54718C7B59889F66CFAF2739CDD19767E3C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678646   (143757) от 22.11.2023
+
+Wise Disk Cleaner 11.0.6.820 RePack (& portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDE4C1F45342A367B42FEDAE41CCEF0A82BA678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435262   (143759) от 28.12.2020
+
+Новогодний «Голубой огонёк» (1987) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск телевизионной передачи «Голубой огонёк», посвященный встрече Нового 1987 годаПроизводство: СССР / Центральное телевидениеЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FE4BD51BEF1BA53997F648DCA1F81BC386CA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970230   (143760) от 29.12.2015
+
+Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Lonesome Prince
+2. Arctic Scream
+3. Back To The Light
+4. The Glades And The Cradle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEF940C4451477809F8E203B47A998C486E6B00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435445   (143763) от 28.12.2020
 
 Оверлеи - Etsy - Christmas Trees 2 - 894080024 [JPG]
@@ -6,7 +156,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143763.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143765.jpg" />
 </div>
 
 
@@ -57,7 +207,7 @@ Firefox Browser 120.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143767.jpg" />
 </div>
 
 
@@ -81,7 +231,7 @@ Allavsoft Video Downloader Converter 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143768.jpg" />
 </div>
 
 
@@ -105,7 +255,7 @@ Shantae: Half-Genie Hero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143769.jpg" />
 </div>
 
 
@@ -129,7 +279,7 @@ Recovery Partition for Acer Aspire E1-531G / Windows 8 (х64)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143770.jpg" />
 </div>
 
 
@@ -155,7 +305,7 @@ Recovery Partition for Acer Aspire E1-531G / Windows 8 (х64)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143771.jpg" />
 </div>
 
 
@@ -182,7 +332,7 @@ magnet:?xt=urn:btih:6F48678BE1DB61822FC418A8CA4877AA2936DDA0
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143774.jpg" />
 </div>
 
 
@@ -207,7 +357,7 @@ VA - Deejay Dance Compilation Mixed By DJ Neil (2004) [FLAC|Lossless|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143775.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143775.jpg" />
 </div>
 
 
@@ -234,7 +384,7 @@ magnet:?xt=urn:btih:6B752D618E4374E55C3AAA5EB18AA8CB82ED2EEB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143776.jpg" />
 </div>
 
 
@@ -259,7 +409,7 @@ magnet:?xt=urn:btih:AB3BA72BE4F62EA3ABF0E553FFDB75DDEC280220
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143777.jpg" />
 </div>
 
 
@@ -283,7 +433,7 @@ The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143778.jpg" />
 </div>
 
 
@@ -308,7 +458,7 @@ Drifters | Скитальцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143779.jpg" />
 </div>
 
 
@@ -332,7 +482,7 @@ magnet:?xt=urn:btih:14BC70421F95E5941CBD1ED037257D615EA96C2E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143780.jpg" />
 </div>
 
 
@@ -365,7 +515,7 @@ magnet:?xt=urn:btih:5448FCB78C792EC6DCFF93B3BE32EC55DD6B57EF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143782.jpg" />
 </div>
 
 
@@ -392,7 +542,7 @@ Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143784.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143784.jpg" />
 </div>
 
 
@@ -419,7 +569,7 @@ Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143787.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143787.jpg" />
 </div>
 
 
@@ -446,7 +596,7 @@ Default Folder X 6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143788.jpg" />
 </div>
 
 
@@ -470,7 +620,7 @@ Red Johnson's Chronicles - One Against All [En] (L/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143789.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143789.jpg" />
 </div>
 
 
@@ -495,7 +645,7 @@ magnet:?xt=urn:btih:3423385E4CDF17441E1FFA8C0AEA7D804ADB6BF3
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143790.jpg" />
 </div>
 
 
@@ -506,160 +656,6 @@ magnet:?xt=urn:btih:3423385E4CDF17441E1FFA8C0AEA7D804ADB6BF3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625E87EDE03E161853E3E5331AF5297F42832D2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348585   (143791) от 28.12.2019
-
-MovieSherlock 6.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143791.jpg" />
-</div>
-
-
-###  Подробнее
-
-MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
-MovieSherlock - это лучший способ получить видео на ваш Mac.
-
-MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Capibara Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530B095DD703B18AC9FB4206B8D046557A1327D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970005   (143793) от 29.12.2015
-
-VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Uma Alegria Contagiante
-02. Cane Garden Quartet - Flying With No Wings
-03. Enrico Donner - Lasting Memories
-04. Solanos - Incrivel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA971F40704D92199CFFBA064DF50FDF2A2E426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970268   (143794) от 29.12.2015
-
-VA - Lange Recordings Best Of 2015 (Mixed by Tempo Giusto) (2015) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange Ft Tom Tyler - On Your Side (Radio Mix) (04:40)
-02. Alex O'rion - Goddess (Radio Mix) (03:29)
-03. Stephen Kirkwood - Puma (Radio Mix) (04:01)
-04. Stephen Kirkwood - Jackhammer (Radio Mix) (04:33)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3453523CCE054D2ECF213E5785D4309438246AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678747   (143795) от 22.11.2023
-
-FonesGo iPhone Unlocker for Mac 5.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый надежный инструмент для снятия блокировки активации iCloud. Вы приобрели подержанный iPhone/iPad/iPod Touch, и после сброса настроек устройство заблокировано в iCloud? FonesGo iPhone Unlocker — лучший инструмент для обхода блокировки активации iCloud / iPhone, заблокированного для владельца без пароля или предыдущего владельца.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2023 FonesGoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE2ABF2D3C1149E1D8F1F55D21CD5AB91D77AAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272193   (143796) от 27.12.2018
-
-В России подешевел мобильный интернет, но это ненадолго
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мобильный интернет подорожает на 15 процентов в 2019 году
-По данным исследования Content Review, средняя цена 1 Гб мобильного интернета в России составила 55,5 рублей, снизившись на 15 процентов с мая 2018 года. "При снижении стоимости на 1 Гб потребление услуги значительно увеличивается и, как следствие, доход операторов от нее растет и расходы абонентов, соответственно, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425369   (143797) от 28.12.2020
-
-Музей / Museo (2018) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два студента решают проникнуть в Национальный музей антропологии Мехико и украсть национальные сокровища. В то время как их семьи празднуют Рождество, они приступают к ограблению.Производство: Мексика / Detalle Films, Distant Horizon, Panorama GlobalЖанр: Драма, криминалРежиссер: Алонсо Руис ПалашиосАктеры: Гаэль Гарсиа Берналь, Саймон Расселл Бил, Линн Гилмартин, Лиза Оуэн, Себастьен Гонзалез, Ильса Салас, Альфредо Кастро, Летисия Бредисе, Леонардо Ортисгрис, Пабло ЧеморПеревод: Двухголосый любительский (LakeFilms)Субтитры: Русские, английские, французские, немецкиеПродолжительность: 02:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AE76E357628F6639CF78704C2BEB350E5ABC95
 ```
 
 

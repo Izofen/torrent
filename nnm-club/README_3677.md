@@ -1,3 +1,75 @@
+###  Публикация: 1703181   (115284) от 28.02.2024
+
+Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача Myth of Empires состоит в том, чтобы научить пользователя сражаться за собственное место в огромном мире. Игра позиционируется как многопользовательская песочница, в которой юзер создает Империю, формируя войска, что участвуют в массовых боях и осадах городов, также строит свои крепости для обороны. Действия переносятся на Восток в период эпохи древности, (   Читать дальше...   )Тип издания: RepackРазработчик: Angela GameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361221   (115285) от 28.02.2024
+
+Книжная серия | Классика Computer Science [44 книги+4CD] (2002-2023) [PDF, DJVU][Обновляемая]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг«Классика computer science», предназначенных для базовой подготовки специалистов в области компьютерных наук. Появление серии определилось необходимостью подготовки специалистов в области компьютерных технологий на уровне международных стандартов. Это книги по основным принципам построения и функционирования компьютерных сетей, по архитектуре операционных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF71D3AC1991D8A683D87E926E1F50AC41151CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703283   (115286) от 28.02.2024
+
+Бедные-несчастные / Poor Things (2023) WEB-DLRip [H.265] MVO
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викторианский Лондон. Сумасшедший хирург Годвин вылавливает из Темзы тело молодой беременной женщины, прыгнувшей с моста, пересаживает ей мозг её собственного нерожденного младенца и реанимирует. Белла поначалу передвигается как сломанная кукла и имеет весьма ограниченный словарный запас, но быстро учится. Чтобы наблюдать за ней, Годвин призывает на помощь студента-медика (   Читать дальше...   )Производство: Ирландия, Великобритания, США, Венгрия / Element Pictures, Film4, Fruit TreeЖанр: драма, комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Уиллем Дефо, Марк Руффало, Рами Юссеф, Ханна Шигулла, Джеррод Кармайкл, Кэтрин Хантер, Сьюзи Бемба, Кристофер Эбботт, Вики ПеппердинПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE41618A818855C7EE990922D3468C32826A7515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702711   (115287) от 28.02.2024
 
 Руководство Disney винит в последних неудачах фанатов-сексистов
@@ -6,7 +78,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115287.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115288.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:B86020B1986B57F9E19483D4D32F11D90A8FAE1C
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115289.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ WinRAR 7.00 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115290.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:C9A3E5350FF8B25824551DEC77F5163A31B88E29
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115291.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115292.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115293.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:F45348A922D8D003DDC189A5B7120C50C020CAD6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115294.jpg" />
 </div>
 
 
@@ -205,7 +277,7 @@ magnet:?xt=urn:btih:243C8023A7D888B82F6D9F8FA4E88C7DD1507C88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115295.jpg" />
 </div>
 
 
@@ -229,7 +301,7 @@ VMware Workstation 17 Pro 17.5.1 Build 23298084 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115296.jpg" />
 </div>
 
 
@@ -253,7 +325,7 @@ magnet:?xt=urn:btih:5DF90F8363927365965A95B3E2FD083A667773E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115297.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115297.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115298.jpg" />
 </div>
 
 
@@ -304,7 +376,7 @@ magnet:?xt=urn:btih:839326F8DE59AC8B5C336CAD07C987436520D918
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115299.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115299.jpg" />
 </div>
 
 
@@ -331,7 +403,7 @@ Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115300.jpg" />
 </div>
 
 
@@ -358,7 +430,7 @@ Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115301.jpg" />
 </div>
 
 
@@ -385,7 +457,7 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115302.jpg" />
 </div>
 
 
@@ -412,7 +484,7 @@ Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115303.jpg" />
 </div>
 
 
@@ -439,7 +511,7 @@ Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115304.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115305.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115305.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ magnet:?xt=urn:btih:A8DA3C34B12D7D3667A9D9DB66BA0CC87580311E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115306.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115307.jpg" />
 </div>
 
 
@@ -541,7 +613,7 @@ magnet:?xt=urn:btih:E44CB6487700C4D02131DD1EB13B9CD584726961
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115308.jpg" />
 </div>
 
 
@@ -565,7 +637,7 @@ Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115309.jpg" />
 </div>
 
 
@@ -579,84 +651,6 @@ Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3208D82CC320051C9F3AE24E0DA3174F0D9AF60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702949   (115310) от 27.02.2024
-
-Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Clipper Ships (0:58)
-02. Wolverine Train (3:34)
-03. Thy Fearful Symmetry (3:08)
-04. Koi Fish Shangri-La (3:39)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703033   (115311) от 27.02.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Женщина-ловушка (2024) [MP3, Ирина Азимова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Татьяна Иванова расследует убийство Алика Прокопьева. Молодой человек после смерти брата возглавил рекламную фирму. Дела в «Зебре» шли неважно, и Алику пришлось взять кредит в банке. Но деньги вскоре исчезли, а самого Прокопьева убили прямо в рабочем кабинете… Подозреваемых несколько. Однако Татьяна чувствует, что истинный злоумышленник слишком умен (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BCF59C048697487A54F6693E9C7EB7B14F21B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702991   (115312) от 27.02.2024
-
-Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cobra [3:37]
-02. Sentimental Journey [4:19]
-03. How Insensitive [3:53]
-04. Don't Explain [6:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1E39F5D1047ECC961EBBF26A109958E616464E
 ```
 
 

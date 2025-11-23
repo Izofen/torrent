@@ -1,3 +1,83 @@
+###  Публикация: 1726760   (108654) от 30.05.2024
+
+Suffersystem - Disintegration Of The Individual (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feast of Souls 04:17
+02. Disintegration of the Individual 04:19
+03. Obliteration Predicted 04:40
+04. Mangled Corpse 04:31(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E2BBCDB87981A1DF3A2720F0893051FE9174BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726811   (108655) от 30.05.2024
+
+Феликс Зальтен | Бемби (Инсценировка) (2008) [MP3, Александр Вилькин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, Сказка за сказкой.
+В сказке известного австрийского писателя Феликса Зальтена вы встретитесь с интересными героями: Бемби и его подругой Фалиной, жестоким властелином леса, девочкой Анютой и ее друзьями, живущими в мире добра и гармонии с природой.
+Перевод Юрия Нагибина. Инсценировка Александра Вилькина.
+Запись 1980 года.(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0091B9892A00F6FE8A25669ED19090A22383DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726797   (108656) от 30.05.2024
+
+Теодор Драйзер | Гений (Книги 1-3) (2011) [MP3, Станислав Иванов, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
+Герой романа «Гений», талантливый художник Юджин (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 10:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB97D76488085A0C7E89FBAD3F655ACE82558D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726840   (108657) от 30.05.2024
 
 Черная кожа / Конвейер (1930) WEBRip [H.264/720p]
@@ -6,7 +86,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108657.jpg" />
 </div>
 
 
@@ -30,7 +110,7 @@ Telegram Desktop 5.0.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108658.jpg" />
 </div>
 
 
@@ -56,7 +136,7 @@ Rhapsody of Fire - Challenge the Wind (2024) [MP3|320 Kbps] <Symphonic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108659.jpg" />
 </div>
 
 
@@ -83,7 +163,7 @@ Opera GX 109.0.5097.108 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108660.jpg" />
 </div>
 
 
@@ -109,7 +189,7 @@ magnet:?xt=urn:btih:E8A2FC51BD0CFB8F05844E27EB29BF2E4A5B7310
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108661.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ Night Pleasure Hotel - Portraits (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108662.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Allan Barron - Money To Burn (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108663.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108664.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ Anthony Phillips - Private Parts & Pieces XII: The Golden Hour (2024) ex-Genesis
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108665.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ magnet:?xt=urn:btih:26B3C969E15A49BB900F882096B12474542D683A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108666.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ VA - Lounge Heaven, Vol 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108667.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ magnet:?xt=urn:btih:DF52E025704D33FB0D5C19F1DE35CADEFD87573E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108668.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ magnet:?xt=urn:btih:6483169509BB92EAEB6EF762E582BC95C5C884A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108669.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ VA - Uplifting Only Top 15: June 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108670.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ Decortication - Necrolatry: A Morbid Worship (2023) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108671.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108672.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108672.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108673.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108673.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108674.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ magnet:?xt=urn:btih:990EA97BDCA6B1128F5CD2C37356032BD68D801E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108675.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108676.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108677.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108678.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_108679.jpg" />
 </div>
 
 
@@ -595,87 +675,6 @@ Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7448B96FD4CABAECB2956BBD224C8FBC78EC6CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726705   (108680) от 29.05.2024
-
-7he Myriads - Planetarium (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Indie, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altair [00:06:10]
-02. Omicron Persei [00:05:57]
-03. Sirius [00:06:13]
-04. Betelgeuse [00:07:28](   Читать дальше...   )Жанр: Progressive Rock, Indie, Space RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399876DEAC950555A6327DCA8A92E52E591518DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726349   (108681) от 29.05.2024
-
-After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forevermore [00:03:30]
-02. The Darkness Inside [00:04:34]
-03. Release My Mind [00:04:14]
-04. Illusive Sky [00:04:59](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95400738FC8E6AD1CFEF71086AB1AAD6E635CA8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726412   (108682) от 29.05.2024
-
-VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stato Brado - Black Hole (4:54)
-02. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
-03. Blade & Masquenada Family - Sex Cat (4:56)
-04. Lainz - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07466E4139D17EFA613BEE50D607FE1C1D9C5A8
 ```
 
 

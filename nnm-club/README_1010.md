@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26608.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26608.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:04FF0B618BB47F2EF52BF17AD0B8F2AED13043E4
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26609.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26609.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:0319C74AFCEBB19BE8AA33A0E56115141D52D1D3
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26610.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26610.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A6CEF002D2AF46587D83544AA368E7E5FAA630C6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26611.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26611.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3C82F854F8E4495E7542312EA4F051BAB3B17822
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26612.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26612.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BB7B4024C4692BD6CA89D1F5D666B8C0D9C627B4
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26613.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:477DC7912CA065DEE4E37729916F6108C95CDCF2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26614.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:73466D941FC48565A04064BAD83B65FE8A662B82
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26615.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26615.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F500DAAD5DCF9E568FADB2C84C49CE7C4965A010
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26616.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26616.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E7137CA5732AC0BD11F9C9A52D370AC9A010BFB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26617.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:E26B4CB8CE1AA477643000ABBEC8408C24D3AFE3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26618.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26618.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D0CC103E105124187D4AFB48C84BD39E1BD58252
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26619.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26620.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:63C30A3E50325B493BE719FFEF8BA41FFC9E131B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26621.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Assassin's Creed: China | Assassin's Creed: Blade of Shao Jun | Кредо уб�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26622.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26622.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:EE090DC7F1A2E559F417FA06EF654513BA5476AB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26623.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26623.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:DC708E0B9CA20113324354C8156C6332E4CF1660
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26624.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26624.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7CD000D76C139BA46E6E36955A4E0977D3C348F0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26625.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26626.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26626.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Supernova Explosion (2025) [MP3|320 Kbps] <Dance, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26627.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26627.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DB273E4D312AD00210B9E7F219C38732784A38F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26628.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26628.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ CrystalDiskInfo 9.6.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26629.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:89C8EF405409A24B7D2766568BC378EFB8B147EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26630.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26630.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wondershare UniConverter 16.2.5.144 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26631.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26631.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_26632.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:AE5C88FF251CE2711798F646D1D0489E9FD5A23D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26633.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_26633.jpg" />
 </div>
 
 

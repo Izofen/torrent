@@ -1,3 +1,75 @@
+###  Публикация: 970807   (137360) от 31.12.2015
+
+Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. Механики [Episodes 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон.Тип издания: RepackРазработчик: Mojang и Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349220   (137362) от 31.12.2019
+
+Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания / Roth Films, Walt Disney PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH) , Английские (Full)Продолжительность: 01:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B18A6DA7D97B40D3B1A691293191F2ED1EDC7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521005   (137363) от 31.12.2021
+
+3D модели - Lamborghini 3D Car Collection 2019-2022 [FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137363.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модели автомобилей марки  LamborghiniФормат: FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8BE60DE7A796293A2FC14ED0B65538A648E236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601487   (137364) от 31.12.2022
 
 ДДТ (DDT) - Стая (2022) Single [MP3|320 Kbps] <Rock>
@@ -6,7 +78,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137364.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:A33542102DA1602DE6884CB0CE24336FFA8DA275
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137365.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ magnet:?xt=urn:btih:47137AF69673267BFDCC2F3FABFCD70FA7F83423
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137366.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ magnet:?xt=urn:btih:A0F6FC4B9D357D55D384658B8D602328D8C2D82E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137367.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ magnet:?xt=urn:btih:B4621002E74ED5403F4BE843CD1CBBA6D1B7B75A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137368.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ CleanMyMac 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137369.jpg" />
 </div>
 
 
@@ -158,7 +230,7 @@ magnet:?xt=urn:btih:F38C70BA19BF080057A6E1DE32FCA031912CF93B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137370.jpg" />
 </div>
 
 
@@ -182,7 +254,7 @@ magnet:?xt=urn:btih:B38825856D90855A29D305D331CB5253062F5A26
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137371.jpg" />
 </div>
 
 
@@ -206,7 +278,7 @@ Delta Force Anthology / Антология Отряд Дельта (1998-2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137372.jpg" />
 </div>
 
 
@@ -230,7 +302,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137373.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137374.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ magnet:?xt=urn:btih:E552697B2A9C37A5BFAA546BD8216FBE3BD70B12
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137375.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ magnet:?xt=urn:btih:73B33A2210E599ECC7C82279B7EF477E9910A7DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137376.jpg" />
 </div>
 
 
@@ -327,7 +399,7 @@ PaperColor v2.5.4 Mod by bahguo [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137377.jpg" />
 </div>
 
 
@@ -351,7 +423,7 @@ magnet:?xt=urn:btih:5CDAD4F4CC934E59B50889B8938C94FDE8B07B74
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137378.jpg" />
 </div>
 
 
@@ -375,7 +447,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/1080
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137379.jpg" />
 </div>
 
 
@@ -399,7 +471,7 @@ magnet:?xt=urn:btih:A45AAC765C9DC290E04A572F3B9FC1646D76AF0D
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_137380.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_137380.jpg" />
 </div>
 
 
@@ -423,7 +495,7 @@ magnet:?xt=urn:btih:A45AAC765C9DC290E04A572F3B9FC1646D76AF0D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137382.jpg" />
 </div>
 
 
@@ -448,7 +520,7 @@ WhatsApp 0.3.1847 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137383.jpg" />
 </div>
 
 
@@ -472,7 +544,7 @@ magnet:?xt=urn:btih:A76C4EAA456E2B7E7D8B6E91C56DA7E5F0094712
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137384.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ Alex Harvey / The Sensational Alex Harvey Band - 10 albums, 22 CD (1972-2018) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137385.jpg" />
 </div>
 
 
@@ -523,7 +595,7 @@ magnet:?xt=urn:btih:3D4F4D5F610AC369E3F1C6C9562109220F37D997
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137386.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ NAPS2 (+MSI+Potrable) 5.8.2. [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_137387.jpg" />
 </div>
 
 
@@ -558,80 +630,6 @@ NAPS2 (Not Another PDF Scanner 2) - очень удобная оболочка �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B023E66BA08F2155EC1E3CF29F24554C965F81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349287   (137388) от 31.12.2019
-
-ФотоМАСТЕР 8.0 RePack (& Portable) by KpoJIuK [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137388.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоМАСТЕР - мощная программа, позволяющая быстро и качественно улучшать фотографии. Благодаря инновационной архитектуре, "ФотоМАСТЕР" даёт возможность изменять любые параметры фотоснимков и отменять эти изменения в любом порядке без потери качества.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C167DF02D39F00E302C658E7B6A704ACE3755F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520977   (137389) от 31.12.2021
-
-BELOFF [dp] 2021.12.5
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
-
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD96EEDD109807468D8BA6759D731DBB4670E7AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970658   (137390) от 31.12.2015
-
-Alcohol 120% 2.0.3.8426 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 120% - эмулятор CD/DVD-дисков. Программа создает на жестком диске ПК пользователя образ диска с данными, аудио или видео информацией, а затем предоставляет доступ к этим данным другим программам так, словно искомый диск находится в приводе. Alcohol 120% поддерживает работу со многими форматами CD/DVD, имеет возможность работы с 31 образом одновременно, обеспечивает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8857339FFB7682222D9C55A6AC4812F506C5BFD9
 ```
 
 

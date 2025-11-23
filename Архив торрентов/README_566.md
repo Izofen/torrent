@@ -6,7 +6,7 @@ Capture One 23 Enterprise 16.3.4.1884 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vit Registry Fix Pro 14.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ qBittorrent 4.6.3 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122253.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DefenderKiller 11.1.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122272.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ qBittorrent 4.6.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122279.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ CCleaner 6.20.10897 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122287.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ CPU-Z 2.09.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122298.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ RightFont 8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122320.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ SnippetsLab 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122322.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122323.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ EazyDraw 11.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122325.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Boinx FotoMagico Pro 6 v.6.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122327.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MarkMyWords 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122328.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:EEB1AC2C4C975001837A8D14441A35B3F3A8EC7E
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122335.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122338.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VideoProc Converter 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122350.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Fort Firewall 3.10.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122352.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Unclutter 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122356.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Aiseesoft Mac FoneTrans 9.2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122357.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:65B6E494BD4F12CF601884B6C5257B064E42E6BC
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122362.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ DirEqual 5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122363.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ FSNotes 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122364.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VideoProc Converter 4K 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122366.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Google Chrome 120.0.6099.225 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122370.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ QOwnNotes 24.1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122379.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:96A85FEA0AFDD46D9889342EE55C51C7D7629969
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122383.jpg" />
 </div>
 
 

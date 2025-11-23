@@ -1,3 +1,75 @@
+###  Публикация: 968969   (150878) от 25.12.2015
+
+O&O DiskImage Professional 9.0 Build 223 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150878.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage Professional - программа позволяющая создавать образы целых жестких дисков и внешних накопителей или содержащихся на них разделов или данных. Образы получаются абсолютно идентичными оригиналу, а поэтому их действительно можно использовать для восстановления операционной системы, отката к предыдущему состоянию компьютера и решения прочих подобных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF610998A8B2B497666D92BD771EE1B5DEFF411E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677311   (150888) от 17.11.2023
+
+Transparent clock & weather / Прозрачные часы и погода 6.46.0 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прозрачные часы и погода - Pro – это виджет для Android, позволяющий настраивать часы и погоду, которые всегда отображаются на вашем экране. Хотя виджет и выглядит хорошо, больше всего впечатляют его множественные настройки. Можно выбрать отображение температуры в градусах Цельсия или Фаренгейта, время рассвета и заката, влажность, продолжительность дня, фазу луны (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.11.2023Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AF473B2CEA25B3DD16CB6476850F0B3F8FFD6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519100   (150890) от 22.12.2021
+
+Opera 82.0.4227.43 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A8883A47A72C4F49755A33D535438F1804FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677254   (150895) от 17.11.2023
 
 Icecream PDF Editor Pro 3.15 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +78,7 @@ Icecream PDF Editor Pro 3.15 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150895.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ GIMP 2.10.30 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150897.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:308214767DA656A2121ECA085490B72FB84A2BC8
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150898.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ App Cleaner & Uninstaller Pro 6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150921.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150934.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ AOL Shield 1.0.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150940.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ TechSmith Snagit 2019.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150942.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ Sensei 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150954.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ Aiseesoft Video Converter Ultimate 9.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150963.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ CoolUtils Total PDF Converter 5.1.89 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150979.jpg" />
 </div>
 
 
@@ -250,7 +322,7 @@ magnet:?xt=urn:btih:4D0054EE83B9157DC6F4162C90A1B137F2C15B1B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150990.jpg" />
 </div>
 
 
@@ -274,7 +346,7 @@ magnet:?xt=urn:btih:47DED461E2A93566AC2871CB892A4EF83FF4E1C3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_150999.jpg" />
 </div>
 
 
@@ -298,7 +370,7 @@ Volume2 1.1.7.446 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151001.jpg" />
 </div>
 
 
@@ -322,7 +394,7 @@ Opera GX 82.0.4227.50 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151009.jpg" />
 </div>
 
 
@@ -348,7 +420,7 @@ Plus Messenger (Telegram+) v10.2.9.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151012.jpg" />
 </div>
 
 
@@ -372,7 +444,7 @@ magnet:?xt=urn:btih:9DC9621EE4CA44A9CC31FA2F57CD1F9E02942C82
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151027.jpg" />
 </div>
 
 
@@ -396,7 +468,7 @@ Vivaldi 6.4.3160.44 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151031.jpg" />
 </div>
 
 
@@ -420,7 +492,7 @@ magnet:?xt=urn:btih:069E3B0D34EBF41ADE8C798AB204FC83BE7DA14F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151034.jpg" />
 </div>
 
 
@@ -444,7 +516,7 @@ Maxthon Cloud Browser 4.9.0.2400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151040.jpg" />
 </div>
 
 
@@ -468,7 +540,7 @@ GeoGebra 6.0.813.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151049.jpg" />
 </div>
 
 
@@ -492,7 +564,7 @@ Reveal Sound - Spire 1.5.5 (build 5130) VSTi, AAX + 850 SoundBanks (x86/x64) ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151053.jpg" />
 </div>
 
 
@@ -517,7 +589,7 @@ SupRemo 4.6.0.3024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151061.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:6AA8A6831234754DE4DE94F8735C5FC10ED9EE28
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_151067.jpg" />
 </div>
 
 
@@ -553,80 +625,6 @@ magnet:?xt=urn:btih:6AA8A6831234754DE4DE94F8735C5FC10ED9EE28
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEFA396854425AB46A0831AE267CDE28E68FBDEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347402   (151074) от 23.12.2019
-
-Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [H.264/720p] [PR]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и вступить в схватку с другими выжившими, которые настроены совсем не дружелюбно. Кроме того, в собственных рядах охотников намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, боевик, комедияРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Розарио Доусон, Эван Джогиа, Билл Мюррей, Дэн Эйкройд, Люк УилсонПеревод: Дублированный (Online Cin.)Субтитры: Английские (Forced, full)Продолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AF526FAD4C54F12EFA6154E2817A83117BCFE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589415   (151086) от 14.12.2012
-
-Internet Download Manager 6.14.1 Final RePack by KpoJIuK [Русский / Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного быстрее! Internet Download Manager имеет встроенный логический ускоритель загрузки, включающий интеллектуальную динамическую сегментацию файла и безопасную многослойную технологию загрузки, что способствует ускорению загрузки. Комплексная система анализа ошибок и возможность докачки, поможет продолжить загрузку, прерванную из-за потери соединения, проблем в сети, выключения компьютера или перепадов в подаче электроэнергии. Простой графический интерфейс делает IDM удобным и дружественным к пользователю.
-
-(   Читать дальше...   )Название программы: Internet Download ManagerЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677315   (151088) от 17.11.2023
-
-Lucky Patcher 11.0.1 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lucky Patcher (Лаки патчер) – отличное решение если вам вдруг нужно вырезать лицензию из приложений. Некоторые игры и программы имеют стандартный код взаимодействия с Google Play, но при этом очень сильные инструменты защиты от изменения. Лаки патчер сканирует ваше устройство и собирает информацию про все установленный приложения, а потом сортирует их в удобные списки, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 08.11.2023Разработчик: ChelpuSПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B6CD60853710D36D2D2EB8D8C63230C596F617
 ```
 
 

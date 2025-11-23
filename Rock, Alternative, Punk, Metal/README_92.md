@@ -6,7 +6,7 @@ Coheed and Cambria - Claudio Covers (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100885.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E5AD5F078F7E76CCEA6579FEC242477AD2A69E8B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100956.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:203D2BF8A977D4C11B9F13CD1BF22495D1C8F7E1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100986.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101057.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0200E7B2B13FC2451965AE4B09B0CC9604C1A961
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101100.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lights To Remain - Damnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101147.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bruce Springsteen - The Live Series: Songs Under Cover Vol. 3 (2024) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101149.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101152.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C9D8FD12EC502161A65C82712AF8E687B18819F0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101163.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101168.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Rock Women & Girls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101179.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mystericon - Иди И Смотри (2024) [FLAC|Lossless|tracks] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101188.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101189.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101190.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:14C99400F86DE89E72C857FB75DDA6D870809FFE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101232.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C107BB85093DA4EEB5A44313B4B0B6450F2C313E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101244.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101255.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101256.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101275.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:E3BE788ACDA57B2969F9A6D59FEB953218918343
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101296.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101298.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101300.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101303.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Brinker - Alloy Rock (1986) Reissue, Remastered, 2023, MelodicRock Classics [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101304.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Daytona - Garder La Flamme (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101306.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Atom Stone - Take Me To The Fire (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101307.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101307.jpg" />
 </div>
 
 

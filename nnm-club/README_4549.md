@@ -1,3 +1,158 @@
+###  Публикация: 1272782   (140844) от 29.12.2018
+
+Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear My Train Comin’ (Acoustic) 3:05
+02. Born Under a Bad Sign 7:37
+03. Red House 3:43
+04. Catfish Blues 7:47(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CD307FA3B9A11DB2089803A26C64A597548F49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970387   (140845) от 30.12.2015
+
+ASuite 1.5.2 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140845.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASuite — это средство запуска приложений, позволяющее создать список быстрого запуска из неограниченного числа файлов, папок и веб-страниц. Программа рассчитана на запуск со съемных носителей, таких как USB-флэшки, жесткие диски, iPod и т.п. Поскольку ASuite использует относительные пути к файлам, он прекрасно подходит для запуска портативных приложений. Очень похожий (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC6D3E599CF39C1992BEC044E0A9C0392EC85CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854946   (140847) от 30.12.2014
+
+VA - Billboard Top 25 Hot Rock Songs (03-01-2015) [MP3|320 кб/с]<Rock, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140847.jpg" />
+</div>
+
+
+###  Подробнее
+
+По ту сторону океана Новый год уже наступил. По крайней мере лидеры музыкальной индустрии публикуют чаты уже январские 2015 года.
+Вот и журнал Billboard выдал серию, из которой представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
+Топ создается в соотвествии с ранжированнием (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
+02. Fall Out Boy - Centuries  (3:52)
+03. Vance Joy - Riptide  (3:22)
+04. Milky Chance - Stolen Dance  (5:16)(   Читать дальше...   )Жанр: Rock, Pop, Dance, OtherПродолжительность: 01:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772124106D14E26AA01722F51343D7A286F08227
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195284   (140848) от 30.12.2017
+
+VA - Hed Kandi The Mix (2005) HEDK054 [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140848.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Disco Heaven Mix
+1.Solu Music Feat. Kimblee - Fade (Solid State Kandi Mix)
+2.Bob Sinclar Feat. Gary Nesta Pine - Love Generation (Full Intention Club Mix)
+3.Chanel - My Life (Grant Nelson Neo Funk Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59526877A2B76B550DF01AB3898B418FD5A60038
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348782   (140849) от 29.12.2019
+
+Филип Пулман | Цикл «Темные начала» [4 книги] (2016-2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Двенадцатилетняя сирота Лира Белаква вместе со своим деймоном Пантелеймоном живет в Оксфорде. Ее дядя – могущественный лорд Азриэл – приезжает в колледж для того, чтобы организовать экспедицию на Север. Цель его поездки – выяснить происхождение загадочной «пыли», которую можно увидеть на фотографиях, снятых в этих местах. Вскоре после отъезда дяди таинственные (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9AA5E189663E46C70BE7CB0C3BC01B613EF8FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088394   (140850) от 30.12.2016
+
+Шпана 3 / Brotherhood  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальная драма Шпана 3 является очередной частью кинопроекта, рассказывающего о непростой жизни подрастающего поколения на небольших британских улочках и трущобах. Героям этого фильма не довелось родиться в огромных особняках, у богатых родителей, так что все премудрости выживания в этом несправедливом мире им пришлось осваивать самостоятельно, отстаивая свои (   Читать дальше...   )Производство: ВеликобританияЖанр: драмаРежиссер: Ноэль КларкАктеры: Эшли Томас, Ноэль Кларк, Оливия Ченери, Стивен Кри, Ник Неверн, Дэвид Аджала, Тония Сотиропулу, Джейсон Мацца, Арнольд Ошенг,  Фейди Эльсайед, Лашана ЛинчПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CF2BEF4BA049AA478C5CCDD7FAD36F2869039F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520648   (140851) от 29.12.2021
 
 Duplicate Finder and Cleaner for Mac 1.2 [En]
@@ -6,7 +161,7 @@ Duplicate Finder and Cleaner for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140851.jpg" />
 </div>
 
 
@@ -31,7 +186,7 @@ magnet:?xt=urn:btih:A3CCC0FD901D55541B34BDD189FAB11AE8A26F80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140852.jpg" />
 </div>
 
 
@@ -55,7 +210,7 @@ magnet:?xt=urn:btih:C15C7511599B1731436153183C4CDC0905E5CA2D
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140853.jpg" />
 </div>
 
 
@@ -80,7 +235,7 @@ magnet:?xt=urn:btih:8306DEDBA7FFF830A10C85BF3A9C5F0D7E8D987A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140855.jpg" />
 </div>
 
 
@@ -105,7 +260,7 @@ magnet:?xt=urn:btih:E9EA50E0CC96A427DC0418CB2D36D2B6CE060971
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140856.jpg" />
 </div>
 
 
@@ -132,7 +287,7 @@ NeoOffice 2017.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140857.jpg" />
 </div>
 
 
@@ -157,7 +312,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -181,7 +336,7 @@ magnet:?xt=urn:btih:D0D2DF3E961AD0BA38B48A3E07F52B700DA00C55
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140859.jpg" />
 </div>
 
 
@@ -205,7 +360,7 @@ magnet:?xt=urn:btih:F29E48A5BB920045307576078474E1FC375C9840
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140860.jpg" />
 </div>
 
 
@@ -229,7 +384,7 @@ magnet:?xt=urn:btih:3D403D082D6FEE3C24596D7428937EF05AF587E6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140861.jpg" />
 </div>
 
 
@@ -253,7 +408,7 @@ magnet:?xt=urn:btih:3D403D082D6FEE3C24596D7428937EF05AF587E6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140863.jpg" />
 </div>
 
 
@@ -277,7 +432,7 @@ magnet:?xt=urn:btih:7F13A4F58790D8F3B02AB106971266FE52CB1B7D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140865.jpg" />
 </div>
 
 
@@ -302,7 +457,7 @@ magnet:?xt=urn:btih:45BA0FE9E7690633DEA9D2BB610AEF8E52130405
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140866.jpg" />
 </div>
 
 
@@ -326,7 +481,7 @@ Above & Beyond - 10 Years of Group Therapy (2021) [AAC|~322 Kbps] <Progressive H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140867.jpg" />
 </div>
 
 
@@ -353,7 +508,7 @@ magnet:?xt=urn:btih:AFB2B9D41625AE36154FBBAE96D167CDCFB45360
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140869.jpg" />
 </div>
 
 
@@ -377,7 +532,7 @@ PIDKey 2.0.9 build 1006 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140870.jpg" />
 </div>
 
 
@@ -401,7 +556,7 @@ magnet:?xt=urn:btih:83E861254F139D41231999BDD9EB3A445D7795EA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140872.jpg" />
 </div>
 
 
@@ -425,7 +580,7 @@ Bad Montana - Crazy Game (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140873.jpg" />
 </div>
 
 
@@ -452,7 +607,7 @@ magnet:?xt=urn:btih:ECF66DD95FC24C43B22BB438D1078F1480C0ABDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140874.jpg" />
 </div>
 
 
@@ -477,7 +632,7 @@ magnet:?xt=urn:btih:EF7F058AAA12488239BE295763EA874AFBF29D87
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_140875.jpg" />
 </div>
 
 
@@ -489,157 +644,6 @@ magnet:?xt=urn:btih:EF7F058AAA12488239BE295763EA874AFBF29D87
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A9BED1F189BC0CE66D624D3DAF2E7CDEAB16E4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970274   (140876) от 30.12.2015
-
-Depeche Mode - Playing The Angel (2005) SACD [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Pain That I'm Used To (4:11)
-02. John the Revelator (3:42)
-03. Suffer Well (3:49)
-04. The Sinner in Me (4:56)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66F0551F0AD8983171294497B86DBC045BA5928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828304   (140879) от 29.12.2018
-
-Владимир Колычев | Королева шансона (2014) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лихие 90-е... Время "бригад", "стрелок", "крышевания" и безнаказанных убийств. В портовом городке Южноморске хозяйничают уголовники, руководит ими авторитет по кличке Сугроб. Ошалевший от вседозволенности, он однажды похищает семнадцатилетнюю Аллу и отдает ее для развлечения своим "браткам". Сугроб на сто процентов уверен, (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5880DBA2CBE399F9C1C856760747FA6B5487F833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678368   (140880) от 23.11.2023
-
-В России введут утилизационный сбор для смартфонов, планшетов, ноутбуков и видеокамер
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России планируют ввести утилизационный сбор для импортной электроники: планшетов, смартфонов, ноутбуков и видеокамер. Об этом сообщили на круглом столе Комитета Совета Федерации по экономической политике. Инициативу уже поддержали в Минпромторге.Планируется, что утильсбор на электронику будет работать по той же системе, что и утильсбор на импортные автомобили, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520599   (140881) от 29.12.2021
-
-The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Never Smile Again [2:59]
-02. A Latin's Lamp [3:44]
-03. Close to You [4:37]
-04. My Silent Love [2:50](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E434BE39F9B4503D7E1490209C2EA3791B9CF12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970199   (140882) от 30.12.2015
-
-Проекты - Проект ProShow Producer - Ёлка светится огнями [PSH]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Новогодний фотоальбом собранный из файлов одноимённой фотокниги. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью и аудио трек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441716D46F5BCCB7E425D038B9BCD3B5F0881C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195480   (140883) от 30.12.2017
-
-С. Моложавый, Е. Шимкевич | Проблемы трудовой школы в марксистском освещении (1924) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию товарищей-педагогов ряд статей является результатом нашей не только теоретической, но и практической работы как в дореволюционной школе, так и в школе трудовой. Продолжительная работа в средних учебных заведениях старой школы на непосредственном опыте вскрыл перед нами вое дефекты и ложные предпосылки прежней школьной системы и ее методов, побудила (   Читать дальше...   )Жанр: История, политология, искусство, психология, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D510CB1363FE221D3E5AC82E3FDE13D35BCE8DA
 ```
 
 

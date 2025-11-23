@@ -1,3 +1,111 @@
+###  Публикация: 1313506   (193138) от 29.10.2022
+
+Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_193138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Whole Lotta Shakin' Goin' On
+A2 Great Balls Of Fire
+A3 It'll Be Me(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBE27A6A2DED1915CCF33A93F067E2CA235F426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657087   (193139) от 02.09.2023
+
+Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image + .cue|Vinyl-Rip] <Rock, Latin, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A-me-ri-ca
+A2 If I Had A Hammer
+A3 Bye Bye Blackbird
+A4 Cielito Lindo(   Читать дальше...   )Жанр: Rock, Latin, FunkПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08B7EBC74F6486F0E2B35019F1290F198011AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657185   (193142) от 02.09.2023
+
+Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193142.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Battlefield
+A2 South Cross Union
+A3 Prayers Of Steel
+A4 Halloween(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9BCB9705C2EA1CE1E134C8A498F471C00136D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586584   (193169) от 29.10.2022
+
+Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip)]<Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eldorado Overture (2:13)
+ 02. Can’t Get It Out of My Head (4:21)
+ 03. Boy Blue (5:19)
+ 04. Laredo Tornado (5:29)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587012   (193218) от 29.10.2022
 
 Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
@@ -6,7 +114,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194016.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194016.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194900.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ magnet:?xt=urn:btih:4D4605F8647E9AC598F288E39D5D30C7B21CD795
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195864.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_195864.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Hooverphonic - No More Sweet Music (2005) [DTS-CD from DVD-Video] <lounge>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196172.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196172.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Mu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197349.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ magnet:?xt=urn:btih:E568874E25B8166039832F9E7AA20CBF1F1889D1
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197473.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197473.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197985.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197985.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 50th Anniversary 2023 remaster [DT
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198089.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198089.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198090.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198090.jpg" />
 </div>
 
 
@@ -492,7 +600,7 @@ magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198446.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198446.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_199452.jpg" />
 </div>
 
 
@@ -587,114 +695,6 @@ Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627881   (199581) от 20.04.2023
-
-Queen - Innuendo (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199581.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Innuendo
-A2 I'm Going Slightly Mad
-A3 Headlong
-A4 I Can't Live With You(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA16C759D651387337931A76B26DAACD737D873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626997   (199696) от 16.04.2023
-
-Uriah Heep - Gold From The Byron Era (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Hard Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Of Prey
-02. Time To Live
-03. Look At Yourself
-04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80234FF5CAABF65749D330C5039404DE8299019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557543   (199804) от 14.04.2023
-
-Overkill - Studio Albums (21 releases) (1985 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Overkill — американская трэш-метал-группа, основанная в 1980 году в Нью-Джерси. Состав группы претерпел неоднократные изменения, и единственными неизменными участниками Overkill с момента основания являются вокалист Бобби «Blitz» Эллсворт и басист Д. Д. Верни. У группы есть талисман по имени Чали, который нарисован на большинстве обложек их альбомов — череп с костлявыми (   Читать дальше...   )1993 - I Hear Black
-1994 - W.F.O.
-1996 - The Killing Kind
-1997 - From The Underground And Below(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 18:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA79B0D8D4BF1B2D305537A46923BDBE826D231A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626371   (199887) от 14.04.2023
-
-Scorpions - Blackout (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199887.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blackout
-A2. Can't Live Without You
-A3. No One Like You
-A4. You Give Me All I Need(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D83B40EE1942AE7E89374231DC99BC6E5CB45C
 ```
 
 

@@ -1,3 +1,75 @@
+###  Публикация: 1690407   (123968) от 07.01.2024
+
+Ёлки 10 (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123968.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новогоднюю ночь всегда есть место чуду, даже если ты вдруг перестал в него верить. Геннадьич, коротающий свой век в доме престарелых под Санкт-Петербургом, обретёт свою настоящую семью. Начинающей блогерше Ларисе из Тюмени предстоит узнать, на что ради своих близких готов решиться её супруг. Марине из Татарстана — научиться любить то, что действительно важно для (   Читать дальше...   )Производство: Россия | Bazelevs, ООО «Кулик Продакшн», OkkoЖанр: комедияРежиссер: Дамир Мифтахов, Иван ЧеховАктеры: Елена Валюшкина, Галина Польских, Юрий Кузнецов, Борис Щербаков, Регина Тодоренко, Егор Корешков, Филипп Киркоров, Виталий Кищенко, Ольга Дибцева, Александр БашировСубтитры: русскиеПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E96B1752F8F7E3E2D2289259A10EBC6B5671D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596502   (123969) от 07.01.2024
+
+Вихри враждебные (1953) HDTV [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о первых годах становления советской власти, о жизни и деятельности Феликса Эдмундовича Дзержинского в 1918-1921 годах. Вышел на экраны в 1956 году с изъятыми сценами со Сталиным в исполнении Михаила Геловани.Производство: СССР / МосфильмЖанр: драма, биографияРежиссер: Михаил КалатозовАктеры: Владимир Емельянов, Михаил Кондратьев, Михаил Геловани, Леонид Любашевский, Владимир Соловьёв, Иван Любезнов, Алла Ларионова, Виктор Авдюшко, Георгий Юматов, Владимир БорискинПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B61B6C6185D4969D25A4FC97E90EAEC67ED489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690458   (123970) от 07.01.2024
+
+Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается вокруг миленьких и очень привлекательных ведьмочек, которые будут постоянно сражаться друг с другом в этой уникальной комбинированной игре-головоломке с ритмом! Здесь вы должны будете бросать блоки в ритме, дабы таким образом постараться победить и раздеть своих врагов.Тип издания: LicenseРазработчик: ForgimeЖанр: Action, Puzzle, ComedyЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 278271   (123971) от 07.01.2024
 
 Ги де Мопассан | Монт-Ориоль (2014) [MP3, Юрий Заборовский]
@@ -6,7 +78,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123971.jpg" />
 </div>
 
 
@@ -32,7 +104,7 @@ magnet:?xt=urn:btih:2E6A8F29CE9CBCEBD6A5333D44AAAB8AB67F0DFC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123972.jpg" />
 </div>
 
 
@@ -56,7 +128,7 @@ magnet:?xt=urn:btih:4D6BB260A4EF410B4D1B642A50D9AE19F5D18EDA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123973.jpg" />
 </div>
 
 
@@ -80,7 +152,7 @@ magnet:?xt=urn:btih:C92E3A36BD9FB826D0CF7B3462BE39658A7D298C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123974.jpg" />
 </div>
 
 
@@ -104,7 +176,7 @@ magnet:?xt=urn:btih:6489071AA5C4F5AF524C91A4567135EF61F95DF3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123975.jpg" />
 </div>
 
 
@@ -128,7 +200,7 @@ magnet:?xt=urn:btih:B907E522B3640BCC5A40C812AD31B5B405689CAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123976.jpg" />
 </div>
 
 
@@ -152,7 +224,7 @@ magnet:?xt=urn:btih:B61981D9CF1DBD33C1074EF173F91D09336D2D0F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123977.jpg" />
 </div>
 
 
@@ -176,7 +248,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123978.jpg" />
 </div>
 
 
@@ -200,7 +272,7 @@ magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123979.jpg" />
 </div>
 
 
@@ -224,7 +296,7 @@ magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_123980.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_123980.jpg" />
 </div>
 
 
@@ -248,7 +320,7 @@ magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123981.jpg" />
 </div>
 
 
@@ -272,7 +344,7 @@ magnet:?xt=urn:btih:CBBDFA05C82C3062CC4E6A5688BB9B402D2107C5
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123982.jpg" />
 </div>
 
 
@@ -296,7 +368,7 @@ magnet:?xt=urn:btih:A6EB316B811614812C3784BE7985A25866165483
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123983.jpg" />
 </div>
 
 
@@ -320,7 +392,7 @@ magnet:?xt=urn:btih:8C01D3BC6E56AEEAB521EAAD9D3458F4187AF1FE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123984.jpg" />
 </div>
 
 
@@ -344,7 +416,7 @@ FanControl V177 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123985.jpg" />
 </div>
 
 
@@ -368,7 +440,7 @@ magnet:?xt=urn:btih:D28F4F72DB7A369705B4F0C910ADBB72C7BB9A55
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123986.jpg" />
 </div>
 
 
@@ -392,7 +464,7 @@ magnet:?xt=urn:btih:295E2807F883B781B4704E81817639D98A0A1EF6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123987.jpg" />
 </div>
 
 
@@ -417,7 +489,7 @@ magnet:?xt=urn:btih:EC09D1BD55313AFB764352DFDF96E45D9FF39CDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123988.jpg" />
 </div>
 
 
@@ -441,7 +513,7 @@ magnet:?xt=urn:btih:4E0884DE4F6CD33211DD8219C78BB14BA28B537D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123989.jpg" />
 </div>
 
 
@@ -465,7 +537,7 @@ magnet:?xt=urn:btih:71CA7D10743D32019C66DD3ACFB06528AE21D3F9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123990.jpg" />
 </div>
 
 
@@ -489,7 +561,7 @@ magnet:?xt=urn:btih:328457EDF07CFAE00A0D8CCC8B25689B9975C011
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123991.jpg" />
 </div>
 
 
@@ -513,7 +585,7 @@ magnet:?xt=urn:btih:6BCA1661050A97F6131016E181F6B06479F02F74
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123992.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ magnet:?xt=urn:btih:8E9018EEAB8B0474EC9BD1E9B2049D38CDCBA800
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_123993.jpg" />
 </div>
 
 
@@ -550,78 +622,6 @@ magnet:?xt=urn:btih:8E9018EEAB8B0474EC9BD1E9B2049D38CDCBA800
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2BDD2CB885482E9CACE1FDDEE6F67B525CD3F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690569   (123994) от 07.01.2024
-
-Волшебное приключение Да Винчи / The Inventor (2023) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник и изобретатель Леонардо покидает Италию, чтобы присоединиться к французскому двору, где он сможет свободно экспериментировать, придумывать механизмы мощных машин и летающих аппаратов и изучать человеческое тело и его возможности. Вместе с отважной принцессой Маргаритой Да Винчи пытается понять, в чем смысл жизни.Производство: Франция, США, Ирландия / Leo and King, Aerial Contrivance Workshop, AlignЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Джим Капобьянко, Пьер-Люк ГранжонАктеры: Стивен Фрай, Дейзи Ридли, Марион Котийяр, Мэтт Берри, Натали Паламидес, Аарон Хеффернан, Крис Гордон, Джим Капобьянко, Бен Стрэнахен, Джейн ОсборнПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73E7341B2DE0112BAF5B6542D76F5AEE7040F22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278242   (123995) от 07.01.2024
-
-Ги де Мопассан | Новеллы (2006) [MP3, Семён Ярмолинец, Лидия Леликова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл. Все его произведения написаны ярким и простым языком. Его новеллы переведены на множество языков мира, и всюду они находят живой отклик в сердцах читателей. В кратких новеллах Мопассана человеческая драма обычно схвачена по необходимости лишь в (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: МедиаКнигаПродолжительность: 09:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EFA02891B9C2A4976CF197A9F5B3775A570895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690435   (123996) от 07.01.2024
-
-Уральские пельмени. Сборник Эксклюзивов 2023 (2023) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти номера не показывали в телеэфире. Привидение, Выпускник 2030, Рок-группа, Ромео и Джульетта – эти и другие весёлые сюжеты в нашем эксклюзивном сборнике.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B5DE742BB650DAB3143A37CCD851686FAFDC17
 ```
 
 

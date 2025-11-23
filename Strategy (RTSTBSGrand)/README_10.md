@@ -1,3 +1,51 @@
+###  Публикация: 1513543   (221793) от 30.11.2021
+
+Company of Heroes (2006) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_221793.jpg" />
+</div>
+
+
+###  Подробнее
+
+По игровому процессу игра напоминает предыдущее творение Relic Entertainment - серию Warhammer 40,000: Dawn of War. Игрок командует отрядами бойцов, а не отдельными единицами (исключение составляет техника и уникальные боевые единицы), во главу угла поставлена борьба за ресурсы. Каждая сторона в игре разделена на три уникальных направления — пехотное, десантное и (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: Strategy (Real-Time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513385   (224411) от 28.11.2021
+
+Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_224411.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире Majesty вы правите королевством. Но ваша власть не абсолютна и часто сталкивается с упрямством и своеволием ваших подданных. И вам придется сильно постараться, чтобы убедить их выполнять ваши желания... Majesty 2 - продолжение и развитие лучших традиций великолепной Majesty: актуальное воплощение лучших черт классической стратегии непрямого контроля, а также (   Читать дальше...   )Тип издания: LicenseРазработчик: 1C Ino-CoЖанр: Стратегия, В реальном времени, ФэнтезиЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316283A7E2E430B264599F687984E80C952637F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555126   (231452) от 03.06.2022
 
 Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (2003) [Ru/En] (1.1) Unofficial
@@ -6,7 +54,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_231452.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_231452.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234043.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -78,7 +126,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -102,7 +150,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247092.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247092.jpg" />
 </div>
 
 
@@ -126,7 +174,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247544.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_247544.jpg" />
 </div>
 
 
@@ -150,7 +198,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -174,7 +222,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -198,7 +246,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -222,7 +270,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252567.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -246,7 +294,7 @@ Hostile Waters: Antaeus Rising / Враждебные Воды: территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253561.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253561.jpg" />
 </div>
 
 
@@ -270,7 +318,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254557.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254557.jpg" />
 </div>
 
 
@@ -294,7 +342,7 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.3041.0/dlc) Repack R.G. Механ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254698.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254698.jpg" />
 </div>
 
 
@@ -318,7 +366,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256389.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256389.jpg" />
 </div>
 
 
@@ -342,7 +390,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256612.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256612.jpg" />
 </div>
 
 
@@ -366,7 +414,7 @@ ZEPHON (2024) [Ru/Multi] (1.2.11/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256719.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_256719.jpg" />
 </div>
 
 
@@ -390,7 +438,7 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_257614.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_257614.jpg" />
 </div>
 
 
@@ -401,6 +449,79 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:908DDEE3D86BC8CD3B8D565FB73C532A7367A39E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501534   (259251) от 28.05.2012
+
+Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_259251.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всей Европе полная разруха, земли поделены мелкими феодалами, император борется с Папой Римским, и Святой Отец объявляет о том, что всем, кто отправится на освобождение Святой Замли, будет даровано прощение грехов.
+В игре Crusader Kings II вам предстоит взять роль правителя одной из могущественных христианских династий и постараться расширить свои границы. Для этого придется постоянно следить за состоянием своей разрастающейся империи. Если будете правильно назначать вассалов, удачно противостоять предателям и внедрять полезные для развития государства законы, то в итоге сможете создать самую могущественную династию в средневековой Европе.(   Читать дальше...   )Тип издания: RePackРазработчик: Paradox InteractiveЖанр: Strategy / RTSЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557289   (260038) от 
+
+Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Harvest - это стратегия в реальном времени (RTS), действие которой происходит в альтернативной реальности 1920+ сразу после завершения Мировой войны. Эта игра даcт вам возможность управлять огромными дизельпанк-роботами. Помимо потрясающих одиночных и совместных кампаний вы найдёте здесь динамичные яркие бои, которые придутся по душе поклонникам мультиплеера. (   Читать дальше...   )Тип издания: LicenseРазработчик: KING Art GamesЖанр: Стратегия, В реальном времени, ФэнтeзиЯзык озвучки: Русский, Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305708CE3DC964AC9019E24AF18AD6A354046E87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838400   (260051) от 
+
+Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_260051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрок может выбрать любое государство и принять участие в самых кровопролитных сражениях в истории. Хватит ли игроку смелости взять на себя груз ответственности мирового лидера? Сумеет ли он выиграть борьбу за всемирную власть? Возможно, ему лучше стать предводителем небольшой нации и просто делать все необходимое для выживания. Каждая держава уникальна, игрок может (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```
 
 

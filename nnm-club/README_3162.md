@@ -1,3 +1,78 @@
+###  Публикация: 1765916   (101320) от 15.12.2024
+
+Тор / Thor (2011) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о супергерое, основанный на персонаже комикса Marvel с таким же названием... Эпическое приключение происходит как на нашей планете Земля, так и в королевстве богов Асгарде... Могучий Тор, сильный, но высокомерный воин, чьи безрассудные поступки возрождают древнюю войну в Асгарде. Тора отправляют в ссылку на Землю, лишают сил и заставляют жить среди обычных (   Читать дальше...   )Производство: США / Marvel Entertainment, Marvel Studios Inc., Paramount PicturesЖанр: фэнтези, боевик, приключенияРежиссер: Кеннет БранаАктеры: Натали Портман, Энтони Хопкинс, Крис Хемсворт, Том Хиддлстон, Стеллан Скарсгард, Кэт Деннингс, Кларк Грегг, Идрис Эльба, Колм Фиор, Рэй Стивенсон, Таданобу Асано, Джошуа Даллас, Джейми Александер, Рене Руссо, Адриана БаррасаПеревод: дублированный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA69D2DF82C4F0A2D520420C092D280B498F67B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765960   (101321) от 15.12.2024
+
+Происшествие / Jiken / The Incident (1978) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе Шохэй Оока... Тело Сакаи Хацуко, 23-летней женщины, убитой ножом, было найдено в лесу. Несколько дней спустя 19-летний рабочий верфи Уэда Хироси был арестован и обвинён в убийстве. На суде над Уэдой разворачивается сложная история...Производство: Япония / Shochiku EigaЖанр: драма, криминалРежиссер: Ёситаро НомураАктеры: Кэйко Мацудзака, Синобу Отакэ, Тосиюки Нагасима, Цунэхико Ватасэ, Синсукэ Асида, Хисая Морисигэ, Дзюнко Нацу, Ко Нисимура, Нобуко Отова, Син Сабури, Асао Сано, Тэцуро Тамба, Кэи ЯмамотоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 02:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B07E17B5DC9029CF017D57159D93C63AA7A8C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765900   (101322) от 15.12.2024
+
+VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Too Much (Fitness Version 128 Bpm 32 Count) (4:00)
+02. DJ Space'c - Both (Fitness Version 128 Bpm 32 Count) (3:45)
+03. D'Mixmasters - Rock My Body (Fitness Version 128 Bpm 32 Count) (4:00)
+04. Kangaroo - Red Flags (Fitness Version 128 Bpm 32 Count) (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0597CAC5E4B904AFCC458E2EA29D165A25DC7BA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765800   (101323) от 15.12.2024
 
 VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -6,7 +81,7 @@ VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101323.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101323.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101324.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101324.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101325.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ magnet:?xt=urn:btih:899B9EB8EFF33CBF106DEDFD11A77E5F74C16EDF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101326.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101327.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101328.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101329.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ magnet:?xt=urn:btih:72B4ADF30A214DCCE1C47482853CDF42A51CBEC3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101330.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101330.jpg" />
 </div>
 
 
@@ -213,7 +288,7 @@ magnet:?xt=urn:btih:97EB31ACEC068CA313C6E0AA6D39DD48B060B65A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101331.jpg" />
 </div>
 
 
@@ -237,7 +312,7 @@ J.J. Johnson - J.J. Johnson's Jazz Quintets (1946 - 1949) 1992, Savoy Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101332.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ Letdown. - Be OK (Continued) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101333.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101333.jpg" />
 </div>
 
 
@@ -291,7 +366,7 @@ Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101334.jpg" />
 </div>
 
 
@@ -318,7 +393,7 @@ Stevie And The Amayumi Band - I Like Your Style (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101335.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101335.jpg" />
 </div>
 
 
@@ -345,7 +420,7 @@ Mörk Gryning - Fasornas Tid (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101336.jpg" />
 </div>
 
 
@@ -372,7 +447,7 @@ magnet:?xt=urn:btih:8A92D1E9A0B640FDA9EA12152A112214E2727800
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101337.jpg" />
 </div>
 
 
@@ -396,7 +471,7 @@ magnet:?xt=urn:btih:8A92D1E9A0B640FDA9EA12152A112214E2727800
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101338.jpg" />
 </div>
 
 
@@ -420,7 +495,7 @@ magnet:?xt=urn:btih:DB79EFE19D20638C11312682956CE47E12E94A7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101339.jpg" />
 </div>
 
 
@@ -444,7 +519,7 @@ magnet:?xt=urn:btih:50E91344FB89402708F2A70F64ED5927C1DAD605
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101340.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101340.jpg" />
 </div>
 
 
@@ -468,7 +543,7 @@ magnet:?xt=urn:btih:AE17045C795044F23E4708850247566895E54557
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101341.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101342.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ magnet:?xt=urn:btih:CD06174B90982BDE116F092FA68DA9B7D1A6B09B
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -546,7 +621,7 @@ Katie Melua - Call Off The Search (2004) CD, Album, Enhanced [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101344.jpg" />
 </div>
 
 
@@ -573,7 +648,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World_ Troxy London MMXXIV 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101345.jpg" />
 </div>
 
 
@@ -587,80 +662,6 @@ The Cure - Songs Of A Lost World and Songs Of A Live World_ Troxy London MMXXIV 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBDB925A0E9713351AD8B4794AB18137E3697B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765754   (101346) от 14.12.2024
-
-Алексей Птица | Керенский (Книга 5). Конец партии (2024) [MP3, Александр Егоров]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101346.jpg" />
-</div>
-
-
-###  Подробнее
-
-История России, которой никогда не будет...Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F075BB23E9231172A076A0477D6803A575962F0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764190   (101347) от 14.12.2024
-
-Безмолвное братство / The Order (2024) TS [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР начинает расследование взрывов, ограблений и жестоких убийств. Вскоре ему становится очевидно, что за этой цепью преступлений стоит хорошо организованная группа, возглавляемая безжалостным лидером, который намерен объявить войну правительству США.Производство: США, Великобритания, Канада / AGC Studios, Chasing Epic Pictures, Riff Raff EntertainmentЖанр: триллер, драма, криминалРежиссер: Джастин КурзельАктеры: Джуд Лоу, Николас Холт, Тай Шеридан, Марк Мэрон, Джордж Чертов, Daniel Yip, Дэниэл Доэни, Себастьян Пижотт, Джон Варкентин, Филлип ЛевицкиПеревод: Дублированный (Мосфильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:27Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765809   (101348) от 14.12.2024
-
-Photo Mate R3 v3.8.1 Mod by Balatan [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте свои изображения!
-Photo Mate предлагает библиотеку фотографий, в которой вы можете фильтровать и сортировать все ваши файлы на основе метаданных, таких как камера, диафрагма или ISO, а также настраиваемых рейтингов, меток и ключевых слов. Библиотека может обрабатывать jpg, а также практически любой формат Camera Raw.
-Вы можете оценивать, помечать и добавлять (   Читать дальше...   )Тип издания: Extra ModРелиз состоялся: 14.12.2024Разработчик: TS SystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1549FF258E53FBC17E144293B82E18A386E9978F
 ```
 
 

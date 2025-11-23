@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:05DFCA03B132F86FFA27D187EA0B1F74B5282DF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39250.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A4192FD7F588876181BB989C87807479C6D4EAE0
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39251.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39252.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1DEE2ECC1BEBAB7594C37622F721412CDBF14621
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39253.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:EC1B855F4E302114D367FFC7835A4BA2B9A55EF0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39254.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D059C964C4484F1C115216FD3CF488C88A351B91
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39255.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D059C964C4484F1C115216FD3CF488C88A351B91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39256.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39257.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B78D79A4D5FF1DF7EBC02BB0C70EFC2B616B3763
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39258.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F90EB25A0DEFAD3671AA9E2A85921AFFB6B281AD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39259.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8DAB0A2995270082EB34D1BCF0930D7AFBF5FD02
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39260.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4D0090FAE6CD7C4B7CFBF9973C458D1BA0CB0D53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39261.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:8B9E84F2952BB4B0D5E8C95F7E1088EE55D376EF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39262.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39263.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39264.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Greg Satterthwaite - Crossing Lines (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39265.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Autumn's Grief - Dead Among The Living (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39266.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:5FD0736FBDBF2AFB1E2CD3C2589F4DF5C2574550
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39267.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Invisible Strings (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39268.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:81860BD3C3630CD343B8EEABEADCF8B70DC8E153
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39269.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39269.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Klaus Wunderlich - The Collection Volume 2 (1987) [FLAC|Lossless|tracks + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39270.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39271.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39272.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39273.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Grant Jackson - Devotion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_39274.jpg" />
 </div>
 
 

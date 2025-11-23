@@ -1,3 +1,89 @@
+###  Публикация: 455252   (94163) от 23.02.2012
+
+November's Flame - На Обочине Больного Мира (ЕР) (2012) [MP3|320 kbps]<Alternative,Nu Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Другие Глаза  [03:21]
+02. Земля В Огне  [02:40]
+03. Краски Мая  [04:17]
+04. Обманутый Мир  [03:30]
+05. Сон  [04:28]
+06. Погоня За Мечтой  [03:17]
+07. Другие Глаза (instumental)  [03:21]2012Жанр: Alternative,Nu MetalПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456876   (94164) от 23.02.2012
+
+Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Meeting (05:51)
+02. Botanical Park (05:02)
+03. The Polar Lights (05:16)
+04. Micro Declines (04:26)2011Жанр: Dubstep, Drum & BassПродолжительность: 00:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456554   (94165) от 23.02.2012
+
+Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]<Southern Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94165.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Weedlust 06:03
+2 Overtaken 07:20
+3 Drowned 04:35
+4 Straight On 06:15
+5 Mind Trip 05:35
+6 The Lie 10:102011Жанр: Southern MetalПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456890   (94172) от 23.02.2012
 
 VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
@@ -6,7 +92,7 @@ VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94172.jpg" />
 </div>
 
 
@@ -39,7 +125,7 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94176.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94176.jpg" />
 </div>
 
 
@@ -72,7 +158,7 @@ Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94183.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94183.jpg" />
 </div>
 
 
@@ -105,7 +191,7 @@ Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94186.jpg" />
 </div>
 
 
@@ -130,7 +216,7 @@ magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94188.jpg" />
 </div>
 
 
@@ -154,7 +240,7 @@ magnet:?xt=urn:btih:53C78CF17ACBFB81AECB80D190AACD53F30CC491
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94192.jpg" />
 </div>
 
 
@@ -178,7 +264,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94209.jpg" />
 </div>
 
 
@@ -202,7 +288,7 @@ magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94219.jpg" />
 </div>
 
 
@@ -226,7 +312,7 @@ magnet:?xt=urn:btih:1A2D745A4C8B3BA9CD71652E7C803F32DB3A7A3C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94220.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94220.jpg" />
 </div>
 
 
@@ -250,7 +336,7 @@ magnet:?xt=urn:btih:0BA163510E2942C425A2BC5AEA348DBC10ABB982
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94222.jpg" />
 </div>
 
 
@@ -274,7 +360,7 @@ DJ Kocmoc - Electro Sensation vol.19 (23.02.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94226.jpg" />
 </div>
 
 
@@ -307,7 +393,7 @@ Ben Kweller - Go Fly A Kite (2012) [MP3|-V0 ~245 кб/с]<Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94227.jpg" />
 </div>
 
 
@@ -340,7 +426,7 @@ VA - 10 Full Moons (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94253.jpg" />
 </div>
 
 
@@ -373,7 +459,7 @@ ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94259.jpg" />
 </div>
 
 
@@ -406,7 +492,7 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94263.jpg" />
 </div>
 
 
@@ -438,7 +524,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94268.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94268.jpg" />
 </div>
 
 
@@ -471,7 +557,7 @@ VA - Royal Flush Vol. 4 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94273.jpg" />
 </div>
 
 
@@ -504,7 +590,7 @@ magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94274.jpg" />
 </div>
 
 
@@ -531,7 +617,7 @@ magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94277.jpg" />
 </div>
 
 
@@ -555,7 +641,7 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94279.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94279.jpg" />
 </div>
 
 
@@ -588,7 +674,7 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94290.jpg" />
 </div>
 
 
@@ -612,7 +698,7 @@ Drm Алексеев | Знаки [2011] [MP3]
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94302.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_94302.jpg" />
 </div>
 
 
@@ -637,7 +723,7 @@ TagScanner 5.1.610 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94304.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_94304.jpg" />
 </div>
 
 
@@ -648,104 +734,6 @@ TagScanner - мощная программа для организации и у
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457896   (94325) от 25.02.2012
-
-Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Jungle Of Sounds (With Iva) 07:53
- 02 Electrify 06:36
- 03 Dune (With Sideform) 07:05
- 04 Synapse 06:31
- 05 Borderland 06:26
- 06 Vertigo (With E-Clip) 07:23
- 07 Crystal 07:16
- 08 Deep Blue (With Middle Mode) 08:04
- 09 Quirky 07:452011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455743   (94328) от 25.02.2012
-
-VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anjiro Rijo – Sunshine (Original Mix) (7:07)
- 02. Carl Louis & Martin Danielle - FiveAM (Thomas Sagstad Remix) (6:41)
- 03. Carl Louis, Martin Danielle - Five AM (Original Mix) (6:08)
- 04. Daviddance - South Bitchs feat Rona Geffen (Original Mix) (7:16)
- 05. Dirty South & Thomas Gold & Kate Elsworth - Alive (Idriss Chebak Xmas Remode) (5:25)
- 06. Domestic Technology - Split It Up (Original Mix) (8:00)
- 07. Garuso - I Need You (Original Mix) (7:07)
- 08. Jane Maximova - Amid The Road (Original Mix) (5:20)
- 09. Jeremy Rowlett - Vanilla Skies (Wilson & Mclennan Cruise Control Remix) (9:48)
- 010. Kanov - Meditations (Andrew Benson Remix) (7:03)20.02.2012Жанр: Progressive HouseПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455620   (94335) от 25.02.2012
-
-VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiho Microbitez - Turbolence (Mykoe Remix) (6:22)
- 02. Amaze - Syndrome (Original mix) (6:48)
- 03. Avrosse - Jittery Jim (Gaga Mateo Remix) (6:34)
- 04. ChabudHigh - Tec Soul (Original Mix) (6:03)
- 05. Irod - Wake Up (Original Mix) (6:14)
- 06. J-Valencia - Fur Neffen (Original Mix) (6:33)
- 07. James Delato - Black Cadillac (6:05)
- 08. John Tejada and Justin Maxwell - Our Aimless Dance (6:37)
- 09. Lu4o And Green Kid - Fatal Error (Original Mix) (6:58)
- 10. Microcheep & Mollo - Paranoid Confusion (Original Mix) (7:34)(   Читать дальше...   )19.02.2012Жанр: MinimalПродолжительность: 02:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E95BCE5B94CBE4FCC3C63E090C95714D07F61F
 ```
 
 

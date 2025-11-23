@@ -6,7 +6,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19564.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19565.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19566.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2D7139BA53635A7D341B2A456E6EED9C033C3925
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19567.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Relax Rain: sleeping sounds v7.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19568.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F3CB0995AE1E94D0420EB2D3695D3DF1314F5D2A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19569.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Markus Schulz - The Rabbit Hole Circus (Extended Mixes) (2025) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19570.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Text Edit Plus 15.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19571.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:9BC3597214656E1D915B1471FEE3B81AE443BD73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19572.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E5D69BFEACBB0FED9FFADEABB9A6D9A96A5D5414
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19573.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ ToonApp v3.0.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19574.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:57A2616752F19AA98867095EE2AB277BF3F21BCD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19575.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Joplin 3.3.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19576.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19577.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Display Tester v5.35.4 Mod by Balatan [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19578.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:8CD36AB6FDC9669E3B9D5BDAFAA7F431589AFCCC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19579.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:42E93F7BA1E806A6BC82836E3413291B24D3AF3A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19580.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:BD21F03DBE92089194D33732633223443A34BA9C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19581.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:BF0B54C3F9AF795EE21DCB0AF48BB58E0BEF86DC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19582.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:566935ECB6266A731F6B1DBD97E1BC5D1357271E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19583.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19583.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Space Grunts (2016) [En] (1.7.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19584.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:BA70078E236F10997EF77DFA635953B839D5A0D2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19585.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ jetAudio HD Music Player Plus v12.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19586.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:2823058B05E261631E55B798C7AC08E85A833065
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19587.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:5E18F52C2C5F920B06E628A3F6B8D0A8E2D675CB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19588.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_19589.jpg" />
 </div>
 
 

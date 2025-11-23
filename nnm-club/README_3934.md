@@ -1,3 +1,78 @@
+###  Публикация: 1693477   (121966) от 20.01.2024
+
+Дворец / The Palace (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121966.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 декабря 1999 года. Роскошный отель в Швейцарии и его гости-миллионеры готовятся к самому долгожданному Новому году. Впереди ночь, полная самых разных причуд, пороков и странностей богатых и знаменитых.Производство: Италия, Швейцария, Польша, Франция / Eliseo Entertainment, Rai Cinema, CAB ProductionsЖанр: комедияРежиссер: Роман ПоланскиАктеры: Оливер Мазуччи, Микки Рурк, Фанни Ардан, Джон Клиз, Милан Пешель, Александр Петров, Жоакин де Алмейда, Фортунато Серлино, Бронвин Джеймс, Дэнни ЭкснарПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: русские, итальянскиеПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF6F23B6D6E47BD630369F81A25144D1DD442B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693003   (121967) от 20.01.2024
+
+Microsoft Windows 10 [10.0.19045.3930], Version 22H2 (Updated January 2024) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
+
+Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.3930.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F4D740EC29E247F47EC8FD9C3755ECD1AC834A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693275   (121968) от 20.01.2024
+
+Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в курс по Kubernetes. В этом курсе вы получите глубокое понимание и практический опыт работы с Kubernetes. Kubernetes сейчас является де-факто стандартом для развертывания контейнеризированных приложений в production среде и является обязательным инструментом для всех DevOps-инженеров и разработчиков программного обеспечения, которые хотят научиться (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 05:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693256   (121969) от 20.01.2024
 
 Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEBRip [H.265/1080p] [10-bit] [MVO]
@@ -6,7 +81,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121969.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:1644F1F9450D6DAFF8F62E76DC04583D927D9F1D
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_121970.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_121970.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ magnet:?xt=urn:btih:1644F1F9450D6DAFF8F62E76DC04583D927D9F1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121971.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121972.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ Shingeki no Kyojin: The Final Season (2022) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121973.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ magnet:?xt=urn:btih:4CF69C7F7C61395FE386A26C5EE420440CE1BE36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121974.jpg" />
 </div>
 
 
@@ -150,7 +225,7 @@ magnet:?xt=urn:btih:1BACD4ACDA2FE68E7B26EB6724AE5A5475CBF64C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121975.jpg" />
 </div>
 
 
@@ -174,7 +249,7 @@ magnet:?xt=urn:btih:DF91B7A79F69D75048742E22C40623CC02106F0A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121976.jpg" />
 </div>
 
 
@@ -198,7 +273,7 @@ magnet:?xt=urn:btih:A1AD7673F7BF1C986B1280C82E6C7D9AD37061E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121977.jpg" />
 </div>
 
 
@@ -222,7 +297,7 @@ magnet:?xt=urn:btih:997BF98D17063896DAA81B1A637FC45D4A76C0DC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121978.jpg" />
 </div>
 
 
@@ -246,7 +321,7 @@ magnet:?xt=urn:btih:7DF30FC7C8F0B2EAD7877B874A558291ACFBF8E3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121979.jpg" />
 </div>
 
 
@@ -270,7 +345,7 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121980.jpg" />
 </div>
 
 
@@ -294,7 +369,7 @@ magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121981.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121982.jpg" />
 </div>
 
 
@@ -348,7 +423,7 @@ Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121983.jpg" />
 </div>
 
 
@@ -375,7 +450,7 @@ magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121984.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Michael Nadolny - Heart Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121985.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121985.jpg" />
 </div>
 
 
@@ -428,7 +503,7 @@ magnet:?xt=urn:btih:72F7C2AC97DFFA06F786ED2470AE094B0683DBD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121986.jpg" />
 </div>
 
 
@@ -454,7 +529,7 @@ magnet:?xt=urn:btih:4DF51C12C0ADC495524B7193EF331286EDC812BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121987.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121988.jpg" />
 </div>
 
 
@@ -508,7 +583,7 @@ magnet:?xt=urn:btih:7399B037C2B133C3B234D2D1828C3489BEB13091
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121989.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121989.jpg" />
 </div>
 
 
@@ -536,7 +611,7 @@ Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121990.jpg" />
 </div>
 
 
@@ -563,7 +638,7 @@ magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121991.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121991.jpg" />
 </div>
 
 
@@ -576,84 +651,6 @@ magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50103CF8391263A87F92D360F42EEF733A417F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693162   (121992) от 19.01.2024
-
-Реформаторы / The Reformers (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так называемая "Лига гражданской чистоты" выдвигает одного дяденьку в мэры. Вот он и, чтобы оправдать доверие, начинает активно реформировать общество, бороться за чистоту рядов, так сказать. Ну, то есть - пиво это плохо, легкомысленные отношения плохо, танцульки плохо. В общем дело-то хорошее, может излишне усердно он это делал. Но не зря второе название (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Хилл Майлз, Дженни Ли, Роберт Херрон, Мэй Марш, Кейт Брюс, Уолтер Миллер, Гертруда Бембрик, Кэтлин Батлер, Уильям Дж. Батлер, William CourtrightПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74437230CD9453443516C5EB1621E5E58EE1001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693045   (121993) от 19.01.2024
-
-Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Special [3:41]
-02. My Mother's Eye [5:27]
-03. Stitt in Time [4:14]
-04. Blue Skies [4:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26361D6AB4F9D3B82B35C5FC920CE1C9272D7A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693182   (121994) от 19.01.2024
-
-Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and Positive Vibes  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last December (3:39)
-02. Play Me Like a Guitar (3:16)
-03. Her Hazle Eyes (3:29)
-04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
 ```
 
 

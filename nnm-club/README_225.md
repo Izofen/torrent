@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5927.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5928.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E5235DC6673999F08EA451CE8B8D46958DD3B4BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5929.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Новинки Шансона Жаркое лето.: Сборник бла
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5930.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AA71866CA954FA46CDBA6FCCC42D3C29D7793639
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5931.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5932.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5213A3FFA3EB018D3F36509C21D2166EA54201AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5933.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5934.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5935.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:CAC747F166E99E0A38542BE4AAB6228B2E8C8BE2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5936.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B9B8FBBF7906DA9F7631535C44EB3875D8EBD379
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5937.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:6DCF59DE4E2582DB0C3CB9B398986A7E71818BDA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5938.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:BCAE21D2203319D10FA495A70D533631FE5C1DFC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5939.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2B0E6A5D0015FFB17F3120EC1911C67AE2146203
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5940.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:2C6896E0043A755568A331A33E0FD22A6587F4B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5941.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:52341A83C916B80769901F737ED27AFBC715B18B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5942.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:A6AE4D76FB3A83271DE57B8EB890A2A0FC9114E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5943.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:2C0F5EA7E449A59969014792C3DC8787E84686AC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5944.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7ED4A796E752BDA2816966E913E528A164BE9146
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5945.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:6F118EAACB19DCD4E6DC7B5F5B4DA85D7BD02B7B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5946.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:239C0119CF1FD4DC91C7864DD1F6F9D91459C7EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5947.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:A2E11230B397BAA6BDA78C7E87512BB706685F81
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5948.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5949.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:2835478A97B882DED27805451CEC634F423CB8B2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5950.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:E0B900543746AE25C792F3209021CC420AE1B350
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5951.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:464F2B07DE48C97C93C8CBFA5833D49AD9431BC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_5952.jpg" />
 </div>
 
 

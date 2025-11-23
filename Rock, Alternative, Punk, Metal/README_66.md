@@ -6,7 +6,7 @@ Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67966.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67982.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67982.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - El mes del Rock - Abril 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68017.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Deafheaven - Lonely People With Power (2025) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68020.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eternal Thirst - The Nesting of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68024.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aborted - Vault Of Horrors (2024) [APE|Lossless|image + .cue] <Death Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68065.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:1EE1565F050C714BF7380C6A8F78C557BBA89A19
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68074.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dream Theater - The Broadcast Archives - Classic Live FM Broadcast Recordings (2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68079.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68084.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68085.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68085.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68086.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68086.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Otto Dix - Классика (2025) [MP3|320 Kbps] <DarkWave, New Age, Акуст
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68089.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68089.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:1E8E6A1B6F024A554FD4FB00226D91F2B0824344
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68090.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68090.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Solar - Frantically Calm (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68093.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68093.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Arida Vortex - Wild Beast Show (2016) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68095.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68095.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Urn - Demon Steel (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68099.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68099.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Arida Vortex - Hail to Rock (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68118.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Calyces - Fleshy Waves of Probability (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68145.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Stealth - Metal Force (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68146.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Otto Dix - Классика (2025) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, New 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68161.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Moon Destroys - She Walks By Moonlight (2025) [FLAC|Lossless|WEB-DL|tracks] <psy
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68174.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Seven - Interdimensional Act III Shadows in the Sky (2025) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68200.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Borssch (Борщ) - Экзистенция (2025) [MP3|320 Kbps] <Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68213.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Imperial Triumphant - Goldstar (2025) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68223.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68223.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Amerikan Kaos - All That Jive (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68243.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Eric Clapton - From the Cradle (1994) CD, Album, Club Edition, BMG Direct Market
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68266.jpg" />
 </div>
 
 

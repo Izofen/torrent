@@ -1,3 +1,78 @@
+###  Публикация: 1701820   (116194) от 22.02.2024
+
+MouseBoost pro for Mac 3.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение MouseBoost, ранее как GM Right Mouse Pro, устанавливается как расширение Finder и объединяет более 30 видов небольших инструментов.  Способ работы очень прост: пока вы нажимаете правую кнопку мыши, вы можете активировать все виды функций, которые вы хотите, так что эффективность вашей работы значительно повышается.Тип издания: macOS SoftwareРелиз состоялся: 22.06.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702C6CE81CD7232E8EDD7CB36199C1EBAAB0DF8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701670   (116195) от 22.02.2024
+
+Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just My Cup Of Tea [03:35]
+02. Mid Life Crisis [03:08]
+03. Coz We Luv You [03:57]
+04. I Won't Be Playing Wonderwall Tonight [04:07](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701602   (116196) от 22.02.2024
+
+Агентство разбитых сердец / Die Liebeskummerer (2024) [H.264/1080p] [UKR, GER / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циничный журналист безрассудно решается на терапию для разбитых сердец ради написания статьи, но в итоге влюбляется в очаровательного терапевта.Производство: Германия / UFA FictionЖанр: мелодрама, комедияРежиссер: Ширел ПелегАктеры: Розалия Томас, Лоуренс Рупп, Джейкоб Шрейер, Джерри Хоффманн, Денис М’Байе, Шарлин Дец, Мария Хофштаттер, Тимур Исик, Озгюр Карадениз, Эриель Нил ЛевиПеревод: Дублированный (укр. Так Треба Продакшин / Netflix)Язык озвучки: украинский, немецкийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17145ED540174C39E10D72DEF164BF87833D7307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701725   (116197) от 22.02.2024
 
 Дрифт – Партнеры по преступлению / Drift - Partners in Crime (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-5 из 5) ViruseProject [AD]
@@ -6,7 +81,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116197.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ DiskDigger 2.0.1.3863 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116198.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ TweakNow WinSecret Plus! 5.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116199.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ Image Uploader 1.4.0 Build 5130 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116200.jpg" />
 </div>
 
 
@@ -103,7 +178,7 @@ magnet:?xt=urn:btih:71AE4792F4031631AB427C7E290C7085F871E8B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116201.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116202.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116203.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:330EE62FB2DF1CA5453FBE0C3E386417FF84D756
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116204.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ magnet:?xt=urn:btih:1E985AB1A96E318BB9ED380ABB95C3922C1DD828
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116205.jpg" />
 </div>
 
 
@@ -227,7 +302,7 @@ magnet:?xt=urn:btih:61CC56E5ECA91978556664B3526C488C47E556FD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116206.jpg" />
 </div>
 
 
@@ -251,7 +326,7 @@ doPDF 11.9.444 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116207.jpg" />
 </div>
 
 
@@ -276,7 +351,7 @@ WinSCP 6.3.1 Build 14821 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116208.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ Nada (Nada Malanima) - Collection (1969-2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116209.jpg" />
 </div>
 
 
@@ -328,7 +403,7 @@ magnet:?xt=urn:btih:C291927830820B21557A29D1E6301D7FC88CA86A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116210.jpg" />
 </div>
 
 
@@ -352,7 +427,7 @@ magnet:?xt=urn:btih:17DD8C4DB633F2125A6CABE00C56C1F0AF57AD0C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116211.jpg" />
 </div>
 
 
@@ -377,7 +452,7 @@ Image Uploader 1.4.0 Build 5129 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116212.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116213.jpg" />
 </div>
 
 
@@ -425,7 +500,7 @@ magnet:?xt=urn:btih:E651C71DC6D7ACFB74A1537C97FC42BA3927266A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116214.jpg" />
 </div>
 
 
@@ -449,7 +524,7 @@ ExamDiff Pro Master Edition 14.0.1.24 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116215.jpg" />
 </div>
 
 
@@ -473,7 +548,7 @@ LibreOffice 7.6.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116216.jpg" />
 </div>
 
 
@@ -497,7 +572,7 @@ magnet:?xt=urn:btih:AFBCA9A1D2FE02413A7B8C7E46955FCB45274E39
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116217.jpg" />
 </div>
 
 
@@ -521,7 +596,7 @@ magnet:?xt=urn:btih:BD36142634B50CB7EFA35D3B595F5C3204F88D96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116218.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ magnet:?xt=urn:btih:52C3EA38F6EA6D06B600A1308A0DF1A93034F513
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116219.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116219.jpg" />
 </div>
 
 
@@ -559,78 +634,6 @@ magnet:?xt=urn:btih:52C3EA38F6EA6D06B600A1308A0DF1A93034F513
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE3C60D76C7F7C3AB4542FD007C467E011169673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701867   (116220) от 22.02.2024
-
-Opera One 107.0.5045.36 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BFA1DE7A6E1C3B91B34B845BA8746D3742382D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701674   (116221) от 22.02.2024
-
-Воспоминания о Марни / Omoide no Marnie / When Marnie Was There (2014) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116221.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летняя Анна — замкнутая и необщительная девочка. У неё нет друзей, и единственная её отдушина — это рисование. Из-за слабого здоровья Анну отправляют на лето в небольшой городок на Хоккайдо. Там она встречает Марни — девочку, живущую в большом богатом доме на отмели. Постепенно они становятся хорошими друзьями.Производство: Япония / Studio GhibliЖанр: аниме, мультфильм, драма, фэнтезиРежиссер: Хиромаса ЁнэбаясиПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F5A9D7A1C0ABE7ACC43CDA95F366F01B6A39A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701658   (116222) от 22.02.2024
-
-USB Device Tree Viewer 4.0.4.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116222.jpg" />
-</div>
-
-
-###  Подробнее
-
-UsbTreeView - маленькая портативная утилита, реализующая большую, по сравнению со стандартным средством, наглядность представления USB портов, хабов и устройств, посредством древовидного списка и поля информации, с возможностью копирования текста простым выделением. UsbTreeView основан на образце USBView из комплекта драйверов Windows Server 2003, но дополнен: лучшими (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2008FB03F98297B3C6356640D560033DDF2CDA52
 ```
 
 

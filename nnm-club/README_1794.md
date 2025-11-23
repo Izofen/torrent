@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_46999.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Space Prison (2024) [Ru/Multi] (1.0.6/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47000.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47000.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ My Recycling Center (2024) [Multi] (1.2/dlc) Scene TinyISO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47001.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AVS Image Converter 6.0.4.337 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47002.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47002.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5DF281CB4307D9586B8A728440632C1539B9B0A5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47003.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:FF5E531A6394B649703035F0A17DB2DCC1FB8DC5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47004.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:623A5F8053BDA285375DA503FB8AFBB2063DC0CE
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47005.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ StartAllBack 3.8.3 build 5133 (DC-12-08-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47006.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47006.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47007.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47007.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47008.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2ABA54F0719F0D9A635E30BA152FBD2B62F01E2C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47009.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FastCopy Pro 5.7.15 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47010.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4F8E18E53E9CE4E49BEC88BFFD645710106040E0
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47011.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:96C827DF539D68EA522662219324A16C75DD3738
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47012.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FD80EFAD1C689EFFAA21516CFAF712BBE8487249
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47013.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:E182A9358DA28024C74CDE5C55D36C93C1D57DB3
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47014.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47014.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:70024FCFF4DCDF4C4C1DB09F49AB2037E72DE5D2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47015.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47015.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:92AFC51057656CE6B774547DCCAD544CFA7785BA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47016.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47016.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:007E700036877BC075454114B104504A64AC6EAC
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47017.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47017.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:6AC5F64A66166A212BC0B31D07138C07F6177808
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47018.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Black Jack - Black Jack (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47019.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:245D22047B93CDB7103A3709BF008CDB0A2EE576
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47020.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:399F3B64642C59E8D581848489C6EA6AB3B4E573
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47021.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Rewind - I'm In Rewind (2024) Compilation [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47022.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47023.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:9962CA6627B4A17676B39DB3E96C0B8C191F625A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47024.jpg" />
 </div>
 
 

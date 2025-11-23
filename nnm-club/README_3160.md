@@ -1,3 +1,81 @@
+###  Публикация: 1766239   (101268) от 17.12.2024
+
+VA - The Blue Giants: Live At Groove Now (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mike Zito -- Funky Mama (Live) (5:24)
+02.Mike Zito -- Love Her With A Feeling (Live) (8:18)
+03.Mike Zito -- Every Day I Have The Blues (Live) (6:17)
+04.Mike Zito -- Texas Flood (Live) (9:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C497361A555D62D044C377DBE70091A25E8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766264   (101269) от 17.12.2024
+
+Считалки в картинках / Skatampanti (1988) [H.264/1080p] 35mm Film Scan
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный мультфильм для детей по мотивам считалочек Яниса Балтвилкса.Производство: СССР / Rigas KinostudijaЖанр: короткометражка, мультфильмРежиссер: Розалия СтиебраСубтитры: отсутствуютПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBFED5A595B64FF0670B87F6C1C3131C1094BF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766199   (101270) от 17.12.2024
+
+Тест-драйв Toyota Land Cruiser Prado 250 — Минтранс (10.08.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101270.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Toyota Land Cruiser Prado 250: японская новинка в Китае. Правда ли, что классика вечна?
+🔸 Юридические нюансы. Разрешено ли иметь один автомобиль и два полиса ОСАГО?
+🔸 Самые нелепые мифы. Можно ли смешивать антифриз?
+🔸 Lada Largus: все «за» и «против».(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF82E877533147A15F021D2DEFD0BBFD54E1039F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766141   (101271) от 17.12.2024
 
 Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
@@ -6,7 +84,7 @@ Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101271.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:BDC41A1A8C5AB6E8D29CA30CB906BACBD18DE3B9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101272.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ VA - Best of Fables 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101273.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101273.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Southern Mojo - One Take Jam (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101274.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101275.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101276.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101277.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101278.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101278.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ magnet:?xt=urn:btih:657291AD8C4A24C013650CE5CEFBF956414A8E36
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101279.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101279.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101280.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ magnet:?xt=urn:btih:FE0F40E1B74884C356A1136F0E99C66D88270D2A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101281.jpg" />
 </div>
 
 
@@ -291,7 +369,7 @@ Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101282.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101283.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101283.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101284.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101284.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101285.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101285.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101286.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101287.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101287.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101288.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101289.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101289.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ magnet:?xt=urn:btih:A2C852E13A19F7CD5AEB9CBD50ADD38C040E4CF4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101290.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101291.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101292.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ magnet:?xt=urn:btih:E2DD317345CEBB9D482432B13D9650D5785AFCC9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101293.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101293.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ magnet:?xt=urn:btih:E2DD317345CEBB9D482432B13D9650D5785AFCC9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8435C61B583D6671155CFD18BF730880C8105CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765944   (101294) от 15.12.2024
-
-Чудо техники с Сергеем Малозёмовым (15.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утепляемся технологично! В чем секрет одежды и обуви с мембраной? В каких случаях дорогая куртка не оправдает надежд покупателя? Большой тест гаджетов с подогревом для рук, ног и всего тела! Кокосовое масло: реклама обещает удивительную универсальность, но стоит ли на него тратиться?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B15FEB9C21489BAAA8B6564F5F5BAB9B2FE864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765892   (101295) от 15.12.2024
-
-VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Da Mata - Aich (5:42)
-02. Indiano - Meditation (10:28)
-03. Kalico Jak - Sunlight Through the Treetops (9:04)
-04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766007   (101296) от 15.12.2024
-
-Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101296.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Это игра (00:03:29)
-✧ 02 - Выбора нет (00:04:05)
-✧ 03 - Летала душа (00:04:48)
-✧ 04 - Что будет с нами- (00:03:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
 ```
 
 

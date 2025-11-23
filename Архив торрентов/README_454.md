@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99838.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ magnet:?xt=urn:btih:F9D2FCACCD54493EE0EDE90DB93B7090D03F41BD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99839.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99839.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Cindy Lora-Renard - Journey Through Sound (2009) [MP3|160-320 кб/с]<New age, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99840.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99841.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99841.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Scion Versions - Label Pack (7 релизов) (2006-2010) [FLAC|Lossless]<Dub T
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99846.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Randall - Eight Storeys (2004) [MP3|320 кб/с]<Ambient, Istrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99851.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Astrohenge - II (2011) [MP3|320 кб/с]<Progressive Psychedelic Sludge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99852.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Decontrolled - The Circle (2012) [MP3|320 кб/с]<Modern Metal, Nu-Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99853.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Curandero - Aras (2010) [MP3|320 кб/с]<World>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99855.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ DotEXE - Donations Accepted (2012) [MP3|320 кб/с]<Drum'n'Bass, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99859.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99864.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:46D7812E5FFA15912B09801401205E10A1974F1F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99870.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:637269915AD9FEA3AE6F1D0C232180CD4A81B72F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99872.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - DJ Club Spring (2012) [MP3|160-320 кб/с]<Club, Dance, Electro, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99878.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99880.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99880.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99881.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_99881.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:5AA3E003A567BFD109FE4936D73ADC7C1583C8E2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99888.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99896.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99900.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:BC93603AC3C4D44BD749E789BD8A960C4D1B3D03
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99911.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99913.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99915.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:3D4F37DD46B5FD690D454CAF4943CD5C0A90ECD0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99943.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99944.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99949.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99950.jpg" />
 </div>
 
 

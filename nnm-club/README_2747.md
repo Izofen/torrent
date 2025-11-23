@@ -6,7 +6,7 @@ Windows 7 Ultimate SP1 x32 x64 WPI By StartSoft v 7.02.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pink Floyd - The Dark Side Of The Moon, Wish You Were Here: Immersion Box Set (1
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pink Floyd - The Dark Side Of The Moon, Wish You Were Here: Immersion Box Set (1
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73761.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Pink Floyd - The Dark Side Of The Moon, Wish You Were Here: Immersion Box Set (1
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73763.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Pink Floyd - The Dark Side Of The Moon, Wish You Were Here: Immersion Box Set (1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73808.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73808.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:7ECB12002A544BF615E3579D814487B040C0F61B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73822.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:B4E802794413064D18B8EC1967ABEA899B02A20D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73841.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B4E802794413064D18B8EC1967ABEA899B02A20D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73851.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4CC788966459CA8DE5F49BBF51F40ED464EA7E4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73861.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4CC788966459CA8DE5F49BBF51F40ED464EA7E4B
 >>Архив Авто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73863.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5AF4FB02A8FC0AD96ED1EFFC347F730CB03824BD
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73868.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Зимняя сказка: Лучшие детские песенки (2012
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73871.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:912F6D54CBA6BBEEE7ECBB61D0AE3E5C1C1A740F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73877.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:991EFD6EE401C7899D0F120DD1F55EEA1025D9EE
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73886.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73886.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:991EFD6EE401C7899D0F120DD1F55EEA1025D9EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73894.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:991EFD6EE401C7899D0F120DD1F55EEA1025D9EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73899.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:991EFD6EE401C7899D0F120DD1F55EEA1025D9EE
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73901.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:991EFD6EE401C7899D0F120DD1F55EEA1025D9EE
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73910.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:8E05DA7C9B21F2C2B3C348597A263AE2A990F1A7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73911.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:68D1868C94590D9D49DB4416E2F84792FFC4F89B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73912.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:AAC64B127009ED0EDAB319D88976D07F48F9855B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73922.jpg" />
 </div>
 
 
@@ -524,6 +524,31 @@ magnet:?xt=urn:btih:3F938BB0E855B87553DE45076B578C2EAE135FCC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446079   (73934) от 03.02.2012
+
+Хорошие новости - «интеллектуальной собственности» не существует
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_73934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закрытие ресурса EX.UA за нарушение прав «интеллектуальной собственности» взволновало интернет-общественность до такой степени, что эта общественность принялась атаковать правительственные сайты и даже преуспела в этом занятии.
+Оставляя в стороне весьма показательную безумность этой реакции (думаю, правительство только обрадовалось, избавившись от сайтов), отметим, что причина такого поведения очевидна — интернет-общественность активно тырила на этом ресурсе разного рода приятные глазу продукты и это занятие превратилось у нее в добрую привычку. Государство, тоже широко известное своей клептоманией, обидело интернет-общественность, закрыв шаровой ресурс да еще и под соусом защиты прав собственности, что, конечно, выглядит особо цинично, учитывая привычки государства. Общественность возмутилась и под лозунгами «значит нам нельзя а вам можно?» кинулась атаковать вражеские сайты.Оставим, опять-таки, в стороне любимую автором тему украинского «общественного договора», который в полной мере явил свою суть в этом конфликте, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 445564   (73936) от 03.02.2012
 
 Девушка с татуировкой дракона / The Girl with the Dragon Tattoo (2011) DVDRip
@@ -532,7 +557,7 @@ magnet:?xt=urn:btih:3F938BB0E855B87553DE45076B578C2EAE135FCC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73936.jpg" />
 </div>
 
 
@@ -556,7 +581,7 @@ magnet:?xt=urn:btih:9C70FD2C2E5BCE4D2A107DFEE82E55DF02945160
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73941.jpg" />
 </div>
 
 
@@ -581,7 +606,7 @@ Imperium Galactica [Ru] (RePack) 1997 | Pilotus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73944.jpg" />
 </div>
 
 
@@ -605,7 +630,7 @@ magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73949.jpg" />
 </div>
 
 
@@ -617,32 +642,6 @@ magnet:?xt=urn:btih:EA711EB470BED667773F9CE73531EF43559798DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24D4F26E809A233264822F7929E812715584883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446167   (73950) от 03.02.2012
-
-Мушкетеры / The Three Musketeers (2011) [H.264/720р-LQ] BDRip [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой д’Артаньян покинул родной дом и отправился в Париж, надеясь на место в полку мушкетёров. По случайности в один день он обидел сразу троих мушкетёров — Атоса, Портоса и Арамиса — и получил от всех троих вызовы на дуэль.
-
-Но дуэль была прервана появлением гвардейцев кардинала, которые хотели арестовать их за нарушение указа о запрете дуэлей. Д’Артаньян и три (   Читать дальше...   )Производство: США / Германия / Франция / Великобритания, Constantin Film Produktion, Nouvelles Éditions de Films (NEF), New LegacyЖанр: Боевик, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Орландо Блум, Кристоф Вальц, Логан Лерман, Мэтью Макфейден, Рэй Стивенсон, Люк Эванс, Мадс Миккельсен, Габриэлла Уайлд, Тиль ШвайгерПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 

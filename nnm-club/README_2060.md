@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53925.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ultimaker Cura 5.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53926.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:060C01F6B877F1A4BB8C22BBCF5188D3093A150C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53927.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Biker Blues, Hard Times (2024) vol.1 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53928.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E16B2B514A2AD314BFC45A98B19FD5A1461B31FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53929.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Armada Chill - Summer 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53930.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53930.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:D92548200BF2F4D04EDF18D976F19BD6C2CA57A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53931.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Myth or Reality 3: Snowbound Secrets (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53932.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:5F8BE028AF604F1231F099BD1B2928105B611046
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53933.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D961E012BB6FE64E3973FA0958B0EAAF364AE8A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53934.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:65A6CCB174E6FD3FAC2057C6B0B00A1A99926830
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53935.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8636160158A4552D29C1BA6A90DDAC593C6AA46B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53936.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6923183EA3058E983CB8F447E1C2ACCFE815350B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53937.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:8BC84DE0D499DBA9B643F160D08DEC6EAF536F37
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53938.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:AC1E92D64BA8E01569C71BBA81D47B69CB03B97B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53939.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:A29205AA19EE3FBB3FF2971647553F548F2BE3BA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53940.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3F8FA89971B74186F6B8B589657E18C7C9AEFF87
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53941.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Eguana, Germind - Controlling The Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53942.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53943.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:10A7F475F244E317F4F5C0BFF6C18C07852BC40D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53944.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:BF920BC4A5102DD8005759D952DBF1A4B31B8CD4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53945.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A4949E38D8299F0F9E7521EDE71B8AC45A575AD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53946.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5BEEC238D4FB6905AA6BB3AE636E6BFF136B6B5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53947.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0C8E8B87178D5E99C15E528464855616748D2D7B
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53948.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.7.2 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53949.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A8BB15C76955083782E1F639516263272910E5E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_53950.jpg" />
 </div>
 
 

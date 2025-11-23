@@ -1,3 +1,78 @@
+###  Публикация: 1822495   (101057) от 06.10.2025
+
+Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited (Live At Lockn') (2025) [FLAC|Lossless|tracks + .cue] < Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Letter
+02. Darling Be Home Soon
+03. Dixie Lullaby
+04. Sticks And Stones(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0200E7B2B13FC2451965AE4B09B0CC9604C1A961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822489   (101058) от 06.10.2025
+
+FBReader Premium v3.8.19 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 06.10.2025Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE04741F4DCFB7F92D283904A9BEFBC56F6C50FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822491   (101059) от 06.10.2025
+
+Listen Audiobook Player v5.3.4 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 06.10.2025Разработчик: acme-android.comПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3F46245ED7DBA2C696E3A5E590EEBB74C031AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822209   (101060) от 06.10.2025
 
 Nicky Romero - Tomorrowland Friendship Mix (2025-10-02) [MP3|320 Kbps] <Dance, Electro Pop>
@@ -6,7 +81,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2025-10-02) [MP3|320 Kbps] <Dance, E
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101060.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.2 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101061.jpg" />
 </div>
 
 
@@ -57,7 +132,7 @@ Photo Editor v12.0 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101062.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ Photo Editor v12.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101063.jpg" />
 </div>
 
 
@@ -105,7 +180,7 @@ magnet:?xt=urn:btih:480197FF1D5DF2E4C42ADCF2B7F55B053E3860FF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101064.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101064.jpg" />
 </div>
 
 
@@ -129,7 +204,7 @@ DocuFreezer 7.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101065.jpg" />
 </div>
 
 
@@ -153,7 +228,7 @@ magnet:?xt=urn:btih:F77589765DD74FF82C5C7055F76F3D04ECA6C429
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101066.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101066.jpg" />
 </div>
 
 
@@ -177,7 +252,7 @@ magnet:?xt=urn:btih:7BDF11DCF783778AED62C9C64C2C05350BDFAF6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101067.jpg" />
 </div>
 
 
@@ -201,7 +276,7 @@ StaxRip 2.50.3.5 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101068.jpg" />
 </div>
 
 
@@ -226,7 +301,7 @@ magnet:?xt=urn:btih:EC2C4DD6BC3659AAED01BCBF56B4AF9BF07A27E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101069.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101069.jpg" />
 </div>
 
 
@@ -250,7 +325,7 @@ magnet:?xt=urn:btih:5CAAE4C4AD44E5E0986E2167AF82DB2DB80F3564
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101070.jpg" />
 </div>
 
 
@@ -274,7 +349,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101071.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101071.jpg" />
 </div>
 
 
@@ -301,7 +376,7 @@ magnet:?xt=urn:btih:7BACB26D48733FB929F6B06DD7B532A17B3DF956
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101072.jpg" />
 </div>
 
 
@@ -325,7 +400,7 @@ magnet:?xt=urn:btih:F987D2BC4C4DB7B75DF12AF431870568AB82DEA0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101073.jpg" />
 </div>
 
 
@@ -349,7 +424,7 @@ MORTEN - Live @ Mainstage, Ultra Music Festival Japan (2025-09-13) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101074.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101074.jpg" />
 </div>
 
 
@@ -376,7 +451,7 @@ magnet:?xt=urn:btih:AA829C41D6EDF47C2F6B84453DE2ACDA790E1DB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101075.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101075.jpg" />
 </div>
 
 
@@ -401,7 +476,7 @@ magnet:?xt=urn:btih:BFDD3621E21A4871F0B14C9054FD0B5269A29B9B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101076.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101076.jpg" />
 </div>
 
 
@@ -426,7 +501,7 @@ magnet:?xt=urn:btih:DF909E7E897E4F8399D3281BCD1288CE04A10134
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_101077.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_101077.jpg" />
 </div>
 
 
@@ -450,7 +525,7 @@ magnet:?xt=urn:btih:DF909E7E897E4F8399D3281BCD1288CE04A10134
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101078.jpg" />
 </div>
 
 
@@ -474,7 +549,7 @@ magnet:?xt=urn:btih:9B36C866FEB9E12249B838427BCDB1F6C538D02C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101079.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ magnet:?xt=urn:btih:D7851C08C0E4A33258F7FF90551CAF35825AB622
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101080.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101080.jpg" />
 </div>
 
 
@@ -524,7 +599,7 @@ magnet:?xt=urn:btih:C7B8CDAF757D64D9D780BC35222E0FFB1557E7AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101081.jpg" />
 </div>
 
 
@@ -548,7 +623,7 @@ FacePic - AI Face App v3.0.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101082.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101082.jpg" />
 </div>
 
 
@@ -559,78 +634,6 @@ FacePic — приложение AI Face, приложение для легко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E2E7C57DE603763E69D68660F02099AF552B80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822240   (101083) от 05.10.2025
-
-SplitCam 10.8.60 (x64) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101083.jpg" />
-</div>
-
-
-###  Подробнее
-
-SplitCam - бесплатная программа способная существенно расширить возможности веб камеры и предназначенная для разделения видеопотока. Позволяет добавлять в видео всевозможные эффекты для веб камеры во время видеозвонков, накладывать 3D маски и рамки, применять различные фильтры и фоны, добавлять объекты, текстовые надписи. Кроме того присутствует возможность трансляции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7555920D220229F07D9073B2B5FCD9546867EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862043   (101084) от 05.10.2025
-
-Возмездие / Месть / Revenge (2012) WEB-DL [H.264/720p-LQ] (сезон 2, серии 22 из 22) (Fox Life)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101084.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета находится богатое семейство Грейсонов, живущих в Хамптонсе, на Лонг-Айленде, Нью-Йорк. Много лет назад Конрад и Виктория Грейсон подставили своего друга, Дэвида Кларка, свалив на него ответственность в организации террористического акта, повлекшего массовые смерти. Дэвид был осужден и умер в тюрьме. Спустя годы, его дочь, Аманда Кларк, возвращается (   Читать дальше...   )Производство: США / ABC Studios Page, Fright Temple, Hill EntertainmentЖанр: триллер, драма, мелодрама, детективРежиссер: Кеннет Финк, Мэтт Эрл Бисли, Сэнфорд БукставерАктеры: Эмили ВанКэмп, Мэделин Стоу, Гэбриел Манн, Джошуа Боуман, Ник Уэкслер, Генри Черни, Коннор Паоло, Криста Б. Аллен, Эшли Мадекве, Джеймс Таппер и др.Перевод: Многоголосый закадровый, профессиональный - Fox LifeПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F1640D866615578120B1AE781B19C242CDD765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970502   (101086) от 05.10.2025
-
-Клан ювелиров. Возмездие (2015) WEB-DLRip [H.264/720p-LQ] (сезон 5, серии 1-20 из 20)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101086.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире больших денег, лжи и интриг опасность грозит каждому, кто осмелится пойти наперекор установленным правилам игры. Однажды, в эпицентр противостояния двух враждующих ювелирных кланов попадают отчаянные влюбленные Зоя и Тимур. Вступив в схватку с самой судьбой, и не раз заглянув в лицо смерти, они будут бороться за свое право на счастье.Производство: Украина / Канал "Украина", "Front Cinema"Жанр: мелодрама, детективРежиссер: Дмитрий ГольдманАктеры: Наталия Денисенко, Андрей Фединчик, Константин Данилюк, Вячеслав Довженко, Валерия Ходос, Светлана Зельбет, Виктория Смачелюк, Елизавета Зайцева, Алексей Череватенко, Лилия Яценко и др.Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC09DFAE16B5CAAD6EF9A32A768D1517F6327FA
 ```
 
 

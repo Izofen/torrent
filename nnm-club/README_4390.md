@@ -1,3 +1,76 @@
+###  Публикация: 593116   (135346) от 23.12.2012
+
+Журнал | Photoshop User [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135346.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Photoshop User" - официальный журнал NAPP. Он публикуется 10 раз в год (плюс бонусные выпуски). Photoshop User широко известен, как наиболее надежный ресурс по Adobe Photoshop и Lightroom с уроками, советами и информацией "как сделать" для графических дизайнеров, фотографов и всего мира цифрового искусства.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679762   (135347) от 26.11.2023
+
+Борис Житков | Чёрные паруса (2008) [MP3, Алексей Морозов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), русский советский писатель. Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
+В состав диска вошли: повесть «Чёрные паруса» о приключениях плененного турками и проданного венецианцам в галерники казака, рассказы «Ураган» (о злоключениях (   Читать дальше...   )Жанр: Русская литература для детей, классика, приключения, повесть, рассказИздательство: Вира-МПродолжительность: 04:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679793   (135349) от 26.11.2023
+
+Наша банда. На собственном заднем дворе / Our Gang. Your Own Back Yard (1925) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Была когда-то в ихней Америке песня с таким названием. Общий смысл таков - если не хочешь неприятностей, оставайся на своем дворе. Может и скучновато, но безопасно. По-русски сказать - "сиди дома, не гуляй". И вот главный герой этого ролика, Фарина, иллюстрирует эту здравую мысль. Жаль, что качество фильма ниже всякой критики.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Гарри Бауэн, Уильям Гиллеспи, Charles Oelze, Фэй РэйПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F978749AC62A36FDC14DA7D4231EB3ECE3E7DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679714   (135351) от 26.11.2023
 
 Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
@@ -6,7 +79,7 @@ Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135351.jpg" />
 </div>
 
 
@@ -33,7 +106,7 @@ Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135353.jpg" />
 </div>
 
 
@@ -60,7 +133,7 @@ magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135354.jpg" />
 </div>
 
 
@@ -84,7 +157,7 @@ magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135355.jpg" />
 </div>
 
 
@@ -109,7 +182,7 @@ Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135357.jpg" />
 </div>
 
 
@@ -136,7 +209,7 @@ Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135358.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135358.jpg" />
 </div>
 
 
@@ -167,7 +240,7 @@ Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135359.jpg" />
 </div>
 
 
@@ -192,7 +265,7 @@ Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135361.jpg" />
 </div>
 
 
@@ -219,7 +292,7 @@ magnet:?xt=urn:btih:D8DEA6F24673496F97A9999FFB99D4283266D122
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135362.jpg" />
 </div>
 
 
@@ -243,7 +316,7 @@ Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135363.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135365.jpg" />
 </div>
 
 
@@ -294,7 +367,7 @@ magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135367.jpg" />
 </div>
 
 
@@ -320,7 +393,7 @@ magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135369.jpg" />
 </div>
 
 
@@ -344,7 +417,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135370.jpg" />
 </div>
 
 
@@ -368,7 +441,7 @@ iCompta 6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135371.jpg" />
 </div>
 
 
@@ -392,7 +465,7 @@ VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135372.jpg" />
 </div>
 
 
@@ -425,7 +498,7 @@ PrintLab Studio 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135373.jpg" />
 </div>
 
 
@@ -449,7 +522,7 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135374.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135374.jpg" />
 </div>
 
 
@@ -478,7 +551,7 @@ Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135375.jpg" />
 </div>
 
 
@@ -505,7 +578,7 @@ magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135379.jpg" />
 </div>
 
 
@@ -538,7 +611,7 @@ magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135384.jpg" />
 </div>
 
 
@@ -562,7 +635,7 @@ VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_135386.jpg" />
 </div>
 
 
@@ -595,7 +668,7 @@ VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135390.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_135390.jpg" />
 </div>
 
 
@@ -615,87 +688,6 @@ VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593110   (135391) от 23.12.2012
-
-Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135391.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593160   (135392) от 23.12.2012
-
-Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590274   (135397) от 23.12.2012
-
-Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135397.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:50)
-
-(1:30) 01. China Heart
-(4:39) 02. Snowy Mountain
-(6:27) 03. Chongsam
-(4:37) 04. Genghis
-(1:07) 05. Birdman
-(4:45) 06. Sparrows
-(6:01) 07. Mountain Mist
-(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
 
 

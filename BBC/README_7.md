@@ -6,7 +6,7 @@ BBC: 80 чудес света / Around the World in 80 Treasures (2005) [DVDRip]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176104.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BBC: Чудеса Солнечной Системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176142.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_176142.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176495.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_176495.jpg" />
 </div>
 
 
@@ -72,6 +72,30 @@ magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428251   (177266) от 05.12.2020
+
+BBC: Невероятные приключения температуры / From Ice to Fire: The Incredible Science of Temperature (2018) HDTVRip [H.264/720p-LQ] (1-3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_177266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё, что нас окружает существует в обширном диапазоне между холодом и жаром. Живое или мёртвое, твёрдое или жидкое, видимое или невидимое, у всего есть температура. Это скрытая энергия, таящаяся внутри материи. Бесконечное движение этой энергии стало архитектором, который сформировал нашу планету и нашу Вселенную. На протяжении трёх фильмов мы пройдём весь путь по (   Читать дальше...   )Производство: Великобритания / BBC Studios, British Broadcasting Corporation, BBC ScotlandЖанр: ДокументальныйРежиссер: Peter Oxley, Michael Duffy, Alex HemingwayАктеры: Helen CzerskiПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CCEADCB5902E332CC2F4ED079CFF55461EC0EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594213   (178671) от 30.11.2022
 
 BBC: Мир природы. Лосось: Серебряный прилив / The Natural World. Salmon: The Silver Tide (2000) SATRip (сезон 18, серия 14)
@@ -80,7 +104,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178671.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_178671.jpg" />
 </div>
 
 
@@ -105,7 +129,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183454.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_183454.jpg" />
 </div>
 
 
@@ -129,7 +153,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188364.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188364.jpg" />
 </div>
 
 
@@ -153,7 +177,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193602.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_193602.jpg" />
 </div>
 
 
@@ -177,7 +201,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194581.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_194581.jpg" />
 </div>
 
 
@@ -201,7 +225,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196491.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196491.jpg" />
 </div>
 
 
@@ -225,7 +249,7 @@ magnet:?xt=urn:btih:83666EF6CDC30067824E718D6710DEFA1DB70195
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203763.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -250,7 +274,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203941.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_203941.jpg" />
 </div>
 
 
@@ -274,7 +298,7 @@ magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204799.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_204799.jpg" />
 </div>
 
 
@@ -298,7 +322,7 @@ magnet:?xt=urn:btih:DD654D531921A4AF24D2D41E3FD43D5FB3E4BC66
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205760.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205760.jpg" />
 </div>
 
 
@@ -322,7 +346,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206960.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_206960.jpg" />
 </div>
 
 
@@ -346,7 +370,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207042.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -370,7 +394,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207777.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207777.jpg" />
 </div>
 
 
@@ -394,7 +418,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208846.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208846.jpg" />
 </div>
 
 
@@ -418,7 +442,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209885.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209885.jpg" />
 </div>
 
 
@@ -442,7 +466,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211376.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211376.jpg" />
 </div>
 
 
@@ -468,7 +492,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_217361.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_217361.jpg" />
 </div>
 
 
@@ -492,7 +516,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219090.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_219090.jpg" />
 </div>
 
 
@@ -516,7 +540,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220273.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220273.jpg" />
 </div>
 
 
@@ -540,7 +564,7 @@ magnet:?xt=urn:btih:823CDE158C7D08A5052B75DE4D5F3377E119A8D0
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220432.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220432.jpg" />
 </div>
 
 
@@ -564,7 +588,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220854.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_220854.jpg" />
 </div>
 
 
@@ -588,7 +612,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222022.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_222022.jpg" />
 </div>
 
 
@@ -599,30 +623,6 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FCBC14254D02FF84645657A8FB489C6EADEDD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342540   (222343) от 03.12.2019
-
-BBC: Биологические часы - как они работают? / Body Clock: What Makes Us Tick? (2018) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_222343.jpg" />
-</div>
-
-
-###  Подробнее
-
-У всех нас есть биологические часы, тикающие внутри и управляющие нашими ежедневными ритмами. Они влияют на наше здоровье так же как диета и физическая нагрузка. Конечно, было бы неплохо научиться управлять этими часами. Но сначала надо понять, как они работают. Для решения этой задачи биолог Элла Аль-Шамахи проводит необычный эксперимент - запирает испытуемого в (   Читать дальше...   )Производство: BBC StudiosЖанр: ДокументальныйРежиссер: Tom CookАктеры: Ella Al-Shamahi, Aldo KaneПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DE1B9C007A1BA0BE2743B695958328D2D909A8
 ```
 
 

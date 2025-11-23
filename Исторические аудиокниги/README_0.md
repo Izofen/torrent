@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:91D7C075A7070B7C81845510D2E5247A209E461E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6740.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:81D217669EAD089F6B5E1DE6FEEBF97EA993AE2E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_6768.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:74C31EB8B386B858721C5ADF3A510E41C6E434A2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_7697.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3747EB0D947A5FA498E7965369ACDCBAC780996B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11904.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0BA3817FB47DDF9CB6ABE9CE775238D0CFFB0C48
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13275.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_13275.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E1A6E0276945443130A86F25F13E679A41C93AC4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15548.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17992.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17992.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:37596CD375445108E5C3E28BFA90E0D4E16D5778
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18522.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:43ACCAA020D8BBCD6BF41149659596D96B5E51A2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18933.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9D06EC14C1EE161BDC2485B6AE33120260CFEF7E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20154.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20154.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:EFC9EDECF729C292DD69A4FA6CCB65F747AF99E9
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20258.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20258.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:E60505308F4B7843510DE114BAD4F0069B092E1F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20270.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20270.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:CCE26F4EA6EA959269B7B8DE98187CFFE7A70920
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20273.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20273.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B67BD8E72A27ABCC0BB47FCC9C0359F715D03FB2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20578.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20578.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:758CE46E7FB66198AE45F889FEFD66B1AEFA624D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_33874.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:09A1C30A0EBC49E7D37781434E5641E29FF4A0EC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34201.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:D88F61DA8CD910A6B20824A7B215DFE6253D7DC5
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34228.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:2DA1166D3F4838C04F79D31B3E49EE024F384673
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34491.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:E75D9F8909B896AF6CEF677942AA853EBD2CC6A6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_34844.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:09C0375C59300ECB2DB4C730F4DF13FEC03D445B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35429.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:2CC937FD600CCB65555338198EEA25045C52D1A2
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35794.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D5C58319D15EBE87679EC711BA8438C303FAEE5D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35999.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_35999.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:96CB25FC3E453E172B2FCBAABAC22A1FE328AF57
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36106.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:DC1328E2A4B2CA0CB881BAEC44D86539EF8BF197
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36202.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:63FA24132A2ACCCF70E3B51B05867340082D5E1B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_36252.jpg" />
 </div>
 
 

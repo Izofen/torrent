@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D0557459B7A0767B38F7D785CC3F73C26A51327
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3ECF4C16D9DA5541566CDFEE5062B8B7F1BC766C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42165.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0D6A9625DD86D8BC1691FF2B6F125CAF96BA52FA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42166.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42166.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MInstAll v.28.09.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42167.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mylene Farmer - 138 Realeases (1984-2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42168.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42168.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:19849F473C8B9970CA56D077D75FD0D3E3E6EF9D
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42169.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42170.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Decepti
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42171.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Hadean Tactics (2023) [Multi] (1.1.13) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42172.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42172.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42173.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42173.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2A5413A9E002BE7D7136A627C4E90097CD223FE5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42174.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ macOS 15 Sequoia 15.0 (24A335) ISO [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42175.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42176.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42176.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42177.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42178.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7561780608548DA99FE9E789F5E14BF019747F24
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42179.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A716DD3362C5FDF04282C82D8BC903F1F4585688
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42180.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4F3C94450A195082C376BA193FDBE80273177392
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42181.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Discord может быть заблокирован или замедлен в 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42182.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Discord может быть заблокирован или замедлен в 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42183.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Vivaldi 6.9.3447.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42184.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:48CEEC3008F25D88128FB0869DA2141B40364157
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42185.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E0B50A556C6270F3A07E3A41208B385DD5A1A37C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42186.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:182043DBDD5BF791AE75CADC6EF2E81D55D12ADC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42187.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ PdfFactory Std & Pro 9.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_42188.jpg" />
 </div>
 
 

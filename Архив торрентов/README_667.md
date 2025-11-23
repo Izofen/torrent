@@ -1,3 +1,51 @@
+###  Публикация: 1679048   (141288) от 23.11.2023
+
+CCleaner 6.18.10838 Free / Pro / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141288.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83928B853EDD0E52209A9EB45A015B9BDC311895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520383   (141289) от 28.12.2021
+
+uTorrent Pro v6.6.7 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141289.jpg" />
+</div>
+
+
+###  Подробнее
+
+uTorrent - официальное приложение на Андроид. Благодаря программе µTorrent для андроид находите и загружайте торренты в смартфон или планшет. Воспользуйтесь встроенным поиском для поиска и загрузки или используйте торренты прямо из браузера. Помимо всего этого есть возможность прямо из приложения подписаться на RSS-каналы.Тип издания: PatchedРелиз состоялся: 20.12.2021Разработчик: BitTorrent, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A430A3A0FAA5AF4B8E1B3E9E7A6BDD579832CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272912   (141290) от 29.12.2018
 
 DiskDigger 1.20.9.2683 [Multi/Ru]
@@ -6,7 +54,7 @@ DiskDigger 1.20.9.2683 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141290.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ XYplorer 20.60.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141291.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141291.jpg" />
 </div>
 
 
@@ -54,7 +102,7 @@ magnet:?xt=urn:btih:4899D815524A9461AA6FCF1321E1A4BD12A0A377
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141292.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ CoolUtils Total PDF Converter 6.1.0.257 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141313.jpg" />
 </div>
 
 
@@ -104,7 +152,7 @@ Microsoft Visual Studio 2019 Professional 16.4.1 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141315.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141315.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ Stellarium 0.20.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141321.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141321.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ Privatus 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141337.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141337.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141342.jpg" />
 </div>
 
 
@@ -204,7 +252,7 @@ magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141347.jpg" />
 </div>
 
 
@@ -229,7 +277,7 @@ magnet:?xt=urn:btih:9A06B3C3EEEE7E1A113DBB8F79C0477A60C19C3A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141360.jpg" />
 </div>
 
 
@@ -253,7 +301,7 @@ VueScan Pro 9.7.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141364.jpg" />
 </div>
 
 
@@ -277,7 +325,7 @@ uTorrent 3.5.1 Build 44332 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141379.jpg" />
 </div>
 
 
@@ -301,7 +349,7 @@ Auslogics Disk Defrag Pro 9.2.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141384.jpg" />
 </div>
 
 
@@ -325,7 +373,7 @@ Tor Browser Bundle 13.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141393.jpg" />
 </div>
 
 
@@ -349,7 +397,7 @@ AIMP 5.01 Build 2358 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141411.jpg" />
 </div>
 
 
@@ -374,7 +422,7 @@ magnet:?xt=urn:btih:9D1097B34B2B8C9BEDCC5730543D7E78F17260C2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141417.jpg" />
 </div>
 
 
@@ -407,7 +455,7 @@ Notepad++ 8.6.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141426.jpg" />
 </div>
 
 
@@ -431,7 +479,7 @@ SamDrivers 17.18 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141437.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141437.jpg" />
 </div>
 
 
@@ -455,7 +503,7 @@ Desktop Calendar 2.3.98.5453 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141444.jpg" />
 </div>
 
 
@@ -479,7 +527,7 @@ Victorious: Taking the Lead [Wii] [PAL] [Eng] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141453.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141453.jpg" />
 </div>
 
 
@@ -505,7 +553,7 @@ Chris Carter - Miscellany (2018) Anthology [FLAC|Lossless|tracks + .cue] <Minima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141472.jpg" />
 </div>
 
 
@@ -532,7 +580,7 @@ magnet:?xt=urn:btih:D9A1DEED9CED849EBC46345C66C76D9C43D9FD61
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141478.jpg" />
 </div>
 
 
@@ -557,7 +605,7 @@ Phill Veras - Alma (2018) [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141480.jpg" />
 </div>
 
 
@@ -584,7 +632,7 @@ Wise Care 365 Pro 3.95.353 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141492.jpg" />
 </div>
 
 
@@ -595,54 +643,6 @@ Wise Care 365 Pro 3.95.353 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D019444E5164620856D2AFE449309998AD0AD04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970414   (141506) от 30.12.2015
-
-Polarity 7.2.2 Build 647 [En] (Online-Installer)
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polarity – современный интернет браузер с поддержкой всех, необходимых для надежной и безопасной работы, функций. Polarity, относится к числу многочисленных поисковиков. Отличие Polarity от большинства подобных программ заключается, прежде всего, в высокой безопасности и надежности, неплохо выглядит интерфейс бесплатного обозревателя, но и конечно стоит отметить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF2AA1774E293E145B5328D77EA1CE96582EBB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678860   (141508) от 23.11.2023
-
-NetLimiter 5.3.6.0 (x64) RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141508.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F17EB8007CB01792C7109980E061F51788FE25
 ```
 
 

@@ -1,3 +1,80 @@
+###  Публикация: 1690347   (121888) от 20.01.2024
+
+A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (4:02)
+02. The Swing Of Things (4:14)
+03. I’ve Been Losing You (4:23)
+04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693259   (121889) от 20.01.2024
+
+Дмитрий Дашко | Непроходимые миры (2024) [MP3, Илья Кочетков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121889.jpg" />
+</div>
+
+
+###  Подробнее
+
+На родине его звали Артёмом. А потом он попал… в прямом смысле. В новом мире у него новое имя и новые навыки, которые так нужны в жестокой схватке с адептами запретной магии.
+
+Наш человек в мире волшебства и паропанка.Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8852133B6D07FFAEBBD9A57E35C7D69412F392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693356   (121890) от 20.01.2024
+
+Алекс Рудин | Дорога на Родас (Книга 2). Галактика на ладони (2024) [MP3, Вадим Балашов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалист по инопланетным контактам – прекрасная профессия! А моя любимая девушка – лучший пилот на всём курсе.Вот только на работу нас не берут. Об этом позаботился декан академии – самодовольный господин Флостус.Но декан не знает, на что способны уроженцы Местрии. Мы непременно выкрутимся, да ещё как!Жанр: ФантастикаИздательство: ЛитРес: чтецПродолжительность: 06:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D91DFC39F7DF5A6A37DDC5E2FBBFB15B9918B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693261   (121891) от 20.01.2024
 
 Патрик Кинг | Интроверт (2018) [MP3, Даниил Крылов]
@@ -6,7 +83,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121891.jpg" />
 </div>
 
 
@@ -30,7 +107,7 @@ Gradient v2.10.12 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121892.jpg" />
 </div>
 
 
@@ -54,7 +131,7 @@ magnet:?xt=urn:btih:6A57338EF896B6C781456C7A134E677EAEC8D0C3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121893.jpg" />
 </div>
 
 
@@ -78,7 +155,7 @@ magnet:?xt=urn:btih:381E5A33C9548F086F367CA2998F27B8962DD6D8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121894.jpg" />
 </div>
 
 
@@ -105,7 +182,7 @@ Elton John - Ballads (1994) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121895.jpg" />
 </div>
 
 
@@ -132,7 +209,7 @@ Soul Browser 1.4.02 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121896.jpg" />
 </div>
 
 
@@ -156,7 +233,7 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121897.jpg" />
 </div>
 
 
@@ -180,7 +257,7 @@ Desktop Aquarium Wallpapers 2.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121898.jpg" />
 </div>
 
 
@@ -204,7 +281,7 @@ magnet:?xt=urn:btih:6EFB9BFC7EEC127AFCFC49FF457EF817BAD87D36
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121899.jpg" />
 </div>
 
 
@@ -228,7 +305,7 @@ Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121900.jpg" />
 </div>
 
 
@@ -255,7 +332,7 @@ TreeSize Professional 9.1.0.1868 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121901.jpg" />
 </div>
 
 
@@ -279,7 +356,7 @@ magnet:?xt=urn:btih:2E335E7D49713E48038602150E80704D09BA3F0E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121902.jpg" />
 </div>
 
 
@@ -303,7 +380,7 @@ magnet:?xt=urn:btih:23F2282496A1B3767505B70D99D4F22ED2C75D74
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121903.jpg" />
 </div>
 
 
@@ -327,7 +404,7 @@ magnet:?xt=urn:btih:2F1F0195BCE2C44556E1E04B8963DD3DC4AF61A3
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121904.jpg" />
 </div>
 
 
@@ -351,7 +428,7 @@ Download Master 7.1.1.1727 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121905.jpg" />
 </div>
 
 
@@ -375,7 +452,7 @@ magnet:?xt=urn:btih:D476DA77DBBDE3E9AB397C272A1F0C23B6E64DEB
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121906.jpg" />
 </div>
 
 
@@ -399,7 +476,7 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121907.jpg" />
 </div>
 
 
@@ -426,7 +503,7 @@ magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121908.jpg" />
 </div>
 
 
@@ -450,7 +527,7 @@ Marcus J. Carey, Jennifer Jin | Series of books "Tribe of Hackers..." [4 кни�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121909.jpg" />
 </div>
 
 
@@ -477,7 +554,7 @@ magnet:?xt=urn:btih:98F4EF41CCC6EE792BC3D610B9AA41ABB23E463D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121910.jpg" />
 </div>
 
 
@@ -501,7 +578,7 @@ magnet:?xt=urn:btih:1C3C3E5D9160F4A1791F795D44DD51E296CFADEC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121911.jpg" />
 </div>
 
 
@@ -528,7 +605,7 @@ magnet:?xt=urn:btih:F4DF35371F8100C4C09F9F0F2EB8262317F8B7C6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121912.jpg" />
 </div>
 
 
@@ -552,7 +629,7 @@ OneCommander Pro 3.66.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121913.jpg" />
 </div>
 
 
@@ -564,84 +641,6 @@ OneCommander V3 — это современный файловый менедж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C09026E49ED4A284937EAE302091B3BBB1D189B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693297   (121914) от 20.01.2024
-
-VA - 80s and 90s Remixed, Vol. 2 - The Dance Hit Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disco Boys - Polizisten (2:28)
-02. Jason Parker Marzel - You Spin Me Round (Like a Record) (Housejunkee Remix Edit) (3:14)
-03. Micast - To France (2:29)
-04. Alex M. - Whoomp (There It Is) (2:38)(   Читать дальше...   )Жанр: Funky House, DanceПродолжительность: 01:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34076A917D9A5C22A277DF5FECD3E1CD09EF0879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693283   (121915) от 20.01.2024
-
-Русский Толковый Словарь v3.0.5.9 Mod by vadj, misuri78 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский –  офлайн Толковый словарь с легким и функциональным интерфейсом, охватывающим более 151.000 слов.Тип издания: FullРелиз состоялся: 17.05.2023Разработчик: TTdictionary OfflineПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCA5E25BFCCD955BB7C0D7F1803FAA14B77F5BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693434   (121916) от 20.01.2024
-
-Пётр Чайковский; Большой симфонический оркестр Всесоюзного радио и Центрального телевидения - Лебединое озеро (2023) 2 x CD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121916.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Интродукция 02:51
-Действие I
-02 1. Сцена 02:50(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FEBF5499EEFEB0D591BFB76BBC8B7E5767906B
 ```
 
 

@@ -1,3 +1,103 @@
+###  Публикация: 1671661   (171187) от 25.10.2023
+
+DxO PureRAW 3 for Mac v.3.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.
+С программным обеспечением DxO PureRAW легко и просто улучшить  файлы RAW, улучшайте свои фото в формате RAW, чтобы открыть еще больше возможностей с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C151C0C81DC2EBB2E770C237E69787833FF023D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671687   (171188) от 25.10.2023
+
+O&O Defrag Professional + Server 27.0 Build 8046 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171188.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
+
+При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого диска. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7701BEA5477B3D450895EE834061D70E53CB1DFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671710   (171192) от 25.10.2023
+
+R-Wipe & Clean 20.0.2427 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171192.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16D16D55FF9F822DE608D9D6D777B670BBD194A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671702   (171194) от 25.10.2023
+
+Alfred PowerPack 5.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2023Разработчик: © 2023 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A5807570EFD5117A4F6564C678AC5C3F853A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671602   (171195) от 25.10.2023
 
 Busuu - изучение языков 31.3.2(828895) Mod by maxi123444 [Ru/Multi]
@@ -6,7 +106,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171195.jpg" />
 </div>
 
 
@@ -30,7 +130,7 @@ K-Lite Codec Pack Update 17.8.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171196.jpg" />
 </div>
 
 
@@ -54,7 +154,7 @@ Icecream PDF Editor Pro 3.1.2  Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171197.jpg" />
 </div>
 
 
@@ -78,7 +178,7 @@ Capture One 23 Enterprise 16.3.0.76 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171199.jpg" />
 </div>
 
 
@@ -103,7 +203,7 @@ HWiNFO 7.65 Build 5250 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171206.jpg" />
 </div>
 
 
@@ -127,7 +227,7 @@ Lucky Patcher 10.9.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171207.jpg" />
 </div>
 
 
@@ -151,7 +251,7 @@ O&O DiskImage Professional 18.4 Build 335 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171211.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171211.jpg" />
 </div>
 
 
@@ -175,7 +275,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171213.jpg" />
 </div>
 
 
@@ -199,7 +299,7 @@ JetBrains DataSpell for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171214.jpg" />
 </div>
 
 
@@ -223,7 +323,7 @@ Money Pro - Personal Finance 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171215.jpg" />
 </div>
 
 
@@ -248,7 +348,7 @@ VueScan Pro 9.8.19 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171216.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171216.jpg" />
 </div>
 
 
@@ -272,7 +372,7 @@ Nova 11.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171218.jpg" />
 </div>
 
 
@@ -297,7 +397,7 @@ Speedtest от Ookla 5.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171222.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171222.jpg" />
 </div>
 
 
@@ -321,7 +421,7 @@ iA Writer 6.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171226.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171226.jpg" />
 </div>
 
 
@@ -345,7 +445,7 @@ JetBrains GoLand for Mac 2023.2.2 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171228.jpg" />
 </div>
 
 
@@ -369,7 +469,7 @@ Speedtest от Ookla 5.2.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171231.jpg" />
 </div>
 
 
@@ -393,7 +493,7 @@ AirMail Pro 5 v.5.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171234.jpg" />
 </div>
 
 
@@ -418,7 +518,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171242.jpg" />
 </div>
 
 
@@ -443,7 +543,7 @@ GM CHM Reader Pro for Mac 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171246.jpg" />
 </div>
 
 
@@ -467,7 +567,7 @@ Speedtest от Ookla 5.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171248.jpg" />
 </div>
 
 
@@ -491,7 +591,7 @@ OmniReader Pro for Mac 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171254.jpg" />
 </div>
 
 
@@ -515,7 +615,7 @@ CADintosh X 8.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_171255.jpg" />
 </div>
 
 
@@ -526,103 +626,6 @@ CADintosh позволяет ускорить проектные работы и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671513   (171273) от 25.10.2023
-
-Boxy SVG 4.14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2539134313CFA1D98363ABB7C21B10B5E30A8AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671590   (171274) от 25.10.2023
-
-File List Export 2.8.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171274.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2023 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B32D65FDD70CA64595C9010E412DCEDC4D539A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671600   (171275) от 25.10.2023
-
-Scrutiny 12.8.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: ©2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63820451C76DBFA182DD3558105C6C9C7826D03E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669829   (171277) от 24.10.2023
-
-KMS Tools Portable by Ratiborus 18.10.2023 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171277.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC2C464F1554C2858BA886B8F949B5BE9949BF3
 ```
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1617214   (250260) от 07.03.2023
+
+Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
+2004 - Since the Day it All Came Down
+2006 - Above the Weeping World
+2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834720   (250468) от 
+
+Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/004/save_picture_250468.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Boyd Brothers–	Keep It Coming	(7:19)
+A2	Charlene Davis–	Aggression	(4:29)
+A3	Nancy Dean–	Too Many Promises	(5:56)
+A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494949   (251202) от 11.05.2012
+
+Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_251202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Hung, Drawn And Quartered[04:35]
+ 02. - Stalingrad[05:59]
+ 03. - Hellfire[06:08]
+ 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836401   (252509) от 10.11.2025
+
+Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_252509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
+2020 - Forward We March
+2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608534   (253061) от 11.11.2025
 
 The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
@@ -6,7 +113,7 @@ The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253061.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253061.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_253082.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_253082.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254149.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254149.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254150.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254150.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254151.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254151.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254164.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254164.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cu
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254485.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254485.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254673.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254673.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254717.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254717.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254728.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254728.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254741.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254741.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254819.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254819.jpg" />
 </div>
 
 
@@ -332,7 +439,7 @@ Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254852.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254852.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254888.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254888.jpg" />
 </div>
 
 
@@ -386,7 +493,7 @@ magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_254994.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_254994.jpg" />
 </div>
 
 
@@ -413,7 +520,7 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255126.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255126.jpg" />
 </div>
 
 
@@ -440,7 +547,7 @@ Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255201.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255201.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255266.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255266.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255296.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255296.jpg" />
 </div>
 
 
@@ -521,7 +628,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255300.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255300.jpg" />
 </div>
 
 
@@ -548,7 +655,7 @@ Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255302.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255302.jpg" />
 </div>
 
 
@@ -575,7 +682,7 @@ Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255306.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_255306.jpg" />
 </div>
 
 
@@ -589,114 +696,6 @@ A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625027   (255339) от 10.04.2023
-
-Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255339.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manic Monday
-A2 In A Different Light
-A3 Walking Down Your Street
-A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624897   (255414) от 08.04.2023
-
-Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255414.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mr. Roboto
-A2 Cold War
-A3 Don't Let It End
-A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624832   (255435) от 07.04.2023
-
-Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Inner Voices 4:24
-A2 I'll Be Around 4:29
-A3 Building An Empire 4:13
-A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624356   (255518) от 05.04.2023
-
-Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_255518.jpg" />
-</div>
-
-
-###  Подробнее
-
-What Fun –	The Right Side Won
-Vanessa –	Obsession
-Pure Energy –	Love Game
-Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
 ```
 
 

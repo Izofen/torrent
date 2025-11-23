@@ -1,3 +1,75 @@
+###  Публикация: 1673907   (163462) от 03.11.2023
+
+Topaz Photo AI 2.1.0 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47303C2CEF5E85E89AC0DDD9020A36BBDD4EB656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346417   (163481) от 19.12.2019
+
+Internet Download Manager 6.35 Build 18 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26AD3B35AC13322564070BFB6CFE95D90FAF6C2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431996   (163491) от 17.12.2020
+
+Native Instruments - Guitar Rig 6 Pro 6.1.1 STANDALONE, VST, AAX (x64) RePack by VR [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращение с новым внешним видом, новыми усилителями, новыми эффектами и новой технологией машинного обучения для моделирования современного оборудования. Guitar Rig 6 Pro поставляется с 68 эффектами и инструментами – огромным выбором способов настроить свои звуки и сделать их своими собственными. От легендарных топ-боксов до высоко востребованных стоечных модулей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865E6E0EE34590CDA29CED9B55729B606F01BF87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517294   (163503) от 14.12.2021
 
 Autorun Organizer 5.13 [Ru/En]
@@ -6,7 +78,7 @@ Autorun Organizer 5.13 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163503.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Sync Folders Pro 4.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163504.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ FBackup 9.4.464 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163506.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163506.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ GeoGebra 6.0.680.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163516.jpg" />
 </div>
 
 
@@ -103,7 +175,7 @@ magnet:?xt=urn:btih:6BE3482FA5274D689B8EB3371550922FB3B604D7
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163519.jpg" />
 </div>
 
 
@@ -127,7 +199,7 @@ ACDSee Photo Studio 6 v6.1.1536 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163538.jpg" />
 </div>
 
 
@@ -153,7 +225,7 @@ magnet:?xt=urn:btih:FAAA9DA34A031B11421272F7AF663A85102703C6
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163544.jpg" />
 </div>
 
 
@@ -177,7 +249,7 @@ Topaz Mask AI 1.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163545.jpg" />
 </div>
 
 
@@ -201,7 +273,7 @@ Caramba Switcher + Corporate + Lab 2019.12.05 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163547.jpg" />
 </div>
 
 
@@ -225,7 +297,7 @@ KMSAuto++ Portable 1.7.8 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163560.jpg" />
 </div>
 
 
@@ -252,7 +324,7 @@ Things 3 v.3.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163565.jpg" />
 </div>
 
 
@@ -277,7 +349,7 @@ DMG Canvas 3.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163570.jpg" />
 </div>
 
 
@@ -301,7 +373,7 @@ PreSonus - Studio One Professional 4.6.0.55605 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163577.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ AIDA64 Extreme / Engineer / Business 6.85.6300 RePack (& Portable) by TryRooM [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163594.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ Spy x Family | Семья шпиона [2022, TV, 24 из 25] WEBRip 1080p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163601.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ FabFilter Total Bundle v9.12.2021 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163602.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Opera 65.0.3467.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163612.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ TreeSize Professional 8.0.3.1507 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163614.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ FileMaker Pro 19 v19.4.2.204 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163620.jpg" />
 </div>
 
 
@@ -471,7 +543,7 @@ ON1 Photo RAW 2020 14.0.1.8289 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163621.jpg" />
 </div>
 
 
@@ -495,7 +567,7 @@ Pocket cleaner Pro 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163638.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163638.jpg" />
 </div>
 
 
@@ -521,7 +593,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163641.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163641.jpg" />
 </div>
 
 
@@ -545,7 +617,7 @@ Emurasoft EmEditor Professional 19.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163660.jpg" />
 </div>
 
 
@@ -557,79 +629,6 @@ EmEditor Professional - профессиональная версия мощно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9151D554CB84453677B9677000D9A5A58605535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346487   (163661) от 19.12.2019
-
-YTD Video Downloader PRO 5.9.13.7 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163661.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC4378419E09FA29AB247880C19A739A5D69BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673641   (163663) от 02.11.2023
-
-IObit Driver Booster Pro 11.1.0.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BE5417E9730ED5DB050F7312E74EB9F9DE217C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517230   (163664) от 14.12.2021
-
-SILKYPIX Developer Studio Pro 10E v10.0.17.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163664.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro — мощное приложение, которое предназначено для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
-С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D73CDD50F4858D887EFE06100E0F1DECFB1F9E3
 ```
 
 

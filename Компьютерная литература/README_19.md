@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F8AF4CD3AC091E56A454DB55741E58E5BE89200B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163270.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163494.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5DB0D772C6F83B37372406DBFDCFF733F9DDE415
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163630.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163630.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:20382AA0A4E00C74A0853A102D71BFDFD0F1C04C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_163797.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A3429EBF33269BF605B3D8F30371BEA3597728CA
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164147.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0762CC029943EBADD062E1D28FC49CF52E81D992
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164813.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_164813.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Jeffrey L. Brewer, Kevin C. Dittman | Methods of IT Project Management, 4th Edit
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165061.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165628.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E863188E394CE81050A35BD6132CB2B4C843785D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165648.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D21D7026D62F2129DCA27529BDE20714FC0BFCB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165902.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:1E80AAAF31A9697E47DC7ACB807C0927521CA5CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_165962.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:140835B434B410221A9D1BD51C14B767C9767A67
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166343.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:62817E1A552838AC005C32B1265E7B15B8BD5067
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166356.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166819.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166819.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Scott Empson | CCNA 200-301 Portable Command Guide Fifth Edition / Сокращ�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167033.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:D90BCEAF7220B9C1095820AD6F43866599931CC0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167045.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Bradley Edgeworth и др. | CCNP and CCIE Enterprise Core ENCOR 350-401 Officia
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167053.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:495C0C7C55381B5209075F546FFE2ED7A3C5F3A1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167332.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167332.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167632.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167632.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:20E839F76D1B9CD59E63C5A6EF25A7492A8F02AC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168524.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FC7CEF840E30E25ECF2ED05C0C5A979CD7C1DBB7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168525.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168618.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:230E3B5F1F46D10524F7B2CE6A47CFF9F62FAD28
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168741.jpg" />
 </div>
 
 

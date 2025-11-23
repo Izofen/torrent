@@ -1,3 +1,178 @@
+###  Публикация: 1599246   (160182) от 22.12.2022
+
+Чарли Чейз. Слишком много хорошеньких женщин / Too+Many+Mammas (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Босс-тиран, флирт, измены, танцы, которые неискушенный человек принимает за потасовку, беспорядочные связи, видеосвязь (да-да!!). Короч, практически современный фильм. Смотрите сами. :)Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Марта Слипер, Бет Дарлингтон, Олив Борден, Ной Янг, Джон Т. Принц, Билли Энгль, Джек Гэвин, Эрл МоханПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B424BC55B3EFA9814726B5E7AC4D33817BBC8FF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599154   (160183) от 22.12.2022
+
+Приятели Покойного - 2 Albums (2019-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Введение [00:02:31]
+02. Мы любим петь [00:03:07]
+03. Мало места [00:03:40]
+04. Днём с огнём [00:02:57](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775D75CEA49AFCAF1B1EA88C0B9A998EBE4FBFB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599119   (160184) от 22.12.2022
+
+OmniFocus Pro 3.14.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 1994–2021 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA7D9DC527847742D9E0023DF6BF21B89D481BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599268   (160185) от 22.12.2022
+
+TunesKit Screen Recorder 2.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный аудио и видео рекордер , позволяющий одним нажатием кнопки захватывать любое видео и аудио с любого источника на экране компьютера, а также редактировать и сохранять записи в любом формате и на любом устройстве с сохранением высокого качества.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E777D92E69C4DD4ED36F7C27C34F7E521A6B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675504   (160186) от 09.11.2023
+
+Windows Update Viewer 0.5.25.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средство просмотра обновлений Windows (WUView) — это приложение, которое отображает информацию об обновлениях Windows. WUView использует API Центра обновления Windows и журналы событий Windows для отображения сведений об установленных обновлениях. Записи журнала событий связаны с отдельными обновлениями с помощью номера «KB». Если обновление не использует номер базы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3567C2E6B4D4FEE7ED7EAF52FFC503125B5F746A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599105   (160187) от 22.12.2022
+
+iStatistica 6.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Statistica - подробный монитор системных ресурсов для macOS. В приложение входит виджет для Notification Center и меню статистики в области часов. Просто откройте Notification Center, чтобы увидеть подробную статистику по загрузке памяти, процессора, диска или посмотреть карту сети и скорость передачи данных.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2022Разработчик: © 2015-2022 Andrey TsarkovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB8D9354A1505E3B840D884277BA1C2EF669641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675250   (160188) от 09.11.2023
+
+VA - Electronic compilation part 39 (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mzade - Move
+02. Samelo - La Meno
+03. Imran Khan - Arrival
+04. Samelo - Deep Distance(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F2282DA3AF93E9E9C78B108734ED1AC0178016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599254   (160189) от 22.12.2022
 
 Aiseesoft Mac Video Enhancer for Mac 9.2.28 [Multi]
@@ -6,7 +181,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160189.jpg" />
 </div>
 
 
@@ -32,7 +207,7 @@ Topaz Video AI 4.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160190.jpg" />
 </div>
 
 
@@ -56,7 +231,7 @@ iCalamus 2 v.2.3 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160191.jpg" />
 </div>
 
 
@@ -82,7 +257,7 @@ R-Wipe & Clean 20.0.2429 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160192.jpg" />
 </div>
 
 
@@ -106,7 +281,7 @@ magnet:?xt=urn:btih:1C657DACE06A5196D6ABABF74B3DD4DB8F53A1F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160193.jpg" />
 </div>
 
 
@@ -130,7 +305,7 @@ magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160194.jpg" />
 </div>
 
 
@@ -155,7 +330,7 @@ Vectorworks 2022  SP3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160195.jpg" />
 </div>
 
 
@@ -180,7 +355,7 @@ Wise Memory Optimizer 4.2.0.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160196.jpg" />
 </div>
 
 
@@ -204,7 +379,7 @@ magnet:?xt=urn:btih:FD572D0AF8E5A4ABA0B3B118B6D5E43364FF6090
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160197.jpg" />
 </div>
 
 
@@ -228,7 +403,7 @@ magnet:?xt=urn:btih:E685F41C5B4384559C7446FE49BFFB66232F6D87
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160198.jpg" />
 </div>
 
 
@@ -252,7 +427,7 @@ VA - Music News vol.313 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160199.jpg" />
 </div>
 
 
@@ -279,7 +454,7 @@ TunesKit AceMovi Video Editor 4.9.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160200.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160200.jpg" />
 </div>
 
 
@@ -303,7 +478,7 @@ Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <U
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160201.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160201.jpg" />
 </div>
 
 
@@ -330,7 +505,7 @@ O&O DiskImage Professional 18.5 Build 342 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160202.jpg" />
 </div>
 
 
@@ -354,7 +529,7 @@ Chris B. - Crispy Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160203.jpg" />
 </div>
 
 
@@ -381,7 +556,7 @@ magnet:?xt=urn:btih:CE2A17D50C32B7920174CA8CE8E28FAA8726235E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160204.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160204.jpg" />
 </div>
 
 
@@ -405,7 +580,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -429,7 +604,7 @@ VueScan Pro for Mac 9.8.21 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160206.jpg" />
 </div>
 
 
@@ -453,7 +628,7 @@ Amadeus Pro 2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160207.jpg" />
 </div>
 
 
@@ -464,180 +639,6 @@ Amadeus Pro - многотрековый музыкальный редактор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4B8147457F088197124780B70A64FAE6850B6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599209   (160208) от 22.12.2022
-
-Aiseesoft Mac Blu-ray Player 6.6.26 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Blu-ray Player - удобный в работе, медиа проигрыватель для Mac. Он поможет воспроизвести любые Blu-Ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только Blu-Ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в управлении.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2008-2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E773244D44911C43DC270D3EB8E6B18902F71DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675428   (160209) от 09.11.2023
-
-Михаил Елизаров | Скорлупы. Кубики [Рассказы] (2023) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160209.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Скорлупы. Всё ж не рассказы, а, скорее, литературные «вещи», нарочито выпячивающие следы своей «сделанности». Проще говоря, это четыре различных механизма сборки текста: от максимально традиционного, претендующего на автобиографичность, до «экспериментального» – разумеется, в понимании автора. Сто лет назад формалисты изучали так называемый приём, как самодостаточную (   Читать дальше...   )Жанр: Современная русская литератураИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD283DAEB96FBA52B01ED323D5701929D1B22D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599111   (160210) от 22.12.2022
-
-Nat King Cole - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Consider Me [3:16]
-02. Bring Another Drink [2:22]
-03. If You Can't Smile and Say Yes, Please Don't Cry and Say No [2:36]
-04. A Pile O' Cole [1:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF379CA40D8FC6B68F824BE89B8156290E9DD8BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675395   (160211) от 09.11.2023
-
-VK X 6.6.2_pub [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный плеер с широкой поддержкой аудиораздела ВКонтактеРелиз состоялся: 11.10.2023Разработчик: iTaysonLabПоддерживаемая ОС: Android: 5.0 и вышеЯзык интерфейса: Русский, Английский  и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA91D3A70BDB98D396E14A2925849871FCAAD49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599274   (160212) от 22.12.2022
-
-Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертник будущего вокалиста Iron Maiden01. Protect & Survive
-02. You Load Me Down
-03. Black Lagoon
-04. Rope & Ride(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C8B04D3A02FC687BB99DB90C0516C58D09D2D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675574   (160213) от 09.11.2023
-
-Великий уравнитель 3 / The Equalizer 3 (2023) BDRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покончив с работой тайного агента Роберт Макколл продолжает отстаивать правду в повседневной жизни и защищать тех, кто в этом нуждается. Находясь в Южной Италии он узнает, что его друзья оказались под влиянием местных криминальных авторитетов. Когда события обостряются, Макколл решает встать на защиту справедливости, вступив в борьбу с мафией.Производство: США, Италия / Columbia Pictures Corporation, Eagle Pictures, Escape Artists, Sony Pictures Entertainment (SPE), TSG Entertainment, ZHIV ProductionsЖанр: боевик, триллер, криминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Дакота Фаннинг, Эудженио Мастрандреа, Дэвид Денман, Гая Скоделларо, Ремо Джироне, Андреа Скардуцио, Андреа Додеро, Даниэль Перрон, Закария ХамзаПеревод: Дублированный (LeDoyen)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (forced, full, SDH)Продолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A65C2E5205420640F1711D72F1C0B2F0355EC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675608   (160214) от 09.11.2023
-
-FastFlix 5.6.0 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160214.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastFlix - это простой и дружественный графический интерфейс для кодирования видео. Программа сохраняет метаданные HDR10 для x265, NVEncC HEVC и VCEEncC HEVC, которые также будут расширены до библиотек AV1, когда они станут доступны. Для тяжелой работы ему необходим FFmpeg (версия 4.3 или выше, при первом запуске вам предложат его загрузить), который может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9AE682533AF70CB1808CB1D9256AA222A77D08
 ```
 
 

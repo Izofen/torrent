@@ -1,3 +1,51 @@
+###  Публикация: 1678871   (141700) от 23.11.2023
+
+Malwarebytes Windows Firewall Control 6.9.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD08FA8B29CD8A33E691A8EAF91F94C3B083EF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590650   (141701) от 17.12.2012
+
+Debian GNU/Linux 6.0.6 Live [amd64] (4xDVD + 2xCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позавчера вышел очередной корректирующий релиз Live CD/DVD с операционной системой Debian - загружается со сменного носителя - CD, DVD, USB-накопитель и т. д. Это позволяет пользователям ознакомиться с операционной системой перед её установкой или использовать в качестве загрузочного диска. Созданы LiveCD для восстановления после сбоев и стандартные с графическими оболочками GNOME, KDE Plasma Workspaces, Xfce и LXDE для нескольких архитектур. Debian LiveCD также предоставляют возможность установки на жесткий диск.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970411   (141716) от 30.12.2015
 
 CocCoc 52.2.102 [Multi/Ru]
@@ -6,7 +54,7 @@ CocCoc 52.2.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141716.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Silberbart - 4 Times Sound Razing (1971) Remastered, 2002, Progressive Line [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141720.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141720.jpg" />
 </div>
 
 
@@ -57,7 +105,7 @@ Internet Download Manager 6.42 Build 1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141728.jpg" />
 </div>
 
 
@@ -81,7 +129,7 @@ E-Trophee Andros. Сезон 2019-2020. Этап 2. Андорра. Гонка (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141736.jpg" />
 </div>
 
 
@@ -105,7 +153,7 @@ magnet:?xt=urn:btih:601C27EC316F2A5FF57285BBFE2A62A1B1F37E44
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141737.jpg" />
 </div>
 
 
@@ -129,7 +177,7 @@ magnet:?xt=urn:btih:0E4CFD0A878BAB320477BA42CE45A2476BCAB2AE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141744.jpg" />
 </div>
 
 
@@ -153,7 +201,7 @@ RogueKiller Anti-Malware 14.8.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141748.jpg" />
 </div>
 
 
@@ -177,7 +225,7 @@ magnet:?xt=urn:btih:1D553BD4F970EC34B480B90ACB6A22EEF041A6BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141749.jpg" />
 </div>
 
 
@@ -201,7 +249,7 @@ magnet:?xt=urn:btih:7FDB618B473B3C39EEBCD0CEABCCF17DE89CEB0B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141753.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ DiskDigger 1.20.8.2677 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141754.jpg" />
 </div>
 
 
@@ -249,7 +297,7 @@ Syhunt Sandcat Browser 5.2.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141767.jpg" />
 </div>
 
 
@@ -274,7 +322,7 @@ Adobe Illustrator CC 2019 23.0.1.540 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141781.jpg" />
 </div>
 
 
@@ -298,7 +346,7 @@ Softorino YouTube Converter 2 v2.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141790.jpg" />
 </div>
 
 
@@ -325,7 +373,7 @@ Wondershare UniConverter 13.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141794.jpg" />
 </div>
 
 
@@ -350,7 +398,7 @@ AOMEI Partition Assistant Technician Edition 6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141804.jpg" />
 </div>
 
 
@@ -374,7 +422,7 @@ magnet:?xt=urn:btih:9D65728EE4441CFC343CF64D248BD5CFB57FF592
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141814.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141814.jpg" />
 </div>
 
 
@@ -398,7 +446,7 @@ magnet:?xt=urn:btih:D5C7FC6D2F93C9A0FF4B8B297FCE1C05AB182F56
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141818.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141818.jpg" />
 </div>
 
 
@@ -422,7 +470,7 @@ BetterTouchTool 3 v3.215 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141820.jpg" />
 </div>
 
 
@@ -446,7 +494,7 @@ Shazam 14.3.1-231120 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141833.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141833.jpg" />
 </div>
 
 
@@ -470,7 +518,7 @@ Windows 8 Codecs 1.34 + x64 Components [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141835.jpg" />
 </div>
 
 
@@ -496,7 +544,7 @@ Google Earth 7.0.2.8415 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141842.jpg" />
 </div>
 
 
@@ -520,7 +568,7 @@ Glary Utilities Pro 5.179.0.207 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141850.jpg" />
 </div>
 
 
@@ -544,7 +592,7 @@ PC Cleaner Pro 9.5.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141851.jpg" />
 </div>
 
 
@@ -568,7 +616,7 @@ Movist Pro 2.2.14 (build 136) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141859.jpg" />
 </div>
 
 
@@ -581,54 +629,6 @@ Movist является простым в использовании и мощн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0413B7F098A55A9AF45423B2F235802740EE7437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678985   (141867) от 23.11.2023
-
-Firefox Browser ESR 115.5.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C73D67A81E95C99CC7C81279B039D9598F4B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195545   (141870) от 29.12.2017
-
-Камеди Клаб в Барвихе / Комеди Клаб / Comedy Club (2017.12.29) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141870.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: ~ 00:46:32Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D89DE02024D617431F510637D10C20D23845DD9
 ```
 
 

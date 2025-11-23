@@ -6,7 +6,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012, 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TeamViewer 8.0.16642 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136393.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136393.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TeamViewer - программа для удалённого управления
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136406.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136406.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ MySims [Wii] [PAL] [Multi6] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136407.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ openSUSE 12.3 Milestone 2 [i586, i686, x86-64] (2xDVD + 4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136434.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136434.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Internet Download Manager 6.14.2 Final RePack by KpoJIuK [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136437.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136437.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Driver Genius 12.0.0.1211 Portable by punsh [Английский / Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136438.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136438.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Driver Genius - программа для управления драйвера�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136456.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136456.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Driver Genius - программа для управления драйвера�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136458.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Wise Care 365 Pro 2.15.166 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136460.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136460.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Wise Care 365 Pro 2.15.166 Final [MULTi / Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136466.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136466.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Data Flow Accelerator 4.5.3.37 Beta [Русский, Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136473.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136473.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ EZ CD Audio Converter 1.0.4 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_136483.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_136483.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136487.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:59E817CB28DCDC4FA9BAD31D605D65FC6D8AE5C5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136489.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Billy McLaughlin - Lifescapes: Relaxing Guitar (2009) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136496.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Abyssphere - Снова и снова (2012) 3 EP [MP3|320 кб/с]<Dark Metal, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136497.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:BB495259D588DBE84DEBFC0A4328465B3BF304BC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136502.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:81BDCD81AA34F7C5D4D7243AB56AE902A5EE94B3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136518.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136519.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136523.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136529.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Shokran - Sixth Sense (EP) (2012) [MP3|320 кб/с]<Instrumental Progressive Mat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136536.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136539.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136543.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mistabishi - Skum (2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_136547.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121653.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121780.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121781.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121783.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121806.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121811.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121811.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121812.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kingsvein (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121957.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121972.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121980.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122038.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122091.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122091.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122101.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Affogato (2023) [Multi] (1.0.19) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122261.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122282.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122411.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122411.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Angel at Dusk (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122459.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122545.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122560.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122574.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122586.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122643.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122643.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122664.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122666.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122677.jpg" />
 </div>
 
 

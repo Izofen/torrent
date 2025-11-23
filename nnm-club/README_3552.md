@@ -1,3 +1,78 @@
+###  Публикация: 1713094   (112034) от 04.04.2024
+
+Shimah - 4th Dimension (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void
+02. 4th Dimension
+03. So Real
+04. Visions of Neon(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE252F12893EEEAD6BD2CB70D28E1B0EE2E00E97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713011   (112035) от 04.04.2024
+
+Эпигенез / Epigenesis (2022) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шейн занимается шантажом влиятельных людей. Однажды в его жизни происходит нечто, в результате чего со всеми, кому он мысленно желает зла, начинает случаться именно то, чего он хотел. За Шейном начинает тянуться след из трупов.Производство: США, Piercing ProductionsЖанр: ужасы, фантастика, мелодрама, приключенияРежиссер: Скаут ТафояАктеры: Гиффорд Эллиотт, Ник Смерканич, Крис Донохью, Джулиан Лазар, Мишель Сиракуза, Купер МакКим, Такер помощник, Скаут ТафояПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 01:34:44Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801B09ABD0C05FB261DD0EA6293C0A41586DCDFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713067   (112036) от 04.04.2024
+
+Повод / Trigger (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112036.jpg" />
+</div>
+
+
+###  Подробнее
+
+История уличного художника граффити и загадочного ордена "Братство Кросс-стрит", через призму которых раскрываются острые социальные проблемы.Производство: СШАЖанр: драмаРежиссер: Alon-4evrАктеры: 2cnd Floor Harley, Кайвон Аллен, Делвон Бэйкер, Делави Бакстер мл., Марио Беверли, Ham Radio Bob, Омар Будху, Халил КолдуэллПеревод: Многоголосый любительский (Синема УС)Язык озвучки: РусскийПродолжительность: 01:40:49Реклама: Присутствуют голосовые, видео и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35730FAB6BB215EC734C344594C08A39E607B310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713055   (112037) от 04.04.2024
 
 Мамульки Bend - Светлый (2024) [MP3|320 Kbps] <Ska, Punk>
@@ -6,7 +81,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112037.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ VA - Trance In Motion Vol.372 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112038.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112039.jpg" />
 </div>
 
 
@@ -87,7 +162,7 @@ magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112040.jpg" />
 </div>
 
 
@@ -111,7 +186,7 @@ magnet:?xt=urn:btih:A99A88A49E47B0B5D7EB129F3119BF7B826C56EF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112041.jpg" />
 </div>
 
 
@@ -135,7 +210,7 @@ magnet:?xt=urn:btih:F405DE9E14BEE2A404E9EE163428272B444FDEB6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112042.jpg" />
 </div>
 
 
@@ -162,7 +237,7 @@ The Veronicas - Gothic Summer (2024) [MP3|320 Kbps] <pop-rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112043.jpg" />
 </div>
 
 
@@ -189,7 +264,7 @@ Spag Heddy - The Noodle Effect (Re-Heated) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112044.jpg" />
 </div>
 
 
@@ -216,7 +291,7 @@ XYplorer 25.80.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112045.jpg" />
 </div>
 
 
@@ -240,7 +315,7 @@ Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112046.jpg" />
 </div>
 
 
@@ -264,7 +339,7 @@ magnet:?xt=urn:btih:088CF4F8709C956CE41DC60A8CF967B26021CC08
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112047.jpg" />
 </div>
 
 
@@ -288,7 +363,7 @@ magnet:?xt=urn:btih:D7F8D47DEF418948852E3F6F7EB9148A7B467DBC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112048.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112048.jpg" />
 </div>
 
 
@@ -312,7 +387,7 @@ magnet:?xt=urn:btih:C135480F85E44F85865F7E2F4F8C378DE5EB1F27
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112049.jpg" />
 </div>
 
 
@@ -336,7 +411,7 @@ magnet:?xt=urn:btih:6C2A3E2C4F8CABED7DC7BA97819F3F7123B54737
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112050.jpg" />
 </div>
 
 
@@ -360,7 +435,7 @@ GPU Shark II 2.2.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112051.jpg" />
 </div>
 
 
@@ -384,7 +459,7 @@ Icecream PDF Editor PRO 3.21 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112052.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112052.jpg" />
 </div>
 
 
@@ -408,7 +483,7 @@ Glary Disk Explorer 6.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112053.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112053.jpg" />
 </div>
 
 
@@ -433,7 +508,7 @@ Ultimaker Cura 5.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112054.jpg" />
 </div>
 
 
@@ -457,7 +532,7 @@ magnet:?xt=urn:btih:661CF9BA006E70596EA1C16C3AA079DFD3DD9443
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112055.jpg" />
 </div>
 
 
@@ -481,7 +556,7 @@ magnet:?xt=urn:btih:E2D95AD3D796E7923FCEB6E461EECA333426C284
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112056.jpg" />
 </div>
 
 
@@ -505,7 +580,7 @@ magnet:?xt=urn:btih:B6EE248A0ABBD90B00880F86F8569CB49FF7B745
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112057.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112057.jpg" />
 </div>
 
 
@@ -529,7 +604,7 @@ VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112058.jpg" />
 </div>
 
 
@@ -556,7 +631,7 @@ magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_112059.jpg" />
 </div>
 
 
@@ -568,79 +643,6 @@ magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9903CF469BE270FB0C7433BE74CBA363055388E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712630   (112060) от 04.04.2024
-
-Пять женщин для убийцы / 5 женщин для убийцы / 5 donne per l assassino (1974) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись домой из заграничной командировки, репортёр по имени Джорджио узнаёт, что его жена была убита, а ребёнок помещён в больницу. Немного погодя, он узнаёт от своей давней подруги, доктора Лидии Фрэнзи, что никак не может быть отцом ребёнка, поскольку он совершенно стерилен. Джорджио и Лидия сближаются, но вскоре она тоже подвергается нападению, каким-то чудом (   Читать дальше...   )Производство: Италия, Франция / Les Film La Bouette, Thousand CinematograficaЖанр: детектив, триллерРежиссер: Стельвио МассиАктеры: Френсис Мэтьюз, Паскаль Риво, Джорджио Альбертацци, Ховард Росс, Катя Кристин, Катрин Дайамант, Мария Кумани Квазимодо, Том ФеллегиПеревод: любительский одноголосый (Сергей Квардаков, с добавлением oar)Язык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794945EB48438955BE3924B6E0676566316AA0CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712867   (112061) от 04.04.2024
-
-Эшли Вэнс | Небеса с молотка. В погоне за ближним космосом (2023) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свою новую книгу американский журналист Эшли Вэнс, автор знаменитой биографии Илона Маска, посвящает увлекательной теме – началу освоения ближнего космоса частными американскими компаниями.
-SpaceX доказала всему миру: космические программы больше не прерогатива могучих правительств, тратящих на запуск одной ракеты миллиарды долларов. У руля теперь стоят неординарные (   Читать дальше...   )Жанр: Зарубежная публицистика, научно-популярная литератураПеревод: Г.И. АгафоновИздательство: Олимп-БизнесФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01A4277D4C524299270B8AD97006ECF5F4F1C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713044   (112062) от 04.04.2024
-
-Преследуемый. В сетях Каморры / Der Gejagte - im Netz der Camorra (2022) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маттео ДеКанин должен дать показания в качестве ключевого свидетеля против Каморры. Но вскоре после до того, как его самого и его семью удается доставить в безопасное место, его жену Стефанию хладнокровно убивают. Маттео и его дочь Лаура в ожидании суда вынуждены жить под охраной полиции на небольшом острове у побережья Италии. Тем временем мафия усиливает поиски (   Читать дальше...   )Производство: Германия, Австрия / good friends Filmproduktion, Satel Film, Albolina FilmЖанр: триллерРежиссер: Рик ОстерманнАктеры: Тобиас Моретти, Харольд Виндиш, Антония Моретти, Герти Драссль, Марко Борьеро, Emre Cakir, Маттео КарломаньоПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:17Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE96A51E955DAA7E0BAAC2BDA07069ED66E41495
 ```
 
 

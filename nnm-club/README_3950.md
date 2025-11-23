@@ -1,3 +1,75 @@
+###  Публикация: 1692666   (122382) от 17.01.2024
+
+Джон Уиндем | Метеор (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122382.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Очень древняя цивилизация планеты Форта столкнулась с тем, что истощение ресурсов неминуемо приведет к деградации и вымиранию. Правитель Форты решает дать истории своей расы последний шанс, построив флот из кораблей-ковчегов, чтобы отправить их в дальний полет в разные уголки галактики. Кому-то из отважных фортианцев повезет продолжить цивилизацию в более благоприятном (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB6F7FCB4D6A3952662768F5D3A87605CF011C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692535   (122383) от 17.01.2024
+
+4K Video Downloader + 1.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C2906E44013717889DB500E3C49CA462E3FD72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692614   (122384) от 17.01.2024
+
+Glary Disk Cleaner 6.0.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Disk Cleaner - инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C4FDABDB22C9F88E8C0DA4C76C7BFF4B1730ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692632   (122385) от 17.01.2024
 
 Адская стража / Страж преисподней / Jigoku no keibin (1992) BDRip [H.264] [VO]
@@ -6,7 +78,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122385.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Hannah Wicklund - 3 Releases (2018-2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122386.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122387.jpg" />
 </div>
 
 
@@ -84,7 +156,7 @@ magnet:?xt=urn:btih:2CF9FA69947A28B96137CB5CEA833EC678656A12
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122388.jpg" />
 </div>
 
 
@@ -111,7 +183,7 @@ magnet:?xt=urn:btih:ABA12E3FE5B6F5B6673135B36AF9E68E4D570105
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122389.jpg" />
 </div>
 
 
@@ -135,7 +207,7 @@ Light Image Resizer 6.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122390.jpg" />
 </div>
 
 
@@ -159,7 +231,7 @@ Olivier Souille и др. | Артбук Вселенная драконов / Th
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122391.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122391.jpg" />
 </div>
 
 
@@ -185,7 +257,7 @@ magnet:?xt=urn:btih:EE03A62A283E56C710C6C50523435281B5F27509
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122392.jpg" />
 </div>
 
 
@@ -209,7 +281,7 @@ magnet:?xt=urn:btih:1EBF969C0D1E6763BEAFBE8C14FFDA7DE25E6167
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122393.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122393.jpg" />
 </div>
 
 
@@ -233,7 +305,7 @@ magnet:?xt=urn:btih:0514CFD40F007C2F0FCCC77337FB78A351FEBFA9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122394.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122394.jpg" />
 </div>
 
 
@@ -257,7 +329,7 @@ Olivier Souille и др. | Артбук Вселенная сказок / The Fa
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122395.jpg" />
 </div>
 
 
@@ -281,7 +353,7 @@ magnet:?xt=urn:btih:979C6F0228BCCF3CD1DB49A849DD421759920DE2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122396.jpg" />
 </div>
 
 
@@ -305,7 +377,7 @@ magnet:?xt=urn:btih:BED0DDD9A7FAB43BB917EA5EBBAA2259C672EF40
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122397.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ magnet:?xt=urn:btih:43C84E96E1ED216284BE1DEB70058A6B5685D100
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122398.jpg" />
 </div>
 
 
@@ -353,7 +425,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -380,7 +452,7 @@ magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122400.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122400.jpg" />
 </div>
 
 
@@ -404,7 +476,7 @@ Sumatra PDF 3.6.15941 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122401.jpg" />
 </div>
 
 
@@ -429,7 +501,7 @@ magnet:?xt=urn:btih:B162D4AF281A0BFC4CFAFEEA5F94F2B8E3F561DC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122402.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122402.jpg" />
 </div>
 
 
@@ -453,7 +525,7 @@ Joplin 2.13.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122403.jpg" />
 </div>
 
 
@@ -478,7 +550,7 @@ Sense V2 Flip Clock & Weather 6.51.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122404.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122404.jpg" />
 </div>
 
 
@@ -502,7 +574,7 @@ FastCopy Pro 5.5.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122405.jpg" />
 </div>
 
 
@@ -526,7 +598,7 @@ Chromium-Gost 120.0.6099.234 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122406.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122406.jpg" />
 </div>
 
 
@@ -551,7 +623,7 @@ magnet:?xt=urn:btih:18A5E76934B0938E043325BFC2BFD3D6DCBCF55D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_122407.jpg" />
 </div>
 
 
@@ -562,78 +634,6 @@ magnet:?xt=urn:btih:18A5E76934B0938E043325BFC2BFD3D6DCBCF55D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:096107824D9E5C11A4699DB652FF301E7DEA4AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692540   (122408) от 17.01.2024
-
-DxO FilmPack 7 for Mac v.7.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122408.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO FilmPack — это подключаемый модуль для Adobe Photoshop, Adobe Lightroom, Apple Aperture и DxO Optics Pro. Кроме того, доступен как автономное приложение. DxO FilmPack придает цифровым изображениям стиль самых известных фотопленок: цвета – и зернистость, включая Kodachrome, Tri-X, Velvia, были проанализированы и воспроизводятся так, чтобы они могли быть применены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 2024 DxO LabsПоддерживаемая ОС: macOS 12.6.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA1610A36D723E8FBDF8BBB968B8531BAD43567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692726   (122409) от 17.01.2024
-
-DU Meter 8.05 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122409.jpg" />
-</div>
-
-
-###  Подробнее
-
-DU Meter - программа для подсчета реального входящего и исходящего сетевого трафика. Возможности: полностью настраиваемые объем трафика и предупреждения о времени модемного соединения; настраиваемая ежедневная, еженедельная и ежемесячная статистика (как по трафику, так и по времени соединения) с возможностью экспортировать данные в форматы Excel, Word, HTML, Text (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BB3ACE4540C09B9320BC457C64B9D788631088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692590   (122410) от 17.01.2024
-
-Д.Ю. Косицин | Язык программирования Python (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебно-методическое пособие является дополнением к дисциплине «Скриптовые языки программирования (Python)» и содержит лекции с примерами и пояснениями. Материал разбит на главы, после которых помещены задачи для отработки изложенного материала. В издании рассматривается Python 3.x как основная версия языка, но приводится сравнение с Python 2.x и отличия между (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139D3CA2C8DE4545A2A77C54E766F450A483F885
 ```
 
 

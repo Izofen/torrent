@@ -1,3 +1,75 @@
+###  Публикация: 1739446   (106132) от 27.07.2024
+
+Бартон Финк / Barton Fink (1991) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106132.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Молодой драматург Бартон Финк приезжает в Голливуд, чтобы писать заказной сценарий для одной из крупных кинокомпаний. Остановившись в ужасном отеле, он приступает к работе. Но дело движется медленно. Бытовые проблемы постоянно выбивают Бартона из колеи. К тому же, будучи человеком закомплексованным, он постоянно терзается муками творчества, отчего настроение (   Читать дальше...   )Производство: Великобритания, США / Circle Films, Working Title FilmsЖанр: драма, триллер, комедияРежиссер: Джоэл Коэн, Итан КоэнАктеры: Джон Туртурро, Джон Гудман, Джуди Дэвис, Майкл Лернер, Джон Махони, Тони Шэлуб, Джон Полито, Стив Бушеми, Дэвид Уоррилоу, Ричард ПортноуПеревод: Многоголосый профессиональный (Первый канал)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0CF9F1A06BABE1DAA38C4396E5EF9AA453B3D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739258   (106133) от 27.07.2024
+
+Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magical Delicacy - это не просто пиксельный платформер, а настоящая кулинарная метроидвания, которая погрузит вас в уникальный ведьминский мир. Вы играете за молодую ведьму Флору, которая приехала в отдаленном поселении, чтобы воплотить свою мечту и стать настоящей ведьмой. Вы открываете свой магазинчик в портовом городе Грат, где приключенцы начинают свое исследование (   Читать дальше...   )Тип издания: SceneРазработчик: SkauleЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Французский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B5BCC4E4CFEA696728074D93A04543F137AACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739197   (106134) от 27.07.2024
+
+Поселенцы / Los colonos / The Settlers (2023) WEB-DLRip [H.264] [UKR, звук с TS]
+
+>>Горячие новинки
+>>Экранки
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чили, 1901 год. Три всадника отправляются охранять обширную территорию. Британского солдата и американского наемника сопровождает метис Сегундо, который осознает, что их истинная миссия — уничтожить коренное население, уроженцев архипелага Огненная Земля. Сегундо становится невольным соучастником жестокой охоты.Производство: Чили, Аргентина, Великобритания, Тайвань, Германия, Швеция, Франция, Дания / Quijote Films, Rei Cine, Quiddity FilmsЖанр: драма, криминал, вестерн, историяРежиссер: Фелипе ГальвесАктеры: Марк Стэнли, Камило Арансибия, Бенжамин Уэстфолл, Альфредо Кастро, Сэм Спруэлл, Агустин Риттано, Мариано Льинас, Mishell Guaña, Adriana Stuven, Луис МачинПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: АнглийскиеПродолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDF857F61319C3C29F59EEEA5AB0A71358BB96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494004   (106135) от 27.07.2024
 
 Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Traditional-pop, easy-listening, schlager>
@@ -6,7 +78,7 @@ Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Trad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106135.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106135.jpg" />
 </div>
 
 
@@ -33,7 +105,7 @@ magnet:?xt=urn:btih:EDEF2A1E78652B15FCFEDC09A0A0178FA6FF6529
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106136.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106136.jpg" />
 </div>
 
 
@@ -57,7 +129,7 @@ magnet:?xt=urn:btih:51221B2CC63A0C28651C2C331B4D59CE56AECFD4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106137.jpg" />
 </div>
 
 
@@ -81,7 +153,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106138.jpg" />
 </div>
 
 
@@ -105,7 +177,7 @@ magnet:?xt=urn:btih:1FD354400ED85D61AECB2C61200347548DE8AF28
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106139.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ magnet:?xt=urn:btih:0658C10E747B372997D7BA116C4AA049E4ED74B7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106140.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ magnet:?xt=urn:btih:1B712BD2095A9E6BA8A2AC7C96F868708375D6BA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106141.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:2A12F1C6AE55843C46AC6A90E61EE0B7ACD8F218
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106142.jpg" />
 </div>
 
 
@@ -202,7 +274,7 @@ magnet:?xt=urn:btih:21468C9B8D152A77F046A0D961D605D2B8B26190
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106143.jpg" />
 </div>
 
 
@@ -226,7 +298,7 @@ Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106144.jpg" />
 </div>
 
 
@@ -251,7 +323,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106145.jpg" />
 </div>
 
 
@@ -275,7 +347,7 @@ Ronan Jade - Midnight Serenade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106146.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106146.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ Yang - Rejoice! (2024) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, RIO, Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106147.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106147.jpg" />
 </div>
 
 
@@ -329,7 +401,7 @@ VA - Idylic Exotic Perfection Cozy Getaway Tunes for an Enjoyable Vacation Envir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106148.jpg" />
 </div>
 
 
@@ -356,7 +428,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106149.jpg" />
 </div>
 
 
@@ -383,7 +455,7 @@ VA - Exotic Idylic Perfection Cozy Getaway Chilly Instrumentals for an Enjoyable
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106150.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106150.jpg" />
 </div>
 
 
@@ -410,7 +482,7 @@ Mick Kolassa - All Kinds of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106151.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106151.jpg" />
 </div>
 
 
@@ -437,7 +509,7 @@ Kitty Liv - Easy Tiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106152.jpg" />
 </div>
 
 
@@ -464,7 +536,7 @@ Noel Evans - Abandoned Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106153.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ Ian BassBwoy Boyce - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106154.jpg" />
 </div>
 
 
@@ -518,7 +590,7 @@ magnet:?xt=urn:btih:5BA359FEC052BA7ABBA8355440C23FF289994066
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106155.jpg" />
 </div>
 
 
@@ -542,7 +614,7 @@ magnet:?xt=urn:btih:EF2CE6D87216FC9702B4B4684FAC0D81A7000F25
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106156.jpg" />
 </div>
 
 
@@ -569,7 +641,7 @@ VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106157.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106157.jpg" />
 </div>
 
 
@@ -583,85 +655,6 @@ VA - IBIZA 2024 (Deluxe Version) [MP3|320 Kbps] <House, Organic House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70874990AB748EE9586159AE3095453488401462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739123   (106158) от 26.07.2024
-
-Minimal Audio - Ripple Phase 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ripple Phaser - это нечто большее, чем просто еще один фазер,
-который привносит в ваш звук плавный характер и анимированное движение благодаря своим эксклюзивным режимам фильтрации и экстремальному сдвигу фазы.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4433A50DDBB3B4286C9F8EB5AE41F8D548462FF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739010   (106159) от 26.07.2024
-
-Imperia - Dark Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Place (4:15)
-02. Reach My Tears (4:02)
-03. The Family Chain (4:56)
-04. The Tree Of Life (6:24)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178002FEBD13DA055FBECD503B198530C6E1D18A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739107   (106160) от 26.07.2024
-
-Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Comin' Home
-02. Plaster Caster
-03. Goin' Blind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750255A87788D8E4166172FA9B201E35ECB01E99
 ```
 
 

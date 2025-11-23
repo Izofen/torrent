@@ -1,3 +1,99 @@
+###  Публикация: 1663168   (187177) от 20.09.2023
+
+Три тайны / Three Secrets (1950) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький туристический самолет, летящий над Сьерра-Невадой, разбивается в горах. В катастрофе погибает семейная пара, но их приёмный ребенок остается жив. Спасатели отправляются на его поиски. У подножия горы в толпе зевак, привлечённых происшествием, особую тревогу проявляют три женщины. Судя по дате рождения ребенка и некоторым сведениям, каждая из трёх может (   Читать дальше...   )Производство: США, United States PicturesЖанр: драма, мелодрама, криминал, детективРежиссер: Роберт УайзАктеры: Элинор Паркер, Патриция Нил, Рут Роман, Фрэнк Лавджой, Лейф Эриксон, Тед де Корсия, Эдмон Райан, Ларри Китинг, Кэтерин Уоррен, Артур Франц, Джей Адлер, Элеонор ОдлиПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBA50EFAFB2176A74B03C14851FF7B22D0620BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662929   (187523) от 19.09.2023
+
+Лорел и Харди. В щекотливом положении / Their Purple Moment (1928) WEBRip [H.264/720p-LQ] (color)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стэн, как ему кажется, надежно спрятал свою заначку от жены. А Харди, пришедший к ним в гости с женой – грустен и удручен – его супруга заначку нашла. Друзья решают развлечься на заначку Стэна и под благовидным предлогом уходят из дома... Бедные Стэн и Олли! Если бы они знали, в каком щекотливом положении окажутся они из-за своих шалостей совсем скоро!Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Джеймс Пэррот, Фред ГиолАктеры: Стэн Лорел, Оливер Харди, Анита Гарвин, Кай Деслис, Фэй Холдернесс, Тайни Сэндфорд, Лайл Тайо, Лео Уиллис, Джимми Обри, Чет БранденбургПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русскиеПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0708CC5FB0D3281454305FC85EEF73196D8040
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662932   (187527) от 19.09.2023
+
+Назад к первобытному / Back to the Primitive (1911) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уилтон телеграфирует своей сестре Хелен в Лондон, чтобы она отправилась в Южную Африку и сообщает ей, что лорд Тресланда плывет на том же корабле и будет сопровождать ее. В долгом путешествии лорд начинает ухаживать за Хелен. И не только он. С ним соперничает американец Чарльз Джонс. И тут... Кораблекрушение! Это поразительно, но спаслись только эти трое - Хелен, (   Читать дальше...   )Производство: США, Selig Polyscope CompanyЖанр: короткометражный, драма, приключения, немое киноРежиссер: Френсис Боггс, Отис ТернерАктеры: Кэтлин Уильямс, Чарльз Клэри, Том Микс, Джозеф В. Джирард, Уильям В. Монг, Том СанчиПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C358AD09C433EFA448990BE29091328990470DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590900   (187649) от 16.11.2022
+
+Пришествие греха / La visita del vicio / The Coming of Sin (1978) BDRemux [H.264/1080p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая цыганка живёт в замке, прислуживая его хозяйке, одинокой певице. В цыганку влюбляется талантливый художник, и девушка рассказывает ему о ночном кошмаре, который часто мучает её во сне. Ей снится голый всадник, преследующий её и грозящий насилием. Вскоре голый всадник начинает преследовать молодую цыганку и наяву. Ей кажется, что он представляет смертельную (   Читать дальше...   )Производство: Испания, José Frade Producciones Cinematográficas S.A.Жанр: триллерРежиссер: Хосе Рамон ЛаррасАктеры: Патриция Гранада, Lidia Zuazo, Рафаэль Мачадо, Дэвид Томсон, Lea Candle, Daisy Jules, Claude Bellot, Монтсеррат Хулио, Patricia Lorne, Enrique MontserratПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, испанский, английскийСубтитры: русские, английские (full, SDH), испанскиеПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1EA9A7F4D109F6939DB3E44827010FF84F0FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662685   (187778) от 18.09.2023
 
 Майские ритуалы / Чёрный / Itim (1977) BDRip [H.264/720p] [TG / RU sub]
@@ -6,7 +102,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187778.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187778.jpg" />
 </div>
 
 
@@ -30,7 +126,7 @@ magnet:?xt=urn:btih:842C5045ECE599805DBCEA215595D73BA2A1E1B8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187810.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187810.jpg" />
 </div>
 
 
@@ -54,7 +150,7 @@ magnet:?xt=urn:btih:9F28ABBBCFDEEB680A472A554369AA9FDC9A75D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187887.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_187887.jpg" />
 </div>
 
 
@@ -78,7 +174,7 @@ magnet:?xt=urn:btih:1940CBE523E4F6E95DA93EA5ECB3CACD648DF840
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187955.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187955.jpg" />
 </div>
 
 
@@ -102,7 +198,7 @@ magnet:?xt=urn:btih:5D698BBDF0BC0768AAFB17194507069109FC165A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187984.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_187984.jpg" />
 </div>
 
 
@@ -126,7 +222,7 @@ magnet:?xt=urn:btih:89C47A29D372BAA91691AD199B9FD42B490CA44A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188269.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188269.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ magnet:?xt=urn:btih:0379BF614314EDEFCFB47DEDBEF0FA105E7E609A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188477.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188477.jpg" />
 </div>
 
 
@@ -175,7 +271,7 @@ magnet:?xt=urn:btih:359B78030354582A0E37D23DC15F82E9D4B2EB32
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188516.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188516.jpg" />
 </div>
 
 
@@ -199,7 +295,7 @@ magnet:?xt=urn:btih:01004E7CE5A889AE4B6F42EA17FEAD7E0C18532F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188536.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188536.jpg" />
 </div>
 
 
@@ -223,7 +319,7 @@ magnet:?xt=urn:btih:18EB1778BF0D4655234899B3BC6BE0D378EBD5D4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188578.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188578.jpg" />
 </div>
 
 
@@ -247,7 +343,7 @@ magnet:?xt=urn:btih:5A5FF552C0BBAE1410D3BDD5513930575F9E77BC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188585.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188585.jpg" />
 </div>
 
 
@@ -271,7 +367,7 @@ magnet:?xt=urn:btih:5595BCE20D81047C9EFCD0AE2F560FF8A3055CE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188614.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188614.jpg" />
 </div>
 
 
@@ -295,7 +391,7 @@ magnet:?xt=urn:btih:5878264A050D1A016788BACC68FFFC54A14AC223
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188672.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188672.jpg" />
 </div>
 
 
@@ -319,7 +415,7 @@ magnet:?xt=urn:btih:89A2DC057146F11BBA1E84E95D7E54B5034D5CCC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188684.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188684.jpg" />
 </div>
 
 
@@ -343,7 +439,7 @@ magnet:?xt=urn:btih:ED8D94960A6786500424932D8CDFADEB77620D67
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188713.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188713.jpg" />
 </div>
 
 
@@ -367,7 +463,7 @@ magnet:?xt=urn:btih:8F9B28B169DAD668A90BC9DDC0BD552098C1C1B5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188717.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188717.jpg" />
 </div>
 
 
@@ -391,7 +487,7 @@ magnet:?xt=urn:btih:56A639BF7D58176B6E4F3A267CF425B3AB314806
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188747.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188747.jpg" />
 </div>
 
 
@@ -415,7 +511,7 @@ magnet:?xt=urn:btih:A157ABBCC4F59BE37807143DAE42143F90C76B74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188761.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188761.jpg" />
 </div>
 
 
@@ -439,7 +535,7 @@ magnet:?xt=urn:btih:90AB157E28F5C78C046423F9A2EE7580FD499E18
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188789.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188789.jpg" />
 </div>
 
 
@@ -463,7 +559,7 @@ magnet:?xt=urn:btih:6F69CEDB38D513EDD42BD482DB2F039562A29EBE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188968.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_188968.jpg" />
 </div>
 
 
@@ -487,7 +583,7 @@ magnet:?xt=urn:btih:201815E76061D5814B6FB8795796332027D683F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189220.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189220.jpg" />
 </div>
 
 
@@ -511,7 +607,7 @@ magnet:?xt=urn:btih:8B6C1B00CFDDFDA8879BFE915C8C961C68AA2E73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189317.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_189317.jpg" />
 </div>
 
 
@@ -522,102 +618,6 @@ magnet:?xt=urn:btih:8B6C1B00CFDDFDA8879BFE915C8C961C68AA2E73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6DD9005D21024487E8CD056DAA9EB0F9F0EE28A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582378   (189355) от 12.11.2022
-
-Похороны / Ososhiki / The Funeral (1984) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Показана подготовка к традиционным японским похоронам. В фильме скорбь по поводу потери мужа и отца сочетается с ироничными наблюдениями за различными персонажами, взаимодействующими в течение трёх дней подготовки... В 1985 году фильм получил пять премий японской киноакадемии, в том числе за лучший фильм, лучшую режиссуру и лучшую мужскую роль Цутому Ямадзаки.Производство: Япония, Itami Productions, New Century ProductionsЖанр: комедияРежиссер: Дзюдзо ИтамиАктеры: Цутому Ямадзаки, Нобуко Миямото, Кин Сугаи, Хидэдзи Отаки, Исао Бито, Мидори Эбиа, Каматари Фудзивара, Хидео Фукухара, Хироко ФутабаПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (GREGG), английскиеПродолжительность: 02:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FEC61606986066DE47BB211A86DDC3B940D6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590071   (189372) от 12.11.2022
-
-Зедер / Zeder (1983) BDRip [H.265/1080p] [10-bit] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189372.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1950-х ученый Паоло Зедер исследовал геопатогенные зоны — трупы, захороненные в таких местах возвращались к жизни. Спустя несколько десятилетий пишущая машинка Зедера попала к молодому писателю, а тот сумел разобрать некоторые записи, сохранившиеся на ленте машинки.Производство: Италия / A.M.A. Film, Radiotelevisione Italiana (RAI)Жанр: ужасыРежиссер: Пупи АватиАктеры: Габриэле Лавиа, Анн Кановас, Paola Tanziani, Чезаре Барбетти, Боб Тонелли, Фердинандо Орланди, Enea Ferrario, Джон Стэйси, Алекс Партексано, Марчелло ТускоПеревод: Одноголосый любительский (Сергей Кузнецов)Субтитры: английскиеПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68952569EC975EBE2694242B7F6EAC5663C71CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590075   (189394) от 12.11.2022
-
-Полуночное безумие / Midnight Madness (1980) WEB-DL [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189394.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету фильма пять команд по 4-5 человек приглашаются к участию в игре «The Great All-Nighter». Их задача – первыми прийти к финишу, поочередно разгадывая задания. Их команда получает на месте, куда ее привела прошлая загадка.Производство: США / Walt Disney ProductionsЖанр: комедияРежиссер: Майкл Нанкин, Дэвид УэктерАктеры: Дэвид Нотон, Дебра Клинджер, Дэвид Дамас, Майкл Дж. Фокс, Стефен Ферст, Патриция Элис Альбрехт, Энди Теннант, Брайан Фришмен, Джоэль Кенни, Сэл ЛопесПеревод: Одноголосый любительский (Emslie)Субтитры: русские, английскиеПродолжительность: 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E18FA1AB525897C7147DEAF7D9F4CFC71B3E7CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590159   (189408) от 12.11.2022
-
-Фрида / Frieda (1947) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённой пьесе 1946 года Рональда Миллара. В апреле 1945 года в разбомбленной польской протестантской церкви сочетаются браком Роберт, британский офицер, и Фрида, католическая медсестра-немка, которая помогла ему сбежать. Она любит его, а Роберт просто расплачивается с ней своим британским паспортом и билетом в его родной городок в Англии. Фриду (   Читать дальше...   )Производство: Великобритания, Ealing StudiosЖанр: драма, военныйРежиссер: Бэзил ДирденАктеры: Дэвид Фаррар, Глинис Джонс, Май Зеттерлинг, Флора Робсон, Альберт Ливен, Барбара Эверест, Глэдис Хенсон, Рэй Джексон, Патрик Холт, Д.Э. Кларк-СмитПеревод: авторский (Владимир Воронцов)Субтитры: русские (тексты песен), английскиеПродолжительность: 01:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EF365F48C5E0C14CEABA961BB725876842314
 ```
 
 

@@ -6,7 +6,7 @@ Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70896.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F0124C16EA21F99FA83392A08F663020BF3F13F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70897.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:DF6F45363D95A3AD791F2ED16C80B1504ED949B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70898.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Nino Grandi - I've Been Waiting (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70899.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:BDBC62EE45CF11E89DCA314583FB4E3F64AE41D6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70900.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Richard Montag - Blues Bird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70901.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70902.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ FolderSync Pro v4.2.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70903.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Korolova - Live @ Tulum, Mexico (2025-02-07) [MP3|320 Kbps] <Progressive House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70904.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:390B5BA4A03AEA1A434536B1168731E12EDF6DEF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70905.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Ita
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70906.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ MusicBrainz Picard 2.13.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70907.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70908.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70909.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70910.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70911.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1F98D7CDFB86DA811C9B426B16B29340A4BAF181
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70912.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ QOwnNotes 25.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70913.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4E02DB810CD756DAAC82FB873D5C60DD37880275
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70914.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70914.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3D7008ACEF21135970453186850D936F6F1395CF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70915.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70915.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DB6F2FCE9872E3D077056BEE4B0E535E4941D210
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70916.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - The Sound of 2025, Chapter 1: Milan (Night Mix) (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70917.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PowerDirector – Video Editor v14.8.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70918.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0A1F3B485600314F9EFF74B3E2146239C6911440
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70919.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:2F4297DF298144A245E5E697923FA231FEC1C563
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70920.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70921.jpg" />
 </div>
 
 

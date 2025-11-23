@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134126.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134126.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:475F52CEB475AF6A36BF0F57B64953687C5401B4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134128.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ YT Downloader 9.6.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134139.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B98F1932B01FC427C3B346D833859F1F381CF7F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134140.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Google Chrome 119.0.6045.200 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134141.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BD5BB26A755808828417A522953578CC05011278
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134143.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Zentimo xStorage Manager 3.0.4.1298 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134144.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134144.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FlashFXP 4.2.5 Build 1813 Stable + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134148.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134148.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ TikTok 32.2.4 Mod by Dmitry Nechiporenko [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134153.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134153.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:F4D77EE82A54C7522AD12B84063E1DD53E38EA23
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134156.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Sumatra PDF 2.2 Final + Portable [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134158.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134158.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ WinTools.net 23.12.1 Classic / Professional / Premium RePack (& Portable) by Try
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134161.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Light Image Resizer 4.3.4.2 + by PortableAppZ [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134170.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134170.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chromium-Gost 119.0.6045.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134177.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BitComet 2.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134186.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ HQ Wallpapers for a desktop (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134187.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Computer Desktop Wallpapers Collection (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134192.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Topaz Video AI 4.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134197.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Google Chrome 119.0.6045.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134202.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134202.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Ashampoo Photo Optimizer 10.0.0.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134205.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134205.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:4AB656E9BF29B7242D3EFAED92BDAA36B089FE3A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134208.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134208.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ GeoGebra 4.2.12 + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134210.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134212.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Pale Moon 32.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134213.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Best HD Wallpapers Pack (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134214.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134221.jpg" />
 </div>
 
 

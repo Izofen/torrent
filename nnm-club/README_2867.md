@@ -1,3 +1,79 @@
+###  Публикация: 471807   (83769) от 22.03.2012
+
+Война миров / War of the Worlds (2005) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не поверил бы в начале 21 столетия, что за всем происходящим на Земле зорко и внимательно следят существа более развитые, чем человек; что в то время, как люди занимались своими делами, их исследовали и изучали.
+С бесконечным самодовольством сновали люди по всему земному шару, занятые своими делишками, уверенные в своей власти над материей. А между тем через (   Читать дальше...   )Производство: США / Paramount Pictures, DreamWorks, Amblin EntertainmentЖанр: фантастика, триллер, приключенияРежиссер: Стивен СпилбергАктеры: Том Круз, Дакота Фаннинг, Миранда Отто, Джастин Чэтвин, Тим Роббинс, Рик Гонзалез, Юл Васкез, Ленни Венито, Лиза Энн Уолтер, Энн РобинсонПеревод: ДублированныйПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE806D44E5203EA05E009652BC7EEE44A9C2EF35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471928   (83770) от 22.03.2012
+
+Расплата / Payback (1999) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Член преступного могущественного синдиката должен заплатить своим боссам 130 тыс. долларов. Поэтому он приглашает Портера (Гибсон) на дело. Вместе с ним и его женой они грабят автомобиль, в котором азиаты перевозят «грязные» деньги.
+ Но жене Портера подлый мафиози подсовывает фотографию мужа в объятиях проститутки, и супруга всаживает в благоверного пулю за пулей. Сочтя его мертвым, они забирают деньги и уезжают. Однако Портер не умер и через пять месяцев вернулся, чтобы расплатиться — вернуть свои деньги и отомстить...Жанр: Военный, Драма, КриминалРежиссер: Брайан ХелгелендАктеры: Мел Гибсон, Грегг Хенри, Мария Белло, Люси Лью, Джон Гловер, Дэвид Пэймер, Крис Кристофферсон, Дебора Кара Ангер, Билл Дьюк, Джек Конли, Уильям Дивэйн и другиеПеревод: Дублированный, Авторский одноголосыйЯзык субтитров: ОтсутствуютПродолжительность: 01:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FEE06A0FF31C780F4F31261449A6E3187F93BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470680   (83772) от 22.03.2012
+
+Лао-цзы | Дао Дэ Цзин [2012] [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83772.jpg" />
+</div>
+
+
+###  Подробнее
+
+В трактате Дао дэ цзин (IV—III в. до н. э.) излагаются основы даосизма, философии Лао-цзы.
+В центре доктрины — учение о великом Дао, всеобщем Законе и Абсолюте. Дао господствует везде и во всем, всегда и безгранично.
+Его никто не создал, но всё происходит от него. Невидимое и неслышимое, недоступное органам чувств, постоянное и неисчерпаемое, безымянное и бесформенное, (   Читать дальше...   )Жанр: ФилософияПеревод: Ян Хин-шун
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA1EBDCEFC5F6858C4B4D457A24980D5575CD9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471860   (83773) от 22.03.2012
 
 [RePack] Orcs Must Die! / Бей орков! {v 1.0r14 + 5 DLC} [Ru] 2011 | Naitro
@@ -6,7 +82,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83773.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83773.jpg" />
 </div>
 
 
@@ -30,7 +106,7 @@ magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83774.jpg" />
 </div>
 
 
@@ -54,7 +130,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83776.jpg" />
 </div>
 
 
@@ -79,7 +155,7 @@ magnet:?xt=urn:btih:9EE7DA9E7448DA6777854B8AF59ED929602DE054
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83777.jpg" />
 </div>
 
 
@@ -103,7 +179,7 @@ magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83778.jpg" />
 </div>
 
 
@@ -127,7 +203,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83779.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83779.jpg" />
 </div>
 
 
@@ -151,7 +227,7 @@ magnet:?xt=urn:btih:9662050E2C9547685948FDD511E7180FC802F724
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83780.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83780.jpg" />
 </div>
 
 
@@ -175,7 +251,7 @@ magnet:?xt=urn:btih:1848BD702C0A75D34E7E21F45EE15BC17DCC135A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83781.jpg" />
 </div>
 
 
@@ -199,7 +275,7 @@ magnet:?xt=urn:btih:58EB9DCA0C88DC3A9E85CB2265E9C1D8A2D86784
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83783.jpg" />
 </div>
 
 
@@ -224,7 +300,7 @@ magnet:?xt=urn:btih:58EB9DCA0C88DC3A9E85CB2265E9C1D8A2D86784
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83785.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83785.jpg" />
 </div>
 
 
@@ -248,7 +324,7 @@ Transform Windows Mountain Lion[Web Installer] 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83786.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83786.jpg" />
 </div>
 
 
@@ -272,7 +348,7 @@ Lord of the Rings Online: Isengard/ Властелин Колец Онлайн: 
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83788.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83788.jpg" />
 </div>
 
 
@@ -297,7 +373,7 @@ magnet:?xt=urn:btih:3977D97DDE047EF09F17D31B3B107675237727A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83791.jpg" />
 </div>
 
 
@@ -321,7 +397,7 @@ magnet:?xt=urn:btih:3977D97DDE047EF09F17D31B3B107675237727A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83793.jpg" />
 </div>
 
 
@@ -345,7 +421,7 @@ Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83794.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83794.jpg" />
 </div>
 
 
@@ -371,7 +447,7 @@ DriverPack Solution 12.3 Full R255 (2012) 12 255 x86+x64 (18.03.2012 ENG + RUS) 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83795.jpg" />
 </div>
 
 
@@ -395,7 +471,7 @@ DriverPack Solution это самая популярная программа д
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83797.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83797.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83801.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ magnet:?xt=urn:btih:7A3D1C7F0FDAE4A026B14A44C562C0F3C82299AE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83802.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ Adobe Photoshop CS6 Beta [Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83804.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ WPI by Viktor-VDV 03.2012 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83805.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83805.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ WPI by Viktor-VDV 03.2012 [Русский]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83806.jpg" />
 </div>
 
 
@@ -548,7 +624,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_83807.jpg" />
 </div>
 
 
@@ -561,83 +637,6 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3449614A896B468E9E87226FC6468B4E5948D16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471714   (83808) от 22.03.2012
-
-Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели никому, даже если их убивают какие-то психи? Никому… Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым идеями испанской инквизиции. Интересно, не тех ли самых убийц отыскал Генри?...
-
- Знаменитая студия Pendulo, уже почти два десятилетия талантливо развлекающая публику юмористическими квестами, на этот раз выступила в новом амплуа, создав мрачный психологический триллер с мистическим уклоном «Yesterday: Печать Люцифера». Вы возьмете под контроль стразу трех персонажей и вместе с ними побываете в Америке, Европе, Азии, где, конечно, вам придется немало поломать голову над хитроумными загадками. Алхимия, сатанизм, Ватикан, Y-образные шрамы — какое уж тут веселье: все необычайно мрачно, но традиционно интригующе.
-
- Будьте готовы к неожиданностям. Взгляните своим (   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471287   (83813) от 22.03.2012
-
-[Xbox 360] Burnout Revenge [PAL][Rus](2006)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно, в этой жизни вы не разобьете ни одной «Ламборджини Диабло», никогда не превысите скорость и ни за что не вступите в пререкания со светофором. Ничего страшного! Потому что с Burnout Revenge, новой сверхскоростной гоночной игрой от компании Electronic Arts, вам будет о чем рассказать внукам! Забудьте о том, чему вас учили в автошколе, не вспоминайте о правилах дорожного движения и сделайте, наконец, то, о чем тайно мечтаете с момента получения водительских прав: громите «пробки», наказывайте «чайников», сносите светофоры на скорости двести миль в час!
-(   Читать дальше...   )Тип издания: ПираткаРазработчик: Criterion StudioЖанр: Racing/ArcadeЯзык интерфейса: Русский (текст и звук, при запуске игры выбрать британский язык)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472251   (83819) от 23.03.2012
-
-[Картинки] Фото знаменитости/Анна Нетребко
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна Юрьевна Нетребко— российская оперная певица, сопрано. Народная артистка России. С 2006 года — также гражданка Австрии, живёт в Вене.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 ```
 
 

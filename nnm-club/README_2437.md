@@ -6,7 +6,7 @@ InnoExtractor Ultra 7.3.2.535 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63727.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ WinBin2Iso 6.26 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63728.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63728.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ AIMP 5.30 Build 2541 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63729.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:686B671EE655281279F708B291B2CACDEFE12EA8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63730.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:11D8F39BE68CAA8F9321102702A5EB78C79784F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63731.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ IObit Uninstaller Pro 13.4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63732.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:55ECEE5C8AA6DE1D1F52F0473B20F4C4D38EEDB5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63733.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A4C6E43DB18D17B6DD9893CE1190EA3817477DDE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63734.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63734.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:81B34DEA369C44492B2C15ACA3F9C56D2C3F4E54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63735.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BD0731FDA64860F0253476761F0C9D85E9FCE6F6
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63736.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63736.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:78D8129D119D771407B97ACCC922349B984398EE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63737.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63737.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:E746F0EC675FA2A6BB95407BE26250115DDF1742
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63738.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:E746F0EC675FA2A6BB95407BE26250115DDF1742
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63739.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:25FDE092DD13E8EA4AC352810ABB7A82AB058DFD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63740.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FEC45BF60FDE74A4FE9C2C2B76A7217903B9A342
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63741.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:4CD973F5B84E2F4AE92FACDF7E689BCED3FD935C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63742.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7FFFE384C2F52A0CF9D6C33F086AE0EDC3892B29
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63743.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:965D5EEEF0EB72B7E99EF1F2A977E20C9BC58099
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63744.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:85B1A8E98FCFDF9B172001F9CF0224341D417787
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63745.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:172AF0BB677FCB6315F0A24B631549288947BC17
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63746.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:E7567F8DD26F124F09FA61E3DAADEEDB9AB6F30D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63747.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ ForkLift 4 v.4.1.1 U2B fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63748.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:492E740170B0E48AD3F800E06A11567F60E377D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63749.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A9380535FDDD35F439B41FE7A027E2127DFA7267
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63750.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:C91F7476DC690E97ED3DF0FA90798E941AF03B4C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63751.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:60F0A38C3910C77E08E7EAE10E0027956A2BA9FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_63752.jpg" />
 </div>
 
 

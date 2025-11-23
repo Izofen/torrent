@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30435.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2675D8EE9D2AFDC99984C69CD6DD557AF06F116B
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30436.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30436.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2FA9DDB81423BD8A6141C4321B3F45252EBC73CF
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30437.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30437.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7DF9DAE60915EB9C36E456A62D8D07640E46BB0E
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30438.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30438.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4189EE5A2660BEAE9C79B105B61A94C9FF0A092F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30439.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30439.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C0138D952EE9CBA945D6FADF7BF61E2371DE1F31
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30440.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30440.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0C68E44B3660EB580FB7C8CA4254C59889978CD0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30441.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30441.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:105281E6458091DA436336997FB5FA945C449E0F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30442.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30442.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D3BD86B849795A36CE696E91DC0DFA946DCC4576
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30443.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30443.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:5835840FBC03610CC5224558FF3B0B35CA5FB532
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30444.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30444.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:682AA72F920E9D17185DCB16ADC5BA7291FAC9A0
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30445.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30445.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:A6A7E6D70955D7CC331C8544648BCF588D60C5AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30446.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30446.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30447.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30447.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ EarthView 7.11.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30448.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30448.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ OBS Studio 31.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30449.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30449.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:9D9E2095DCD67AAFC640516CA5FBFEDC7F94A313
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30450.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30450.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ AudioBooks v6.0 Plus Mod by smold2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30451.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30451.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30452.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30452.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30453.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:08A97410A9434F9744521A48766F3F4928431907
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30454.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30454.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2E2777484EC439558122B63A4DE629BEB21C6BE2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30455.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30455.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A708B19D30CF588052F021D9F1FEE5356746926F
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_30456.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:C2ECB895A5AFA07E16FA836BB988D8BBA18764E5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30457.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30457.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Pocket Cars (2020) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30458.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30458.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:852F038EF5E01D0D1502BFA474FA27AA71519DED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30459.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30459.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30460.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30460.jpg" />
 </div>
 
 

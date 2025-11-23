@@ -6,7 +6,7 @@ CyberLink PowerDVD Ultra 24.0.0716.62 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10514.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10514.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TagScanner 6.1.20 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chief Architect Premier X17 Build 27.1.0.54 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10806.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10806.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10933.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Luxion KeyShot Enteprise 2025.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10963.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DP Animation Maker 3.5.41 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_10979.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Techivation - AI-Rack 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11174.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11174.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DISTRHO - Cardinal 25.06 VST 3, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11334.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11334.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Icecream Video Converter Pro 1.47 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11378.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FastFlix 5.12.4 + Portable (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11381.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ dBpoweramp Music Converter 2025.07.14 Reference (x64) Portable by FC Portable [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11414.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11414.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Icecream Video Converter Pro 1.47 RePack (& Portable) by elchupacabra Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11417.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11417.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ XnView Shell Extension 4.2.0  + Standalone  [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11560.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cytomic Effects Bundle 2025.7 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11714.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Pepakura Designer 6.1.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11727.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11727.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Audiopunks - SansAmp Rack 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11816.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11816.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Polyverse Music - Filterverse 1.2.1 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11903.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ MAGIX Vegas Pro 22.0 Build 250 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11974.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Rhinoceros 3D 8.21.25188.17001 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_11981.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nik Collection by DxO 8.1.2 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12084.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12084.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Artweaver Plus 8.0.5.3181 [De/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12156.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12156.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VideoProc Converter AI 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12180.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Foobar2000 2.24.6 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12185.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mario Nieto - Chord Generator 1.1.0 Standalone, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12212.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mario Nieto - Harmony Bloom 1.3.4 Standalone, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12214.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Newfangled Audio - Pendulate 1.7.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_12217.jpg" />
 </div>
 
 

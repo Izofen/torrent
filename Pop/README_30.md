@@ -6,7 +6,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71487.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71493.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71502.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Italo Disco - The Lost Legends Vol. 16 (2018) [OGG Vorbis|480 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71571.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cock Robin - Precious Dreams (2024) 3xCD [FLAC|Lossless|image + .cue] <Pop-Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71628.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71628.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71639.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71639.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71729.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71729.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71731.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marius M.21 - Disco Classics (Best Reworks) (2011) [MP3|320 Kbps] <Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71732.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71732.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D17224ADD21288522C055C2C4F929779D7BF8B68
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71735.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71735.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Marius M.21 - The Album (2010) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71758.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71781.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71859.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_73499.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_76928.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77131.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77438.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77438.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77549.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_77584.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78124.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Золотой фонд. Мое последнее танго  - Кумир
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78177.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78217.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78744.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78778.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78778.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78809.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78809.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_78965.jpg" />
 </div>
 
 

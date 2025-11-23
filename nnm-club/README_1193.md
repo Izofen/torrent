@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31371.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31371.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D0412B9C09184294A3C19C6F457881F99DC9DA00
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31372.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31372.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Woong San - Close Your Eyes (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31373.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vov Sticky Notes 9.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31374.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31374.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31375.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31375.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8B99221E5AE4ED3191C1FE91EA697D51847BB21F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31376.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31376.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DDCD02BC2CFF3F9936FA3E853A61EA0F009557DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31377.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31377.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31378.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31378.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31379.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31379.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3111D898BD54DB3F392DC173989478DA49BE2A74
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31380.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D235BDC1A70007731B2BED866D59D73694B8CDCD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31381.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:035F5665014FB52038B96566101670C1D9464331
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31382.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31382.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:51EFFC3BB9893FE44F077590F84449B21980FF56
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31383.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31383.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:EA981F20D6853129760C335DDCBCE6EDCCD11E4B
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31384.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31384.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:66A3C744F967A95965D5941FDB036CFF0B2F34C7
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31385.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31385.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Telegram Desktop 5.10.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31386.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31386.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31387.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31387.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Desktop Calendar 3.20.220.6960 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31388.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31388.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Directory List & Print Pro 4.33 + Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31389.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31389.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31390.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31390.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:C39E610D79D36F2891DF2A740FE3276DE083C303
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31391.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31391.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:DCE395908EE320CD598ED42500B6F1CAC6286DF3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31392.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31392.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:819A6B02C434CBCE6101CBA6731A7D99C69682B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31393.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31393.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Gestalt: Steam & Cinder (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31394.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_31394.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31395.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:D54EF0871E72BF5DE88BD150B6E9EB75CB12C304
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31396.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_31396.jpg" />
 </div>
 
 

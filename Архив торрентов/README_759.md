@@ -1,3 +1,75 @@
+###  Публикация: 1600519   (156864) от 27.12.2022
+
+WinX VideoProc Converter 5.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156864.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX VideoProc Converter - усовершенствованная версия, WinX HD Video Converter Deluxe, мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B09D6B02FE02D7281DCC4FBD0B8E84B3E21B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676549   (156865) от 13.11.2023
+
+TreeSize Free 4.7.1.525 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита TreeSize Free показывает размер папок и файлов, помогая определить куда делось свободное дисковое пространство на ваших дисках. Программа поддерживает сканирование подключенных к ПК мобильных устройств, сетевых носителей и облачных хранилищ. Полностью бесплатная программа TreeSize Free может быть запущена из контекстного меню папки или диска и показывает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105F35134D7CF4D999871006A5A809336A28E1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518213   (156876) от 18.12.2021
+
+StartAllBack 3.2.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156876.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4C775ED7E115AFB2A87DB37EB7616A0546BD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968200   (156879) от 23.12.2015
 
 Валентин Иванов | Возвращение Ибадуллы (1957) [FB2]
@@ -6,7 +78,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156879.jpg" />
 </div>
 
 
@@ -31,7 +103,7 @@ IceCream Ebook Reader Pro 6.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156892.jpg" />
 </div>
 
 
@@ -55,7 +127,7 @@ Max Freegrant - The Yearbook (2016) [MP3|320 Kbps] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156900.jpg" />
 </div>
 
 
@@ -82,7 +154,7 @@ iMazing 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156902.jpg" />
 </div>
 
 
@@ -107,7 +179,7 @@ Cyberfox 43.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156907.jpg" />
 </div>
 
 
@@ -131,7 +203,7 @@ Sidify Apple Music Converter 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156917.jpg" />
 </div>
 
 
@@ -156,7 +228,7 @@ magnet:?xt=urn:btih:ECFD8EBBFF28E1F8CC5B7EF34CC445AC30562DE5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156922.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156922.jpg" />
 </div>
 
 
@@ -181,7 +253,7 @@ Later - Create Quick Reminders With Presets 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156928.jpg" />
 </div>
 
 
@@ -208,7 +280,7 @@ Wipe 2013.00 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_156930.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_156930.jpg" />
 </div>
 
 
@@ -237,7 +309,7 @@ Sonic Academy - ANA 2 Slate Bundle 2.0.94 VSTi, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156931.jpg" />
 </div>
 
 
@@ -261,7 +333,7 @@ The Game - Jesus Piece (2012) (Deluxe Edition) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156937.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ Glary Utilities Pro 5.157.0.183 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156960.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ magnet:?xt=urn:btih:3A26E0E9CB3CB14A983ED3BAAC263B84CDFD8700
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156963.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ Pastebot 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156964.jpg" />
 </div>
 
 
@@ -367,7 +439,7 @@ VA - Uplifting Only Top 15 December (2016) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156975.jpg" />
 </div>
 
 
@@ -394,7 +466,7 @@ WinToUSB Technician 7.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156981.jpg" />
 </div>
 
 
@@ -418,7 +490,7 @@ magnet:?xt=urn:btih:AC1B2999E9797E57395C7C66EFDE8345D31B1211
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156986.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156986.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:C943F449C0072FE6B4F1F6AA8A46CB1B4330FAB7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156996.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_156996.jpg" />
 </div>
 
 
@@ -466,7 +538,7 @@ magnet:?xt=urn:btih:38019D3E1395DA4AB2C6888B68DAC192D8482BAC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_157003.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_157003.jpg" />
 </div>
 
 
@@ -490,7 +562,7 @@ Skype 8.67.0.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157008.jpg" />
 </div>
 
 
@@ -514,7 +586,7 @@ magnet:?xt=urn:btih:4F48709EEABD448056EDA1C0B90B566C64ED2DC2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157009.jpg" />
 </div>
 
 
@@ -538,7 +610,7 @@ LogTail 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157010.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157010.jpg" />
 </div>
 
 
@@ -564,7 +636,7 @@ Rhinoceros 7 v7.2.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157013.jpg" />
 </div>
 
 
@@ -577,80 +649,6 @@ Rhinoceros 7 v7.2.20343 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D62540BD106019DA622EA9A47B2CE9661BB0102
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346637   (157016) от 20.12.2019
-
-Viber 12.1.0.29 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62C1AB1127467120485D35298075156709C1FFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085632   (157017) от 22.12.2016
-
-Permute 2.3.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9BC4736A56DB8934BB3EBA4FF59C83572D1F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270315   (157021) от 19.12.2018
-
-BlueStacks App Player 4.32.80.1017 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157021.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueStacks - платформа для запуска Android приложений и игр на настольных компьютерах, ноутбуках и планшетах. Использует технологию под названием LayerCake, которая обеспечивает корректную среду для запуска ARM-приложений для ОС Android на компьютере с операционной системой Windows.
-После установки BlueStacks на ваш ПК с Windows вы можете прямо из программы загрузить (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DE6D161E639EEAFA20065F30F506E86D3CE99A
 ```
 
 

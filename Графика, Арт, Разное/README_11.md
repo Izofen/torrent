@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99503.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:68733C105078C93190E042F5C8F1EE149FB2A280
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99511.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99511.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:96A16F3008A310789E23FBD07932839F0A41FE5E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99548.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:686288951D211D29E7D1D20AFFB9D6F41D36B3C5
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_99563.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Weapons Wallpapers
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100027.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:229E857A9F8954966B2CE1AEC0E377DD1CC53B3C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100272.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100272.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100295.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:DFE96489FB72A1C3839F5D03A3454A58A9B3AE32
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100320.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:21552960F9CC1773087653DCF8C46ACFD6D69678
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100774.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100774.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:0F1CAA92C280E932AF1DDFE475B09D1DFCA453CA
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100960.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:569B7738A46D191EBEEDDDCF241443A1E6663B57
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101692.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:6B5137AED63C3E3ECAAFCB51E6CBCED06F4CFD61
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101771.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102043.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:041A3B3AE27B472EDBB7C0E31CA304DD2D1AC184
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102461.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Silver&Gold icon pack 2012 [Eng]
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_102482.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_102482.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Silver&Gold icon pack 2012 [Eng]
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102564.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8473D573A89B1F85309A0D1602D28965CC316374
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102600.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:894E48748355236E819101EB07A1F69AA0A0AE6A
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102668.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:35005838316EFCA18FAADCB0E5260D00B1E9EE89
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102696.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:EAD5ECEDBB0766E10A45B7D1132FB81501E51D96
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102698.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:1B82279344A0B4F8F7190EBCDD083D3CD1DA89F7
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_104376.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:833811E4035275C8185C32922AECFB581123899F
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117733.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:6734C9D4CDCA69DAD0EFD5669D29511B06853C65
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118843.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2AA20DB0C43EBF0026734653382EBE6EA84890ED
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_119253.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:9F1159F0E710FD623EEADB8391122D90E34BD82D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121535.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:51C91908EBFF9560B86CDF03607A78D32D2C2A9B
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_121539.jpg" />
 </div>
 
 

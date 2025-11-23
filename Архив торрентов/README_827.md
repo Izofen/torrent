@@ -1,3 +1,78 @@
+###  Публикация: 1431517   (166489) от 14.12.2020
+
+Microsoft Windows and Office ISO Download Tool 8.45.0.152 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows and Office ISO Downloader - небольшое бесплатное приложение, которое предлагает легкий и удобный способ для загрузки официальных образов ISO операционных систем Windows и офисных пакетов MS Office непосредственно с серверов Microsoft.
+Не требует установки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA9FFD5F2466D34293502DE332643B7EB59E972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597354   (166490) от 14.12.2022
+
+Psiphon 3 build 176 (DC 13.12.2022) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
+
+Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673050   (166495) от 31.10.2023
+
+Privatus 6.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597433   (166502) от 14.12.2022
 
 Viber 19.1.0.0 (x64) [Multi/Ru]
@@ -6,7 +81,7 @@ Viber 19.1.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166502.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166502.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ AAF DCH Optimus Sound 6.0.9279.1 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166510.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166510.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ GarageSale 9.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166512.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ File List Export for Mac 2.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166516.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166516.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ PrivaZer 3.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166517.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166517.jpg" />
 </div>
 
 
@@ -126,7 +201,7 @@ Xliff Editor 2.9.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166518.jpg" />
 </div>
 
 
@@ -151,7 +226,7 @@ Boxy SVG 4.14.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166522.jpg" />
 </div>
 
 
@@ -175,7 +250,7 @@ EazyDraw 11.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166524.jpg" />
 </div>
 
 
@@ -199,7 +274,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166525.jpg" />
 </div>
 
 
@@ -223,7 +298,7 @@ Microsoft .NET 7.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166527.jpg" />
 </div>
 
 
@@ -248,7 +323,7 @@ Cookie 7.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166528.jpg" />
 </div>
 
 
@@ -273,7 +348,7 @@ PhotoFoundry for Mac 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166530.jpg" />
 </div>
 
 
@@ -297,7 +372,7 @@ JRiver Media Center 26.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166537.jpg" />
 </div>
 
 
@@ -321,7 +396,7 @@ magnet:?xt=urn:btih:21648A45ADFC36E7E5D780B0AC6D0F07EFF0025D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166552.jpg" />
 </div>
 
 
@@ -347,7 +422,7 @@ magnet:?xt=urn:btih:3615BDEFADB4561027A54EEDA36296F62CEF1398
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166556.jpg" />
 </div>
 
 
@@ -373,7 +448,7 @@ Adobe Photoshop 2024 25.1.0.120 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166570.jpg" />
 </div>
 
 
@@ -397,7 +472,7 @@ Exposure Software Snap Art 4 v4.1.3.272 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166577.jpg" />
 </div>
 
 
@@ -421,7 +496,7 @@ Macrorit Partition Expert 5.8.7 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166578.jpg" />
 </div>
 
 
@@ -445,7 +520,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166582.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ FinePrint Software (FinePrint 11.33 / pdfFactory Pro 8.33) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166588.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ UniConverter 11.6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166591.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Gifox 2 – Gif Recording & Sharing v2.0.2.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166596.jpg" />
 </div>
 
 
@@ -545,7 +620,7 @@ Macrorit Partition Extender 1.6.7 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_166599.jpg" />
 </div>
 
 
@@ -556,81 +631,6 @@ Macrorit Partition Extender - утилита, доступная также в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF4E2B9B33D792C66982122C69F85ED2C0F8FD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345489   (166611) от 15.12.2019
-
-MerrOw - Odysseus (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost in the Triangle 10:41
-2. Lunar Tides 08:28
-3. Odysseus 07:53
-4. Trippy Jellyfish 17:12(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA1FBF7A8054E0E568AEAA26842A21414F63278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597324   (166612) от 14.12.2022
-
-AOMEI Backupper Technician Plus 7.1.1 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166612.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01303192B7F28912E5F825F6B5E2A5A674D340BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516300   (166614) от 10.12.2021
-
-Visual Studio Code 1.63.0 + Автономная версия (standalone) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F37EBD45282639009CF65F587A2EB68AF1F265E
 ```
 
 

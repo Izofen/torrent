@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3FAA28485A54DC19345895EFF6C333E78932EE6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57748.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Foobar2000 2.1.5 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57749.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ PlayerFab 7.0.4.5 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57750.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MediaChance Dynamic Auto Painter Pro 8.0.0 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57751.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D4C10608F760155687D455D1F3FC7621774C0547
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57752.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Topaz Gigapixel AI 7.1.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57753.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9973F9E904BB8D37DD4505C11BFD3E8D1875FF20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57754.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D8952171661F7D6D3336E64C7D95DC87098D6E87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57755.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57756.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A79F83B8E0872D003A5BEA633FCF0EA72D426B23
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57757.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9CC4029B3FD4E21CCD8570DD23A9945600C1B3E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57758.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Corona Renderer 11 for Cinema 4D R17 - 2024 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57759.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C19CECB58BD1C2C0F88738C13DF705D718949ECB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57760.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B68B05CA6152D8E714768B983C9C8A6FAC6B303E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57761.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Nitro Pro 14.24.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57762.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PhotoFiltre Studio X 11.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57763.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:8535BDB3F56B7B7607CDAE538B2EC9FDF51FB614
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57764.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57764.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Maxon Cinema 4D Studio 2024.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57765.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57765.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:56CD40030C30CA8E48014785BC05ACE582B99481
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57766.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57766.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:10E2577E23A74E122777598BFD59ACA39510DC8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57767.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57767.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A4BE57E445642863A98D068F1EA938AB3FF27C73
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57768.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57768.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AB04795634A4608A065431B3273708BA42A3E69F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57769.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57769.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AB04795634A4608A065431B3273708BA42A3E69F
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57770.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:491A505865DC3BD8FA11D5B417976D5A2A6A8B2D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57771.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57771.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:2A22E586483A1060722FBDE433594685F6FE5B6C
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57772.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_57772.jpg" />
 </div>
 
 

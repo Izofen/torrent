@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.1.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Gigapixel AI Pro 8.4.0 RePack by KpoJIuK  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17296.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:01F4C3D85AE0F4242E2C74E020DAE5B524038DEF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17306.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RAM Saver Professional 25.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17309.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.3 RePack (& Portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17314.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FacePic - AI Face App v2.5.4 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17369.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:29968C505EC1EBD1DC577FA0C14A0E0585AFEED2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17375.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Glary Utilities Pro 6.26.0.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17376.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Native Instruments - Kontakt 8.4.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17386.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7307 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17398.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17398.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ iDownerGo Video Downloader 10.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17405.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17405.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Glary Utilities Pro 6.26.0.30 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17412.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17412.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Total Commander 11.55 RC3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17425.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ K-Lite Codec Pack 18.9.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17429.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blackmagic Design DaVinci Resolve Studio 20.0B Build 47 Public Beta 4 (x64) Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17444.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adobe Photoshop 2025 26.7.0.15 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17462.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17462.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Adobe Photoshop 2025 26.7.0.15 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17463.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DD5BEE5468FDEA3D510F77B30DB39FDF40421C2F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17471.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ FBReader Premium v3.8.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17545.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ PictureThis - Plant Identification v5.3.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17548.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Smart AudioBook Player Pro v11.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17555.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Translate AI - Camera & Voice v2.0.5 Mod by NURIK kz [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17570.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Any Video Downloader Pro 9.2.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17576.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Capture One 23 Enterprise 16.6.0.2923 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17616.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VueScan Pro 9.8.45.18 RePack (& Portable) by elchupacabra (DC 17.05.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17679.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Tor Browser Bundle 14.5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_17698.jpg" />
 </div>
 
 

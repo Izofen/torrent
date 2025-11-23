@@ -1,3 +1,100 @@
+###  Публикация: 1349127   (138834) от 30.12.2019
+
+MonsterLessons | React Hooks - Пишем Реальный Проект с Нуля (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы создадим клон сайта Medium используя React и React hooks. Этот курс полностью сфокусирован на быстром и глубоком погружении в создание реального приложения с Реакт и хуками. Мы начнем с нуля и шаг за шагом дойдем до законченного приложения. Мы глубоко разберемся как структурировать приложение, создавать переиспользуемые и понятные хуки и компоненты (   Читать дальше...   )Производство: Александр КочергинЖанр: Программирование, ReactПродолжительность: 07:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEECF73B4DCE647308913BB94DC1ECE3CDF97B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516250   (138835) от 30.12.2021
+
+Легко любить / Easy to Love (1953) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милая музыкальная комедия об убежденном холостяке-рекламисте Рэе Ллойде, тайно влюбленном в свою самую популярную модель - пловчиху Джули Холлертон.
+Но все тайное рано или поздно становится явным. Особенно, когда на горизонте у незадачливого влюбленного появляется конкурент. И не один!Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Мелодрама, КомедияРежиссер: Чарльз УолтерсАктеры: Эстер Уильямс, Ван Джонсон, Тони Мартин, Джон Бромфилд, Эдна Скиннер, Кинг Донован, Пол Брайар, Кэррол Бейкер, Эд Оливер, Питер АдамсПеревод: Многоголосый профессиональный, "Светла"Субтитры: АнглийскиеПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F9BEE084B630F3744E7680EF8EE3EE0EB27FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678756   (138836) от 24.11.2023
+
+Когда приходит освобождение / Nar befrielsen kommer / Before It Ends (2023) WEBRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на реальных событиях, фильм приоткрывает одну из неприглядных страниц в истории Дании весной 1945 года. Накопившуюся за годы фашистской оккупации злость местное население вымещает на беззащитных интернированных гражданах Германии. В центре картины - суперинтендант сельской школы, вынужденный по приказу немецкого коменданта организовать в ней лагерь для (   Читать дальше...   )Производство: Дания / Film Fyn, Growing Stories, Growing Studio, Nordisk Film Production, Nordisk Film- & TV-Fond, RUV, The Danish Film Institute Archive, TV 2 PLAY, Yle FemЖанр: Драма, военныйРежиссер: Андерс Вальтер ХансенАктеры: Пилу Асбек, Лассе Петер Ларсен, Кэтрин Розенталь, Мортен Хи Андерсен, Ульрих Томсен, Йенс Йорн Споттаг, Амалия Друд Абильдгорд, Лессер Кирстин Андерсен, Энн Бенгтсон, Мадс БьернПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, датскийСубтитры: датские, шведские, норвежские, финскиеПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7F9DDFEA4CD7F5F89F2E0EF876D0AAF0FB748F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272789   (138837) от 30.12.2018
+
+Филип Рив | Смертные Машины (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя много веков после фантастической Шестидесятиминутной войны наступила Эра Движения. Города вырвали себя из земли и встали на колеса. Мир живет по законам муниципального дарвинизма: города кружат по Охотничьим землям и пожирают друг друга. А когда добычи становится совсем мало, Движущийся мегаполис Лондон прибегает к чудовищному оружию Древних. С его помощью (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5477FBC5D5185CD8D5DDAF7524B8E1FDFDF60A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195811   (138838) от 31.12.2017
 
 VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
@@ -6,7 +103,7 @@ VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138838.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138838.jpg" />
 </div>
 
 
@@ -33,7 +130,7 @@ magnet:?xt=urn:btih:2E3BD88DB2369ABD79458AD1EE57424DA0C1EC0D
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138841.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138841.jpg" />
 </div>
 
 
@@ -57,7 +154,7 @@ magnet:?xt=urn:btih:6D05B5FA78B653868279C7A04F5BC0D48F7C83DC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138842.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138842.jpg" />
 </div>
 
 
@@ -81,7 +178,7 @@ magnet:?xt=urn:btih:41E0789EF19F7E2F0BFA7D96DEBEA5B9E73B0F83
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138843.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138843.jpg" />
 </div>
 
 
@@ -108,7 +205,7 @@ magnet:?xt=urn:btih:E21F5D6D4710143163CD7F18883674346CA67C15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138844.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138844.jpg" />
 </div>
 
 
@@ -132,7 +229,7 @@ magnet:?xt=urn:btih:35F7D501139B4E5EC720ACDDC65C36C6B9A7D227
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138845.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138845.jpg" />
 </div>
 
 
@@ -157,7 +254,7 @@ magnet:?xt=urn:btih:6FD06425E204F5ACAD6335E759C5CB037E2AD061
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138846.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138846.jpg" />
 </div>
 
 
@@ -181,7 +278,7 @@ magnet:?xt=urn:btih:1635AA1BB6C88AB3C5C5BED67EA9E3EF8D330BFB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138847.jpg" />
 </div>
 
 
@@ -206,7 +303,7 @@ Windows 10 Debloater 2.6.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138848.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138848.jpg" />
 </div>
 
 
@@ -230,7 +327,7 @@ magnet:?xt=urn:btih:99DEE1C0EBBE49F9358AC5FFFB751765229ACDF2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138850.jpg" />
 </div>
 
 
@@ -255,7 +352,7 @@ magnet:?xt=urn:btih:717BE206763CCD360F28F3FE6DF5BEA3742458EF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138853.jpg" />
 </div>
 
 
@@ -279,7 +376,7 @@ VA - Southern Blues Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138854.jpg" />
 </div>
 
 
@@ -306,7 +403,7 @@ VA - super rock KYOi от NNNB (2017) [MP3|320 Kbps] <Rock, Disco, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138855.jpg" />
 </div>
 
 
@@ -333,7 +430,7 @@ itgid | React. Lite Level (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138856.jpg" />
 </div>
 
 
@@ -350,6 +447,30 @@ magnet:?xt=urn:btih:34E436276CB2AB2C46257887DC7C40D1C418B060
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591086   (138857) от 18.12.2012
+
+WinAVI All-In-One Converter 1.7.0.4734 [Multi+Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_138857.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinAVI All-In-One Converter - лучший видео конвертер для преобразования видео для дальнейшего просмотра на DVD плеерах. Название говорит само за себя - всё в одном. Скоростная конвертация видео/аудио файлов между популярными форматами. Разработчики утверждают, что Фильм размером 4G конвертируется за 10 минут. WinAVI All-In-One Video Converter является профессиональным видео и аудио конвертером. Все видео и аудио форматы могут быть преобразованы между собой.Название программы: WinAVI All-In-One ConverterЯзык интерфейса: Multi+Rus (by
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679157   (138858) от 24.11.2023
 
 Total Commander 11.02 Extended 23.12 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
@@ -358,7 +479,7 @@ Total Commander 11.02 Extended 23.12 Full / Lite RePack (& Portable) by BurSoft 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138858.jpg" />
 </div>
 
 
@@ -383,7 +504,7 @@ magnet:?xt=urn:btih:AB647F6447D94B33FD45098394BCE7CB5C5AB88D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138861.jpg" />
 </div>
 
 
@@ -407,7 +528,7 @@ magnet:?xt=urn:btih:BA7368FB5DD5A5ECF66D29824F7B22CC9585551B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138862.jpg" />
 </div>
 
 
@@ -431,7 +552,7 @@ magnet:?xt=urn:btih:414F6DEB10DFA35F8109DA5FDD0C54D7F0193C59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138863.jpg" />
 </div>
 
 
@@ -455,7 +576,7 @@ Mr. Lif & Akrobatik (The Perceptionists) - Resolution (2017) [FLAC|Lossless|Web-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138865.jpg" />
 </div>
 
 
@@ -482,7 +603,7 @@ magnet:?xt=urn:btih:783B27EECEADA2B1C46CF95E428EA58C06B0BC78
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138866.jpg" />
 </div>
 
 
@@ -507,7 +628,7 @@ Kerbal Space Program (2015) [Ru/En] (1.8.1.2694/dlc) Repack Mr_Weegley
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_138867.jpg" />
 </div>
 
 
@@ -518,131 +639,6 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E1AF36435DA767F601E853E1E0BC3A249AF070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970707   (138868) от 31.12.2015
-
-А. С. Булатов (ред.) | Страны и регионы мира (2009) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит информацию о странах, территориях, регионах и субрегионах мира. Каждая страна, территория, регион и субрегион описаны по стандартным схемам, с помощью которых освещены экономика, политическое устройство, демографическая ситуация и социальное положение.
-
-Для абитуриентов и студентов, обучающихся по специальностям «Экономика», «Мировая экономика», (   Читать дальше...   )Жанр: Экономико-политический справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1944FE44BCEC0CF914B0F5ED6ABDEC07EE77FF7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520935   (138869) от 30.12.2021
-
-Snowy White - Compilation (2021) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding the Blues
-02. Red Wine Blues
-03. Highway to the Sun
-04. Land of Plenty(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 07:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC55970637894BEE8AC9208D4368D0C8180F3CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596618   (138870) от 24.11.2023
-
-Выгодное предложение / Торг / Momgaps / Bargain (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Softbox Plus
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчина пришёл в номер отеля, чтобы приятно провести время с красивой девушкой. А на месте выясняется, что коварная обольстительница собирается продать своего клиента на органы и даже устраивает аукцион. Спасение приходит в виде внезапного землетрясения — здание рушится, и теперь за жизнь придётся бороться всем присутствующим.Производство: Южная Корея / Climax Studio, JTBC StudiosЖанр: триллер, боевик, криминалРежиссер: Чон У-сонАктеры: Чин Сон-гю, Чон Джон-со, Кан Гир-у, Чан Рюль, Чо Хан-джун, О Мин-э, Пак Хён-суПеревод: Двуголосый любительский (Softbox Plus*)Язык озвучки: русский, корейскийПродолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E437F7C3CD31614331683500622A5D7026321F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348776   (138874) от 30.12.2019
-
-Чародеи (1982) HDTVRip [H.264/720p-LQ] [2 серии]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодняя сказка о том, что настоящая любовь может творить чудеса. В институте «НУИНУ» (научный универсальный институт необыкновенных услуг) кипит бурная работа по изготовлению волшебной палочки. Презентация изобретения намечена на 31 декабря, в Новогодний вечер. Но тут в дело вступают противники директора института, преследующие свои цели…Производство: СССР / Гостелерадио, Одесская киностудияЖанр: мюзикл, фантастика, мелодрама, комедияРежиссер: Константин БромбергАктеры: Александра Яковлева, Александр Абдулов, Екатерина Васильева, Валентин Гафт, Семён Фарада, Валерий Золотухин, Эммануил Виторган, Михаил Светин, Роман Филиппов, Анна Ашимова, Евгений Весник, Евгения Абрамова, Ирина Бельгер, Валентина Смоляницкая, Лилия МакееваСубтитры: отсутствуютПродолжительность: 01:10:20 + 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24BD5008B7BE0DE390D1093184A51EA634C9735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679311   (138875) от 24.11.2023
-
-Swiftbook, Кирилл Леонов | Профессия Middle iOS-разработчик (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138875.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Junior до Middle: выведем вас на новый уровень за 4 месяца. Мощное и быстрое погружение в профессию. Материал сбалансированный уникальный и актуальный. Проверен временем. Одобрен учениками. Хочется стереть себе память и пройти курс заново! Курс «Middle iOS-разработчик» является продолжением курса «iOS-разработчик с нуля», имеет ту же структуру и форму, и полностью (   Читать дальше...   )Производство: SwiftbookЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 86:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979009BC775CA686C42F7A6D1AEED9463B4AA586
 ```
 
 

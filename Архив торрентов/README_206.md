@@ -6,7 +6,7 @@ AnyDesk 8.0.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 11.6.0.128 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48953.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ eM Client Pro 10.0.3266.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48968.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OCCT 13.1.3 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48974.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DVDFab StreamFab 6.1.8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48976.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ YT Downloader 9.9.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48978.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ RisohEditor 5.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48979.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ocenaudio 3.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48980.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Sandboxie plus 1.14.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48983.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48983.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Windows Manager 2.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48993.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_48993.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Internet Download Manager 6.42 Build 16 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49001.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49001.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Guitar Pro 8.1.3 Build 73 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49003.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49003.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Google Chrome 127.0.6533.73 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49004.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49004.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IsMyHdOK 3.99 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49005.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49005.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Allavsoft Video Downloader Converter 3.27.3.8957 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49009.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.35.7000 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49012.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49012.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49019.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49019.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Adobe Acrobat Pro 2024.002.20965 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49020.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49020.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ IObit Driver Booster Pro 11.6.0.128 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49023.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Adobe Photoshop 2024 25.11.0.706 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49027.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Adobe Photoshop 2024 25.11.0.706 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49028.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49044.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ HWiNFO 8.06 Build 5500 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49068.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49068.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ES File Explorer File Manager v4.4.2.12 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49072.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49072.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VideoProc Converter AI 7.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49073.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49073.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SupRemo 4.11.2.2629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49079.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49079.jpg" />
 </div>
 
 

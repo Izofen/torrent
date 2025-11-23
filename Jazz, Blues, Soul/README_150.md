@@ -6,7 +6,7 @@ Jonny Lang - 8 Albums (1995 - 2017) [FLAC|Lossless|image + .cue, tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172212.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172212.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ George Mraz In Duet With Roland Hanna - Porgy & Bess (1976) 2020, Octave Lab [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172341.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clare Fischer - Alone Together (1975) 1997, Advance Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172350.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eddie "Lockjaw" Davis - The Heavy Hitter (1979) 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172351.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Johnny Griffin Quartet + 3 - Dance Of Passion (1993) PolyGram [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172358.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Clare Fischer - Just Me: Solo Piano Excursions (1995) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172361.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Omar & The Howlers - 26 Albums (1980 - 2017) 29 CD [FLAC|Lossless|tracks + .cue|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172385.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Toshiko Akiyoshi - New York Sketch Book (2004) Ninety-One [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172499.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172513.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172513.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172518.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172518.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Eddie "Lockjaw" Davis-Johnny Griffin Quintet - Tough Tenors (1970) 1988, MPS
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172524.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172676.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172677.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172677.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172681.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172874.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172877.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172879.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kajgūn(Kajgun) - Collection 4 Releases (2020-2022) [FLAC|Lossless|Web-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_172961.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173045.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173054.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173061.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ The 9th Creation - Bubble Gum (1975) 2002, P-Vine Records [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173186.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173188.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173189.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Joe Pass Meets Tony Rizzi's 5 Guitars - Rose Room (1991) Alfa Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173227.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_173248.jpg" />
 </div>
 
 

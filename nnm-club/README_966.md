@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25463.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E9CC79F20AD7B663028B7E13F28069DF7420C7CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25464.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25464.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9CC79F20AD7B663028B7E13F28069DF7420C7CE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25465.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25465.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E9CC79F20AD7B663028B7E13F28069DF7420C7CE
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25466.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25466.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FCD67D88B70EB2CE9BAD54AA2615666AC6B4EFF8
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25467.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Skillbox | Профессия Менеджер маркетплейсов (2024)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25468.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25468.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E84BCAC9E2052223558820E68D503817A31279B9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25469.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:21F8F755F4F389FBC0B53B1C5230B8A376DED9DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25470.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25471.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25471.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:93583406D04D5018B6F4EFB738AEA1B7EE330AE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25472.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25472.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25473.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25474.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Topaz Video AI 6.1.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25475.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:80247E44058771503694BD65FBBC09F42EC06AAB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25477.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25477.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:D999092480A36884064C91050BDC78630C92F08C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25478.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25478.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:88AC490E6BBFF154AF8CC74C9A882C8B8ADF961C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25479.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25479.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Adobe Acrobat Pro 2025.001.20428 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25480.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25480.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25481.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25481.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25482.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F34FA8294BEB24555AF2EA460906BE22DF05224D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25483.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:22F8E563CDC5E766F22124100E152F68D6266795
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25484.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:4B5A797833D61984691E99123A3B9043F00759E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25485.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25485.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:57EEF416F47575942E7818292D00F22A9ECDA15C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25486.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25487.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:BFA94782FC1796AB4C4B82A8FF900AF1BB053B87
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25488.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_25488.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_25489.jpg" />
 </div>
 
 

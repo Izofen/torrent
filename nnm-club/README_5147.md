@@ -1,3 +1,183 @@
+###  Публикация: 1600066   (159234) от 25.12.2022
+
+Гера Треер | Напитки с градусом и без. Круглый год (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вино, старинные наливки, оригинальные настойки, восхитительные ликеры, нежнейшее пиво, утоляющие жажду крюшоны и согревающие в непогоду глинтвейны. Наши рецепты для любого времени года и для самых разных поводов к торжеству – от скромного в узком семейном кругу до многодневного свадебного или значительного юбилейного.Жанр: Безалкогольные напиткиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C0A239432777760FD5ECB720C62CB22849C3D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676057   (159235) от 11.11.2023
+
+VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun – Desire (05:57)
+02. Judith Ahrends – Wanderer (04:48)
+03. Sunset Boulevard Project – At the Beach (06:15)
+04. Giorgio Moroder – Our Love (J.C Fous de la Mer Forever Instrumental Mix) (06:08)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DowntempoПродолжительность: 02:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA52E945368D7BB07A256609E32173C216A6777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599966   (159236) от 25.12.2022
+
+Cockos REAPER 6.73 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0B0FF392117CB71C3FA752B0220C636A34A98E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676011   (159237) от 11.11.2023
+
+Frank Sinatra - Platinum (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159237.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lean, Baby
+02. I’ve Got The World On A String
+03. I Get A Kick Out Of You(   Читать дальше...   )Жанр: Jazz |Продолжительность: 02:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96205723E545A5ECBA0F0719B08977EF31D9A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406617   (159238) от 25.12.2022
+
+The Rolling Stones - Goats Head Soup (1973) 3CD, Deluxe Edition, 2020, Polydor Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Sugar (Live / Forest National Arena, Brussels / 17/10/73) [00:03:55]
+02. Gimme Shelter (Live / Forest National Arena, Brussels / 17/10/73) [00:05:33]
+03. Happy (Live / Forest National Arena, Brussels / 17/10/73) [00:03:14]
+04. Tumbling Dice (Live / Forest National Arena, Brussels / 17/10/73) [00:05:04](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 3 CD, 02:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BCA16DFD78E6356C5AA5779EF4BBA1FFA739E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676070   (159239) от 11.11.2023
+
+VA - Female pop assorted compilation part  40 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jessica Jay - Chichiquitta
+02. Jessica Jay - Chilly Cha Cha
+03. Valerie Dore - Get Closer
+04. Valerie Dore - Lancelot(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6168E70C83390BC3FAB5D3A569160B63C114F8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599816   (159240) от 25.12.2022
+
+Форсаж 9 / F9 (2021) WEBRip [H.264/720p] [Режиссерская версия]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доминик Торетто ведет спокойную жизнь в глуши вместе с Летти и сыном Брайаном, но опасность всегда где-то рядом. Команде приходится снова собраться, чтобы спасти Мистера Никто после крушения самолёта, на котором перевозили пойманную хакершу Сайфер. На месте аварии команда обнаруживает загадочное устройство и вскоре сталкивается с опасным преступником и самым безбашенным (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Roth/Kirschenbaum Films, Perfect Storm EntertainmentЖанр: боевик, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина,Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Сон Ган, Шарлиз Терон, Анна СаваиПеревод: Дублированный (со вставками Д. Есарева), АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), украинские (Forced), английские (Full, SDH)Продолжительность: 02:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F83A0A7E1135E44758E2C37607E2AD924708CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675868   (159241) от 11.11.2023
 
 Skype 8.108.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +186,7 @@ Skype 8.108.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159241.jpg" />
 </div>
 
 
@@ -30,7 +210,7 @@ magnet:?xt=urn:btih:2114C765FA89D501E4653C5984CF6447979FB4B5
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159242.jpg" />
 </div>
 
 
@@ -55,7 +235,7 @@ magnet:?xt=urn:btih:E66C1ED70C9091D5F2A584D1C49CCD0C21DE1E3E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159243.jpg" />
 </div>
 
 
@@ -79,7 +259,7 @@ magnet:?xt=urn:btih:1193EB6FC6AC6A5B381D1CE93766863DCBA2E7D3
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159244.jpg" />
 </div>
 
 
@@ -103,7 +283,7 @@ magnet:?xt=urn:btih:8211A016603EAEA2B138F9EA8F1B4DC13C05BB29
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159245.jpg" />
 </div>
 
 
@@ -127,7 +307,7 @@ Pipette 2022-10-22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159246.jpg" />
 </div>
 
 
@@ -151,7 +331,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159247.jpg" />
 </div>
 
 
@@ -175,7 +355,7 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159248.jpg" />
 </div>
 
 
@@ -199,7 +379,7 @@ magnet:?xt=urn:btih:912223B90BE99B3AF7B5F2FF210807858CFEBFB6
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159249.jpg" />
 </div>
 
 
@@ -225,7 +405,7 @@ magnet:?xt=urn:btih:429A306ECF350F29DDDA41FB35784A8DC3C3C13F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159250.jpg" />
 </div>
 
 
@@ -249,7 +429,7 @@ magnet:?xt=urn:btih:E2DF1C432E10CF59CD19A5A279950F86F222B746
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159251.jpg" />
 </div>
 
 
@@ -273,7 +453,7 @@ magnet:?xt=urn:btih:80504B0F5E6E131D1D6DD0580981AD0CA89D254D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159252.jpg" />
 </div>
 
 
@@ -297,7 +477,7 @@ VA - Easy Listening Chill Affairs, Vol. 2 (2023) [MP3|320 Kbps] <Electronic, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159253.jpg" />
 </div>
 
 
@@ -324,7 +504,7 @@ Mac Mouse Fix for Mac 3.0.0 Beta 6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159254.jpg" />
 </div>
 
 
@@ -348,7 +528,7 @@ magnet:?xt=urn:btih:6B371532E77438952CA8EDB39EF6F8173D5731FB
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159255.jpg" />
 </div>
 
 
@@ -372,7 +552,7 @@ magnet:?xt=urn:btih:5F5630D4F33A0FD98AAD2B6D0236B318055B7903
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159256.jpg" />
 </div>
 
 
@@ -396,7 +576,7 @@ magnet:?xt=urn:btih:16194DABED20BC2FB71ABC08A391001F3C5963C8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159257.jpg" />
 </div>
 
 
@@ -420,7 +600,7 @@ magnet:?xt=urn:btih:DD5E41FC654A3F093F9A06EB7669F77D866578AD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159258.jpg" />
 </div>
 
 
@@ -447,7 +627,7 @@ magnet:?xt=urn:btih:B0C84304B16C5C371AB3540A9EBE1EDC0D12FA0C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159259.jpg" />
 </div>
 
 
@@ -458,177 +638,6 @@ magnet:?xt=urn:btih:B0C84304B16C5C371AB3540A9EBE1EDC0D12FA0C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A34D0FBC16F246226980C593E6A7C99D2B15489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675833   (159260) от 11.11.2023
-
-Dj Berta - Compilation (2023) [MP3|192-320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Si T Me Das
- 02.  Batango
- 03.  L'orso Che Balla
- 04.  Desert(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD3B491646D38EF45C923773AEB2D53B245A207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675881   (159261) от 11.11.2023
-
-Не спать / Stay Awake (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в маленьком городке в штате Вирджиния. Мишель — любящая и добрая мать двоих мальчиков, но бессильная вырваться из разрушительного цикла наркотической зависимости. Два брата-подростка Итан и Дерек должны отодвинуть свои мечты на второй план, поскольку они постоянно обнаруживают, что их мать потеряла сознание, тащат ее в больницу и поощряют пройти (   Читать дальше...   )Производство: США / Dialectic, Relic Pictures, Whitewater FilmsЖанр: драмаРежиссер: Джэми СислейАктеры: Уайатт Олефф, Фин Аргус, Крисси Мец, Кри Чикчино, Куинн Маккоулган, Альберт Джонс, Лорри Одом, Piggy Chen, Спенсер Коэн, Джеймс ДэвисПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAFA98A7FC1F99EEF794F194A30DF9D86E32A17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599974   (159262) от 25.12.2022
-
-История болезни (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец восьмидесятых. В больницу привозят пожилого мужчину с камнем в почках, у которого были инфаркты и недавний инсульт. Нужна операция. Но шансы пережить её малы. Молодой хирург Нина решает провести операцию несмотря на то, что её коллеги настаивают взять отказ пациента от операции. Ведь он все равно умрет, так хоть не по вине лечащих врачей. Огромный риск, скептически (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Михаил КукушкинАктеры: Александра Власова, Александр Рапопорт, Нелли Пшенная, Георгий Ратишвили, Дмитрий Овчинников, Владимир Карпук, Елена Мелентьева, Кирилл Новичков, Виктор Тульчинский, Сергей ЛучкоСубтитры: отсутствуютПродолжительность: 00:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2535DD73E30D0BDD22069C2D5FDEEE66D076C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675918   (159263) от 11.11.2023
-
-Журнал | Думай №4 (44) (апрель 2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159263.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Думай" – это настоящий семейный научно-популярный журнал (12+). Его читают школьники и родители, дети и взрослые! "Думай" уделяет большое внимание физике, химии, математике, биологии, географии, обществознанию, технологиям, космосу, медицине и другим актуальным и интересным темам. Все статьи «Думай» не только прекрасно и образно написаны, но (   Читать дальше...   )Жанр: Научно-популярный журнал для школьников и родителейИздательство: ООО "Научно-популярные медиа"Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BE3F123ED89D140C8EADA9C782778640A48F95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594902   (159264) от 25.12.2022
-
-Игрушки, которые построили Америку / The Toys That Built America (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4) OMSKBIRD [AD]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о малоизвестных историях, стоящих за самыми культовыми игрушками и играми Америки.Производство: США / Six West MediaЖанр: ДокументальныйРежиссер: Стюарт ДжонсАктеры: Йен Карр, Jordan Hembrough, Саймон Харрисон, Дэниэл Тетсэлл, Jackie Breyer, Джулс Найт, Tom Nunez, Бен Менсфилд, Стивен Самсон, Lewis GoodyПеревод: Многоголосый (OMSKBIRD)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:42:00 серияРеклама: Релиз содержит рекламные аудио вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D60F57B92F277CCDF04F9BC9BFF49577822D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599883   (159265) от 25.12.2022
-
-Рождественская история Микки / Mickey's Christmas Carol (1983) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Римейк классической истории Чарльза Диккенса «Рождественская песня» в котором принимают участие все главные диснеевские персонажи (за исключением Плуто). В главной роли конечно же Микки Маус, до того целых 30 лет не появлявшийся на экране.Производство: США / Walt Disney ProductionsЖанр: мультфильм, короткометражка, фэнтези, комедия, семейныйРежиссер: Барни Мэттинсон, Ричард РичПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 00:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B9FC4634A5DDD505EA2FB6337DF365B05D5F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676127   (159266) от 11.11.2023
-
-Валле-д'Аоста: альпийская Италия / Val d'Aoste, l'Italie alpine (2021)  HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы расскажем вам об уникальном уголке Альп: области Валле-д'Аоста. Это самый французский край Италии. Он окружен одними из самых высоких горных вершин Европы, от Монблана до Монте-Роза. В этих долинах говорят на франкопровансальском, ставшем частью местной культуры, которая также нашла отражение в архитектуре и гастрономии. В отличие от французских долин Монблана, (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, познавательный, путешествияРежиссер: Эрик БакоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E870F7E033755A5BD654EDA6E1AEC9DF13E4E8DD
 ```
 
 

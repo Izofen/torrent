@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ JUG Ru Group | JPoint 2024 | Конференция по разработке н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58476.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5B379F17F9ACDB204C0E4F90713B313F6A75D3EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58477.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ BBC: По странам и континентам. Дикая Африка / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58478.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58479.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Stepik, Дмитрий Фокеев | Создание сайтов и веб д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58480.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58481.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58482.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D281A0684047C037133A3090AA09C59EED1D010E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58483.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:986E246F82C156F61019D19DE9661F87497B5A51
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58484.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:5E94B9EE8A16126D2C4A29341E564A2CEA6200DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58485.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:5E94B9EE8A16126D2C4A29341E564A2CEA6200DA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58486.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Winstep Nexus 22.7 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58487.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58488.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58489.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58490.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:FE32B931034B2BEE8453C7EF767EB89A0AC2BA70
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58491.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C1BBAEE89E143BCA59791584CC5DA727866E0F09
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58492.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:B951EBD1B2D4DD1B1C17B9F31F758D779807BE1C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58493.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58493.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:4498CC007753EFADCC0DD5B2726A85C395A5E4CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58494.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58494.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:603CD31C0B8A00E5DF342F12F708FD71BA4CE0B1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58495.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58495.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:9588F49E0FD4779C2655DDD5B94416F5D3F57121
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58496.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58496.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A0CD15CFF5400788C4C8009ADFA22AD0398CF139
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58497.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:E216A3C956B4C2311E90343551B12DB56DE64740
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58498.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58498.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5AE4FCA0E6CC650BA1DC9187458F53EB49A22A0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58499.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:8201F317A8A4F1CB1C16593195DE2296DA4C3C95
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_58500.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1766558   (101242) от 19.12.2024
+
+Газета | Загадки истории №29 (604) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101242.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A289D5C4EA57FEA9D326B50151782832850F7528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766520   (101243) от 19.12.2024
+
+The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for Martha [5:13]
+02. Greensleeves [4:30]
+03. I'm Old Fashioned [4:11]
+04. All the Things You Are [6:16](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B0DA0D17EE235D34B04687560DD2BB928E3F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766561   (101244) от 19.12.2024
+
+Эмпирия - Власть времени (2013) [MP3|256 Kbps] <Instrumental rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вавилонская башня [3:52]
+02. Варфоломеевская ночь [5:30]
+03. Курская битва [3:37]
+04. Третий рейх [4:42](   Читать дальше...   )Жанр: Instrumental rock, MetalПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA954AECFD99D9467E68C31FEE3E2706508C13C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766608   (101245) от 19.12.2024
 
 Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -6,7 +84,7 @@ Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101245.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:CEE4856CFCAAFE1CB0D3915DA4C0BC0B6A3C606C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101246.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ JoJo Meerstal - Blues from Belgium (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101247.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:A4A469CF29B11F500A64E85FA200118A7DA34293
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101248.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ magnet:?xt=urn:btih:BC793EA61E077AE68ED8837C29A8C6FFC738AACA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101249.jpg" />
 </div>
 
 
@@ -135,7 +213,7 @@ magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101250.jpg" />
 </div>
 
 
@@ -159,7 +237,7 @@ magnet:?xt=urn:btih:DADA1470D52CC452415DCE3ECE093B323F9ECA0F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101251.jpg" />
 </div>
 
 
@@ -186,7 +264,7 @@ Mick Clarke - Dirty Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101252.jpg" />
 </div>
 
 
@@ -213,7 +291,7 @@ VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101253.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ VA - Top 11 October 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101254.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101255.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101256.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101257.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ magnet:?xt=urn:btih:8A890C50D23FB662FE30E045530C55ED322E9D5C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101258.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101259.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ magnet:?xt=urn:btih:55C2CEAE6E7141A52CE94649F78FCA6901FE017E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101260.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ magnet:?xt=urn:btih:213CDD19FC5A0C81B4135C965A8481DB8FC03A4D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101261.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ magnet:?xt=urn:btih:7BD9E826FF895E8C7CBA81626F7173586030E14A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101262.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ magnet:?xt=urn:btih:0D153ED43AD77A1BF973289A949D2EB73724A00F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101263.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101263.jpg" />
 </div>
 
 
@@ -495,7 +573,7 @@ magnet:?xt=urn:btih:D85DF7FBD564893D4CCB378DFF92C8B832C76DB0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101264.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101264.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ magnet:?xt=urn:btih:5ED8EC6B3C290646627778CD3848DADD0B920E45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101265.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ magnet:?xt=urn:btih:79853284EA9FCF43673E5554BA9C25F840968A7E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101266.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101266.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ magnet:?xt=urn:btih:5BFD7E70DFBC6DAC5E7CDDC1785644794F7D84EA
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101267.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101267.jpg" />
 </div>
 
 
@@ -579,84 +657,6 @@ magnet:?xt=urn:btih:5BFD7E70DFBC6DAC5E7CDDC1785644794F7D84EA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268D746E931356911FF359D4AFB5375A26E1E865
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766239   (101268) от 17.12.2024
-
-VA - The Blue Giants: Live At Groove Now (Live) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mike Zito -- Funky Mama (Live) (5:24)
-02.Mike Zito -- Love Her With A Feeling (Live) (8:18)
-03.Mike Zito -- Every Day I Have The Blues (Live) (6:17)
-04.Mike Zito -- Texas Flood (Live) (9:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032C497361A555D62D044C377DBE70091A25E8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766264   (101269) от 17.12.2024
-
-Считалки в картинках / Skatampanti (1988) [H.264/1080p] 35mm Film Scan
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный мультфильм для детей по мотивам считалочек Яниса Балтвилкса.Производство: СССР / Rigas KinostudijaЖанр: короткометражка, мультфильмРежиссер: Розалия СтиебраСубтитры: отсутствуютПродолжительность: 00:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFED5A595B64FF0670B87F6C1C3131C1094BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766199   (101270) от 17.12.2024
-
-Тест-драйв Toyota Land Cruiser Prado 250 — Минтранс (10.08.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101270.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Toyota Land Cruiser Prado 250: японская новинка в Китае. Правда ли, что классика вечна?
-🔸 Юридические нюансы. Разрешено ли иметь один автомобиль и два полиса ОСАГО?
-🔸 Самые нелепые мифы. Можно ли смешивать антифриз?
-🔸 Lada Largus: все «за» и «против».(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF82E877533147A15F021D2DEFD0BBFD54E1039F
 ```
 
 

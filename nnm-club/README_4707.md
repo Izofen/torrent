@@ -1,3 +1,184 @@
+###  Публикация: 1678001   (145909) от 21.11.2023
+
+Herjan - Nightfall of Humanity (2017) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ancestral Pact Of Blood
+02 - Lord Of Misanthropy
+03 - Through The Realm Of Eternal Ascension
+04 - Anti-Human(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88E8A31E27A9DAD505C836466EC5E4C8592C42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969992   (145910) от 28.12.2015
+
+VA - King Of Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray - Peaceful Runners [05:03]
+02. Oscar Salguero - Jack [03:47]
+03. Andrey Faustov - Eoil [04:41]
+04. Fischer & Miethig - We Only Live Once - Chillout Mix [04:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40324A4A55596724E5EE677B9CD593E021F9A042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348173   (145911) от 26.12.2019
+
+VA - Top Hits 1996, 4 CDs (1996)  [FLAC|Lossless|image + .cue]<Eurodance, Euro House,  Pop >
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Course - Ready Or Not (Radio Mix) 3:24
+2. Paradisio - Lalala Bandolero 3:56
+3. Faithless - Insomnia ('96 Monster Radio Edit) 3:34
+4. DJ M.D. - Rio (Radio Version) 3:51(   Читать дальше...   )Жанр: Eurodance,  Euro House,  House , Trance,  Europop,  Pop ,  Pop-Rap,  Synth-popПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7552643A289431BC46340CB92058DE5886089DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087227   (145912) от 27.12.2016
+
+Восставший / Risen (2016) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145912.jpg" />
+</div>
+
+
+###  Подробнее
+
+В картине пойдет речь о первых 40 днях, последовавших вслед за воскресением Христа. Основным персонажем станет атеистически настроенный римский центурион, которого прокуратор Иудеи, Понтий Пилат, посылает разузнать с чем связаны слухи о воскресении Христа, а также попытаться отыскать тело этого новоявленного мессии.Производство: США / Liddell Entertainment, Affirm Films, Columbia Pictures, Patrick Aiello ProductionsЖанр: Боевик, Драма, Детектив, ПриключенияРежиссер: Кевин РейнольдсАктеры: Джозеф Файнс, Том Фелтон, Питер Фёрт, Клифф Кёртис, Мария Ботто, Луис Кальехо, Антонио Хиль-Мартинес, Ричард Этуилл, Марк Киллин, Стюарт СкудаморПеревод: Профессиональный (многоголосый закадровый) (Лицензия BD CEE)Язык субтитров: Английский, Арабский, Болгарский, Хорватский, Чешский, Эстонский, Греческий, Иврит, Венгерский, Исландский, Польский, Португальский, Румынский, Русский, Сербский, Словацкий, Словенский
+Турецкий.Продолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBFDDD749043E1F6C4A90F6584F0A4082E629D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271943   (145913) от 26.12.2018
+
+SmallCubed MailSuite 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145913.jpg" />
+</div>
+
+
+###  Подробнее
+
+С MailSuite это новый плагин для Mail, который включает в себя 4 основных продукта MailTags, Mail Act-On, Mail Perspectives и SigProТип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: SmallCubedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAB245C265F61FBE823079244F1ED67B2AE963F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590315   (145914) от 16.12.2012
+
+Ты сверху, я снизу (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они соседи по подъезду. Но, как дельфин и русалка, они не могут быть вместе. Он - известный на весь мир кутюрье, а она - невзрачная студентка иняза. Единственное место, где они могут встретиться - это лифт, но и там он не заметит ее, потому что его невеста, имеющая все шансы затмить красотой любую топ-модель, вряд ли выпустит своего гения из цепких объятий. И лишь несчастный случай заставит звезду увидеть сияние вокруг гадкого утенка и позабыть прекрасного лебедя. Вот, только, навсегда ли?..Жанр: МелодрамаРежиссер: Николай ДенисовАктеры: Алла Фомичева, Сергей Шнырев, Владимир Литвинов, Ольга Долинина, Олег Комаров, Марина Голуб, Ольга Науменко, Николай ДенисовПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB033F3BF11DD2F1DEC5B2BF6ACD666461F969B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435206   (145915) от 27.12.2020
+
+Владимир Пресняков - Слушая тишину (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег
+02. Слушая тишину
+03. Ты у меня одна
+04. Достучаться до небес(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100775736A0EBA7A4D54CDABA4F3852F01086032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519961   (145917) от 26.12.2021
 
 VA - Sofa King Sick, Chapter 3 (2021) [AAC|~315 Kbps] <Drum & Bass>
@@ -6,7 +187,7 @@ VA - Sofa King Sick, Chapter 3 (2021) [AAC|~315 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145917.jpg" />
 </div>
 
 
@@ -33,7 +214,7 @@ Damian Hamada's Creatures - The Old Testament in Hell Chapter 1-2 (2020) [MP3|32
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145918.jpg" />
 </div>
 
 
@@ -60,7 +241,7 @@ Ghost Machinery - Evil Undertow (2015) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145919.jpg" />
 </div>
 
 
@@ -87,7 +268,7 @@ New year wallpapers 2013 (15.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145920.jpg" />
 </div>
 
 
@@ -111,7 +292,7 @@ magnet:?xt=urn:btih:0B78437C57F1FEADF6B394FC8B9A3B3D9C9A2551
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145922.jpg" />
 </div>
 
 
@@ -136,7 +317,7 @@ magnet:?xt=urn:btih:D74F1759BA5A6613FD28634FE773C593D0B628CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145923.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145923.jpg" />
 </div>
 
 
@@ -160,7 +341,7 @@ magnet:?xt=urn:btih:D117329EB039ADA3BB9084A332D10339AAE6D60F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145924.jpg" />
 </div>
 
 
@@ -184,7 +365,7 @@ VA - Abora Progressive Best Of 2017-2018 (Mixed by Mhammed El Alami) (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145925.jpg" />
 </div>
 
 
@@ -211,7 +392,7 @@ magnet:?xt=urn:btih:02D7DFDDF9041091467B5DA301AB11A7C5FDD825
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145926.jpg" />
 </div>
 
 
@@ -235,7 +416,7 @@ magnet:?xt=urn:btih:81E324A7231934FEC62C67C0F64110AD4812034A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145927.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145927.jpg" />
 </div>
 
 
@@ -259,7 +440,7 @@ magnet:?xt=urn:btih:11449CFD8EB9D477A9E27F3984804A45B947BC02
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145928.jpg" />
 </div>
 
 
@@ -283,7 +464,7 @@ VA - Sofa King Sick, Chapter 2 (2020) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145929.jpg" />
 </div>
 
 
@@ -310,7 +491,7 @@ magnet:?xt=urn:btih:63C81C3648AB3C65F589A2F920DA9508507F7181
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145931.jpg" />
 </div>
 
 
@@ -334,7 +515,7 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145932.jpg" />
 </div>
 
 
@@ -361,7 +542,7 @@ magnet:?xt=urn:btih:FC7ABF02612A9A1B9EAC5661AB06185A03D0F5F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145933.jpg" />
 </div>
 
 
@@ -385,7 +566,7 @@ magnet:?xt=urn:btih:FD0BD275706357FFD82D10874730FDFB1D82292E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145934.jpg" />
 </div>
 
 
@@ -409,7 +590,7 @@ Dirty Ducks - Yearmix (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145935.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145935.jpg" />
 </div>
 
 
@@ -436,7 +617,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145936.jpg" />
 </div>
 
 
@@ -463,7 +644,7 @@ magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145937.jpg" />
 </div>
 
 
@@ -474,197 +655,6 @@ magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77DC619BB29742211BD78A8E92BB44229931348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590345   (145938) от 16.12.2012
-
-Бокс. А.Хан - К.Молина, бой за титул чемпиона мира / WBC: Amir Khan vs Carlos Molina (16-12-2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145938.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОФЕССИОНАЛЬНЫЙ БОКС. Бой за титул чемпиона мира.  А.Хан - К.Молина
-
-Разогревочные поединки:
-ALFREDO ANGULO vs. JORGE SILVA / MIDDLEWEIGHTS
- DEONTAY WILDER vs. KEVIN PRICE / WBC CONTINENTAL AMERICAS  HEAVYWEIGHT TITLE
-
-Основной бой:
-AMIR KHAN vs. CARLOS MOLINAЖанр: СпортТелекомпания: СпортПеревод: Одноголосый закадровый, Владимир Гендлин младший.Формат: tsПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC6DB76C78DD840281FD7BD6A083D0CF673EEF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969846   (145939) от 28.12.2015
-
-Фигурное Катание. Чемпионат России 2015. Женщины. Короткая программа. (25.12.2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четверг в Екатеринбурге стартует чемпионат России по фигурному катанию, который станет отборочным турниром к чемпионату Европы, стартующему в конце января в Братиславе.
-"Девочек у нас много, и все хорошие, - сказала Тарасова по телефону. - Женя Медведева очень здорово выступала в серии Гран-при, шла на мировой рекорд в Финале Гран-при. У нее хорошие шансы (   Читать дальше...   )Телекомпания: HD СпортЖанр: СпортПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE22013CD7F9914DFF16BACE36E21905905EE4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087400   (145940) от 27.12.2016
-
-Экшены - GraphicRiver - Gif Animated Snow Globe Photoshop Action [ATN, ABR, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gif Animated Snow Globe Photoshop Action - Создайте идеальный зимний пейзаж или небольшую метель с помощью этого экшена. Превратите вашу статическую фотографию в зимний эпизод со снегом и цветовыми эффектами, или добавьте анимацию и выберете направление падения снега.Формат: ATN, ABR, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AFB5CD80D406501CEDCB283D337C751F1967DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435138   (145941) от 27.12.2020
-
-Билл О’Рейли, Мартин Дьюгард | Убийство Иисуса. Расследование самого громкого преступления в истории (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Религиозный фанатик? Отчаянный революционер? Спаситель мира?
-Опасный преступник? Кем же действительно был Иисус?
-И кому на самом деле была выгодна его смерть?
-За дело о самом громком преступлении в истории берутся известные журналисты-расследователи. Они отправятся на место преступления, обнаружат скрытые факты, прольют свет на темные подробности, распутают целый (   Читать дальше...   )Жанр: История, Религиоведение, ПублицистикаПеревод: Наталья ХолмогороваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB51220488ED4A03FFD1D0216F024AD85675E42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678491   (145942) от 21.11.2023
-
-Ее герой-индеец / Her Indian Hero (1912) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой индеец получил в городе образование, закончил колледж и приезжает в родное племя. Племя посещают туристы из восточных штатов. Индейцы и их быт им вновинку. Одна из туристок заинтересовалась индейцем (видимо на экзотику потянуло). Она откровенно кокетничает с ним, хотя у ней есть жених. Она оставляет ему свою визитку и приглашает его в гости у себя на Востоке. (   Читать дальше...   )Производство: США, Nestor Film CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: Аль Кристи, Джек Конуэй, Milton J. FahrneyАктеры: Джек Конуэй, Джордж Гебхардт, Дороти Девенпорт, Виктория Форде, Расселл Бассетт, Евгения ФордеПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2961F616F60727BAD0D5081F878335E077C304C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435091   (145943) от 27.12.2020
-
-Красная плесень - Союз параллельных проектов 60 (2020) [FLAC|Lossless|image + .cue] <Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я хочу девушек любить                          [2:06]
-02. Отсос                                          [2:28]
-    (Верка Смердючка – «Пылесос»)
-03. Харлей                                         [3:11](   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589531   (145945) от 16.12.2012
-
-MJG - Bitches Money Guns (2012) [MP3|320 кб/с]<Dirty South, Southern Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BMG Intro
-02. BMG
-03. By Myself (feat. TMack & Young Buck)
-04. F*ck That (feat. Wooh Da Kid & Pastor Troy)
-05. Smokin Chokin Skit
-06. Smokin Chokin (feat. 8ightball & Snoop Dogg)
-07. Smoke Out (feat. GC Eternal)
-08. Interlude
-09. Free
-10. YNS (feat. Lil Rickey of PBZ & 2 Deep)(   Читать дальше...   )Жанр: Dirty South, Southern RapПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7566C143AEDB8E5925D095ABD0FABC3626FA879E
 ```
 
 

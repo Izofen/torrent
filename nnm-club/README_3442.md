@@ -1,3 +1,81 @@
+###  Публикация: 1724633   (109174) от 21.05.2024
+
+Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
+1990 - Beg to Differ - The Peel Sessions (EP)
+1991 - Prove You Wrong
+1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724623   (109175) от 21.05.2024
+
+Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions Of Yog-Sothoth
+02. The Cave
+03. Hubris Hammer
+04. Die In The Dreams Of Dead(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B9BED4CBA2DCA5B4C52752624426E3F86EF78D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724656   (109176) от 21.05.2024
+
+PhotoRoom 4.9.6 (b1401) Mod by CMAPTOC [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109176.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3231328CA65219D3586C41FF60589FDBDF79452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724383   (109177) от 21.05.2024
 
 VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
@@ -6,7 +84,7 @@ VA - Best of Autumn, vol. 1 (2021) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109177.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109177.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ magnet:?xt=urn:btih:1EECE7CEA2641591617730B75F87A0D9E9CC16F9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109178.jpg" />
 </div>
 
 
@@ -57,7 +135,7 @@ King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109179.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109179.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109180.jpg" />
 </div>
 
 
@@ -108,7 +186,7 @@ RAM Saver Professional 24.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109181.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109181.jpg" />
 </div>
 
 
@@ -132,7 +210,7 @@ magnet:?xt=urn:btih:C7B24A6538A7660722481ADDA6F9233201BD85DD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109182.jpg" />
 </div>
 
 
@@ -156,7 +234,7 @@ VA - Electronica Confessions, Vol. 1 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109183.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109183.jpg" />
 </div>
 
 
@@ -183,7 +261,7 @@ PhotoDirector - Редактор фото 19.2.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109184.jpg" />
 </div>
 
 
@@ -207,7 +285,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109185.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109185.jpg" />
 </div>
 
 
@@ -234,7 +312,7 @@ magnet:?xt=urn:btih:5070D76DC33F2CA731D10F5609C18FEB627E0433
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109186.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109186.jpg" />
 </div>
 
 
@@ -259,7 +337,7 @@ magnet:?xt=urn:btih:FE91A4942FA404DEA9090219936B255B94E43D96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109187.jpg" />
 </div>
 
 
@@ -283,7 +361,7 @@ VA - Electronica Confessions, Vol. 3 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109188.jpg" />
 </div>
 
 
@@ -310,7 +388,7 @@ magnet:?xt=urn:btih:445E4C86A07431877A12A7D3E8E2B7F43E318A62
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109189.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ Koan - The Queen of Spades (Side A) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109190.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ Fort Firewall 3.12.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109191.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ magnet:?xt=urn:btih:C74072842F842E328D66B1A1472F455F55CA532F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109192.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109192.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ magnet:?xt=urn:btih:4692B786A51324C4BB6B4265058FFB3828B82B8D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109193.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109193.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ VA - Electronica Confessions, Vol. 2 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109194.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ Catalepsia - World of Cliche (2015) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109195.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109196.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109197.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ Catalepsia - Pavisam (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109198.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ Malachi Thompson & Africa Brass - Buddy Bolden's Rag (1995) Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_109199.jpg" />
 </div>
 
 
@@ -582,87 +660,6 @@ Malachi Thompson & Africa Brass - Buddy Bolden's Rag (1995) Delmark Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C789486F88EE2C8289B4DD8B40B34678EA66B1E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724538   (109200) от 20.05.2024
-
-Ricky Ford - Manhattan Blues (1989) Candid [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Walked Bud [8:10]
-02. Misty [7:47]
-03. Ode to Crispus Attucks [5:46]
-04. Portrait of Mingus [8:05](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981CD43EDC0584BC31FFD5F339817E11CF9CBFA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724535   (109201) от 20.05.2024
-
-Bismarck - Vourukasha (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, stoner, sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Father [00:05:15]
-02. Echoes [00:07:06]
-03. Kigal [00:05:28]
-04. The Tree Of All Seeds [00:01:55](   Читать дальше...   )Жанр: doommetal, stoner, sludgeПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9957F0FEA4462AE88BC1439F57E16C67574F0C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724534   (109202) от 20.05.2024
-
-Alex Sipiagin - Balance 38-58 (2015) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 38-58 [9:28]
-02. Way to Her [8:33]
-03. Momentum [9:37]
-04. Echoes of Thought [12:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C91258379944A7A632284EB78339D420E189037
 ```
 
 

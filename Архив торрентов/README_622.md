@@ -6,7 +6,7 @@ Topaz Video AI for Mac 4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133421.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Punto Switcher 3.2.8 Build 94 DC 25.12.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133427.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133427.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Punto Switcher — автоматический переключатель ра�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133445.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133445.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hekasoft Backup & Restore 0.20 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133454.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133454.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MediaInfo for Mac 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133455.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133455.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Handy Start Menu 1.80 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133461.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AnyGo 6.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133467.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ YT Saver Video Downloader & Converter for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133469.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Universal Viewer Pro 6.5.3 + Portable + Plugins [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133470.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wondershare PDFelement Pro OCR 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133471.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ ArtIcons Pro 5.42 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133472.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ AnyMP4 iPhone Password Manager for Mac 1.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133475.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Magic Disk Cleaner 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133479.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:1BE231DF249B0BF5A13BF8BE28142A6F87F79320
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133480.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Smart AudioBook Player 10.3.0 Mod by KirIif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133481.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:8CB22B808816969E02B4855AEFC380FB09F016CE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133482.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Leawo DVD Ripper FREE 5.0.0.0 [ Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133489.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ GoodTask 7.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133505.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ URL Manager Pro 6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133509.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133509.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:68EDFEFC237633B232D500A078E1B98D401A1AEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133525.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wise Care 365 Pro 2.16 Build 167 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133528.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Wise Care 365 Pro 2.16 Build 167 Final [MULTi / Русский]
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133555.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Adobe Photoshop 2024 25.2.0.196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133559.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Coolutils Total PDF Converter 2.1.229 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133562.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133566.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:437B8FAD435830C238E60EB3DE0DDF373272F414
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133572.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54341.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54341.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1DD4EE74F2FDBA6160AD36FCAE9B17EAE119EC6C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54342.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:76A7FEDEEEAC49BCA4B8BC437EA119EC20CFCDFF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54343.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54343.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:63ACACE62BF15596FA743FFC38D8F970A5B1229B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54344.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54344.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:135B1082D9E8EF4F229D5631F11DF4FD8AF0A417
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54345.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54345.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7D0627A4E28002D84C5F7D16057FDF7049108251
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54346.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54346.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E7E16A9D3E91A16E6B1C0EC8B514DD5C95DD450C
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54347.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:6E9465E35718199969F2FA9358959B7C124C3582
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54348.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54348.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ DesktopOK 11.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54349.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Русский Офицер (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54350.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Самые новые песни о любви 3 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54351.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ iZotope - Trash 1.2.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54352.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F1235FE2F3ADDF0C4341598D5A27CE64A7652534
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54353.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Rock Songs 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54354.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Italian Restaurant Lounge Music Vol. 3 (The Best Italian Songs to relax for
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54355.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:66F75F9945E36D55B9312E43113763297F9E868A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54356.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Любимой женщине (Избранная любовная лири
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54357.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Rock Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54358.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B9DE9FF31E1E9A62AB936E0AA66EA4BDB7AEBE1B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54359.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Rock 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54360.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Rock 21st Century Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54361.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AE2FD4E3562588C9D0FD4A2B8B31ABEE159BFAF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54362.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F82955EF6A3E294045CB32B03922ED948C81DC2E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54363.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ XnView MP 1.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54364.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DVDFab 13.0.1.8 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54365.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54366.jpg" />
 </div>
 
 

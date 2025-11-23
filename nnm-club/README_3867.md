@@ -1,3 +1,76 @@
+###  Публикация: 56639   (120224) от 30.01.2024
+
+Осторожно, модерн! (1998) DVDRip (серий 56 из 94)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было время, когда Дмитрий Нагиев и Сергей Рост еще не стали суперпопулярными трансформерами…
+Было время, когда ОНИ были простыми гениями перевоплощений и обыкновенными всемирно известными комиками… Было время, когда ИХ герои еще не остепенились и не обзавелись семьями… Было время, когда ОНИ появлялись то здесь, то там - мылись в банях, пили на свадьбах, делили наследства, (   Читать дальше...   )Производство: ООО "3-ТВ", ООО "ТО "Мега"Жанр: ЮморРежиссер: Анна Пармас, Андрей БалашовАктеры: Дмитрий Нагиев, Сергей ростПродолжительность: серии по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C8FDBB4F1B9F02DEEEA2E05B3FC8419A9C9575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674022   (120225) от 30.01.2024
+
+Гостья / The Host (2013) BDRip [1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля — в опасности! Наше место скоро займут Души — лишенные плотской оболочки пришельцы, вытесняющие из человеческих тел разум и замещающие его разумом собственным. Большая часть человечества уже погибла. Немногие выжившие скрываются в жалкой попытке отсрочить неизбежное… Теперь Душа пытается захватить тело юной Мелани. Однако происходит неожиданное: Мелани и ее (   Читать дальше...   )Производство: США | Chockstone Pictures, Nick Wechsler Productions, Silver ReelЖанр: Фантастика, Драма, МелодрамаРежиссер: Эндрю НикколАктеры: Сирша Ронан, Джейк Абель, Макс Айронс, Дайан Крюгер, Фрэнсис Фишер, Уильям Хёрт, Боким Вудбайн, Бойд Холбрук, Маркус Лайл Браун, Чандлер Кентербери, Андреа Франкл, Скотт Лоуренс, Дж. Д. Эвермор, Фил Остин ...Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-COLORED), Французский (Full)Продолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEAA5150FBF4E75D2DB3972A7CF0267A8FC6AB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695384   (120226) от 30.01.2024
+
+Охотники с пустоши / Пустоши / Hwangya / Badland Hunters (2024) WEB-DLRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Южная Корея, Big Punch Pictures, Climax Studio, Nova FilmЖанр: боевик, фантастикаРежиссер: Хо Мён ХэнАктеры: Ма Дон Сок, Ли Джун Ён, Ли Джун Хи, Но Джон И, Ан Джи Хе, Пак Чи Хун, Чан Ён Нам, Пак Хё Чжун, Сон Бён Сук, Чжон Ён ДжуПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, корейскийСубтитры: Русcкие, английские (Full, SDH), корейские (Forced, SDH)Продолжительность: 01:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A915E07EDEC13DFF18C2D4E1106D668F90ED036F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684671   (120227) от 30.01.2024
 
 Джек Ричер / Reacher (2023) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-8 из 8) LostFilm, TVShows, HDRezka, ColdFilm
@@ -6,7 +79,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120227.jpg" />
 </div>
 
 
@@ -30,7 +103,7 @@ magnet:?xt=urn:btih:E4EADCF86836D86EE400B42CA53188307F8A51A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120228.jpg" />
 </div>
 
 
@@ -54,7 +127,7 @@ magnet:?xt=urn:btih:2153636FC56D41F7DDC75D96144AD47B2656F707
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120229.jpg" />
 </div>
 
 
@@ -78,7 +151,7 @@ magnet:?xt=urn:btih:F8B89F90B3888F45328D5B0AE7ED7731A812E045
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120230.jpg" />
 </div>
 
 
@@ -102,7 +175,7 @@ magnet:?xt=urn:btih:D63C3B03DF23CC4E8B970B0550E254984902A8A5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120231.jpg" />
 </div>
 
 
@@ -126,7 +199,7 @@ magnet:?xt=urn:btih:FAA8CA5D587D3123BE8E0D4AA5A2F84367B8F4C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120232.jpg" />
 </div>
 
 
@@ -150,7 +223,7 @@ magnet:?xt=urn:btih:30A3BC2D9BFCCBDD5319D417EB4ABB5F647191FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120233.jpg" />
 </div>
 
 
@@ -174,7 +247,7 @@ magnet:?xt=urn:btih:0F06DDCB070A4FD0B98D60C74049FE5F8F28CBB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120234.jpg" />
 </div>
 
 
@@ -198,7 +271,7 @@ magnet:?xt=urn:btih:A89545D497C2AE2570F406BE69BFDC77A4B54A12
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120235.jpg" />
 </div>
 
 
@@ -222,7 +295,7 @@ magnet:?xt=urn:btih:DB448C7A7474564ECD6A1F652B182585609BD30F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120236.jpg" />
 </div>
 
 
@@ -246,7 +319,7 @@ magnet:?xt=urn:btih:8F5E87C78B816AF4DADB3FB72ACB1A56939E9A25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120237.jpg" />
 </div>
 
 
@@ -270,7 +343,7 @@ magnet:?xt=urn:btih:C58F3B4E052B2ED1B13E39D85C9434DB998B03A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120238.jpg" />
 </div>
 
 
@@ -294,7 +367,7 @@ KMS Tools Portable Lite by Ratiborus 30.01.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120239.jpg" />
 </div>
 
 
@@ -318,7 +391,7 @@ magnet:?xt=urn:btih:3D34C7B481AEE484F11AAEEE1CF24F0FD8FA4242
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_120240.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_120240.jpg" />
 </div>
 
 
@@ -342,7 +415,7 @@ magnet:?xt=urn:btih:3D34C7B481AEE484F11AAEEE1CF24F0FD8FA4242
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120241.jpg" />
 </div>
 
 
@@ -366,7 +439,7 @@ Jan Magne Garte - Fight For Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120242.jpg" />
 </div>
 
 
@@ -393,7 +466,7 @@ Hiruy Tirfe - 10,000 Hours (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120243.jpg" />
 </div>
 
 
@@ -420,7 +493,7 @@ Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120244.jpg" />
 </div>
 
 
@@ -447,7 +520,7 @@ Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120245.jpg" />
 </div>
 
 
@@ -474,7 +547,7 @@ OmniReader Pro for Mac 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120246.jpg" />
 </div>
 
 
@@ -498,7 +571,7 @@ Mimestream 1.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120247.jpg" />
 </div>
 
 
@@ -523,7 +596,7 @@ Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120248.jpg" />
 </div>
 
 
@@ -550,7 +623,7 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_120249.jpg" />
 </div>
 
 
@@ -564,85 +637,6 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F39EBDCF3F6BE2237AF6B7844464888306D575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695418   (120250) от 29.01.2024
-
-Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Terrible Misunderstanding (4:24)
-02. Holy Fishtail (8:26)
-03. Once Low Now High (5:31)
-04. Pseudoscience (3:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B9E314BBF12463D126D215526F4AC993B1D24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695492   (120251) от 29.01.2024
-
-Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destilando Odio (03:40)
-02. Mi Silencio (03:24)
-03. Indignación (04:38)
-04. Oscura Traición (03:57)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0656B3D43E56B7107FA91407370B7E51B552D965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695578   (120252) от 29.01.2024
-
-Amadine 1.5.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE46CB47B8987A79A0DF5EB6976E84E1EE35F55
 ```
 
 

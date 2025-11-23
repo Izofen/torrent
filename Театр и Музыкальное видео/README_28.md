@@ -6,7 +6,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86196.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86308.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86308.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86322.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86329.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86329.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:0FAE1BE104328B8B6630352E21BDC27B365D7645
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86515.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86515.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86544.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Nightwish -End Of Innocence (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86612.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Dторой оффициальный DVD группы Nightwish включает
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86689.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86807.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86807.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86899.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86926.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_86964.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87167.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87197.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87197.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87227.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87234.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87434.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87461.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87461.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87524.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Peter Hollens & Lindsey Stirling - Skyrim (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87618.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87618.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F6F8298AE605BA5CD2C22D5F728B5E0299EC769A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87725.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87725.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87929.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88265.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88265.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88392.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88392.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:38E750707147C7A6FCDADEE6CFC38FE0CC79F9A0
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_88747.jpg" />
 </div>
 
 

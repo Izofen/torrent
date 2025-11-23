@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23295.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C56D08D1839C7CE7F5C9606A0EC8A9154FBC842E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_23296.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E3763006487BC160D56657E5ED21283534EB24D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23297.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23297.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BCED06239A693C39EB8B719E974EA1AF5E7103E7
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23298.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23298.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ nakst - Apricot 1.1.32 (x86/x64) FL Studio Native, CLAP [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23299.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23299.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ XnView MP 1.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23300.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23300.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C0C2DB5A0C94E9D78E7E1C10F3CD4F11F064BF7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23301.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23301.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:13929B88D908A72BB431AFAB3F7B433E20D74E00
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23302.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23302.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CA2EB65C3F6B5634662A6137321FD60092CA9FC9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23303.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23303.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:34EC183D3394029BB2C05A6883929D9A5FA27904
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23304.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23304.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DDB0FE7DB26C2FAD28E5CD513D91DBCAD36B3729
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23305.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23305.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F85277779897730663CE81A93C7058AE31735247
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23306.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23306.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:75CA2C1EA3A99F22442CD7C99B2C012F76A3810C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23307.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23307.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.98 (2603) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23308.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23308.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:64E89B1C0BC12E8C7547C0E38C39F587F77E31C0
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23309.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23309.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ IPTV Pro v9.0.12 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23310.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23310.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Synchro Arts Complete 27.03.2025 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23311.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23311.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:D78C5354DEF77611060DF35D04BAF4410A2D9FFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23312.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23312.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23313.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23313.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F9D34724FBBF3143753DDB74E2406145849F450A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23314.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23314.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23315.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23315.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:37136546A8F0998DB5F714A2710FB7326C16454A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23316.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23316.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная боги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23317.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23317.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:5A44E417F12E8CCA98D94935D875C08AC1620F99
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23318.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23318.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:F9CE7C770EA2C694D6034C37B7DAEE2D155DBDB3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23319.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23319.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:E66FC61547C63D9381B8D28AAA3B1F1F9C8949FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23320.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23320.jpg" />
 </div>
 
 

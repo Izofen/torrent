@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68686.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68687.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:8FFA0E51BAA4CB4CD5EF2E8F3C7871159219DB90
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68688.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68688.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68689.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:4CA8A0410D5CA6AB68FACF5C5FA72E0C4F61AB24
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68690.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A515D91B81398188DD6C7BD84900B4CAB45E62FE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68691.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:75D5E9A03091A945171D0B9810578E7A53307E7A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68692.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68693.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68693.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68694.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68694.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68695.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Chivo - Ouroboros (2022) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68696.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Duke Ellington - Early Ellington: The Complete Brunswick And Vocalion Recordings
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68697.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68697.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:1A56D84713CD23F7FB7920A922F9A2DE29EC390B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68698.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:7050AE256577A938A15F871C82659E38347CE1EA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68699.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:C1EA65C15F3DE9943BEB486EC7BA8E8332A6A1C1
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68700.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68700.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F4F110B9DB22796AE2C53E608A9D487DF7A07FCE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68701.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68701.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A22D15F2DC78CE97CD2D3BC143ECAB1981B6263A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68702.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:1689DB989D4F41C24A580BA2A88F35C17D7C02B4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68703.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68703.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:8EED2189A317FF0FBCA069A3A8F8F0A8493138D3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68704.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68704.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Deep House 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68705.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68705.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Meng Qi Shi Shen 2 | Adorable Food Goddess 2 | Очаровательная бо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68706.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68706.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ancient Silence - The 1st Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <It
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68707.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68707.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ QOwnNotes 25.3.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68708.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68708.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:2B9F6F0D4224F250C3222207D603C52A1EEBBBEF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68709.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68709.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Vivaldi 7.3.3635.2 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68710.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68710.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:1E42F9E7A32D42986F696D8C4720DCA719811544
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68711.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68711.jpg" />
 </div>
 
 

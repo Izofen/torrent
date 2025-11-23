@@ -6,7 +6,7 @@ Kaspersky TDSSKiller 2.7.19.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96352.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96352.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - N-JOY Abstrait vol.1 (2011) [APE|Lossless]<Lounge, Ambient, Downtempo, Chil
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96356.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96356.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Google Chrome 18.0.1025.54 Beta [Русский/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96357.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96357.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96367.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96367.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Freaked Frequency - FF Syndrome (2007) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96376.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96395.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96395.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96397.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96397.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Apollo - Cap Inedit (1999) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96398.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96398.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Apollo - Cap Inedit (1999) [FLAC|Lossless]<Contemporary Jazz>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96401.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96401.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96403.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96403.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96407.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96407.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96410.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96410.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96412.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96412.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96415.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96415.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96419.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96420.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96420.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Новинки Танцевальных Хитов. Зарубежный (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96422.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96426.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Gianni Lee - Trill Wave Deux (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96432.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96432.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96446.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96446.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96447.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96447.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DJ GraF aka Slava - Sabotage (2012) [MP3|320 кб/с]<Minimal-Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96452.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96452.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96456.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Glenn Hughes - Live In Wolverhampton (2CD) (2011) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96459.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96461.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_96461.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Ministry Of Sound - The Sound Of Dubstep 4 2CD (2012) [MP3|~224 кб/с ]<Dubste
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96465.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_96465.jpg" />
 </div>
 
 

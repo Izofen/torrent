@@ -6,7 +6,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32021.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D663C9AD8507F4CC13F2CEAED0899CA48FE41A94
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32022.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32022.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pizza Tower (2023) [Ru/Multi] (1.1.271) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32023.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32023.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FD3A00692DF97DEF23BD6C3C53B6702AD2A2626A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32024.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32024.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32025.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32025.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32026.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E9B3D6A7145AC995001FBB6D7E8012E1A3E10812
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32027.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32027.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32028.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ocean Match / Рыбки: Три в ряд v3.0.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32029.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32029.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AF0F128A303791E6B7464A8A2D436B2DEEA87521
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32030.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32030.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32031.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32031.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32032.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32032.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32033.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32033.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32034.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32035.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32035.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ NirLauncher Package 1.30.16 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32036.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32036.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BB9388243A8AFF54284368576B8F001A92B8203C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32037.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CCleaner Pro: ПО для очистки 24.25.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32038.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32038.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32039.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32039.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32040.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32040.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32041.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32041.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32043.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32044.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32045.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BBA96088204B578C908462166BDC0A01A480376D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_32046.jpg" />
 </div>
 
 

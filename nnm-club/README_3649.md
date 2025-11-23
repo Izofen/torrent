@@ -1,3 +1,75 @@
+###  Публикация: 1704186   (114556) от 03.03.2024
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Калгари Флэймз (02.03.2024) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114556.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 марта 2024, воскресенье. 06:00 МСК. Стадион: Скоушабэнк Саддлдоум (Калгари, Канада), 19 289 зрителей (100% при вместимости 19 289)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE960B7A74DE3CF20C3E1FEC8B70FA7EE9C42A71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704303   (114557) от 03.03.2024
+
+Kodi 20.5 (Nexus) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kodi (ранее известный как XBMC) — бесплатное и с открытым исходным кодом (GPL) программное обеспечение, медиацентр для воспроизведения видео, музыки, картинок, игр и другого медиа-контента. Первоначально Kodi создавался как медиацентр приложений для первого поколения Xbox. Но сейчас он поддерживает Linux, OS X (Snow Leopard, Leopard, Tiger, Apple TV), Apple iOS, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8004857728B73FE0304719A3552598765EBAA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693706   (114558) от 03.03.2024
+
+Гарри Поттер и Дары Смерти: Часть II / Harry Potter and the Deathly Hallows: Part 2 (2011) HybridRip [H.264/1080p-LQ] [IMAX]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114558.jpg" />
+</div>
+
+
+###  Подробнее
+
+В грандиозной последней главе битва между добрыми и злыми силами мира волшебников перерастает во всеобщую войну. Ставки ещё никогда не были так высоки, а поиск убежища — столь сложен. И быть может именно Гарри Поттеру придется пожертвовать всем в финальном сражении с Волан-де-Мортом. Способен ли наш герой спасти мир? И всё закончится здесь.Производство: США, Великобритания / Warner Bros., Heyday Films, Moving Picture Company, TheЖанр: фэнтези, драма, детектив, приключенияРежиссер: Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Рэйф Файнс, Алан Рикман, Хелена Бонем Картер, Том Фелтон, Гари Олдман, Майкл Гэмбон, Мэгги СмитПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C930A4AA4DC54434C39825F93C9AA1E1F9A2F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704038   (114559) от 03.03.2024
 
 f.lux v4.134 [En]
@@ -6,7 +78,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114559.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ magnet:?xt=urn:btih:AC7005C1D870AFCA1F217C4D38CA9877168BD2F1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114560.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ magnet:?xt=urn:btih:51875BBF93AE678355FF603BD80067F11E07AEBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114561.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114561.jpg" />
 </div>
 
 
@@ -78,7 +150,7 @@ Duolingo: изучай языки 5.141.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114562.jpg" />
 </div>
 
 
@@ -102,7 +174,7 @@ magnet:?xt=urn:btih:03C7E03DE04AD4C3C2A0D329D44F678CFF0F5BDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114563.jpg" />
 </div>
 
 
@@ -126,7 +198,7 @@ magnet:?xt=urn:btih:03C7E03DE04AD4C3C2A0D329D44F678CFF0F5BDB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114564.jpg" />
 </div>
 
 
@@ -150,7 +222,7 @@ mp3Tag Pro 12.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114565.jpg" />
 </div>
 
 
@@ -174,7 +246,7 @@ magnet:?xt=urn:btih:DF04C075EF95F190C4CEF996632A25E4AAF25877
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114566.jpg" />
 </div>
 
 
@@ -198,7 +270,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114567.jpg" />
 </div>
 
 
@@ -222,7 +294,7 @@ magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114568.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114568.jpg" />
 </div>
 
 
@@ -246,7 +318,7 @@ magnet:?xt=urn:btih:0C3CE851DB1741BE7BBE5A73EA7D0C546CE7A92A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114569.jpg" />
 </div>
 
 
@@ -270,7 +342,7 @@ magnet:?xt=urn:btih:B0CAC8B375AB5A1DA8895CA83E283652770EA6BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114570.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114570.jpg" />
 </div>
 
 
@@ -294,7 +366,7 @@ magnet:?xt=urn:btih:6DDD1D8A046F9A560807F695F498F7E39D70286B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114571.jpg" />
 </div>
 
 
@@ -318,7 +390,7 @@ Intra (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114572.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114572.jpg" />
 </div>
 
 
@@ -342,7 +414,7 @@ magnet:?xt=urn:btih:4601D77A4C9484C61FF5173FE0E0B64CFFFA1E6F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114573.jpg" />
 </div>
 
 
@@ -366,7 +438,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114574.jpg" />
 </div>
 
 
@@ -390,7 +462,7 @@ magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114575.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114575.jpg" />
 </div>
 
 
@@ -415,7 +487,7 @@ VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114576.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114576.jpg" />
 </div>
 
 
@@ -442,7 +514,7 @@ magnet:?xt=urn:btih:454D8F143FF814A4A8E4F44C71FB1B207FE6E8ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114577.jpg" />
 </div>
 
 
@@ -467,7 +539,7 @@ magnet:?xt=urn:btih:982735E2C87A4EDAFF32FA3C5B05C1F49A314F97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114578.jpg" />
 </div>
 
 
@@ -491,7 +563,7 @@ magnet:?xt=urn:btih:B2527E70524D7E578D37E984FFFB0F45EC264BD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114579.jpg" />
 </div>
 
 
@@ -515,7 +587,7 @@ magnet:?xt=urn:btih:163104359EAE623A74C15A35D273D364AD36DC2D
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114580.jpg" />
 </div>
 
 
@@ -539,7 +611,7 @@ magnet:?xt=urn:btih:163104359EAE623A74C15A35D273D364AD36DC2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114581.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_114581.jpg" />
 </div>
 
 
@@ -550,79 +622,6 @@ magnet:?xt=urn:btih:163104359EAE623A74C15A35D273D364AD36DC2D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E09D7A1E46EA213B5B0572FB1C2505E1821E147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926215   (114582) от 03.03.2024
-
-Чертёнок / Nukitsamees (1981) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Кусти и его младшая сестренка, заблудились в лесу и оказались в плену у семейства чертей. Старая и злая Карга заставляет их работать от зари до зари, и вскоре дети собираются бежать. Но ребятам очень понравился симпатичный и непоседливый чертенок, которого они забирают с собой. Так в их дружной и трудолюбивой семье появился маленький проказник с рожками, (   Читать дальше...   )Производство: СССР, ТаллинфильмЖанр: Детский, Фэнтези, МузыкальныйРежиссер: Хелле КерисАктеры: Эгерт Солль, Анна-Лиза Курве, Юлари Кирсипуу, Инес Ару, Аарне Юкскюла, Сулев Ныммик, Ита Эвер, Урмас Кибуспуу, Тыну КаркПеревод: Фильм дублирован на киностудии "Ленфильм"Субтитры: РусскиеПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B58072FED0AD2CA642902E02FEA8932386CF151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403059   (114583) от 03.03.2024
-
-Владимир Зотов | Лесная азбука–2 (2005) [MP3, Олег Анофриев, Михаил Козаков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир удивительных историй
-«Лесная азбука–2» – это продолжение серии познавательных сказок о животном и растительном мире нашего леса, которые помогут детям ближе познакомиться с зеленым чудом, название которому – лес, с удивительным и неповторимым миром его обитателей. Сказки написаны в увлекательной игровой форме. В их озвучивании принимали участие известные (   Читать дальше...   )Жанр: Русская литература для детей, сказкаПродолжительность: 05:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E10810F6997CA341B33BD21FA14487A6ED501A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704125   (114584) от 03.03.2024
-
-Нежный восток / The Sweet East (2023) WEBRip [H.265/1080p-LQ] [10-bit] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114584.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о крайне необычном путешествии по городам и лесам восточного побережья США, которое совершает Лилиан — старшеклассница из Южной Каролины. Она впервые видит мир под более широким углом во время школьной поездки в Вашингтон.Производство: США / Base 12 Productions, Marathon FilmsЖанр: драмаРежиссер: Шон Прайс УильямсАктеры: Талия Райдер, Эрл Кейв, Саймон Рекс, Айо Эдебири, Джереми О. Харрис, Джейкоб Элорди, Риш Шах, Гибби Хэйнс, Джек Ирв, Мазин АкарПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3721E2D72EADBBC6E8007DCEA9C7E0ED06F79B30
 ```
 
 

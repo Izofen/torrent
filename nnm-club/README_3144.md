@@ -1,3 +1,78 @@
+###  Публикация: 1822252   (100848) от 05.10.2025
+
+Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [Director's Cut] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100848.jpg" />
+</div>
+
+
+###  Подробнее
+
+В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Чарли Ханнэм, Стаз Нэйр, Пэ Ду-на, Джимон Хонсу, Рэй Фишер, Клеопатра Коулмэн, Фра Фи и др.Перевод: Дублированный (Read Head Sound), многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (forced, full SDH), французские (full, SDH)Продолжительность: 03:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23F8DA66868F2B3FCECD21D8588231AD0056B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822249   (100849) от 05.10.2025
+
+Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я стала принцессой [2025, TV, 4 из 16] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что маленькая Атанасия де Эльджео Обелия — настоящая принцесса, владеющая магией, с самого её рождения реальность была к ней жестока. Мать умерла при родах, успев запечатать магические силы дочери, отец отрёкся, бросив на произвол судьбы и равнодушных слуг. Выжить младенцу помогла таинственная сила, раскрывшая малышке уготованное ей трагичное будущее. (   Читать дальше...   )Производство: Colored Pencil Animation (Китай)Жанр: исекай, фентази, приключенияРежиссер: Kuaikan ManhuaПеревод: официальный (Crunchyroll)Язык озвучки: Японский (дубляж)Субтитры: Русские, АнглийскиеПродолжительность: 16 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC5AE05178BF649E14B688583FACCE90EB4C798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822245   (100850) от 05.10.2025
+
+Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diarrhero
+02. Nosím místo ponožky kousek svojí předkožky
+03. Poopcorn
+04. Buttman(   Читать дальше...   )Жанр: GoregrindПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75427544473877A1242F807D6C422E470BEC368C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822247   (100851) от 06.10.2025
 
 FxSound 1.2.1.0 [Multi/Ru]
@@ -6,7 +81,7 @@ FxSound 1.2.1.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100851.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100851.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100852.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100853.jpg" />
 </div>
 
 
@@ -81,7 +156,7 @@ OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100854.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100855.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100856.jpg" />
 </div>
 
 
@@ -155,7 +230,7 @@ magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -179,7 +254,7 @@ magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100858.jpg" />
 </div>
 
 
@@ -204,7 +279,7 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100859.jpg" />
 </div>
 
 
@@ -231,7 +306,7 @@ BikeComputer Pro v9.2.3 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100860.jpg" />
 </div>
 
 
@@ -255,7 +330,7 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100861.jpg" />
 </div>
 
 
@@ -282,7 +357,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -306,7 +381,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100863.jpg" />
 </div>
 
 
@@ -330,7 +405,7 @@ magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100864.jpg" />
 </div>
 
 
@@ -354,7 +429,7 @@ magnet:?xt=urn:btih:0E6AF19507CB69F0C069CA7B2A3EF5113A1F01E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100865.jpg" />
 </div>
 
 
@@ -378,7 +453,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100866.jpg" />
 </div>
 
 
@@ -403,7 +478,7 @@ Moon+ Reader Pro v10.2 (b1002001) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100867.jpg" />
 </div>
 
 
@@ -427,7 +502,7 @@ Moon+ Reader Pro v10.2 (b1002000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100868.jpg" />
 </div>
 
 
@@ -451,7 +526,7 @@ magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100869.jpg" />
 </div>
 
 
@@ -475,7 +550,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100870.jpg" />
 </div>
 
 
@@ -499,7 +574,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100871.jpg" />
 </div>
 
 
@@ -523,7 +598,7 @@ magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100872.jpg" />
 </div>
 
 
@@ -547,7 +622,7 @@ StartAllBack 3.9.16 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_100873.jpg" />
 </div>
 
 
@@ -558,84 +633,6 @@ StartAllBack - привычная для нас программа, котора
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52302FC5C8C7A8D9F0895803E739FDDF76304AFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822216   (100874) от 05.10.2025
-
-Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скорбящий пpизpaк хочет уйти в отставку 2 [2025, TV, 1 из 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Nageki no Bourei wa Intai Shitai.
-
-Описание на первый сезон.Наступил золотой век для кладоискателей, которые в поисках славы, несмотря на опасности, совершают набеги на хранилища сокровищ по всему миру. Неизмеримые богатства, слава и власть ждут тех, кто одержит победу.
-«Давайте станем охотниками за сокровищами!»(   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B858257F8D7A08668E225490CE4155FEB033E816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822215   (100875) от 05.10.2025
-
-Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон Spy x Family.
-
-Описание на первый сезон:
-Над миром нависла страшная угроза! Шпиону «Сумраку» предстоит выполнить сложнейшую миссию в своей карьере… стать примерным семьянином. Под видом любящего мужа и отца он должен проникнуть в элитную школу и сблизиться с верхами мира политики. На первый взгляд прикрытие вышло великолепное, во только его жена — наёмная (   Читать дальше...   )Жанр: приключения, комедия.Режиссер: Имай ЮкикоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14E7DC78BF779A6CC938B540DDAF403E87D8BAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822211   (100876) от 05.10.2025
-
-Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF843E2495DAAECF0D9186F465F8E7E9F61850F
 ```
 
 

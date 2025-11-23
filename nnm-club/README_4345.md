@@ -1,3 +1,78 @@
+###  Публикация: 1680830   (133848) от 30.11.2023
+
+Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie, Ambient, Neoclassic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thought (Instrumental) (4:00)
+02. And Let It In (Instrumental) (3:28)
+03. Who Are We (Instrumental) (4:24)
+04. Crystal Light (Instrumental) (4:19)(   Читать дальше...   )Жанр: Alternative, Indie, Ambient, NeoclassicПродолжительность: 2CD, 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE84171B1D6278E6E1E82D55B141E359C253336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680703   (133850) от 30.11.2023
+
+Журнал | Australian Wood Review №121 (октябрь-декабрь 2023) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Australian Wood Review предназначен для всех любителей и профессионалов в области деревообработки и столярного дела. Предлагает обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража. Все изделия, модели и поделки представлены понятными схемами (   Читать дальше...   )Жанр: Столярное делоЯзык: АнглийскийИздательство: Yaffa Media Pty LtdФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0661C8F313FF50B738C1ED48CA39DD04904212E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593924   (133851) от 25.12.2012
+
+[Программа] (Android 2.1+) Icon Changer 2.5.3 - Замена иконок приложений
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icon Changer - приложение для замены иконок приложений (в Меню иконки не заменяет) при замене на домашнем экране появляется новая иконка того приложения в котором вы заменили ее. Можно использовать как картинки из галереи, так и уже готовые иконопаки (можно скачать у разработчика).Разработчик: JuyeongЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680787   (133852) от 30.11.2023
 
 Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal, Doom metal>
@@ -6,7 +81,7 @@ Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133852.jpg" />
 </div>
 
 
@@ -33,7 +108,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133854.jpg" />
 </div>
 
 
@@ -60,7 +135,7 @@ JSON Wizard for Mac 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133856.jpg" />
 </div>
 
 
@@ -84,7 +159,7 @@ Acode - code editor | FOSS 1.9.0 (326) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133858.jpg" />
 </div>
 
 
@@ -108,7 +183,7 @@ magnet:?xt=urn:btih:DA80893C8F57AACAB8243EF6EB5B8A18418DBC3D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133859.jpg" />
 </div>
 
 
@@ -132,7 +207,7 @@ Opera GX 104.0.4944.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133860.jpg" />
 </div>
 
 
@@ -158,7 +233,7 @@ Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133861.jpg" />
 </div>
 
 
@@ -185,7 +260,7 @@ magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133862.jpg" />
 </div>
 
 
@@ -212,7 +287,7 @@ magnet:?xt=urn:btih:E88249583181493A95553111BA04699E507727CB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133863.jpg" />
 </div>
 
 
@@ -236,7 +311,7 @@ Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133864.jpg" />
 </div>
 
 
@@ -263,7 +338,7 @@ magnet:?xt=urn:btih:20E548419A9829E60A293510E9256916CF9F34D1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133865.jpg" />
 </div>
 
 
@@ -287,7 +362,7 @@ uDock 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133866.jpg" />
 </div>
 
 
@@ -311,7 +386,7 @@ Driver Fusion 1.4.0 Portable by 6sergey5 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133867.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133869.jpg" />
 </div>
 
 
@@ -363,7 +438,7 @@ magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133870.jpg" />
 </div>
 
 
@@ -388,7 +463,7 @@ magnet:?xt=urn:btih:751B36DAA0E31B23E093ABA0CF1561E9C86A001F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133871.jpg" />
 </div>
 
 
@@ -412,7 +487,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133873.jpg" />
 </div>
 
 
@@ -439,7 +514,7 @@ VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133875.jpg" />
 </div>
 
 
@@ -466,7 +541,7 @@ ManyCam Virtual Webcam 3.1.29.3991 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133876.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ ManyCam Virtual Webcam 3.1.29.3991 [Multi/Русский]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133877.jpg" />
 </div>
 
 
@@ -519,7 +594,7 @@ Dropzone 4 Pro v.4.80.0 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133879.jpg" />
 </div>
 
 
@@ -544,7 +619,7 @@ Aperture Update 3.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133880.jpg" />
 </div>
 
 
@@ -574,87 +649,13 @@ Sony Sound Forge Pro Mac 1.0.22 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133885.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_133885.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Основанное на безупречной репутации OS X, программное обеспечение Sound Forge™Pro Mac обеспечивает современную программную среду, идеальную для записи, монтажа, обработки и рендеринга основных звуковых файлов студийного качества. Высочайшая скорость работы и удобный интерфейс в стиле Mac. На специализированных панелях просмотра отображаются только те функции, которые нужны для удобной работы, а традиционные инструменты, такие как монтаж на базе событий и существенно обновленный плагин Chainer, обеспечивают привычную рабочую cреду для пользователей Sound Forge. Sound Forge Pro Mac — это новый подход к звуковому монтажу. Эта программа включает полный набор мгновенно применяемых инструментов для мастеринга, реставрации и восстановления.Название программы: Sony Sound Forge Pro MacРелиз состоялся: 2012Тип издания: Mac OS X softwareЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680873   (133886) от 30.11.2023
-
-AirMail Pro 5 v.5.6.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CC728D1D1372A53B5A7352B29E91824C273761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680836   (133888) от 30.11.2023
-
-Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Базарт - это удостоенное различных наград приложение для редактирования фотографий и графического дизайна, которое поможет вам легко создавать красивые фотографии, профессиональные дизайны и потрясающее коллажное искусство. Откройте для себя возможности бесконечного творчества!Тип издания: Premium / ModРелиз состоялся: 26.11.2023Разработчик: Bazaart Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594401   (133889) от 25.12.2012
-
-Вымирание - Хроники генной модификации / Extinction - The G.M.O. Chronicles (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тому Келлеру удаётся выжить после начала вирусной эпидемии, обращающей заражённых в кровожадных безумцев. Относительно безопасное укрытие он находит на заброшенной военной базе, откуда безуспешно пытается наладить радиосвязь со внешним миром.
-Спустя две недели, в ходе ночной вылазки в город, Том натыкается на группу других уцелевших, один из которых позже открывает ему глаза на причины катастрофы. Одновременно выясняется, что вирус стремительно мутирует, и противник становится всё более опасным.Жанр: УжасыРежиссер: Ники Дроздовский / Niki DrozdowskiАктеры: Дэниэл Будер, Луиза Бер, Джерри Койл, Тобиаш Кэй, Ли Рыхтер, Бина Милас, Кристиан Сток, Клаус Эберт, Генрих Баумгартнер, Георг Марин и др.Перевод: Одноголосый закадровый |R1shpil|Продолжительность: 01:54:54
 
 ## Скачать торент
 ```bash

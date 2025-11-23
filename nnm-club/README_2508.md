@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65956.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65957.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65958.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65959.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65960.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65961.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65962.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65963.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65964.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, P
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65965.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65966.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65967.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65968.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65969.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65970.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65971.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Eluveitie - Anv (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65972.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Rivers Of Nihil - Rivers Of Nihil (2025) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65973.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65974.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65975.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65976.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65977.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65977.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Waltari - Nations' Neurosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65978.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65978.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ John Surman, Karin Krog - Electric Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65979.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Marturos - Messages to the Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65980.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65980.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65981.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_65981.jpg" />
 </div>
 
 

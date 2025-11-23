@@ -1,3 +1,80 @@
+###  Публикация: 1680297   (134583) от 28.11.2023
+
+Romeo's Daughter - Slipstream (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over You (3:56)
+02. Everything (3:33)
+03. How Does It Feel (3:42)
+04. Inseparable (4:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B9A6343B9B58B071E8C1BC2A66EB8B4E8CEEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593792   (134584) от 24.12.2012
+
+"АСТ" | Книжная серия "Исторический детектив (АСТ)" в 10 томах [2006-2008] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Исторический детектив от издательства АСТ.
+Название серии соответствует содержанию книг.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9921CCD6F7EB3B77E00A3F6A51F196F35C68C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680176   (134585) от 28.11.2023
+
+Алан Александер Милн | Винни-Пух и все, все, все (2008) [MP3, Ирина Потоцкая]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из архива Гостелерадиофонда.
+Больше всего на свете толстый плюшевый медвежонок Винни-Пух любит поесть. А кроме этого он сочиняет песенки, пыхтелки, сопелки и кричалки на все случаи жизни. Но друзья – Кристофер Робин, Пятачок, Иа-Иа, Кролик, Тигра, Кенга и Ру – любят его не только за это. Пускай Винни-Пух и не очень сообразительный медвежонок, зато каждое безвыходное (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Борис ЗаходерИздательство: ИДДКПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B3AF5C44D9B01BC6EDB6E5D7C393C0D1A94DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593913   (134586) от 24.12.2012
 
 VueScan Pro 9.1.21 [MULTi / Русский]
@@ -6,7 +83,7 @@ VueScan Pro 9.1.21 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134586.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_134586.jpg" />
 </div>
 
 
@@ -32,7 +109,7 @@ Goldie for Mac 2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134587.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134587.jpg" />
 </div>
 
 
@@ -56,7 +133,7 @@ Stay Away - СССР 2077 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134589.jpg" />
 </div>
 
 
@@ -83,7 +160,7 @@ Dave & The Dudes - Down For The Count (2023) [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134591.jpg" />
 </div>
 
 
@@ -110,7 +187,7 @@ Video Converter X2 for Mac 1.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134593.jpg" />
 </div>
 
 
@@ -135,7 +212,7 @@ magnet:?xt=urn:btih:E613E389C104DB52D7D3306A6C9D5A7C0AD8C236
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134594.jpg" />
 </div>
 
 
@@ -159,7 +236,7 @@ White Heat - Perfect Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134595.jpg" />
 </div>
 
 
@@ -186,7 +263,7 @@ magnet:?xt=urn:btih:8FCBD14D78CC7F8A7D70C447C07DB46C6A8F7AD4
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134596.jpg" />
 </div>
 
 
@@ -211,7 +288,7 @@ magnet:?xt=urn:btih:0D3448B5AC4CB9E4C590552AABFA39D3CDF17DE2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134598.jpg" />
 </div>
 
 
@@ -236,7 +313,7 @@ magnet:?xt=urn:btih:73E94FF69ACD3028105EB452B99D38A85E3317C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134600.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134600.jpg" />
 </div>
 
 
@@ -260,7 +337,7 @@ Magic Cutter - MP3 Editor for Mac 1.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134602.jpg" />
 </div>
 
 
@@ -284,7 +361,7 @@ Nova Skellis - Life Amongst the Damned (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134604.jpg" />
 </div>
 
 
@@ -311,7 +388,7 @@ Word Count Popup 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134605.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134605.jpg" />
 </div>
 
 
@@ -337,7 +414,7 @@ magnet:?xt=urn:btih:218A8D0D709947092D23E2412ADFAEE187D76194
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134606.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134606.jpg" />
 </div>
 
 
@@ -364,7 +441,7 @@ Unite 5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134607.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134607.jpg" />
 </div>
 
 
@@ -388,7 +465,7 @@ Dropover for Mac 4.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134608.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134608.jpg" />
 </div>
 
 
@@ -412,7 +489,7 @@ magnet:?xt=urn:btih:8E1EF9A07BC0ACCB5CC6E9C55A1E53D304CC72AB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134609.jpg" />
 </div>
 
 
@@ -438,7 +515,7 @@ The Hedrons - Tired of Taking (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134611.jpg" />
 </div>
 
 
@@ -465,7 +542,7 @@ magnet:?xt=urn:btih:02433A9DEB681810549AD4DF62CD7A5C319C9E5A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134613.jpg" />
 </div>
 
 
@@ -489,7 +566,7 @@ Cisdem OCRWizard 5.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134615.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134615.jpg" />
 </div>
 
 
@@ -513,7 +590,7 @@ Yate 6.17.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134617.jpg" />
 </div>
 
 
@@ -539,7 +616,7 @@ MindLight - N.A.M.I. (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134619.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134619.jpg" />
 </div>
 
 
@@ -566,7 +643,7 @@ magnet:?xt=urn:btih:18BFD522C8003AF940B58E22098D8566089899B8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_134620.jpg" />
 </div>
 
 
@@ -577,82 +654,6 @@ magnet:?xt=urn:btih:18BFD522C8003AF940B58E22098D8566089899B8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574CBA6ADF989686FAC4C9F540846380827A7DB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680121   (134621) от 28.11.2023
-
-Convusic for Mac 1.17 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convusic позволяет автоматически открывать ссылки с Apple Music, Amazon Music, Deezer, Pandora, Spotify, Tidal и YouTube Music в любом другом музыкальном приложении, не пошевелив и пальцем.
-После загрузки Convusic и настройки его на предпочитаемый музыкальный сервис ссылки с любого другого музыкального сервиса будут автоматически открываться в выбранном вами приложении. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2022Разработчик: © 2021-2022 Varun SanthanamПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C640491BDE1DA5D5D4DD95765AA12311FFF430F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680286   (134623) от 28.11.2023
-
-Christopher Island - Шутка (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Народная [00:04:33]
-02. Нахт [00:04:12]
-03. Дождь [00:03:45]
-04. Манка [00:03:26](   Читать дальше...   )Жанр: Progressive Metal, GrungeПродолжительность: 00:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5E3378724EB967704168598A13B6B4B8506195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593677   (134624) от 24.12.2012
-
-Работы художников - Художник John Silver
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Художник John Silver
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06B7F711759890EF126FC91D46094819A7940EF
 ```
 
 

@@ -1,3 +1,180 @@
+###  Публикация: 1519231   (149901) от 23.12.2021
+
+GIF'ted 2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свои фильмы MPEG-4 в анимированные GIF-файлы в кратчайшие сроки. GIF'ted будет анализировать цвета вашего исходного фильма, чтобы лучше всего выглядеть GIF. Или используйте классическую палитру, например, из Gameboy или SNES, для дурацких и забавных результатов. Вы также можете обрезать и обрезать выходной GIF в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F143A808F053962007EA4E05363442F5A180A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968746   (149902) от 25.12.2015
+
+(Linux) Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (1.21.1.4s/dlc) SteamRip
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149902.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи. Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом (   Читать дальше...   )Тип издания: SteamRipРазработчик: SCS SoftwareЖанр: Racing, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Мульти (35)Язык интерфейса: Русский, Мульти (35)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E75FF4ACC1118BA4A1B6CD7CD40DF1E74F0645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434510   (149903) от 25.12.2020
+
+Dance Gavin Dance - Tree City Sessions 2 (2020) [MP3|320 Kbps] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Backwards Pumpkin Song [00:04:47]
+02. Uneasy Hearts Weigh The Most [00:04:14]
+03. NASA [00:03:33]
+04. Blue Dream [00:05:11](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7518F9DC56A837F7D329C19C5A6C3A852E22D778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677268   (149904) от 18.11.2023
+
+TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149904.jpg" />
+</div>
+
+
+###  Подробнее
+
+"TrayButton for WhatsApp" - небольшая программа позволяющая сделать работу с новой UWP версией WhatsApp для Windows более удобной. Как известно, WhatsApp для Windows нет возможности свернуть в system tray и восстановить обратно используя этот значок. TrayButton решает это, а так же добавит еще несколько полезных функций, например отображение числа пропущенных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A0FBF3F95C1938BA912167F2F11C9D1839E3D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519173   (149905) от 23.12.2021
+
+VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robag Wruhme - Connecting The Dots, Continuous Mix (1:11:56)
+02. Ulf Lohmann - Because (4:32)
+03. Dettinger - Oasis 4 (6:58)
+04. Studio 1 - Rosa 1 (11:15)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDEEB3911EA8C9B139B795C297EC0C033771F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434592   (149906) от 25.12.2020
+
+Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rules (feat. Omar) [3:15]
+02. You Know Who You Are [4:54]
+03. Darker Than the Blue (feat. Omar) [3:22]
+04. Rivers of Blood [5:39](   Читать дальше...   )Жанр: Post-Bop, Soul Jazz, Contemporary JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722E2130B70C3BF2B2AFD0207F73F4DEBD5F9370
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968862   (149907) от 25.12.2015
+
+Кэрол / Carol (2015) DVDScr
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о сложных взаимоотношениях двух женщин, живущих в Нью-Йорке 50-х годов. Одна из них — совсем молоденькая продавщица, мечтающая о большем, а другая — замужняя дама, страдающая от отсутствия любви.Производство: Великобритания, США, ФранцияЖанр: МелодрамаРежиссер: Тодд ХейнсАктеры: Кейт Бланшетт, Руни Мара, Кайл Чандлер, Джейк Лэси, Сара Полсон, Джон Магаро, Кори Майкл Смит, Кевин Краули, Ник Паич, Кэрри БраунштейнПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionПродолжительность: 01:57:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271372   (149908) от 23.12.2018
 
 BestReminder v2018.12.22.22 Final [Multi/Ru]
@@ -6,7 +183,7 @@ BestReminder v2018.12.22.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149908.jpg" />
 </div>
 
 
@@ -33,7 +210,7 @@ magnet:?xt=urn:btih:E734CE25D6EB7AF89D5783A749B305442AE303F2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149910.jpg" />
 </div>
 
 
@@ -57,7 +234,7 @@ magnet:?xt=urn:btih:86BC3F253411C3BDFDCE6A07AE33080800A429D3
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149912.jpg" />
 </div>
 
 
@@ -81,7 +258,7 @@ magnet:?xt=urn:btih:4F2BB334CB7ED45762B73A392E75F8770853AFE2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149913.jpg" />
 </div>
 
 
@@ -105,7 +282,7 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149916.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149916.jpg" />
 </div>
 
 
@@ -132,7 +309,7 @@ magnet:?xt=urn:btih:E5D69167FB98CA4D722F2BA7B425B20049042547
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149917.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149917.jpg" />
 </div>
 
 
@@ -156,7 +333,7 @@ MAGIX Vegas Pro 21.0 Build 187 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149918.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149918.jpg" />
 </div>
 
 
@@ -180,7 +357,7 @@ magnet:?xt=urn:btih:D7E87A9C8FD7E8E83425B6922296FE5A15D2C13A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149919.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149919.jpg" />
 </div>
 
 
@@ -204,7 +381,7 @@ VA - FROZEN Purple (2021) [AAC|~305 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149920.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149920.jpg" />
 </div>
 
 
@@ -231,7 +408,7 @@ magnet:?xt=urn:btih:3F2414FF9E8E20FF82E9EEDFAC7969E3FC16D82A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149921.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149921.jpg" />
 </div>
 
 
@@ -255,7 +432,7 @@ Desktopr - make wallpaper from any website 1.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149922.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149922.jpg" />
 </div>
 
 
@@ -282,7 +459,7 @@ Inklet 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149924.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149924.jpg" />
 </div>
 
 
@@ -308,7 +485,7 @@ Adguard 6.0.146.791 RC [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149925.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149925.jpg" />
 </div>
 
 
@@ -332,7 +509,7 @@ magnet:?xt=urn:btih:F790AB26DC4C82C5AAE331E57D15763148712D06
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149926.jpg" />
 </div>
 
 
@@ -356,7 +533,7 @@ magnet:?xt=urn:btih:A1C404C02BF14385A773BB5CBC14B3AEF646EC96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149928.jpg" />
 </div>
 
 
@@ -381,7 +558,7 @@ Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149929.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149929.jpg" />
 </div>
 
 
@@ -408,7 +585,7 @@ Wise Force Deleter 1.48.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149931.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149931.jpg" />
 </div>
 
 
@@ -432,7 +609,7 @@ VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149932.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149932.jpg" />
 </div>
 
 
@@ -459,7 +636,7 @@ magnet:?xt=urn:btih:28F29CB472EF97ED390FE61601A1FC037DA215BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149933.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_149933.jpg" />
 </div>
 
 
@@ -470,183 +647,6 @@ magnet:?xt=urn:btih:28F29CB472EF97ED390FE61601A1FC037DA215BF
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086806   (149934) от 25.12.2016
-
-CopyLess 1.8.11 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149934.jpg" />
-</div>
-
-
-###  Подробнее
-
-СopyLess это продвинутый и гибкий менеджер буфера обмена. CopyLess, в отличие от системного буфера обмена, позволяет хранить до 100 элементов во всех форматах данных поддерживаемых Mac OS X. Он незаменим при работе с текстом, графикой, файлами или любыми другими форматами данных.
-
-С CopyLess нет необходимости переключаться между приложениями или окнами просто для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2016Разработчик: MaxborПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Русский, Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C8472C8A23B062B7E65037B2A733AA2402D5BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674386   (149935) от 18.11.2023
-
-The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер изобрел гениальное устройство: Смурфомикс! Однако ему не хватает ключевого компонента – Зеленого камня, которым завладел Гаргамель. Мастер и его команда отправляются в путешествие, чтобы забрать знаменитый камень из лаборатории Гаргамеля, однако из-за роковой ошибки камень взрывается, и его обломки разлетаются по Проклятым землям.Тип издания: LicenseРазработчик: OSome StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588829   (149936) от 14.12.2012
-
-Фотография - Фотограф Corwin Prescott
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Corwin PrescottРазрешение файлов: ~ 400x600 ~ 900x1350
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF42FB4D76DEB0A642AD76E145C5713211865F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343803   (149937) от 18.11.2023
-
-Валентин Гафт | Уже от мыслей никуда не деться... (2010) [MP3, Валентин Гафт]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентин Иосифович Гафт (1935–2020) – советский и российский актёр театра и кино, театральный режиссёр, поэт.
-Детство, мухи, море, пепел, о чем только не передумаешь в поезде. Сколько же поэзии может быть в прозе жизни. Сколько нового, философского и личного – в самом обыденном. Дорогой слушатель, узнай же скорее, о чем размышляет любимый актер. Быть может, ты вспомнишь, (   Читать дальше...   )Жанр: Русская литература, поэзия, эпиграммыИздательство: ВимбоПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7442FC1D43BCA66891E5494A9A854984D0AC81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922051   (149938) от 25.12.2015
-
-День сурка / Groundhog Day (1993) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фил Коннорс – репортер, который отличается не только остроумием, но и чрезвычайной самовлюбленностью. Из года в год он приезжает в небольшой пенсильванский городок Панксатони, чтобы подготовить сюжет о празднике под названием День сурка. День сурка, который отмечают 2 февраля, - это день, когда сурок выходит из своей норки. В зависимости от того, увидит ли он свою (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: мелодрама, комедияРежиссер: Харольд РэмисАктеры: Билл Мюррей, Энди МакДауэлл, Крис Эллиот, Стивен Тоболовски, Брайан Дойл-Мюррей, Марита Герати, Анджела Пэтон, Рик Дукомман, Рик Овертон, Робин ДьюкПеревод: профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3527D82A701F8F7D79AD2BBA841A38F805FD0D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271133   (149939) от 23.12.2018
-
-Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Little Marie
-A2 Our Little Rendezvous
-A3 No Particular Place To Go
-A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519182   (149940) от 23.12.2021
-
-Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [4:06]
-02. Frenesi [3:38]
-03. Oh, What A Beautiful Mornin' [3:00]
-04. Groovy Day [3:43](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8570891D28E8EFD6191EBEC532E9CD03164A7A1
 ```
 
 

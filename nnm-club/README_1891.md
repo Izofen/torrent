@@ -6,7 +6,7 @@ SEREBRO - 11 (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49521.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CE582789CD377E0AD5A28D682C03FB38A94A4002
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49522.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CE582789CD377E0AD5A28D682C03FB38A94A4002
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49523.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:98BF494D3E43F03C1C37330047F652B4BE874E99
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49524.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Compilation part 98 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49525.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Opera One 112.0.5197.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49526.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ R-Studio Network 9.4 Build 191340 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49527.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Atlantis Word Processor 4.4.0.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49528.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9B34A5E3A15045788AD85D80FFD7CC8687C8EF9B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49529.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Radiant Photo 1.4.1.500 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49530.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Paul McCartney - One Hand Clapping - The Backyard (One Hand Clapping Sessions) (
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49531.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Icecream PDF Candy Desktop PRO 3.09 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49532.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:FBA2EEB1BE43D708E121A964C115E8A679DBB670
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49533.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:56A3926C8FAD5F2EB1BDA079D6F8C633373BF1E0
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49534.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:DF5D91D97106419E5E33F73C19D795232E97B362
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49535.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:88F302E32A0CEC5EA02E449719C97FF8A54E0F0C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49536.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AMD Radeon Software Adrenalin Edition 24.7.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49537.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:F6A2ECAC8A1F11C6013AF777D91ED2D281A2540F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49538.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:5898A43BCB65BF5483C56D34FFE19CFAB83DA92B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49539.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Music News For Forum vol.002 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49540.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ZAZ - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49541.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:240FD2DBB876BD0D2EB02BD2A78C955BE91518AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49542.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:A9181FCDA26CB9AAC7978C2AC08EDB975300A462
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49543.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Desktop Calendar 3.15.198.6574 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49544.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:CA0C42CF5A081AA56DD263A20FBB0700D777EC48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49545.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:9E2F64B9F9FEDBBFA564BACC5293E395D5FC489B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_49546.jpg" />
 </div>
 
 

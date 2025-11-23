@@ -6,7 +6,7 @@ Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beg
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167578.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167616.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167616.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Udemy | Android разработка на Kotlin - с нуля до продви
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168124.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168124.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168165.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168247.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168338.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168338.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168574.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168574.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Skillbox, Александр Клейн | SQL-разработчик (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168821.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168821.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169131.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169189.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:0D7CC55F3E9C9F5A764B818EF508B9FF1BF119CB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169247.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_169351.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ JUG Ru Group | SmartData 2021. Конференция по Data Engineering (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170034.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170034.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170078.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170078.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170118.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170209.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170482.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:2D29E769AEEA17EACC784D6862C44D4F5E48312F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170656.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170667.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170676.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170702.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170702.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170726.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170726.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170761.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170893.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_170898.jpg" />
 </div>
 
 

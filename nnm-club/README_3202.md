@@ -1,3 +1,84 @@
+###  Публикация: 1761942   (102933) от 24.11.2024
+
+Supergrass - Life on Other Planets 2003 (2003) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Za (3:05)
+02. Rush Hour Soul (2:55)
+03. Seen the Light (2:26)
+04. Brecon Beacons (2:56)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9718C2F5986ED8A330F3E11208C29B0FD29EF8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762169   (102934) от 24.11.2024
+
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762059   (102935) от 24.11.2024
+
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762269   (102936) от 24.11.2024
 
 The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
@@ -6,7 +87,7 @@ The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102936.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102936.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102937.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102937.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102938.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102938.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102939.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102939.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102940.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102941.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102942.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102942.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102943.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102943.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102944.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102944.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102945.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102945.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102946.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102946.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102947.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102947.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102948.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102948.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102949.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102949.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102950.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102950.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ magnet:?xt=urn:btih:2BD41E183159EBB9EA9F24B56E7E5157B5134446
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102951.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102951.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ magnet:?xt=urn:btih:6B68F861212769E4129C6324D994C1D5D5EFA5B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102952.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102952.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ magnet:?xt=urn:btih:7156B85E7A42E14962128B94AB9BC805CC8F6987
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102953.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102954.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102955.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102956.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102957.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102958.jpg" />
 </div>
 
 
@@ -607,82 +688,6 @@ Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA91F0B4E11C16BC58A1D3A731396068B5F325BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762214   (102959) от 24.11.2024
-
-Газета | Невыдуманные истории №44 (448) (октябрь 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102959.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Невыдуманные истории» – необычное в жизни обычных людей. Невероятные случаи из жизни, мистика, встречи с призраками, домовыми, лешими, ангелы-хранители, жизнь после смерти, чудесные исцеления, встречи с НЛО и многое другое. Удивительны и разнообразны людские судьбы! Пережитые трагедии, романтические встречи, семейные драмы, чудесные исцеления.
-Издание является приложением (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B1E6D922B21F891760212FDC117F7C47194E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762124   (102960) от 24.11.2024
-
-Своя игра (январь-февраль 2024) WEBRip [H.264/1080p] (игры 1-12 из 12)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102960.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Первый турнир этого года называется "Возвращение к истокам" и проводится по тем же простым правилам, по которым проводился самый первый турнир: победитель отправляется за центральный игровой стол и остаётся там, пока не проиграет.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 12 выпусков по ~00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1619B9F2C5D1FEFE3416C00B5450902827B5AEDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762339   (102961) от 24.11.2024
-
-Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep [00:02:53]
-02. Body Bag [00:03:22]
-03. All Night [00:03:45]
-04. Deadly Remedy [00:03:19](   Читать дальше...   )Жанр: Alt MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4696B1299538FF3B65C223A27B6790BE8637F8
 ```
 
 

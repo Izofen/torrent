@@ -1,3 +1,78 @@
+###  Публикация: 1717965   (111098) от 22.04.2024
+
+Ганс Христиан Андерсен, Виталий Бианки, Всеволод Гаршин, Братья Гримм | Бабушкины сказки 3 (2006) [MP3, Александр Куликов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сказка.
+Перед сном мне бабушка всегда рассказывает сказки. Послушайте и вы наши сказки.
+Сборник включает народные сказки, а также сказки отечественных зарубежных писателей: Виталия Бианки, Вильгельма Гримм, Якоба Гримм, Ганса Христиана Андерсена, Всеволода Гаршина.
+(   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: Синтез ПродакшнПродолжительность: 04:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AEE0A2287C3EC389291FCF6EA6B760FA1E2519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718024   (111099) от 22.04.2024
+
+Photo Lab PRO v3.13.7 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 22.04.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB7E66A262CC9F453990641E0A23C8D8333C7B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717940   (111100) от 22.04.2024
+
+Кукольная анимация / Тьма играет в куклы / Stopmotion (2023) WEB-DLRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливая и замкнутая Элла Блейк занимается анимацией. Изо дня в день она выполняет кропотливую работу, перемещая кукольных персонажей на миллиметры. Девушка работает под контролем своей властной матери, которая подавляет ее стремление к независимости. Но когда мать попадает в больницу, жизнь Эллы радикально меняется. Героиня переезжает в пустующий дом, где приступает (   Читать дальше...   )Производство: Великобритания / Blue Light, British Film Institute (BFI)Жанр: ужасыРежиссер: Роберт МорганАктеры: Эшлинг Франчози, Кэолинн Спринголл, Том Йорк, Стелла Гонет, Терика Уилсон-Рид, Бриджитта Рой, Алекс Фриборн, Джеймс Суонтон, Джеймс Харрис, Джаз Хатчинс и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:44Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718009   (111101) от 22.04.2024
 
 RegCool 2.004 + Portable [Multi/Ru]
@@ -6,7 +81,7 @@ RegCool 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111101.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111101.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:17B1FE1506AFD1E45C8C3D225013CC9A221E719B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111102.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111102.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Glary Tracks Eraser 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111103.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111103.jpg" />
 </div>
 
 
@@ -78,7 +153,7 @@ Photo Studio Premium v2.7.3.2559 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111104.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111104.jpg" />
 </div>
 
 
@@ -102,7 +177,7 @@ magnet:?xt=urn:btih:BD82791CB8BFA3F0804256C936372CA0772CCC24
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111105.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111105.jpg" />
 </div>
 
 
@@ -127,7 +202,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111106.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111106.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:21FB60508E28C5C5AE8B0EB12625DA9301E71B2B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111107.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111107.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ magnet:?xt=urn:btih:3ED88727D297AA3F671456C2D3E8B4B7C33AC247
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111108.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111108.jpg" />
 </div>
 
 
@@ -202,7 +277,7 @@ Zuider Zee - Collection (1975-2018) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111109.jpg" />
 </div>
 
 
@@ -229,7 +304,7 @@ Warfect - Spectre of Devastation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111110.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111110.jpg" />
 </div>
 
 
@@ -256,7 +331,7 @@ Angel Witch - Angel Witch (1980) Reissue, Remastered, Universal [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111111.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111111.jpg" />
 </div>
 
 
@@ -283,7 +358,7 @@ Claptone & Diplo - Live @ The Masquerade, Fabrik Madrid, Spain (2024-04-06) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111112.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111113.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111113.jpg" />
 </div>
 
 
@@ -337,7 +412,7 @@ magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111114.jpg" />
 </div>
 
 
@@ -361,7 +436,7 @@ magnet:?xt=urn:btih:043E741EBB1D792D19FC87B1369324E27858957C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111115.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111115.jpg" />
 </div>
 
 
@@ -386,7 +461,7 @@ Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111116.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111116.jpg" />
 </div>
 
 
@@ -413,7 +488,7 @@ Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111117.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111117.jpg" />
 </div>
 
 
@@ -440,7 +515,7 @@ Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111118.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111118.jpg" />
 </div>
 
 
@@ -467,7 +542,7 @@ magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111119.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111119.jpg" />
 </div>
 
 
@@ -492,7 +567,7 @@ Speedtest от Ookla 5.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111120.jpg" />
 </div>
 
 
@@ -516,7 +591,7 @@ magnet:?xt=urn:btih:09167E65CFFC80BCCCCBEB108B8B79AB0351491B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111121.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111121.jpg" />
 </div>
 
 
@@ -540,7 +615,7 @@ magnet:?xt=urn:btih:A43581C86B609EAA56223A5A17205545033AC411
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111122.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111122.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111123.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_111123.jpg" />
 </div>
 
 
@@ -579,83 +654,6 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A974EB4266945C0D192A1FF10BAA776875C2B87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717810   (111124) от 21.04.2024
-
-VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MONGOA - Eternal (No Beat Mix) (4:54)
-02. Peter Pearson - Calming Influences (Original Mix) (3:28)
-03. Okira - Morning Sun (Ambient Version) (4:27)
-04. Aiko Katana - Hope in the Air (4:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D925D074287F0ABC183D42786C1EFED2BB31D7E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717617   (111125) от 21.04.2024
-
-Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Dance, Pop Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Everytime We Touch (Original mix) (3:55)
-02. Nova Scotia – Everytime We Touch (DJ Oskar rmx) (5:49)
-03. Nova Scotia – Everytime We Touch (DJ Oskar short mix) (4:57)Жанр: Club-Dance, Pop TranceПродолжительность: 00:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A524EE72324F074D55AA763FA03C63EF67F26B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717595   (111126) от 21.04.2024
-
-Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Trance, Euro-House, Scouse House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova Scotia – Think About The Angels (5:04)Жанр: Pop Trance, Euro House, Scouse HouseПродолжительность: 00:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43431E6837F306F745AA62B8F3C40CD9A080D137
 ```
 
 

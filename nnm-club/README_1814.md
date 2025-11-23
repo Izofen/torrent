@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47519.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CEEEA74089FEEBB0D1CC59B76F297396764E6DCA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47520.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47520.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F47ACD39C8923B4F4DF479306DC8958452C6182
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47521.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47521.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Linkin Park: Дорога к революции (Живой концерт в М
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47522.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47522.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - 90s Music - Greatest Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47523.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47523.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:5AB496FB9C7C974EAC4D8B96FD3466E49FA1AEC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47524.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ TikTok 35.9.4 Mod by Dmitry Nechiporenko + Plugin 1.49 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47525.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C9280E4C0E7C629EABC0117BBBD7EF8D6EFE765C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47526.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:540C5A941860C860E7845C933615C16F9CB21E63
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47527.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:265C82E4A8B420FA5D0485288CD036AA336A6793
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47528.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47528.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C92C3E5465B56122CE1065CF32651ACBCAA80970
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47529.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:B732692D643CA8CD333C39C1E95A5DC8A6E65EA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47530.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Google Chrome 127.0.6533.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47531.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:AFAF199E13228606317506C9895C037251E367DE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47532.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Firefox Browser 129.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47533.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C317576C66C25B22C5A1507908BD124E0659ECFF
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47534.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:40BCC793BAB9A1C4086A99A84FDE27B1138F6409
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47535.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - 90s Radio Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47536.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7CA4D20BED709D1742345AA9A0D8382512E3AF46
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47537.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47538.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4887B2F5910705859F651D6C625AB8AC62AD31C4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47539.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ IObit Smart Defrag Pro 10.0.0.399 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47540.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:98BF5CC5DD3DEEA0B6BA33CFE82198CE48BFBA4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47541.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:7C0754A0381A55A143A6070C1E218F416C9F60C3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47542.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Firefox Browser ESR 115.14.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47543.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:34760C06DC15C9B8A1CB72A8A9A5DF3F89D922A5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_47544.jpg" />
 </div>
 
 

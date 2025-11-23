@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18888.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18888.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PDF-XChange PRO 10.6.0.396 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18889.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18889.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9C88739658231C785CC1AFB3A44D318A625F4C0
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18890.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18890.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fallout: Sonora (2020) [Ru] (1.15/dlc) Repack/Mod Foxx164
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18891.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18891.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:29642977BFACA0DDBB84CD629F2A451D63C98F89
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18892.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18892.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Baldur's Gate (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18893.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18893.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18894.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:8B78180B4C0AF0D2AAF4947FC4FC57E76B5C54AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18895.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18895.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:5C28B1691EBFDD58C818DD2ED4D4A797EA96DB24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18896.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18896.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:25E8F9FD93AF6D2A8D9249FB09A082CD307FAC3E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18897.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Death Road to Canada (2016) [Multi] (Omentum Update) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18898.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18898.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:D048738C61C602C7126B95BE343C51D2121DCA18
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18899.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18899.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:CD7A40EFA5F873D86F9699B2A259D770F2E856F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18900.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:E7D92DAFD49416E5276CFCEE5900DED26844F267
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18901.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18901.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:DC25AD69000159CF5A868D24E02DF6DD3306E8EE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18902.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18902.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Adobe Acrobat Pro 2025.001.20474 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18903.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18903.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:4E3F7A2558BD510631AAD5B7936CD4E9E5E070F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18904.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18904.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:5AF8349EB73D8AB81EDBA387A4C7B5F438A20121
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18905.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18905.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A178AA908AADCBC8162A63770C26282D87476974
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18906.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18906.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:5291B8AAC4E18766702F945EDD3A76209B448718
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18907.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18907.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:2F0912147CF27FAEEC29A891D7D02C308F8B4040
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18908.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:86B276A2A8ED52928CB79CFCA35D350CECC220FF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18909.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Project Werewulf (2025) [Ru/Multi] (HotFix 2) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18910.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18910.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.3 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18911.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18911.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:F178B8B7C8D5B65CB604440A21BF3D0E7BDC44BA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18912.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18912.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:9173E1E5D0CDBC7E5006B85F2640C41EAD278D51
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18913.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_18913.jpg" />
 </div>
 
 

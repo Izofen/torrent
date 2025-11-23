@@ -1,3 +1,55 @@
+###  Публикация: 1827917   (193317) от 23.10.2025
+
+Лев Толстой | Смерть Ивана Ильича (2022) [MP3, Роман Стабуров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика (АСТ).
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+«Смерть Ивана Ильича» (1886 г.) – без преувеличения одно из самых значительных в мировой литературе произведений о смерти, о том, как приближающая, неминуемая кончина может до неузнаваемости преобразить ничем, в общем-то, не примечательного (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 03:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFD60B1E3CE206C18373A13281FBAB8DE903AEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827895   (193318) от 23.10.2025
+
+Лев Толстой | Отец Сергий (2022) [MP3, Роман Стабуров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика (АСТ).
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+Повесть «Отец Сергий» (1911) – рассказ об искушении, о тайном дьяволе, живущем в каждом из нас и попытке изжить из себя этого дьявола, убежать от него. Очень личная для писателя история, отразившая его представления о вере и искуплении (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 02:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A0308C9C09E8758BC659E370CE4A7581E72186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827877   (193319) от 23.10.2025
 
 Лев Толстой | Крейцерова соната (2022) [MP3, Дарья Павлова]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193319.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_193319.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ magnet:?xt=urn:btih:7E7D7EEB4AD90FD4EBFC0E0BEC4CEBEFEF96125F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195170.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195170.jpg" />
 </div>
 
 
@@ -57,7 +109,7 @@ magnet:?xt=urn:btih:42B62D78D06C53664AEAE02E4440E628ED476287
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195491.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_195491.jpg" />
 </div>
 
 
@@ -81,7 +133,7 @@ magnet:?xt=urn:btih:37DE4ACD9A68F237D9EAA5F4D29EBE85518E8F20
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196056.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_196056.jpg" />
 </div>
 
 
@@ -106,7 +158,7 @@ magnet:?xt=urn:btih:30282945DF0AE405B2A4B298F7E92F29AD2AD43C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197263.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_197263.jpg" />
 </div>
 
 
@@ -132,7 +184,7 @@ magnet:?xt=urn:btih:6DBC638B097169991EB168EFF353AF701E981C60
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197269.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197269.jpg" />
 </div>
 
 
@@ -156,7 +208,7 @@ magnet:?xt=urn:btih:5017455C97A1000A59059B574929B9A90BF2A274
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197379.jpg" />
+  <img src="http://84.39.252.114/picture/004/save_picture_197379.jpg" />
 </div>
 
 
@@ -182,7 +234,7 @@ magnet:?xt=urn:btih:AEC23B480619AF2E902A3406A0716C07B58432FA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202401.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202401.jpg" />
 </div>
 
 
@@ -209,7 +261,7 @@ magnet:?xt=urn:btih:15D363CB9912AF62F01ECD49384A9F271CAB5534
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202406.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_202406.jpg" />
 </div>
 
 
@@ -235,7 +287,7 @@ magnet:?xt=urn:btih:D521532B7DAA292C68310BC95ADF3792BAC8B870
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_205371.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_205371.jpg" />
 </div>
 
 
@@ -259,7 +311,7 @@ magnet:?xt=urn:btih:534CDF75052997C39ECF82F5F93D8496D3A5980A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205660.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_205660.jpg" />
 </div>
 
 
@@ -285,7 +337,7 @@ magnet:?xt=urn:btih:C8B94EA8547E0C7B3FB0F23FC7D767AD00B24CDB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206494.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_206494.jpg" />
 </div>
 
 
@@ -311,7 +363,7 @@ magnet:?xt=urn:btih:E3F07E91D9D3F6B4068E603EE15D11EF97EA1061
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207759.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207759.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ magnet:?xt=urn:btih:7B4E344A9037808B93CF4B0061286BF23F41B2CE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208585.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208585.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ magnet:?xt=urn:btih:ADFE692021A51E2C076E5F6853AFD1E08907F61B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208701.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208701.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ magnet:?xt=urn:btih:7069BEF3FF3F09EEA5158C98B9B8B0900DB6F09F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208848.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_208848.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ magnet:?xt=urn:btih:FA9DD6C9CF735A89B439D133CA4026181E370765
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209248.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209248.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ magnet:?xt=urn:btih:BC22A921BC142A9726275A6F69208E3675467876
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209252.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209252.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ magnet:?xt=urn:btih:22ECD1FEB74CF9A4B42E777447AA1C6B69641163
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210642.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210642.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ magnet:?xt=urn:btih:7123F4CB2C9040C48C4836C6D25947A52BE77CF9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211637.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211637.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ magnet:?xt=urn:btih:95046ECD537B05BD784D74FE0A63094E23CF16D7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211909.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211909.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ magnet:?xt=urn:btih:5CD9706A07310699CB8BA37B61ADD0318EA85099
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_212958.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_212958.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ magnet:?xt=urn:btih:739C311DEF0D942072B76AB6DE366E36FF175BA4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213529.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_213529.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ magnet:?xt=urn:btih:90075E8F583591AD3498F35EBDB0AA9EF0A69296
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216892.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_216892.jpg" />
 </div>
 
 
@@ -599,54 +651,6 @@ magnet:?xt=urn:btih:90075E8F583591AD3498F35EBDB0AA9EF0A69296
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4EB2973D2545473A42C80088B33C9F93363FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652617   (216926) от 12.08.2023
-
-Эмиль Золя | Радость жизни (2021) [MP3, Татьяна Виноградова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня, встречающая в своей жизни лишь неблагодарность, ненависть, корыстолюбие и обман, отвечает окружающим любовью, самоотверженностью, милосердием. Она наделена уникальным качеством – радоваться жизни, такой, какова она есть.Жанр: зарубежная классика, литература 19 векаИздательство: ИДДКПродолжительность: 13:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6E627C6AF86BF2ED733BD0E954A5BF51914880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652613   (216943) от 12.08.2023
-
-Гюстав Флобер | Госпожа Бовари (2006) [MP3, Степан Старчиков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она мечтала быть любимой, жить в окружении красоты и блестящего общества. Но взамен судьба преподнесла ей брак с сельским врачом и прозябание в крошечном городишке среди обывателей. Однако находится человек, который кажется Эмме Бовари воплощением её былой мечты. Куда же приведёт её погоня за призраком любви: к счастью или к могиле?Жанр: зарубежная классика, классическая проза, литература 19 векаПродолжительность: 13:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15758FF2E4F79CA3F7F3FC216E773C85AD420635
 ```
 
 

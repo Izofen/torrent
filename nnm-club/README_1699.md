@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B4BDE3EFE12215B55B30D599DB6B50839EBD22DE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1C1C770B6E483E3994967BF4E4FE16369ADA329B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44531.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kazrog - True Dynamics 1.2.3 VST, VST3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44532.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:418F324291B55D6C33D622F8F6A2876305FDA0AE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44533.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44533.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C798AFDE9D16BF6B960B96845565AC5DB8AE8C44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44534.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44534.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C798AFDE9D16BF6B960B96845565AC5DB8AE8C44
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44535.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44535.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A3C66A61ECE6EC3BA2829A0235F3DA0A708B0C06
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44536.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44536.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:0C0E0CF585C6A5F608DFA40D65F6452CF02F7B0D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44537.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44537.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Internet Download Manager 6.42 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44538.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F1C835FD079903B3F9DEC0189536109383D5B2E9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44539.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CFB993AB52229AC27C0D52306BDFB6B9AE3C1041
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44540.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44540.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44541.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F3C1821E8EC558E3AAF2B595CADE170A073DEEAB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44542.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44543.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:0CC944BB3CC6AF06CEBB609D61E4F97098E8AA26
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44544.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Guitar Pro 8.1.3 Build 120 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44545.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7C827688D01496FD81509AA7103C8BE749F28E8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44546.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3C782DA029C3D87EF9ACA36B3DD6131214B50DD5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44547.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44547.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.1 Build 6 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44548.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:79B73403175C606B87DF3E3379789100772CBE0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44549.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44549.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Wondershare PDFelement 11.0.7.3119 x64 Portable by 7997 + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44550.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44550.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44551.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44551.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ DiskDigger 2.0.3.3989 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44552.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:B50B0FE5B65C1DCC33A1EC39FAB73D284EDBDAC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44553.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Opera One 113.0.5230.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44554.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_44554.jpg" />
 </div>
 
 

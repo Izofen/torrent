@@ -1,3 +1,77 @@
+###  Публикация: 1765754   (101346) от 14.12.2024
+
+Алексей Птица | Керенский (Книга 5). Конец партии (2024) [MP3, Александр Егоров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101346.jpg" />
+</div>
+
+
+###  Подробнее
+
+История России, которой никогда не будет...Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F075BB23E9231172A076A0477D6803A575962F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764190   (101347) от 14.12.2024
+
+Безмолвное братство / The Order (2024) TS [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент ФБР начинает расследование взрывов, ограблений и жестоких убийств. Вскоре ему становится очевидно, что за этой цепью преступлений стоит хорошо организованная группа, возглавляемая безжалостным лидером, который намерен объявить войну правительству США.Производство: США, Великобритания, Канада / AGC Studios, Chasing Epic Pictures, Riff Raff EntertainmentЖанр: триллер, драма, криминалРежиссер: Джастин КурзельАктеры: Джуд Лоу, Николас Холт, Тай Шеридан, Марк Мэрон, Джордж Чертов, Daniel Yip, Дэниэл Доэни, Себастьян Пижотт, Джон Варкентин, Филлип ЛевицкиПеревод: Дублированный (Мосфильм) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:27Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765809   (101348) от 14.12.2024
+
+Photo Mate R3 v3.8.1 Mod by Balatan [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организуйте свои изображения!
+Photo Mate предлагает библиотеку фотографий, в которой вы можете фильтровать и сортировать все ваши файлы на основе метаданных, таких как камера, диафрагма или ISO, а также настраиваемых рейтингов, меток и ключевых слов. Библиотека может обрабатывать jpg, а также практически любой формат Camera Raw.
+Вы можете оценивать, помечать и добавлять (   Читать дальше...   )Тип издания: Extra ModРелиз состоялся: 14.12.2024Разработчик: TS SystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1549FF258E53FBC17E144293B82E18A386E9978F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765749   (101349) от 14.12.2024
 
 Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 2CD [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +80,7 @@ Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101349.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101349.jpg" />
 </div>
 
 
@@ -33,7 +107,7 @@ magnet:?xt=urn:btih:0C293AFB147CC15129150F423146B377EF0F56C5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101350.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101350.jpg" />
 </div>
 
 
@@ -57,7 +131,7 @@ magnet:?xt=urn:btih:2DE5FBD13D7169F0537968B6701D734C6C28A9CD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101351.jpg" />
 </div>
 
 
@@ -83,7 +157,7 @@ Beer Bear - За Незримой Чертой (2012) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101352.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101352.jpg" />
 </div>
 
 
@@ -110,7 +184,7 @@ Electric Wizard - Black Magic Rituals & Perversions Vol. 1 (Live Walpurgisnacht 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101353.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101353.jpg" />
 </div>
 
 
@@ -137,7 +211,7 @@ Markus Schulz - Global DJ Broadcast Year in Review Part 1 (2024-12-12) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101354.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101354.jpg" />
 </div>
 
 
@@ -164,7 +238,7 @@ VA - Black Hole House Music 12-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101355.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101355.jpg" />
 </div>
 
 
@@ -191,7 +265,7 @@ Luther Vandross - Never Too Much: Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101356.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101356.jpg" />
 </div>
 
 
@@ -218,7 +292,7 @@ magnet:?xt=urn:btih:2D4918FF6F9B65214CCD10A03ECE705F6AC0EA52
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101357.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101357.jpg" />
 </div>
 
 
@@ -243,7 +317,7 @@ Tick Tock: A Tale for Two 1.1.9 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101358.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101358.jpg" />
 </div>
 
 
@@ -269,7 +343,7 @@ magnet:?xt=urn:btih:82C768682E92B1584ED2976CBBB8E6B0E6C952E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101359.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101359.jpg" />
 </div>
 
 
@@ -293,7 +367,7 @@ EF Commander 25.00 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101360.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101360.jpg" />
 </div>
 
 
@@ -317,7 +391,7 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101361.jpg" />
 </div>
 
 
@@ -341,7 +415,7 @@ magnet:?xt=urn:btih:7DC6299B3416E42A44F8136F4C87C256696719FA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101362.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101362.jpg" />
 </div>
 
 
@@ -365,7 +439,7 @@ Photo Editor v11.1 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101363.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101363.jpg" />
 </div>
 
 
@@ -389,7 +463,7 @@ magnet:?xt=urn:btih:98D74E8F8280C107D02BC8B5721465F69B29C55D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101364.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101364.jpg" />
 </div>
 
 
@@ -414,7 +488,7 @@ magnet:?xt=urn:btih:FF958CC0BA78ABAAB498B1ADFD6F1D9B92F59DED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101365.jpg" />
 </div>
 
 
@@ -438,7 +512,7 @@ magnet:?xt=urn:btih:FF958CC0BA78ABAAB498B1ADFD6F1D9B92F59DED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101366.jpg" />
 </div>
 
 
@@ -462,7 +536,7 @@ Nazareth - Loud'N'Proud (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101367.jpg" />
 </div>
 
 
@@ -489,7 +563,7 @@ The Case of the Golden Idol 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101368.jpg" />
 </div>
 
 
@@ -515,7 +589,7 @@ magnet:?xt=urn:btih:2BC6BDADAFB506C7EEC0B1AFB759B0F322A7CCDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101369.jpg" />
 </div>
 
 
@@ -539,7 +613,7 @@ magnet:?xt=urn:btih:2BC6BDADAFB506C7EEC0B1AFB759B0F322A7CCDB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101370.jpg" />
 </div>
 
 
@@ -563,7 +637,7 @@ Background Video Recorder Pro v11.1.39 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_101371.jpg" />
 </div>
 
 
@@ -574,83 +648,6 @@ Background Video Recorder Pro — это приложение, которое п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0E083C8C66108B19D7704F6638C1897D0E7AAF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765763   (101372) от 14.12.2024
-
-В поисках мистера Гудбара / Looking for Mr. Goodbar (1977) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённого романа Джудит Росснер, ставшего бестселлером в 1975 году и вдохновлённого убийством школьной учительницы Розанны Куинн в Нью-Йорке в 1973 году... Тереза, молодая учительница глухих детей, недовольна своей скучной обыденной жизнью и отправляется на поиски острых ощущений. В поисках идеального мужчины, которого она называет «мистером (   Читать дальше...   )Производство: США / Freddie Fields ProductionsЖанр: драмаРежиссер: Ричард БруксАктеры: Дайан Китон, Тьюзди Уэлд, Уильям Этертон, Ричард Кайли, Ричард Гир, Алан Файнстайн, Том Беренджер, Присцилла Пойнтер, Лори Прэндж, Джоэл ФабианиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DF25864A9FA760B23BFF55B348CF92CB62F411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765752   (101373) от 14.12.2024
-
-Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект стал возвращением к легендарному звуку Death Row Records и продолжением сотрудничества с продюсером, который дал старт его карьере, — Dr. Dre. Выпуск альбома приурочен к 30-летию дебютного альбома Snoop'а, "Doggystyle", и сочетает классическое звучание 90-х с новой энергетикой.
-На альбоме представлен внушительный список приглашенных артистов, (   Читать дальше...   )01. Fore Play (feat. BJ The Chicago Kid) (1:15)
-02. Shangri-La (1:37)
-03. Outta Da Blue (feat. Alus & Dr. Dre) (2:39)
-04. Hard Knocks (4:13)(   Читать дальше...   )Производство: Death Row/Aftermath/Interscope Records - 602475750024Жанр: Hip-HopПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925A6FBB85ED13186436974D3ACCD1243A8935C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765651   (101374) от 14.12.2024
-
-Duck Detective: Secret Salami v1.0.36 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101374.jpg" />
-</div>
-
-
-###  Подробнее
-
-РАСКРЫВАТЬ ПРЕСТУПЛЕНИЯ - НЕ ПРОГУЛКА В ПРУДЕ
-Добро пожаловать в Duck Detective, уютную сюжетную приключенческую игру! Погрузитесь в это забавное, наполненное комедией приключение-головоломку, где вы играете за Юджина МакКваклина, неудавшегося утиного детектива, которому предстоит раскрыть дело. Используйте свое острое мышление, чтобы найти скрытые подсказки, решить (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 13 дек. 2024 г.Разработчик: SnapbreakПоддерживаемая ОС: Android 5.1+Жанр: ПриключенияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127E1EA4F8D697EA2244BE5C73D17669662A5D81
 ```
 
 

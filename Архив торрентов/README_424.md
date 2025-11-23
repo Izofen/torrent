@@ -6,7 +6,7 @@ VA - XXXL Шоферской Весна (2012) [MP3|256 кб/с]<Шансон>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97529.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97529.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Luxurious Cold Lounge (2012) [MP3|320 kbps]<Lounge | Ambient | chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97530.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97530.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Bandizip 2.03 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97531.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97531.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Bandizip – это легковесный архиватор с симпати�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97532.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97532.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:48CC3EC35A000AF8F01A1E96AA932A723695194E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97539.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:C790B284E590678D95A0E301350A875E5B6CF489
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97541.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97541.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:BE6A688D3668EE4AB2DEFF58FF6EC7563E3DAAD8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97542.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:22E6B97D8B980E5ABBEE2D6084DAB4F306381783
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97543.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97543.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:CF2D41044D362C542F4A771EEC7C7EA8EA7C15CF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97545.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - XXXL Best Russian DJ (2012) [MP3|192 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97546.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97546.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C35DA812E9A30BEFFFA4296A0E0CC9DCA1DF1C8C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97547.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97547.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:C35DA812E9A30BEFFFA4296A0E0CC9DCA1DF1C8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97548.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:AA4D27972C02B5BE3153FB87D2C9C2AEDB247000
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97552.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:A566F46B376EFA0DDB4F550837F3901DE0C7DC8F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97553.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97553.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2763245A16FD395284255C155354BB82D9D132D4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97555.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2D63B84C8271D896EC9C8AB6B81E7FEEC87BB32D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97556.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97556.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F977AE8EED488A0F3F8C9EBB0214B7068725668D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97557.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97557.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A5111B8C985527751B59087A29C08158B2125873
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97559.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97559.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:0B54EDCDC24B32DB65039FEFEE0A19ECD7737728
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97560.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97560.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:EA628654FF4D25F717522F90B63E311A31B229BA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97562.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97562.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Mozilla Thunderbird 12.0 Beta 2 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97563.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_97563.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97564.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:ECC84658280EAC9C1C1A802BA620C0FA1F8EC0F5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97567.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97567.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:6486DDF572E5AD1E209991AF0187EC94ABFBD780
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97569.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97569.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Nikolay Kempinskiy - Terminal of Trance 047 (18.03.2012) [MP3|320 кб/с]<Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97571.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - HouseVip (15.03.2012) [MP3|320 кб/с]<Electro house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97573.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_97573.jpg" />
 </div>
 
 

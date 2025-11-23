@@ -1,3 +1,153 @@
+###  Публикация: 1252514   (141669) от 28.12.2018
+
+Бар «На грудь» (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вновь обремененные насущными проблемами, жители Петербурга приходят в уже родной им бар — «На грудь», утолить свою тоску и обсудить воображаемую безнадежность бытия. Ведь там их всегда выслушают и… нальют. Страдать становится куда приятней, а посетителей со своими душещипательными историями — все больше.Производство: Россия / Киностудия МИМ по заказу RutubeЖанр: комедия, короткометражныйРежиссер: Ирина ВилковаАктеры: Денис Пьянов, Вера Фомина, Антон Сухарев, Кирилл Полухин, Татьяна Малыщицкая, Александр Баширов, Анна Иванина, Дмитрий Аверин, Ирина Вилкова, Анна Жмаева и др.Продолжительность: ~00:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99889C5180DFBF0E86AE5B24B345EA1341B3D5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195551   (141670) от 29.12.2017
+
+Total Uninstall 6.21.1 Professional Edition  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Uninstall - утилита, предназначенная для корректного удаления установленных программ. Первым этапом в работе Total Uninstall является слежение за изменениями в системе во время установки нового софта. Делается снимок файловой системы и реестра до начала установки того или иного приложения и после. В дальнейшем, исходя из собранных в момент установки программ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513D8892BAE453DA45D8BECC8903E334F5319A11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348801   (141671) от 29.12.2019
+
+Николай Расторгуев - Четыре ночи в Москве (1996) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Won't Be Long
+02. Help!
+03. Please, Mr. Postman
+04. I'm Happy Just To Dance With You(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6361198C43A250B66091329BAA28B1750A841A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088165   (141672) от 29.12.2016
+
+Infix PDF Editor Pro 7.1.2 RePack by KpoJIuK [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141672.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью Infix PDF Editor вы можете открывать, изменять и сохранять файлы PDF. Это просто и не занимает много времени: можно изменить текст, шрифты, изображения и пр. И в отличие от других PDF-редакторов, Infix работает как обычный текстовый редактор, и действительно удобен в использовании. Избавление от опечаток: быстрое исправление ошибок в файлах PDF. Использование (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C570494B1DDB3A1F102F8B8CBE5DE1D17AC28814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348832   (141673) от 29.12.2019
+
+Monster Jam: South Africa, Cape Town (27.04.2019) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monster Jam - это серия автоспортивных соревнований, проводимых компанией Feld Entertainment. Первые соревнования в серии прошли в 1992 году и были авторизованы United States Hot Rod Association. В основном соревнования проводятся на территории США, но есть и выездная международная часть в Японии, Нидерландах и Мексике. Формат соревнований иногда отличается зависимо (   Читать дальше...   )Телекомпания: A21 NetworkЖанр: АвтоспортПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2D4A2AAC9BB1E5B2E5E3DAE75C188B6D7E45B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969230   (141674) от 30.12.2015
+
+Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandas In Tandem (5:46)
+02. You And Me Against The Sky (4:12)
+03. And Then She Stepped Aside (4:58)
+04. Around The Corner From Everywhere (4:51)(   Читать дальше...   )Жанр: Trip Hop, AmbientПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195627   (141675) от 29.12.2017
 
 Токарная обработка 3.1 [Ru]
@@ -6,7 +156,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141675.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141675.jpg" />
 </div>
 
 
@@ -30,7 +180,7 @@ magnet:?xt=urn:btih:4E5CE135DE419595BDBB937793BC61D9B7A8FECF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141676.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141676.jpg" />
 </div>
 
 
@@ -54,7 +204,7 @@ Google Earth Pro 7.0.2.8415 Final PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141678.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141678.jpg" />
 </div>
 
 
@@ -78,7 +228,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141679.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141679.jpg" />
 </div>
 
 
@@ -102,7 +252,7 @@ magnet:?xt=urn:btih:27E9B9C5E691D5B6DDC35F0DE0DFC2FE730F1C82
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141680.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141680.jpg" />
 </div>
 
 
@@ -128,7 +278,7 @@ magnet:?xt=urn:btih:D3290F8FF34DE630C8F9B5A9C805C38B80FDF4E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141681.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141681.jpg" />
 </div>
 
 
@@ -152,7 +302,7 @@ magnet:?xt=urn:btih:993BD6727976A3A2F1FD7020FE5F0CD2CCECAB8F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141682.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141682.jpg" />
 </div>
 
 
@@ -176,7 +326,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141683.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141683.jpg" />
 </div>
 
 
@@ -206,7 +356,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141684.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141684.jpg" />
 </div>
 
 
@@ -230,7 +380,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141685.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141685.jpg" />
 </div>
 
 
@@ -254,7 +404,7 @@ magnet:?xt=urn:btih:6C2043752B52FD1BDE9B8FE4BCEABCFB7D93587B
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141686.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141686.jpg" />
 </div>
 
 
@@ -281,7 +431,7 @@ Anders Wihk, Steve Gadd, Svante Henryson - Same Tree Different Fruit - ABBA (201
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141687.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141687.jpg" />
 </div>
 
 
@@ -308,7 +458,7 @@ magnet:?xt=urn:btih:EB05B9F319DA261217B0A38305B64771D8646861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141689.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141689.jpg" />
 </div>
 
 
@@ -332,7 +482,7 @@ magnet:?xt=urn:btih:EB05B9F319DA261217B0A38305B64771D8646861
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141690.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141690.jpg" />
 </div>
 
 
@@ -356,7 +506,7 @@ magnet:?xt=urn:btih:32CACB1E1954FF6B3289FC64FA1E38484A36BAAD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141691.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141691.jpg" />
 </div>
 
 
@@ -380,7 +530,7 @@ magnet:?xt=urn:btih:C376590EBF5A9C4D40A6306F36A8E339A20A85B1
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141692.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141692.jpg" />
 </div>
 
 
@@ -407,7 +557,7 @@ magnet:?xt=urn:btih:5DA8B1139E90FC9506E4552896B3202BBBBA4660
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141695.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141695.jpg" />
 </div>
 
 
@@ -431,7 +581,7 @@ SINEE - Chop Suey 1.1 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141696.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141696.jpg" />
 </div>
 
 
@@ -455,7 +605,7 @@ magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141698.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141698.jpg" />
 </div>
 
 
@@ -479,7 +629,7 @@ magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141699.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_141699.jpg" />
 </div>
 
 
@@ -490,156 +640,6 @@ magnet:?xt=urn:btih:D01F41A813C88533F6438FC5BB7FEBAF3B8A8C25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDF401AA8CD9EA5EED23D3F8DB7C57B0697DCE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678871   (141700) от 23.11.2023
-
-Malwarebytes Windows Firewall Control 6.9.9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD08FA8B29CD8A33E691A8EAF91F94C3B083EF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590650   (141701) от 17.12.2012
-
-Debian GNU/Linux 6.0.6 Live [amd64] (4xDVD + 2xCD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позавчера вышел очередной корректирующий релиз Live CD/DVD с операционной системой Debian - загружается со сменного носителя - CD, DVD, USB-накопитель и т. д. Это позволяет пользователям ознакомиться с операционной системой перед её установкой или использовать в качестве загрузочного диска. Созданы LiveCD для восстановления после сбоев и стандартные с графическими оболочками GNOME, KDE Plasma Workspaces, Xfce и LXDE для нескольких архитектур. Debian LiveCD также предоставляют возможность установки на жесткий диск.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348727   (141702) от 29.12.2019
-
-Уэнди Уокер | Эмма в ночи (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды ночью две сестры, 15-летняя Касс и 17-летняя Эмма, бесследно исчезли. Следствию удалось обнаружить только их пустую машину неподалеку на пляже…
-Три года никто не знал, что произошло. Но в одно прекрасное утро Касс вернулась домой… без сестры. При ней не было никаких вещей. Она рассказала, что той ночью их похитили и удерживали на таинственном острове. В ее (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8417658289BC8BA8AD565EC7C3535751FA48879D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970233   (141703) от 30.12.2015
-
-Анатолий Ромов | При невыясненных обстоятельствах (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективная повесть "При невыясненных обстоятельствах" рассказывает о борьбе сотрудников милиции с нарушителями социалистической законности.
-«20 августа. Начальнику ГУУР МВД СССР. О нападении группы налетчиков на инкассаторов, перевозивших 150 000 руб. из южинского Госбанка на завод «Знамя труда» для выдачи заработной платы.
-Сообщаем: 20 августа в 15 час. (   Читать дальше...   )Жанр: Детективная повестьПродолжительность: 04:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E067A7CA5238DBBC5FC889881CE0EB3038089EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678924   (141704) от 23.11.2023
-
-М. Кропивницкий, Николай Некрасов, Александр Писарев и др. | Старинные русские водевили (2012) [MP3, Михаил Яншин, Фаина Раневская и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Театр у микрофона. Гостелерадиофонд.
-Вашему вниманию предлагаются аудиопостановки известных водевилей XIX века, в которых участвуют знаменитые артисты Алексей Грибов, Николай Гриценко, Василий Меркурьев, Фаина Раневская, Рубен Симонов, Бруно Фрейндлих, Людмила Целиковская, Михаил Яншин и многие другие.
-
- Николай Некрасов на NoNaMe Club (   Читать дальше...   )Жанр: Русская литература, классика, водевильИздательство: Студия «АРДИС»Продолжительность: 05:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D11FD7C5671A50339C276BBDE6E1B8EB527ACE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520475   (141705) от 28.12.2021
-
-Счастливого Рождества / Joyeux Noel (2005) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам главы «Невероятное Рождество 1914 года» книги Ива Бюфето «Фландрийское сражение и битва при Артуа 1914-1919». Вечером в сочельник 1914 года на затерянном участке Западного фронта грустное празднование в окопах превращается в братание шотландских, французских и германских военных. В канун Рождества люди, воспитанные в разных культурах, объединились (   Читать дальше...   )Производство: Франция, Германия, Великобритания, Бельгия, Румыния, Artémis Productions, C.R.R.A.V, Canal+ (fr)...Жанр: драма, мелодрама, военный, история, музыкаРежиссер: Кристиан КарионАктеры: Дайан Крюгер, Бенно Фюрман, Гийом Кане, Гари Льюис, Даниэль Брюль, Дэни Бун, Алекс Фернс, Стивен Робертсон, Бернар Ле Кок, Томас ШмаузерПеревод: профессиональный многоголосый (CP Digital), профессиональный двухголосый (студия Инис)Субтитры: русские, английскиеПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FAE90F6839455E3EEE97B7E4746FBA48025B11
 ```
 
 

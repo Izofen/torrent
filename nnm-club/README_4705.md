@@ -1,3 +1,182 @@
+###  Публикация: 1519967   (145844) от 26.12.2021
+
+VA - Dream Into 2022 (2021) [AAC|~312 Kbps] <Deep House, Organic House, Progressive House, Indie Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiorella (fr) - Sanctuary (6:20)
+02. Blanka Barbara - Poem for Osiris (5:43)
+03. Kiantek - Kepler (Ben Eidani Remix) (6:16)
+04. Alnath - Expecto (5:25)(   Читать дальше...   )Жанр: House, Deep House, Organic House, Progressive House, Indie DanceПродолжительность: 04:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E284712C8A8C06D47DE9EAEA3AF6CABDDF3C9F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678364   (145845) от 21.11.2023
+
+Topaz Video AI for Mac 4.0.5 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2023Разработчик: © 2023 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B259CFCA98BE8A32D252280E2B0E9E387F69AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272224   (145846) от 26.12.2018
+
+VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Deepluxe
+02. Living Room - Lazy Days
+03. Thomas Siffling Trio - Die Leichtigkeit des Seins
+04. Francois Maugame - Vitra(   Читать дальше...   )Жанр: Chill House, Lounge, DowntempoПродолжительность: 01:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEDB75D3186DE0735B258E5FBEF5B44E2CDDFB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087240   (145847) от 27.12.2016
+
+Трансформеры. Трилогия. / Transformers. 3-Movie Set. (2007/2009/2011) HDRip [H.264] [MP4|1024x428]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмы, повествующие о войне между инопланетными разумными машинами, вошли в историю фантастического кинематографа и стали явлением масс-культуры XX века. Все начиналось 11 миллионов лет назад…Производство: США / Paramount Pictures, DreamWorks SKG, Hasbro Inc., Di Bonaventura PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Меган Фокс, Джош Дюамель, Тайриз Гибсон, Джон Туртурро, Рэйчел Тейлор, Энтони Андерсон, Джон Войт, Кевин Данн, Джули Уайт, Рамон Родригез, Изабель Лукас, Джон Бенжамин Хикки, Роузи Хантингтон-Уайтли, Патрик Демпси, Фрэнсис МакДорманд, Кен Жонг, Алан Тьюдик, Джон Малкович, Тайриз ГибсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 02:23:27 | 02:30:35 | 02:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA502F6467FEAD28323C43012F6D0A9CE953DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519766   (145849) от 26.12.2021
+
+VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiss-i Elektro - Soul of Istanbul (5:38)
+02. Alkiviades - Hermes (5:49)
+03. Akuba - Gaia (7:47)
+04. Kurup - Maré Alta (7:37)(   Читать дальше...   )Жанр: House, Organic House, Afro House, Deep House, Melodic House & TechnoПродолжительность: 02:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272074   (145850) от 26.12.2018
+
+Журнал | Моя прекрасная дача №25 (декабрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.
+
+Примечание: в скане отсутствует страница с содержанием номера.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348095   (145851) от 26.12.2019
+
+Эспен в поисках Золотого замка / Askeladden - I Soria Moria slott (2019) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король и королева отравлены. Единственный шанс на спасение — живая вода, спрятанная на краю света в стенах таинственного Золотого замка. Эспен с принцессой Кристин отправляются в путешествие, полное опасностей и приключений.Производство: Норвегия / Maipo Film, UmediaЖанр: Фэнтези, приключенияРежиссер: Миккель Бренне СандемусеАктеры: Вебьёрн Энгер, Элли Харбоа, Мадс Сьёгард Петтерсен, Элиас Хольмен Сёренсен, Гэбриел Эндрюс, Гискен Арманд, Петронелла Баркер, Фроде Биркеланд, Гард Б. Эйдсвольд, Александра ГйерпенПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9293C3CF2ED73A8BA96411C1B68281682B860C62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678329   (145852) от 21.11.2023
 
 Журнал | Юный эрудит №10 (254) (октябрь 2023) [PDF]
@@ -6,7 +185,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145852.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145852.jpg" />
 </div>
 
 
@@ -30,7 +209,7 @@ VA - Dreamful Moments Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145854.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145854.jpg" />
 </div>
 
 
@@ -57,7 +236,7 @@ magnet:?xt=urn:btih:CEE50A608D3770905329DF216A80BA684872586D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145855.jpg" />
 </div>
 
 
@@ -82,7 +261,7 @@ VA - The Best Of Suanda Music (Mixed By Roman Messer & Ruslan Radriges) (2018) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145856.jpg" />
 </div>
 
 
@@ -109,7 +288,7 @@ VA - Deep Reflections, Session 1 (Deep House Vibes) (2021) [AAC|~316 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145857.jpg" />
 </div>
 
 
@@ -136,7 +315,7 @@ magnet:?xt=urn:btih:099FE9865F64E5A7087C21E8A5CEBA166DEF9F6F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145858.jpg" />
 </div>
 
 
@@ -160,7 +339,7 @@ Thief (Dylan Neal) - 4 Albums (2016-2021) [MP3|320 Kbps] <Alternative, Dark Elec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145859.jpg" />
 </div>
 
 
@@ -187,7 +366,7 @@ Slechtvalk - A Forlorn Throne (2010) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145860.jpg" />
 </div>
 
 
@@ -214,7 +393,7 @@ magnet:?xt=urn:btih:0D3FE720FACF2E615E6DF90670570F955197AB2F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145862.jpg" />
 </div>
 
 
@@ -240,7 +419,7 @@ magnet:?xt=urn:btih:AAE24D29BE852E3E844C07DEFC5A58EBE98A4486
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145863.jpg" />
 </div>
 
 
@@ -264,7 +443,7 @@ VA - Sofa King Sick, Chapter 1 (2019) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145864.jpg" />
 </div>
 
 
@@ -291,7 +470,7 @@ magnet:?xt=urn:btih:C1A1BE4FB95731A1EF5E3DDF444EADB260F11357
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145865.jpg" />
 </div>
 
 
@@ -315,7 +494,7 @@ magnet:?xt=urn:btih:D263CFF582F2CF9513FAA3113B6BC8DECCB9FF05
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145866.jpg" />
 </div>
 
 
@@ -339,7 +518,7 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145868.jpg" />
 </div>
 
 
@@ -366,7 +545,7 @@ FabFilter Total Bundle 2019.03.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145869.jpg" />
 </div>
 
 
@@ -390,7 +569,7 @@ magnet:?xt=urn:btih:E3EA239738298572A8276E9138D3672E3442B76E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145870.jpg" />
 </div>
 
 
@@ -415,7 +594,7 @@ Stanley Turrentine - Don't Mess With Mister T. (1973) 1987, EPC [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145871.jpg" />
 </div>
 
 
@@ -442,7 +621,7 @@ magnet:?xt=urn:btih:3AC6727C3D5EB2F7527BA29FEB8DD217E8A52534
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145872.jpg" />
 </div>
 
 
@@ -466,7 +645,7 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_145873.jpg" />
 </div>
 
 
@@ -480,184 +659,6 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F802A718A392BE223ECAF6901839E715B634ACC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272113   (145875) от 26.12.2018
-
-Александр Рекемчук | Мальчики (1973) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя Прохоров обладал чудесным даром - голосом. Он рано потерял родителей и воспитывался в детском доме. Благодаря своему таланту, Женя был замечен и принят в московское хоровое училище, стал солистом хора мальчиков. В двенадцать лет у него были первый успех, запись на радио, первая любовь. Из тысячи мальчишек, обладающих голосом, примерно у одного он сохраняется (   Читать дальше...   )Жанр: Детская литература, радиоспектакльПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA7DB89C59F18F328B367CEDE1ACCCBDEE53562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348025   (145876) от 26.12.2019
-
-Asterix & Obelix XXL 3: The Crystal Menhir v1.56 (2019) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Quests, Adventure, Arcade для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asterix & Obelix XXL 3: The Crystal Menhir – это приключенческий экшен о легендарных галлах Астериксе и его друге Обеликсе, которым в очередной раз придется отправиться в опасное и очень интересное путешествие…
-
-События игры происходят во времена Римской Империи и ее захватнической деятельности. Одна небольшая галльская деревня до сих пор остается незахваченной (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: MicroïdsПоддерживаемая ОС: macOS 10.13 и вышеЖанр: Adventure, Arcade,Язык озвучки: Русский, английский, немецкий и другиеЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E7C7C7E292C8FDB77D7C70F1250A071005E03F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519773   (145877) от 26.12.2021
-
-VA - Glasgow Underground 2021 (2021) [AAC|~331 Kbps] <Deep House, Tech House, Funky House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin McKay, Wayne Hernandez - Hit The Road Jack (2:36)
-02. Westend - Get This Party Started (2:40)
-03. Roog - Move On Up (3:38)
-04. Dillon Nathaniel, Kevin McKay - Jump Around (2:29)(   Читать дальше...   )Жанр: House, Deep House, Tech House, Funky HouseПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AAD88BEAF434C5E9D515A6C534B2F77B04235A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969808   (145878) от 28.12.2015
-
-Людмила Синицына | Узор счастья (2007) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она молода, красива, талантлива и влюблена. Ее избранник — ей под стать. Эта пара просто обречена на долгую счастливую жизнь.
-Но почему же тогда после слова «любовь» звучит слово «смерть»? От кого должно защитить любящих шаманское копье? Кто желает счастливой паре зла?
-И все-таки что сильнее, любовь или смерть?Жанр: Современные любовные романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F30C7C4CEF7F67ACE6E7F4B560D1167B79B91BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087190   (145879) от 27.12.2016
-
-Проекты - VideoHive - Hands II - 1196453 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного слайд-шоу, интро, презентаций и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93D969A5639509408EBA45C0F916C210E15D18A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435162   (145880) от 27.12.2020
-
-Real Steel Boxing Champion v2.5.118 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Steel Boxing Champions – продолжение игры всеми известного файтинга Real Steel по мотивам фильмы "Реальная сталь". В этой части вам в самом начале предлагают так званый скелет робота, к которому вы уже сами сможете добавить любые детали на ваш вкус. Улучшайте и прокачивайте своё творение с помощью широких возможностей кастомизации. Начните свой путь (   Читать дальше...   )Тип издания: Пиратка (Бесконечные деньги и золото)Релиз состоялся: 23 декабря 2020 г.Разработчик: Reliance Big Entertainment (UK) Private LimitedПоддерживаемая ОС: Android 4.2 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68AA0975B797E0703386E94B5D7DB10ADBEF2C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519971   (145883) от 26.12.2021
-
-VA - Nye Recovery Session 2021 (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythmphoria - Under the Tree (5:41)
-02. Aquarius - Ease Your Mind (6:11)
-03. HIC ET NUNC - Light Wings (6:03)
-04. Muehlig - Perseverance (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62D5379FF1EC635CB84CC5F9AA478494D046528
 ```
 
 

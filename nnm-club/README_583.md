@@ -6,7 +6,7 @@ Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15467.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15468.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:14312383E05FED13774893C3B59E86CB7EA97147
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15469.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15469.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6A334F9B816F707A1695E20C6A77D0B0A28BD153
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15470.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15470.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15471.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15471.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15472.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15472.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15473.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15474.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C2C0E89C6A6BA05C076815B22F9D123B9AACA016
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15475.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15475.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:FD0C860A96A987A2E99B16610332487872F95E73
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15476.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15476.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:D27D114D29502512D19A701686BF16AE3F33DDDC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15477.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15477.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:D32D9C634244FB5645730DB1D97AACD53D76D25A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15478.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:698AAD3A0EE9139617C241C6C3092C035D5EBD79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15479.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15479.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:74D9E3918489433DC5BC4125EEE8B6EB98360EDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15480.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15480.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15481.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15481.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F11A77BC9CC428EE6E9228ED92FABEB761A595D1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15482.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15482.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:A42496CA4E85818B8E1B700B8EA12289A413411B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15483.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15483.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:5764EC6B59895F71AD7E420E59D01EA431F2C83C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15484.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15484.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ ANNA ASTI - Высшие силы (2025) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15485.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:FF39526C72150A449CD768E79C643B6A3F3ABC74
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15486.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15486.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15487.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15487.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ PictureThis - Plant Identification v5.5.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15488.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15488.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:9261BADA547098FF88551000DA7E58D91EC1157B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15489.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15489.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:78E4B74DF05AF01DB1704DBF6F3617FEC2E1F44A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15490.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15490.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:5F19223D7D388DB999E7DCC9CD39B8ECF68B372D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15491.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:581A34375569C221A2C1CE4FF0951599C1B0FD13
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15492.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_15492.jpg" />
 </div>
 
 

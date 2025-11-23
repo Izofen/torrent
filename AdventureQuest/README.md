@@ -6,7 +6,7 @@ Mirage Ignis Fatuus (2025) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_361.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_361.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_425.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_425.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_426.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_625.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_625.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_716.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1088.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1088.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1317.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1385.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1763.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1926.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1926.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_1928.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2262.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2280.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2419.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2419.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2539.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2539.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2552.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2552.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2578.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2579.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2579.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2585.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2714.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2714.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2817.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2817.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2840.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2840.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2849.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2887.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_2887.jpg" />
 </div>
 
 

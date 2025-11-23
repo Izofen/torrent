@@ -1,3 +1,51 @@
+###  Публикация: 1520432   (142136) от 28.12.2021
+
+WiFiSpoof 3.8.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142136.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678843   (142155) от 23.11.2023
+
+VivaVideo 9.12.6 Mod by maxi123444 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный видеоредактор с эффектами и бесплатное программа для монтажа видео. Монтаж, вырезать и объединить видео с помощью самого полноценного видеоредактор в телефоне.Тип издания: VIPРелиз состоялся: 22.11.23Разработчик: QuVideo inc.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E26FBCC9A096D8185098DB6D5E5216DA3AAE78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590684   (142163) от 17.12.2012
 
 Василий Сахаров | Ведун [2012] [FB2]
@@ -6,7 +54,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142163.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142163.jpg" />
 </div>
 
 
@@ -30,7 +78,7 @@ Wondershare Recoverit for Mac 12.0.19.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142165.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142165.jpg" />
 </div>
 
 
@@ -55,7 +103,7 @@ magnet:?xt=urn:btih:82DE92308372DFDC78B256ADA02E13D3BBB67BB9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142167.jpg" />
 </div>
 
 
@@ -80,7 +128,7 @@ MacCleaner 2 PRO 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142175.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142175.jpg" />
 </div>
 
 
@@ -104,7 +152,7 @@ JetBrains Rider 2017.3 Build #RD-173.3994.1125 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142188.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142188.jpg" />
 </div>
 
 
@@ -128,7 +176,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142191.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142191.jpg" />
 </div>
 
 
@@ -152,7 +200,7 @@ Wise Care 365 Pro 4.7.7.460 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142199.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142199.jpg" />
 </div>
 
 
@@ -176,7 +224,7 @@ magnet:?xt=urn:btih:9C96500ED41EDBD2071A4113D67A4159293DD4CB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142203.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142203.jpg" />
 </div>
 
 
@@ -200,7 +248,7 @@ Duplicate File Finder Pro 6.12.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142210.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142210.jpg" />
 </div>
 
 
@@ -225,7 +273,7 @@ Anvir Task Manager 9.1.6 Final + Portable  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142213.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142213.jpg" />
 </div>
 
 
@@ -249,7 +297,7 @@ magnet:?xt=urn:btih:7563962F04BE6812041702B35D2E508BD012F11C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142214.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142214.jpg" />
 </div>
 
 
@@ -273,7 +321,7 @@ Mirillis Splash 2.2.0.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142215.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142215.jpg" />
 </div>
 
 
@@ -297,7 +345,7 @@ magnet:?xt=urn:btih:2B272F1DA452A84C133827EAEFC472F49190F2F2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142221.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142221.jpg" />
 </div>
 
 
@@ -321,7 +369,7 @@ Tower Pro 10 v.10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142231.jpg" />
 </div>
 
 
@@ -346,7 +394,7 @@ Mozilla Firefox Quantum 57.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142234.jpg" />
 </div>
 
 
@@ -370,7 +418,7 @@ Cookie 6.6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142239.jpg" />
 </div>
 
 
@@ -395,7 +443,7 @@ Privatus 6 v6.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142248.jpg" />
 </div>
 
 
@@ -419,7 +467,7 @@ Soulver 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142257.jpg" />
 </div>
 
 
@@ -444,7 +492,7 @@ magnet:?xt=urn:btih:F36AA96B24687CAE3EC79C3AF0EB52A20C82A31E
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142262.jpg" />
 </div>
 
 
@@ -468,7 +516,7 @@ TaskPaper 3.8.16 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142270.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142270.jpg" />
 </div>
 
 
@@ -493,7 +541,7 @@ magnet:?xt=urn:btih:9720FBE40829AB1B361EAD6298A3DDAB5A9150BE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142281.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142281.jpg" />
 </div>
 
 
@@ -517,7 +565,7 @@ VA - Goa Psy Trance - 2018 Top 40 Hits Psychedelic Fullon Trance Progressive Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142282.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142282.jpg" />
 </div>
 
 
@@ -544,7 +592,7 @@ magnet:?xt=urn:btih:8556AAD8938579FF0AB9EBB51FD75A8C516F6746
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142288.jpg" />
 </div>
 
 
@@ -568,7 +616,7 @@ WonderPen 2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142292.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_142292.jpg" />
 </div>
 
 
@@ -579,55 +627,6 @@ WonderPen - приложение для как для профессиональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ACC1C9851C2994E22D0C6BA5FDDFA7E832DAA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435910   (142300) от 29.12.2020
-
-Irvue 2.7.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 03.10.2020Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E1EA7D7394A6DCF7829DBBB83604792548E1D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195501   (142310) от 29.12.2017
-
-Ummy Video Downloader 1.8.3.0 portable by DRON [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ummy Video Downloader - это полезная программа, которая поможет вам загружать видео HD с YouTube или mp3 Ummy-это самый быстрый и самый простой способ загрузить YouTube видео на ваш компьютер и смотреть их всегда, даже если нет подключения к Интернету. Создайте свой собственный супер сборник музыки и наслаждаться ею в любое время, где вы находитесь.
-Ummy Video Downloader (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7C098392448472E1CCB73AE33731AECB9C3ED1
 ```
 
 

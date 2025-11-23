@@ -1,3 +1,154 @@
+###  Публикация: 1518959   (143036) от 27.12.2021
+
+Синий залив / Blue Bayou (2021) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец корейского происхождения, который вырос в Луизиане и упорно трудится, чтобы обеспечить свою семью, однажды узнаёт, что его могут депортировать за старые грешки из единственной страны, которую он считает своим домом...Производство: США, Канада, Entertainment One, MACROЖанр: драмаРежиссер: Джастин ЧонАктеры: Джастин Чон, Алисия Викандер, Марк О`Брайэн, Лин Дэн Пэм, Sydney Kowalske, Вонди Куртис-Холл, Эмори Коэн, Джеральдин Сингер, Toby Vitrano, Альтонио ДжексонПеревод: любительский двухголосый (Pazl Voice)Субтитры: русские (Pazl Voice, с ненормативной лекской), английские (полные SDH), английские хардсабы на неанглийскую речьПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878316B5E4A8C5736AF5FA77DE2902A52088A537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272528   (143037) от 28.12.2018
+
+Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune Project & Terence Mckenna – From The Past Into The Present Future
+02. Neptune Project – Bioluminessence
+03. Neptune Project & Polly Strange – Pulse
+04. Neptune Project – Proteus(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964CD61E5C070948DCA3DE9CF2F94FFC47118D5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348594   (143038) от 28.12.2019
+
+Эндрю Ливербарроу | Чернобыль 01:23:40 (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эндрю Ливербарроу по кусочкам восстанавливает печально известные события 26 апреля 1986 года, прославившие Чернобыль на весь мир. Автор делится своими впечатлениями о Припяти и выводами, к которым он пришел в ходе собственного расследования. Материалы, собранные автором, использовались создателями культового сериала «Чернобыль», что позволило им добиться особой достоверности.Жанр: Документальная литература, Зарубежная публицистика, Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DE338FEBCF7E445F1D7185158CC60FB61717DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965237   (143039) от 29.12.2015
+
+36 часов / 36 Hours (1965) DVDRemux [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1944 год. Немцы похищают в Лиссабоне американского майора Джефферсона Пайка. Им известно, что у него есть информация о предстоящей высадке американских войск. Чтобы разговорить его, они прибегают к необычной методике: накачивают его наркотикаи и вывозят в Баварию в бутафорский американский госпиталь, где немецкий майор Гербер в американской форме пытается убедить (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Cherokee ProductionsЖанр: Военный, ТриллерРежиссер: Джордж СитонАктеры: Джеймс Гарнер, Ева Мари Сэйнт, Род Тейлор, Вернер Петерс, Джон Баннер, Расселл Торсон, Алан Напье, Оскар Береги мл., Эд Гилберт, Зиг РуманПеревод: Одноголосый АвторскийПродолжительность: 01:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92DC32236C379001BDF98FEC2A6A62389FCAFD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272544   (143040) от 28.12.2018
+
+VA - Intense Radio: We Love Dance (2018) [MP3|320 Kbps] <Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143040.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blackbonez - Freaky (Radio Edit)
+002. Zeljko Mance - Crazy Fun
+003. The Chainsmokers - Side Effects
+004. Alan Walker feat. Gavin James - Tired(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 09 :11 :09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9920DF4341828A895CC1C40084BB8B0262485D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520188   (143041) от 27.12.2021
+
+SuperHi, Lawrence Gosset, Rik Lomas | WordPress (2021) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкий 8-недельный онлайн-курс в удобном для вас темпе, который научит вас использовать WordPress для создания собственных веб-сайтов с CMS, обзорами и функциями оплаты. Он разработан для того, чтобы вы могли создавать полностью настраиваемые сайты на основе CMS в течение первых нескольких недель.
+WordPress отлично подходит для блогов и электронной коммерции. Узнайте, (   Читать дальше...   )Производство: SuperHiЖанр: Программирование, вёрсткаЯзык озвучки: АнглийскийПродолжительность: 28:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF54A68CB61BD3FFC14BBF98846F652C3E899FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195214   (143042) от 28.12.2017
 
 Отступник / Romans (2017) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +157,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143042.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143042.jpg" />
 </div>
 
 
@@ -30,7 +181,7 @@ magnet:?xt=urn:btih:8C0E9D8DBF3D1D3776CE3A3DEB6FA3F34596EB9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143043.jpg" />
 </div>
 
 
@@ -54,7 +205,7 @@ magnet:?xt=urn:btih:659E754508E181735DEAB9A57838B9DC2EDA8F3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143044.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143044.jpg" />
 </div>
 
 
@@ -78,7 +229,7 @@ magnet:?xt=urn:btih:FB0DE86974284BBD054DF2995877F6DA8A36CB4B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143045.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143045.jpg" />
 </div>
 
 
@@ -103,7 +254,7 @@ magnet:?xt=urn:btih:B808CFBC017F9F8855473636810AE5016091D49F
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143046.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143046.jpg" />
 </div>
 
 
@@ -127,7 +278,7 @@ MediaHuman Youtube Downloader 3.9.9.10 (2712) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143047.jpg" />
 </div>
 
 
@@ -154,7 +305,7 @@ magnet:?xt=urn:btih:8C2BEDBF9E8B539864B2F61886601E0621F10514
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143049.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143049.jpg" />
 </div>
 
 
@@ -178,7 +329,7 @@ magnet:?xt=urn:btih:8FB3C3725E2C5A7B1E391ED75F0F7800F6FDC528
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143050.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143050.jpg" />
 </div>
 
 
@@ -202,7 +353,7 @@ magnet:?xt=urn:btih:B695FB43FB7979CEBD10AAD4A66F4EEB45C8E290
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143051.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143051.jpg" />
 </div>
 
 
@@ -228,7 +379,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143054.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143054.jpg" />
 </div>
 
 
@@ -252,7 +403,7 @@ magnet:?xt=urn:btih:4CFBE133ED70B29560DF5F2F5EA1D1CBF5D41C35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143055.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143055.jpg" />
 </div>
 
 
@@ -276,7 +427,7 @@ magnet:?xt=urn:btih:0B67FB1F49F3EE08D9055EAF42404C7F8230E5C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143056.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143056.jpg" />
 </div>
 
 
@@ -300,7 +451,7 @@ magnet:?xt=urn:btih:659833AE35BCDCEA6624ECF718DDDEA8EC96FC18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143058.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143058.jpg" />
 </div>
 
 
@@ -324,7 +475,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143059.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143059.jpg" />
 </div>
 
 
@@ -348,7 +499,7 @@ Luca D'Alberto - Exile (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143060.jpg" />
 </div>
 
 
@@ -375,7 +526,7 @@ magnet:?xt=urn:btih:4A3B7B6EE68E7D7358329E01FD0E04963A4A2BD8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143061.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143061.jpg" />
 </div>
 
 
@@ -402,7 +553,7 @@ magnet:?xt=urn:btih:A1EFF6BE87EDC515F79EC99F99FB20BC0224B71C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143062.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143062.jpg" />
 </div>
 
 
@@ -426,7 +577,7 @@ magnet:?xt=urn:btih:A1EFF6BE87EDC515F79EC99F99FB20BC0224B71C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143063.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143063.jpg" />
 </div>
 
 
@@ -451,7 +602,7 @@ SoftMaker Office Professional 2024 rev. S1206.1118 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143065.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143065.jpg" />
 </div>
 
 
@@ -475,7 +626,7 @@ magnet:?xt=urn:btih:DF10D0EF211E5E3B72DDB8F4F21553347243160A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143067.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_143067.jpg" />
 </div>
 
 
@@ -486,159 +637,6 @@ magnet:?xt=urn:btih:DF10D0EF211E5E3B72DDB8F4F21553347243160A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179F3C8C245C39AD958A9049B929DB198CD1EF46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087868   (143068) от 29.12.2016
-
-InstaBro | Browser for Instagram 4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете просмотреть, оставить комментарий и легко скачать Instagram фотографии
-InstaBro это простой инструмент для Mac, который позволяет загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
-
-За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Boris KarulinПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3A4628D672D9DD69A5B2B7B76AD25CAA496386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194817   (143069) от 28.12.2017
-
-Иностранец / The Foreigner (2017) WEB-DLRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завёл мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на всё, чтобы совершить праведное возмездие…Производство: Великобритания, Китай, СШАЖанр: боевик, триллер, драма, криминалРежиссер: Мартин КэмпбеллАктеры: Кэти Льюнг, Джеки Чан, Пирс Броснан, Руфус Джонс, Марк Тэнди, Джон Кронин, Каолан Бирн, Донна Бернард, Аарон МонахэнПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD7271C4FCFC0282CF5C98DE7683B73B02856CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272430   (143070) от 28.12.2018
-
-Speak The Truth...Even If Your Voice Shakes - Everyone You Love Will Slip Away From You (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Upside Down (3:38)
- 02. Mornings Mournings (3:26)
- 03. Crash My Car (3:09)
- 04. Carpenter In Prison (4:18)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Post-HardcoreПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB52FA387949D57D1C0327E7675B7E57F3235088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520104   (143071) от 27.12.2021
-
-Лучший релизер года в разделе "КПК и Мобильные устройства".
-
->>След.
->>Обсуждение КПК и Мобильные устройства
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые пользователи NNM-Club. Вот и подходит к концу непростой и мрачный 2021-год, и на горизонте виднеется светлое начало 2022-го. Несомненно, уважаемые релизеры и модераторы нашего форума, много трудились чтобы сохранить форум в целости, и сделать вам приятно. Мы предлагаем провести голосование и выбрать лучшего релизера в каждом разделе, а также поблагодарить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348620   (143074) от 28.12.2019
-
-Brigador: Up-Armored Edition v.1.5v2 (2016) [Multi/Ru] [macOS Native game]
-
->>Игры для macOS
->>Action, FPS для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бригадор – это игра с стиле Рогаликов с интенсивными тактическими сражениями. Вы играете наёмными пилотами, предавшими свою планету за большие деньги и билет на свободу. Разрушая, вы зарабатываете и можете разблокировать все более разрушительные машины, оружие и задания. Выбирайте снаряжение по вкусу и разносите город Соло Нобре!Тип издания: macOS Native gameРелиз состоялся: 02.06.2016Разработчик: Stellar Jockeys, GausswerksПоддерживаемая ОС: macOS 10.7 и вышеЖанр: Action, IndyЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D2AFBE3A5160223034253AA161D48EA6F0D384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272503   (143075) от 28.12.2018
-
-VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DCP - For U (Original Mix ) 05:07
-02. Antoine Clamaran - Good for Me (Original Mix ) 05:48
-03. House of Prayers - Stomp ( New York, Detroit ) (Original Mix ) 06:06
-04. Mazai - Disco Babe (Original Mix ) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8610DEC3516499E454AF6094153FEBD288FBCB06
 ```
 
 

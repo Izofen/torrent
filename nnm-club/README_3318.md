@@ -1,3 +1,78 @@
+###  Публикация: 1739399   (105950) от 31.07.2024
+
+Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Stage>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Супер мега шашлыки
+ 02. Мы пели караоке
+ 03. Зачем ты мне влезла в душу
+ 04. Женись(   Читать дальше...   )Жанр: Pop, Folk, StageПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740019   (105951) от 31.07.2024
+
+Монстры вселенной. Черные дыры (2012) WEBRip [XviD/1080p] [PR, AD]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доказательства процессов внутри центра галактик. Происхождение чёрных дыр. Сверхмассивные чёрные дыры.Жанр: телепередача, документальный, наукаЯзык озвучки: РусскийПродолжительность: 00:39:08Реклама: Присутствует реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFCB138A9BDAA25E5DFEC8B379EB881CE3A419B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739961   (105952) от 31.07.2024
+
+Фентази / Fentasy (2024) WEB-DLRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечты влюблённой пары молодых словаков о безбедной жизни в уютном доме приводят к сомнительному решению — необходимые средства заработать наркоторговлей. Благо, у Уилла есть навыки химика и рецепт изготовления фентанила, а у Софии – связи и бойкие друзья, готовые заняться распространением готовой продукции. Вот только «коричневый яд» фентанил способен погубить не (   Читать дальше...   )Производство: Словакия / BeOnMindЖанр: триллерРежиссер: Anastasia Hoppan, Samuel VicanАктеры: Kristína Kanátová, Ноэль Чучор, Дэвид Швеглик, Анна Раковска, Владимир Едловски, Bronislava Kovacikova, Tomás Magát, Peter Ondrejicka, Viktoria SuplatovaПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:32Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C072391177AE86B94760F8A357105D5453DF47EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740184   (105953) от 31.07.2024
 
 Aiseesoft Blu-ray Player 6.7.66 Portable by 7997 [Multi/Ru]
@@ -6,7 +81,7 @@ Aiseesoft Blu-ray Player 6.7.66 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105953.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105953.jpg" />
 </div>
 
 
@@ -30,7 +105,7 @@ magnet:?xt=urn:btih:9DEF578134697F599CA4666C03C11EC213ADE1EC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105954.jpg" />
 </div>
 
 
@@ -54,7 +129,7 @@ Joplin 3.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105955.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105955.jpg" />
 </div>
 
 
@@ -79,7 +154,7 @@ VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105956.jpg" />
 </div>
 
 
@@ -106,7 +181,7 @@ Vivaldi 6.8.3381.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105957.jpg" />
 </div>
 
 
@@ -130,7 +205,7 @@ VA - Live @ Ultra Europe, Croatia (2024) [MP3|320 Kbps] <Progressive House, Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105958.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105958.jpg" />
 </div>
 
 
@@ -154,7 +229,7 @@ magnet:?xt=urn:btih:EC0B26278E30C58F13D1B7708159D2C3BEC86315
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105959.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105959.jpg" />
 </div>
 
 
@@ -178,7 +253,7 @@ VA - Гуляй, душа! (Душевные песни) (2024) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105960.jpg" />
 </div>
 
 
@@ -205,7 +280,7 @@ Hans Peter Neuber - Licht-Meditation (2007) [WavPack|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105961.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105961.jpg" />
 </div>
 
 
@@ -232,7 +307,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105962.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105962.jpg" />
 </div>
 
 
@@ -259,7 +334,7 @@ magnet:?xt=urn:btih:080B261677B6430A3AE0E5DD67053684DA9EA9DE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105963.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105963.jpg" />
 </div>
 
 
@@ -286,7 +361,7 @@ Sandboxie plus 1.14.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105964.jpg" />
 </div>
 
 
@@ -310,7 +385,7 @@ magnet:?xt=urn:btih:8BD7CD3D2C14267A61310DCC363F6EE515985BB5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105965.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105965.jpg" />
 </div>
 
 
@@ -335,7 +410,7 @@ Eden Architect - Form And Function (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105966.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105966.jpg" />
 </div>
 
 
@@ -362,7 +437,7 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105967.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105967.jpg" />
 </div>
 
 
@@ -389,7 +464,7 @@ ColdCell - Age of Unreason (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105968.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105968.jpg" />
 </div>
 
 
@@ -416,7 +491,7 @@ Concerto Moon - Back Beyond Time (2024) 2 x CD [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105969.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105969.jpg" />
 </div>
 
 
@@ -443,7 +518,7 @@ magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105970.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105970.jpg" />
 </div>
 
 
@@ -469,7 +544,7 @@ magnet:?xt=urn:btih:A8BC13E83BF5FE4736E849E08F50F1321960712F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105971.jpg" />
 </div>
 
 
@@ -493,7 +568,7 @@ magnet:?xt=urn:btih:DA9023B53EB9D170278742DC3BBDAD0E6BD8E7DF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105972.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105972.jpg" />
 </div>
 
 
@@ -517,7 +592,7 @@ magnet:?xt=urn:btih:DE37C8161BEEF64421B4CC006A95F995DD66A32A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105973.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105973.jpg" />
 </div>
 
 
@@ -541,7 +616,7 @@ magnet:?xt=urn:btih:AA257B344D5FD208B87FBA1F3D6385CB4C0DC449
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105974.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105974.jpg" />
 </div>
 
 
@@ -565,7 +640,7 @@ magnet:?xt=urn:btih:D347E0B591CA1C9AB15748C9F64C9B9551685712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_105975.jpg" />
 </div>
 
 
@@ -576,82 +651,6 @@ magnet:?xt=urn:btih:D347E0B591CA1C9AB15748C9F64C9B9551685712
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA58E19E6C0FB69F9AC1B83262635711001D337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739925   (105976) от 30.07.2024
-
-Молчание моря / Le silence de la mer (1949) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа «Молчание моря» Жана Марселя Брюллера под псевдонимом «Веркор» (1942)... Вторая мировая война.Тихий провинциальный французский городок. В дом, где живёт молодая учительница музыки Жанна с дедушкой Андре, вселяется молодой немецкий офицер Вернер фон Эбреннак. Андре и Жанна не могут повлиять на присутствие «гостя», который, вдобавок, занял комнату (   Читать дальше...   )Производство: Франция, Бельгия / Antenne-2 (A2), Expand Drama, Radio Télévision Belge Francofone (RTBF)...Жанр: драма, военный, экранизацияРежиссер: Жан-Пьер МельвильАктеры: Говард Вернон, Николь Стефани, Жан-Мари Робен, Ами Аарэ, Жорж Патрикс, Дени Садье, Рюдель, Макс Фромм, Клод Вернье, Макс Хэрман, Фриц ШмидельПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Nosoglotka), английскиеПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268568EAE238AEAE246166FCA66A1B5E0745AF93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739812   (105977) от 30.07.2024
-
-Другая жизнь / Zeytin Agaci / Another Self (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги приезжают в морской городок на сеанс групповой терапии и неожиданно для себя узнают о непроработанных травмах своих семей.
-"Другая Жизнь" - это не просто сериал о любви и интригах, это история о поиске своего истинного "Я" в мире, полном лжи и предательства. Этот сериал заставит вас задуматься о жизненных ценностях, о том, что по-настоящему (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу АлптекинАктеры: Туба Бюйюкюстюн, Седа Бакан, Бонджук Йылмаз, Мурат Боз, Фырат Таныш, Серкан Алтунорак, Рыза Коджаолу, Фюсун Дэмирэль, Умут Курт, Mehmet Aybars Kaya и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284746BAC5A33E3C994927D19CEA480B5570103D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739861   (105978) от 30.07.2024
-
-The Soul of John Black - Sweet Summer Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Summer Love (4:05)
-02. They Don't Know (4:15)
-03. Dance Your Troubles Away (4:03)
-04. Anywhere in the World (4:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46A9FDB670C324FEEAC3CC5F1DA527D99800492
 ```
 
 

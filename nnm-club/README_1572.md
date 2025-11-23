@@ -6,7 +6,7 @@ Windows 11 4in1 Version 24H2 (x64) Elgujakviso Edition (v.05.10.24) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41227.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41227.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:17FE4EE524FE64B5E9A1ECB8A2AE2746D5279599
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41228.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41228.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8827EDD491FF17F501786A8057A64A107DF0B0DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41229.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41229.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:76AA36E5CC6A4EE4956383E41B85E2D29EE33F3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41230.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41230.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0A9D42A3288F4A122BFC1103AB140D4D1209591A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41231.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Wondershare Filmora 14.0.7.9572 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41232.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41232.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BioShock Remastered Dilogy (2016) [Ru/Multi] (1.0/1.0.122864) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41233.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41233.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41234.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Judas Priest - Дискография (26 releases) (1974-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41235.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41235.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7F55956A2292477FEDF48CE1C6B37BF4ACB58AF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41236.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41236.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7E48ADB6C913EB5721A3065603380F966063A4F0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41237.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Telegram приглашает к разработке аналога YouTube
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41238.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41239.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6FBBBE8D4F8A23393BB94A8D0E16457F4BA7B66F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41240.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41241.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:BC5955F3B88D38A19E97F726405BEA5D09BA8F62
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41242.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Sting - Radio 2 in the Park (2024) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41243.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41244.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:63391119D19DEEB131F16CE57661A169B51251B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41245.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:AE5A9CF9BFAB697D980E880DDAE1F62F0CAB878E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41246.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:CC5DDFD18906A2187E9A5F80E73038F7B32CA494
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41247.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:DE2AFB144945C24DF7DC8F58BC4EF13B233F5D3F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41248.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) RePack (& 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41249.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Суперхиты Дискотеки 90-х Vol.4 (2012) [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41250.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ TapScanner v3.0.38 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41251.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:4FA8D05209156B63A0A73DE1483441074FFBF8EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_41252.jpg" />
 </div>
 
 

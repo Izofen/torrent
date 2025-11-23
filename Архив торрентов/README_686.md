@@ -1,3 +1,53 @@
+###  Публикация: 969976   (144519) от 28.12.2015
+
+Марсианин / The Martian (2015) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, Украинские, Английские (полные, отключаемые)Продолжительность: 2:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8639FC690DBFD03EA9C7D951325FA7688DE0370E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087551   (144520) от 28.12.2016
+
+Универ. Новая общага. Новогодняя серия (2016.12.27) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера! Специальная новогодняя серия. Любимые герои перевоплотятся в легендарных персонажей советского кино. Сможешь ли ты узнать актеров в новых неожиданных образах и костюмах из прошлого века? Смотри, ностальгируй, заряжайся нашим новым годом!
+Новый год уже на пороге, и традиционная серия к празднику уже вышла! Пародии на Иронию судьбы, Ивана Васильевича и даже (   Читать дальше...   )Производство: Россия / ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим ЗыковАктеры: Арарат Кещян, Станислав Ярушин, Анна Кузина, Настасья Самбурская, Анна Хилькевич, Ашот Кещян, Сергей Пиоро и др.Продолжительность: 00:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAF7EC0568DAB40C75F7732B7B09A1A7F635D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272366   (144524) от 27.12.2018
 
 Qbserve 1.81 [En]
@@ -6,7 +56,7 @@ Qbserve 1.81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144524.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144524.jpg" />
 </div>
 
 
@@ -33,7 +83,7 @@ DP Animation Maker 3.4.22 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144526.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144526.jpg" />
 </div>
 
 
@@ -57,7 +107,7 @@ ToothFairy 2.4.8 (36)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144531.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144531.jpg" />
 </div>
 
 
@@ -82,7 +132,7 @@ magnet:?xt=urn:btih:EE599745FAB39D770136FCBF0CFDBA224E2B08EB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144542.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144542.jpg" />
 </div>
 
 
@@ -106,7 +156,7 @@ Download Master 6.19.4.1649 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144544.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144544.jpg" />
 </div>
 
 
@@ -130,7 +180,7 @@ Mozilla Thunderbird 60.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144555.jpg" />
 </div>
 
 
@@ -154,7 +204,7 @@ magnet:?xt=urn:btih:26BEE27574C0B5FE11F88B0F8C21803397573BCE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144571.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144571.jpg" />
 </div>
 
 
@@ -178,7 +228,7 @@ Calibre 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144580.jpg" />
 </div>
 
 
@@ -202,7 +252,7 @@ PhoneRescue 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144586.jpg" />
 </div>
 
 
@@ -226,7 +276,7 @@ magnet:?xt=urn:btih:E03967CFF1136458A8A087D9D4821F765FFFC835
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144589.jpg" />
 </div>
 
 
@@ -250,7 +300,7 @@ Adobe Acrobat Professional DC 15.009.20077 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144593.jpg" />
 </div>
 
 
@@ -274,7 +324,7 @@ PCalc 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144609.jpg" />
 </div>
 
 
@@ -299,7 +349,7 @@ magnet:?xt=urn:btih:89CA4030B4E9EB1B19C8BC41DB9A541A85986BB6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144614.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144614.jpg" />
 </div>
 
 
@@ -326,7 +376,7 @@ magnet:?xt=urn:btih:BA07FF7BE497AA07811588317DB4DB3E6FCD6958
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144617.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144617.jpg" />
 </div>
 
 
@@ -350,7 +400,7 @@ magnet:?xt=urn:btih:7BA76C32F6B3CE35A2B497F5A8CE8D0BF59D4A12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144621.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144621.jpg" />
 </div>
 
 
@@ -374,7 +424,7 @@ magnet:?xt=urn:btih:7BA76C32F6B3CE35A2B497F5A8CE8D0BF59D4A12
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144637.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144637.jpg" />
 </div>
 
 
@@ -401,7 +451,7 @@ The Fade Beta - Yesterday's Eden (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Down
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144644.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144644.jpg" />
 </div>
 
 
@@ -428,7 +478,7 @@ PullTube 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144646.jpg" />
 </div>
 
 
@@ -452,7 +502,7 @@ Adobe Flash Player 20.0.0.267 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144649.jpg" />
 </div>
 
 
@@ -476,7 +526,7 @@ magnet:?xt=urn:btih:C839CFD266592E6B2842F69A0830976F7D676EBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144650.jpg" />
 </div>
 
 
@@ -501,7 +551,7 @@ magnet:?xt=urn:btih:3A341A886A92F22C35574106E66826F3BDE24E32
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144654.jpg" />
 </div>
 
 
@@ -525,7 +575,7 @@ How to Dress Well - The Anteroom (2018) [FLAC|Lossless|tracks + .cue] <Experimen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144657.jpg" />
 </div>
 
 
@@ -552,7 +602,7 @@ Any Video Converter Ultimate 4.5.8 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144665.jpg" />
 </div>
 
 
@@ -580,7 +630,7 @@ Any Video Converter Ultimate предоставляет пользователя
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_144671.jpg" />
 </div>
 
 
@@ -594,58 +644,6 @@ Any Video Converter Ultimate предоставляет пользователя
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272388   (144679) от 27.12.2018
-
-The Alchemist - Lunch Meat (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin Steaks feat. Roc Marciano (1:40)
-02. Judas feat. Westside Gunn & Conway (4:47)
-03. The Hopeless Romantic feat. Action Bronson (2:48)
-04. Massacre feat. Styles P & Benny The Butcher (2:45)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEC118DC11AAED6AB19AFE03969C3F0E2B01D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969776   (144692) от 28.12.2015
-
-Проекты - Pond5 - Lovely Moments - 56638101 / VideoHive - Lovely Moments - 13536406 [AEP]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF7C0CED718110D3270A4FDAA5E7BEC78CADB21
 ```
 
 

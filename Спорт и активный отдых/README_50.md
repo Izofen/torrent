@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167715.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2F88ACA31207CE287AFA2DFB4E3A5E46134ABFC2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167716.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167716.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2B094E4E3A9383F1411F7786F08C063F8B60E2CB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167730.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167730.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C3A5DF6574DF382AFA37326789D9A7E6A9E5C963
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167733.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167733.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FB0CDA2B201892A280D86B81FC62F3547B48ECBA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167747.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:02FADAB6F43E75D011F33A87DD1710F576691BAC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167776.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167776.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:555221FD79CA515DACDD2C84D8E11390FA7A17F5
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167777.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167777.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:03590748E55B954FFEC3658135D82FEE6548EAF3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_167872.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Гонка (29.10.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168112.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168112.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:995A0CE6E482509A90B90E81EFA478291DA01B04
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168373.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:D0CC05AED2179A21D86FF7A2308E8B6546A69DB5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168390.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:DD95F67936E2B918521759540DA07A3885999424
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168500.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:486A1CEDF571FEC15462AB41998A952D56F765D2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168503.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168503.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:745B16206E008C25F580263421E031C13F131957
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168508.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168508.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:69C66156FA35C2D5C758172124B158A079004AD4
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168512.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168512.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:FE0B19B62F97138A3BE82FD6B83472CCCDC45537
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168548.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168548.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:2C9D636369F8215C1F404AD03A98A149F877C94A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168555.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168555.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7B297C33509C3DEBCF3E3FAAACC1B9943CB32A69
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168558.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168558.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:65101E590F9CF1C1E8EFC8EBD2CA03FD6FE66273
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168565.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168565.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:1E9732CAE2BC293E43ED46E95CFE7BB73212581E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168566.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168566.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:93E42ED7A36D98C5F136DCBF0B46B309A92564CB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168577.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168577.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:14E0C347C5D483304CBAD83F7AAAEA1ACE6FAECA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168586.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168586.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2BAC06A83EFC0100920F5B89095D10C1EB2BAC37
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168746.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B4920C57D0A8FA881C06A722BB3C3EF0606DA71D
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168835.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168835.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:BBCA6E6C00333D352911A121A3ED151B903E2BEE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168864.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:836BD9F280EE923F68866630E9F4C54FD972A217
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168934.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_168934.jpg" />
 </div>
 
 

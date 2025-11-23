@@ -6,7 +6,7 @@ HEU KMS Activator 60.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23600.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23600.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MAGIX Vegas Pro 22.0 Build 239 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23606.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23606.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DC45F5F568F3D4954B5697013BB370F70D374F54
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23612.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23612.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ reaConverter Pro 7.849 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23613.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23613.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CAC453336D066EE14111D97E044EF7E1FC465477
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23614.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23614.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ GIMP 3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23624.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23624.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Advanced Renamer 4.10 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23625.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23625.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Bria Mobile: VoIP Softphone v6.19.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23629.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23629.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Magic Eraser / Магический ластик v2.21.1 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23635.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23635.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Blender 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23637.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23637.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VK Музыка: песни и подкасты v7.12 b10931 Mod by VK Equals [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23640.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23640.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TickTick: Список дел и задачи v7.5.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23649.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23649.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CyberLink AudioDirector Ultra 2025 15.3.5119.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23652.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23652.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 18.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23675.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23675.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A9B1B129647CC1E17104628D098CFBD4CD5AF977
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23678.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23678.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3CD05D07F7BBB797DDE9833154C7BB67D0EC6E92
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23680.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23680.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:042759D07B7ED503F058423D89545ABD1A265CAF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23683.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23683.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Steinberg - Cubase Pro 14 14.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23689.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23689.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EE4D991E63EC1414E6A7DC982C8E8D500897E3F8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23691.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23691.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Driver Store Explorer 0.12.64 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23693.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23693.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ WinRAR 7.11 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23716.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23716.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ MediaInfo 25.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23726.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23726.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Google Chrome 134.0.6998.166 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23727.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23727.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Google Chrome 134.0.6998.166 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23731.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23731.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ FanControl V218 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23735.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23735.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paint.NET 5.1.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23742.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23742.jpg" />
 </div>
 
 

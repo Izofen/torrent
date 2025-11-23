@@ -1,3 +1,108 @@
+###  Публикация: 1578638   (207429) от 24.09.2022
+
+Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [DSD64(DST64) 2.0, 5.1|2822,4/1|SACD-R] <Psychedelic Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207429.jpg" />
+</div>
+
+
+###  Подробнее
+
+The time for the SACD release all Pink Floyd fans have coveted — Animals in 5.1 surround and stereo — is here. Another classic Pink Floyd title receives the multichannel reissue treatment and Acoustic Sounds and Analogue Productions is here to proudly handle exclusive distribution of this monumental disc. The SACD also of course includes a stunning stereo mix. And (   Читать дальше...   )01. Pigs On The Wing 1
+02. Dogs
+03. Pigs (Three Different Ones)
+04. Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:51 / 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE5A4B63836A7330C3941B589213734828811E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611622   (207551) от 12.02.2023
+
+Sarah Brightman & The London Symphony Orchestra – Time To Say Goodbye (1997) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/picture/005/save_picture_207551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timeless, известный как Time to Say Goodbye в США и Канаде, — пятый альбом Сары Брайтман и Лондонского симфонического оркестра. Альбом стал золотым или платиновым в 21 стране, было продано более 1,4 миллиона копий только в Соединенных Штатах и он возглавлял чарт Billboard Classical Crossover в Соединенных Штатах в течение 35 недель. Релиз альбома EMI в формате SACD (   Читать дальше...   )Жанр: Vocal, Pop/Rock, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6ED963EADBFCCCC00C8BC2868E5E443A5B37B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648695   (207678) от 29.07.2023
+
+VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Blues, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207678.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Elton John - Sacrifice
+A2 George Michael - Father Figure
+A3 Oleta Adams - Get Here
+A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 02:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646379   (207751) от 28.07.2023
+
+VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Soul, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/003/save_picture_207751.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:58:06
+A1 Hues Corporation – Rock The Boat
+A2 Tymes – Ms Grace
+A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: Pop Rock, Soul, FunkПродолжительность: 02:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409499   (207971) от 26.07.2023
 
 Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unofficial Release [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Alternative Rock, Folk Rock, Pop Rock>
@@ -6,7 +111,7 @@ Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unoffici
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207971.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207971.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Megadeth - Дискография (23 releases) (1985-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_207992.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_207992.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_208677.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_208677.jpg" />
 </div>
 
 
@@ -89,7 +194,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209223.jpg" />
 </div>
 
 
@@ -143,7 +248,7 @@ Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209326.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209326.jpg" />
 </div>
 
 
@@ -170,7 +275,7 @@ Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|i
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209458.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209458.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209478.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_209478.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209828.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209828.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_209996.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_209996.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210000.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210000.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210121.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210121.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210213.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210213.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_210261.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_210261.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210315.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210529.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210529.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210627.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210627.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210633.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210633.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Di
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210672.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210672.jpg" />
 </div>
 
 
@@ -516,7 +621,7 @@ magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.c
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211014.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_211014.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="http://84.39.252.114/public/picture/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -581,111 +686,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301237   (211271) от 03.08.2022
-
-Григорий Лепс - Баллада о борьбе (2008) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Баллада о борьбе
-02. Падают листья
-03. Шелест(   Читать дальше...   )Жанр: Pop Rock, ChansonПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585962   (211272) от 27.10.2022
-
-Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong Kong [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_211272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Gonna Go My Way 3:31
-02. Fly Away 3:42
-03. Rock And Roll Is Dead 3:24
-04. Again 3:49(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFCE7AC8A2DA71D31BB7019BF279EC650370079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640068   (211409) от 16.06.2023
-
-Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639869   (211473) от 15.06.2023
-
-Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sunrise (The Magician Birthday)
-02. July Mornin' (Look At Yourself)
-03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
 ```
 
 

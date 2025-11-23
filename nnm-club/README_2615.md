@@ -6,7 +6,7 @@ Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68738.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68738.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Emily Remler - Cookin' At the Queens: Live In Las Vegas (1984,  1988) 2CD, 2024,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68739.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68739.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vhäldemar - Sanctuary Of Death (2024) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68740.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68740.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:30666BD9684770B4C39C3FF4F285024359BAC08F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68741.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68741.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68742.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68742.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:382E8174BF02445E73CBB35D957F5671F1C916E7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68743.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68743.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68744.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68744.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:F5CC08CB63A787874136F0EBBA24539CAC272293
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68745.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68745.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68746.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68746.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68747.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68747.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Toni Sanchez Group - Projecte Delta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68748.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68748.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jad Tariq - Jad Tariq Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68749.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68749.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GeoGebra 6.0.879 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68750.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68750.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:78985167E57CC0F9B3AB4E573C91578D661B9EE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68751.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68751.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:78985167E57CC0F9B3AB4E573C91578D661B9EE2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68752.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68752.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Vivaldi 7.2.3621.71 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68753.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - I Love ZYX Italo Disco Collection 5 (2006) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68754.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68754.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:2C7C57945411AB3EAB25DCBAFB3C1D2D7C6C88EC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68755.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68755.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ UFO - Seven Deadly (2012) Deluxe edition, Reissue, 2024, Cleopatra Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68756.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68756.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Firefox Browser 136.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68757.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68757.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Kenny Wayne Shepherd, Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68758.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68758.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:BE29BC53E69FF235C5BC6CD69BCD37CBE60EEAAC
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68759.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68759.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Nightwish - Wishmaster (2000) Released, 2015, Spinefarm Records [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68760.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68760.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:B1CEDEB557E55F5A945F32D34A7F278CC5E14976
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68761.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68761.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68762.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68762.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Smoothies - We Can Change The Past (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68763.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_68763.jpg" />
 </div>
 
 

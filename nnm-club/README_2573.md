@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67646.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67646.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C942A06CFD4ACB352E46DFC8DCB246A8262F4817
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67647.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67647.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:73CC10A21627805EAD4F78F3869A64D5A5CAF76D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67648.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67648.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Nothing But... Trancetopia, Vol. 25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67649.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:E344FC10E6B53D663BDEC1E05A66F57E0938259C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67650.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B3A0EDD24B7554B9580A3985FBAB51395AA5DD57
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67651.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Pepe Bueno & Os Estranhos - Confissões e Outros Blues (2025) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67652.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Tracy Weinberg & Friends - Another Saturday Night (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67653.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Sir Dinha Blues Band - VISO (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67654.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67655.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67656.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:02D329B5315AA24B403CCAAE3797E9DCA2CF9366
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67657.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67658.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Buddy Rich - Trios (1976, 1977) 2023, Lightyear [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67659.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67660.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67661.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67662.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Buddy Rich - Birdland (2015) Lightyear [FLAC|Lossless|tracks + .cue] <Big Band, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67663.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:ED1992EA115AE95E1965700AAA417881A6494629
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67664.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D2FCD7816D911DCAD218A0FE53E40062EED13E7E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67665.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:BB734BCD12299F7C691D3A0998E7D938B20C547B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67666.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67667.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Black Hole House Music 04 - 25 (2025) [MP3|320 Kbps] <House, Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67668.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:084774244322BC4BE213EB0A4BF1224D0AAD6867
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67669.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Trancespotting Vol.9 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67670.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:4E33D16CE1AD7A4CD69D2924A0FA6067D0621D52
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_67671.jpg" />
 </div>
 
 

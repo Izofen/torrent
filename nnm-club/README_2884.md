@@ -1,3 +1,84 @@
+###  Публикация: 472722   (84575) от 26.03.2012
+
+Ieshua's Live-DVD/USB 2.06
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основное назначение диска - проверка системы на вирусы, работа с файловой системой NTFS, изменение разделов диска, восстановление данных, восстановление или изменение паролей доступа к ОС Windows NT/2000/XP/2003(для Vista и Server 2008 поддержка частичная), резервное копирование данных, сохранение данных по сети с незагружающихся систем и т.п.
+
+РАБОТА С ДИСКОМ:
+
+- В качестве оболочки(shell) используется стандартный Explorer и BsExplorer для ERD Commander.
+- По умолчанию используется многоядерное ядро и HAL, но это не влияет на работу диска в системах с одним процессором и одним ядром.
+- При загрузке осуществляется поиск и подключение образа Programs.wim с последнего логического диска на котором найден образ. Так же осуществляется проверка свободного пространства логического диска и атрибут файла.
+- Возможность полной WIM загрузки определяется автоматически в зависимости от объема свободной памяти и размера файла Programs.wim.
+- После загрузки диска вы можете указать настройки сети.
+- По умолчанию LiveCD загружается (   Читать дальше...   )Название программы: Ieshua's Live-DVD/USBЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473513   (84576) от 26.03.2012
+
+9 1/2 недель / Nine 1/2 Weeks (1985) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Элизабет встречает Джона, ее уравновешенность улетучивается в одно мгновение. Изощренный соблазнитель втягивает ее в эффектную любовную игру, которая заставляет ее отказаться от прежних жизненных принципов. Их свидания - это утоление голода, это мед, стекающий по ее груди, это клубника, которую он губами вынимает у нее изо рта. Их постель - это металлическая (   Читать дальше...   )Жанр: Мелодрама, Драма, ЭротикаРежиссер: Эдриэн Лайн / Adrian LyneАктеры: Микки Рурк, Ким Бэсинджер, Дэвид Маргулис, Кристин Барански, Карен Янг, Родерик Кук, Джастин Джонстон, Ким Чэн, Майкл П. Моран, Олек Крупа, Джулиан Бек, Джон П. Коннолли, Дэн Лориа, Кори Паркер, Эллен Барбер, Лютер Ракер, Джой Сильвейра, Сара КерночанПеревод: Многоголосый закадровыйСубтитры: РусскийПродолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBDA5E3E911083E844D7129037A9965A0CCF3B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473413   (84577) от 26.03.2012
+
+Burn Zombie Burn! [Ru] (RePack) 2010 | Naitro
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84577.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D шутер с видом сверху «Burn Zombie Burn», который покорил PlayStation в прошлом году, станет хорошим сюрпризом для владельцев ПК. Игра расскажет историю парня по имени Брюс, свидание с девушкой Дейзи которого было прервано нашествием зомби. Романтическая встреча превратилась в Ад с горящими мертвецами... PC версия игры включает в себя не только стандартный "Свободный" режим игры, "Защиту Дейзи" и "игру на Время", но и совешенно новое "Выживание", которое приведет на поле боя целые толпы чудовищь, чтобы проверить вас на меткость  В дополнение ко всему, будет Экстремально Сложный режим игры, который потребует от геймеров более сосредоточенной и аккуратной стрельбы, а также хороших навыков для избежания столкновения с сильными и очень голодными трупами. Охотники на зомби получат руководство (задание и рекомендации), которым следует придерживаться во время битвы, чтобы весело и с задором уничтожить шаркающих ногами о землю зелено-кожих каннибалов.(   Читать дальше...   )Тип издания: RePackЖанр: Indie / Action / ArcadeЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04885F2F89B922AC9705763F91C09E41089E6C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473887   (84578) от 26.03.2012
 
 [Wallpapers] Anime Desktop Wallpapers Pack
@@ -6,7 +87,7 @@
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84578.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84578.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ magnet:?xt=urn:btih:16CED7F315544E70559A9DE8D38E40B482DA8170
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84580.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84580.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Black Mirror III [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84582.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84582.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84584.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84584.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ magnet:?xt=urn:btih:AF9496AEDA940A172307418F4727DF6EDC3D5060
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84585.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84585.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ magnet:?xt=urn:btih:40841F7BEA870325B074753529963F25AFEFB9BE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84588.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84588.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ magnet:?xt=urn:btih:F5FA8820D7DC255542F5A61DB9CBFB378A6EA616
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84589.jpg" />
 </div>
 
 
@@ -199,7 +280,7 @@ magnet:?xt=urn:btih:B9C86A1D4F74067F142352EEABF9BCEDD6B101D1
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84591.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84591.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ magnet:?xt=urn:btih:6FD9AB7F1628FA7D0AB319F7F40FAC00211A4FCC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84592.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84592.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ magnet:?xt=urn:btih:6FD9AB7F1628FA7D0AB319F7F40FAC00211A4FCC
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84593.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84593.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ magnet:?xt=urn:btih:98CB563D319CDD4A549C03D5F8AB851BCE718FAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84594.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84594.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ Driver Genius Professional 11.0.0.1112 Update 24.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84595.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84595.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84596.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84596.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ magnet:?xt=urn:btih:381477D0AC66BFA5C84162EC25DE993D3B118FD8
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84597.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84597.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ DraftSight V1R1.4 beta [x86] (rpm, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84598.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84598.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ DraftSight дает возможность профессиональным по
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84599.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84599.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ VA - Двигай попой! Full Collection (1996-2006) [MP3|128 ~ 320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84602.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ magnet:?xt=urn:btih:B25B8E3B9D5A9C0646F3FBD6BA0EEA2549BC179A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84603.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84603.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ HitFilm Ultimate v1.1 Build 2412 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84604.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84604.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84609.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84609.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ magnet:?xt=urn:btih:598D1A0769599CE96CE069BD3553E673FF5E98D6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84611.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84611.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ magnet:?xt=urn:btih:BAECB3D008B7B63FF3379FD8F1EFE98713A7D191
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84612.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84612.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84613.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -590,82 +671,6 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 02. The Final Frontier
 03. El Dorado
 04. 2 Minutes To Midnight(   Читать дальше...   )Жанр: Heavy metal, concertПродолжительность: 01:55:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473061   (84615) от 26.03.2012
-
-БЕЛOFF DVD (WPI) 2012.04
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник предназначен для автоматической установки программ, распределённых по категориям, на чистые операционные системы семейства Windows XP/ Vista/Se7en. Также включены программы Portable, которые можно будет легко использовать как с диска и образа так и с Flash-накопителей и внешних устройств, включая установку WPI. Для большего удобства использования сборника добавлено мультизагрузочное меню.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332647   (84617) от 26.03.2012
-
-Armin van Buuren - A State of Trance 000 - 550 Radioshows+.CUE (2001-2012) [MP3|192-320 kbps] <Trance>
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First State feat. Tyler Sherritt - Maze
-02. Moonbeam with Eitan Carmi feat. Matvey Emerson - Wanderer
-03. Lange - Songless (Mark Sherry's Outburst Remix)
-04. W&W & Mark Sixma - Twist(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 1310:06:39   (54 дня 10 ч. 06 мин. 39 сек.)
-(Средняя продолжительность выпуска 2 часа)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473706   (84618) от 26.03.2012
-
-Голодные игры / The Hunger Games (2012) CamRip PROPER V2
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее. Деспотичное государство ежегодно устраивает показательные игры на выживание, за которыми в прямом эфире следит весь мир. Жребий участвовать в Играх выпадает юной Китнисс и тайно влюбленному в нее Питу. Они знакомы с детства, но теперь должны стать врагами. Ведь по нерушимому закону Голодных игр победить может только один из 24 участников. Судьям не важно кто выиграет, главное — зрелище. И на этот раз зрелище будет незабываемым.Жанр: Фантастика, Боевик, Триллер, ДрамаРежиссер: Гэри РоссПродюсер: Нина Джейкобсон, Джон Килик, Робин БисселАктеры: Дженнифер Лоуренс, Лиам Хемсворт, Джош Хатчерсон, Элизабет Бэнкс, Вуди Харрельсон, Стенли Туччи, Ленни Кравиц, Уэс Бентли, Дональд Сазерленд, Уиллоу ШилдсПеревод: ДублированныйПродолжительность: 02:07:31
 
 ## Скачать торент
 ```bash

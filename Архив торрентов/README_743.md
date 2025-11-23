@@ -1,3 +1,79 @@
+###  Публикация: 1433778   (154414) от 22.12.2020
+
+Kdenlive 20.12.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A68736945F6DA6289FFEFB6E62960A797A229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676843   (154415) от 15.11.2023
+
+Microsoft .NET 7.0.14 Runtime [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD61FD47FF87D7F4BCBAFF419C5273DFA49EC281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194831   (154420) от 26.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Мадонна ди Кампильо (Италия). Мужчины. Слалом (22.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154420.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 декабря 2017 года, пятница. 19:45 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Мадонна ди Кампильо (Италия).
+Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC789DEF8A705CF43B584DD12DF0EE5A1DD358A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676750   (154421) от 15.11.2023
 
 MailWasher Pro 7.12.188 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +82,7 @@ MailWasher Pro 7.12.188 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154421.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154421.jpg" />
 </div>
 
 
@@ -31,7 +107,7 @@ GroupsPro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154422.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154422.jpg" />
 </div>
 
 
@@ -56,7 +132,7 @@ Cent Browser 4.3.9.238 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154424.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154424.jpg" />
 </div>
 
 
@@ -80,7 +156,7 @@ Topaz Photo AI 2.1.1 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154426.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154426.jpg" />
 </div>
 
 
@@ -104,7 +180,7 @@ Pixelmator Pro 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154429.jpg" />
 </div>
 
 
@@ -129,7 +205,7 @@ DesktopOK 8.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154433.jpg" />
 </div>
 
 
@@ -153,7 +229,7 @@ magnet:?xt=urn:btih:5B1DAFA5AF3E3048E88A8C1926CFAC16D4F4766B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154434.jpg" />
 </div>
 
 
@@ -177,7 +253,7 @@ Opera One 105.0.4970.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154435.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154435.jpg" />
 </div>
 
 
@@ -201,7 +277,7 @@ PDF24 Creator 8.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154441.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154441.jpg" />
 </div>
 
 
@@ -225,7 +301,7 @@ Microsoft .NET 6.0.25 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154442.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154442.jpg" />
 </div>
 
 
@@ -250,7 +326,7 @@ Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154444.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154444.jpg" />
 </div>
 
 
@@ -274,7 +350,7 @@ magnet:?xt=urn:btih:0F07551E33449B7466DE1C6990EBA87BF028D44D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154450.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154450.jpg" />
 </div>
 
 
@@ -301,7 +377,7 @@ Mushoku Tensei: Перерождение безработного | Реинка
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154451.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154451.jpg" />
 </div>
 
 
@@ -325,7 +401,7 @@ magnet:?xt=urn:btih:4422815BF120D0AE81731854CD5D77D4EECB8D4C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154456.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154456.jpg" />
 </div>
 
 
@@ -352,7 +428,7 @@ magnet:?xt=urn:btih:7844EDEE6193D0A1EFBCB594EFA80BED7FC256B5
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154459.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154459.jpg" />
 </div>
 
 
@@ -377,7 +453,7 @@ magnet:?xt=urn:btih:9ED1E9617548CBA7E9616ECCBC34AB9A450FAED1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154468.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154468.jpg" />
 </div>
 
 
@@ -404,7 +480,7 @@ magnet:?xt=urn:btih:A60157025F8770746F1B4B7E0C29D87DFFF22110
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154473.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154473.jpg" />
 </div>
 
 
@@ -428,7 +504,7 @@ magnet:?xt=urn:btih:51596F9B6E38B95EAE072B65072FAF224309A832
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154478.jpg" />
 </div>
 
 
@@ -452,7 +528,7 @@ Topaz Video AI 4.0.3 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154491.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154491.jpg" />
 </div>
 
 
@@ -476,7 +552,7 @@ Adobe Media Encoder 24.0.3.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154497.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154497.jpg" />
 </div>
 
 
@@ -500,7 +576,7 @@ QuickTextPaste 6.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154500.jpg" />
 </div>
 
 
@@ -524,7 +600,7 @@ Calibre - Grow (2016) [MP3|320 Kbps] <Electronic, Techno, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154504.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154504.jpg" />
 </div>
 
 
@@ -551,7 +627,7 @@ AAct Network 1.0.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154505.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154505.jpg" />
 </div>
 
 
@@ -562,78 +638,6 @@ AAct - KMS-активатор для операционных систем Windo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3B295F8013822AAA5F347708580F9620D81E93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676946   (154506) от 15.11.2023
-
-Opera One 105.0.4970.13 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D642944562DDC2EC7F664ED94047FA63CEB0CD78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518236   (154512) от 19.12.2021
-
-Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5407.1000 (2021.12) RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE0C2CBCC0310A76A04E92EAB117C53B44AD25C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676897   (154515) от 15.11.2023
-
-Smart Driver Manager Pro 7.1.1100 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Driver Manager - это быстрый, простой и безопасный способ для автоматического управления и обновления драйверов. Программа сканирует ваш компьютер и все аппаратные устройства, которые связаны и предоставить список всех драйверов нуждаются в обновлении. С просто одним щелчком мыши, Smart Driver Manager будет безопасная установка каждого обновления на вашем ПК. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2734F9BC913499CE05603A6CD9743EC345706BC9
 ```
 
 

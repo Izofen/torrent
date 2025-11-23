@@ -6,7 +6,7 @@ At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157538.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157538.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roxy Music – Avalon (2003) 1982 [DTS 5.1|44.1/16|image +.cue|SACD] <Art Rock, 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157857.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Beatles - Легенды Зарубежного Рока (1999) Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_157954.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Various Artists – Telarc SACD Sampler I (2002) [DTS 5.1 44.1 /16 | .wav+.cue (
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158120.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158120.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158169.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158178.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158178.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, sympho
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158320.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic,
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158601.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158601.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158834.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158834.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Evile - Studio Albums (6 releases) (2007-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158995.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158997.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_158997.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159385.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159564.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159564.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159850.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159850.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159864.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_159988.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160021.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160021.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viki
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160217.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160234.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160234.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160250.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160259.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160262.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160280.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160280.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160288.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160288.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_160290.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FinePrint 12.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38365.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38365.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE04EA45D88B63281FB6A680B92F53EC1C222AD8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38366.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CB09DBCF6BFF077B70FBEA3FC09E599346A1C41B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38367.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38367.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PicWish: AI Photo Editor v1.8.0 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38368.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38368.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3EB511F48ECDEC9E55B35964E6DC02AA47B11277
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38369.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38369.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ FileZilla 3.68.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38370.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38370.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CE7CCA681E4CBC016CD615A358A5DAAACCCC6763
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38371.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38371.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A8AD4E36D78BDDBF8BBADFA544AE5FD9FDB60ED2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38372.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38372.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38373.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38373.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ CudaText 1.219.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38374.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38374.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Firefox Browser ESR 128.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38375.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38375.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:BA08AC6B54E2FD6D4D37468B527C0952D5D1BD5E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38376.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38376.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F15A213F4350BF8CBCC428CB147B6BA5ECC6BF85
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38377.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38377.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Polarr v6.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38378.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38378.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38379.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:6289FBFCD22ABDAD230BDF4F9EBE1CFB41624425
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38380.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38380.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38381.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38381.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Thenatan - OPR8 1.0.0 VST, VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38382.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38382.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38383.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38383.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2FA74682F7827E932DC0618C54977723583DC48D
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38384.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38384.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:870337EA48BDCA853A9F9D2EF63E6908AC8C0077
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38385.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38385.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:5F242166E8A3B331C36EC444337F886E0AD99B9B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38386.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38386.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ FontViewOK 8.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38387.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38387.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Power Music Workout - 2024 Ultimate Fitness Tracks [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38388.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38388.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Autorun Organizer 5.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38389.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38389.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:5B8A68640C9AAFBB8CFB84BBCFE8C26E1D55E2F6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38390.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_38390.jpg" />
 </div>
 
 

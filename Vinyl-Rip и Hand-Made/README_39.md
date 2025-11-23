@@ -6,7 +6,7 @@ Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_115971.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116171.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116478.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116478.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116485.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116499.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116499.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116500.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116500.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:8A6F193CF087F09D28236E094D5CB202106DB4FE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116527.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116527.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116829.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116829.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116830.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116847.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_116849.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117008.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117011.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117011.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117028.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117028.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117142.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117217.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117218.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117224.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117433.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117433.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117434.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117434.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117589.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117984.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_117984.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Nickelback - Studio albums (11 releases) (1996-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118070.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118070.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118231.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118250.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_118252.jpg" />
 </div>
 
 

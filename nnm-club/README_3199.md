@@ -1,3 +1,81 @@
+###  Публикация: 1763106   (102855) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Манчестер Сити (Англия) - Фейеноорд (Нидерланды) (26.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Манчестер Сити (Англия) - Фейеноорд (Нидерланды) (26.11.2024)
+СУДЬЯ Петреску Раду (Бухарест, Румыния)
+СТАДИОН «Сити оф Манчестер (Этихад Стэдиум)» (Манчестер) Зрителей: 47011Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF486F5CEF5CDF6141E7C05DA95575B5EE47F665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763123   (102856) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024)
+СУДЬЯ Кабаков Георгий (Болгария)
+СТАДИОН «Селтик Парк» (Глазго) Зрителей: 57456Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628CB31BCF0A95C3651F78E66DCAA7A9E7A26950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763116   (102857) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024)
+СУДЬЯ Ламбрехтс Эрик (Бельгия)
+СТАДИОН «Райко Митич (Црвена Звезда)» (Белград) Зрителей: 41372Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D4BBCA39B55688B34CF57D5F3BE67EFDC219F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763114   (102858) от 29.11.2024
 
 Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Янг Бойз (Швейцария) - Аталанта (Италия) (26.11.2024) HDTVRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102858.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ magnet:?xt=urn:btih:45DD8260CB3D080778491C11FB21C560BE5C7310
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102859.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102859.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ magnet:?xt=urn:btih:0C75DC59BB9C3D2DFCF7E45BBCCD595A3C1EDD6A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102860.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102860.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102861.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102861.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Steel Inferno - Rush Of Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102862.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102862.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ magnet:?xt=urn:btih:3785F5C10143B50B71B8A230E0F2E3E47385BEC5
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102863.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102863.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102864.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102864.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102865.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102865.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Met
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102866.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102866.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102867.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102867.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ VA - Armin van Buuren - A State Of Trance 1201 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102868.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102868.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102869.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102869.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102870.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102870.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ magnet:?xt=urn:btih:04A885D116AD947F9150F8E75CBB3201A50FA9B1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102871.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102871.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102872.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102872.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ magnet:?xt=urn:btih:86CD8DAF16C79BF04DCAAAB2DCC933523CED809C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102873.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102873.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ magnet:?xt=urn:btih:0419C3061BE23D724D0A967F49AD9E69FC7D4C97
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102874.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Cros
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102875.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102876.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102876.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ magnet:?xt=urn:btih:6677432116B9820FA57C2A7A677F7A36FC97A7F8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102877.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102877.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ magnet:?xt=urn:btih:03E31875B83254EC712E5F2C599BA195EFA39BBB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102878.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102878.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ magnet:?xt=urn:btih:B82E797DC3E93F2195BF33B95411875B87EADCDF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102879.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102879.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102880.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_102880.jpg" />
 </div>
 
 
@@ -602,87 +680,6 @@ magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:431822628037DA98D8F3098ED00E957B32821808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762954   (102881) от 28.11.2024
-
-Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun One (6:05)
-02. Solar (5:52)
-03. Ruby My Dear (7:08)
-04. Wee (4:59)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77A80B559194CF02B744680624A01C6868E47B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762950   (102882) от 28.11.2024
-
-Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Buzzard (7:42)
-02. The War Inside (4:55)
-03. The Disown (6:11)
-04. The Show (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A30637813978F65FF3A05F7D9289288BDEA3B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762942   (102883) от 28.11.2024
-
-Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hunting Party (5:49)
-02. The Stranger (4:53)
-03. Spiders (5:52)
-04. Boiling Point (5:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
 ```
 
 

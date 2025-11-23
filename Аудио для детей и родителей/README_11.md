@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70525.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF192600F28DE35B1B27C46DD8A479E3CF23E618
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70545.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70545.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D34D5293CEA4466EE1FCB04747DD71706AAA906C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70563.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70563.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E29E1C583494440F4249C3B21CC795ED3F547F5F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70620.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70620.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D7DA83AF58024418D2C830E013DAC41396EBFF45
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70623.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70623.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F6237058E2EB956433CEA6D302539B79584CEEA6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70668.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:24B1B85BC1BF36A71F3DD7FB62BAAA8D9549C58E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70674.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70674.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2E3A9E47D02EFAE0D383830E76A37A8866863C8A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70874.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70874.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BB2BB311D0E8D5A11D652D2EE59AF1E86B446EF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70875.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70875.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B3053928D6E1DC13EFC4C5FC0CB7AB428CBCE9C6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70894.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70894.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:96FFF77D08410F096426D6FFFD648ABF29FE75A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70897.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70897.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DF6F45363D95A3AD791F2ED16C80B1504ED949B0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70900.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70900.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:898EEA126383144EDEA0BD75958132EF072E4FF1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70909.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70909.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:656178CAC05365127C804AC6EB60ED78D67DB78B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70928.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_70928.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:3870D586F061D7E86D49CEC533F3AC365ED20C5E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71195.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71195.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:A962E4691E697913802C32369C36D5A95F2149F8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71301.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71301.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:82463F0196D28123466AEABE7388CB0643F750D0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71429.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71429.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7D4ABA84863D13E2E2988CDEDCF9546EFD19849D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71474.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71474.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:550CBF00C052DC09314A564E5E3161EAE1CDB91A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71485.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71485.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:2BAB2B4080BBC679E3406C4BE4B5CAEE7E52A1ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71815.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:51F6AFA5CCFC7C71D16BD7F9BFC4411C740720B7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71976.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_71976.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:78A7848B21CAEED9ADEC51965ED9C638BFDE43EB
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72132.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72132.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Libera - The Christmas Album (2011) [MP3|320 kbps]<Детские песни, Х
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72138.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7312FC8F02A2BDFF887302AF6500BA681E2E8181
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72142.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72142.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A7C72203E103439FC3694928ADD5988E931816AF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72409.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72409.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Raimond Lap – Lovely Baby Mozart (2005) [MP3|256 kbps]<Классическа�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72908.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_72908.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Feeder 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130286.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130286.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MacClean360 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130290.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130290.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ SideNotes 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130294.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130294.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130295.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130295.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SnapMotion Unlimited 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130296.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130296.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Music Tag Editor Pro 5.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130300.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130300.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:3D926D1A97959E92EAE22AA66D74C85837277D3E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130303.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130303.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Transfer 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130304.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130304.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ProFind 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130306.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130306.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130309.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130309.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130313.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130313.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130314.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130314.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130317.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130317.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF Reader Pro Edition 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130318.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130318.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130320.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130320.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130322.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130322.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:251D9B9282D320B93AF9DC325490FE99E7BD4026
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130325.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130325.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:7BBA4BF230FCF8B1241D062C2DEFC484C7BC6F13
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130326.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130326.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ TunesKit AceMovi Video Editor 4.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130328.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130328.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130331.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130331.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ My PaintBrush Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130336.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130336.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Default Folder X 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130339.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130339.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Dato 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130342.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130342.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PullTube 1.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130347.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130347.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ EverWeb (Standalone) 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130351.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130351.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Opera 82.0.4227.58 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130366.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_130366.jpg" />
 </div>
 
 

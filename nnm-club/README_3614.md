@@ -1,3 +1,81 @@
+###  Публикация: 1706279   (113646) от 12.03.2024
+
+Stash for Mac 2.5.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stash — это многопротокольный прокси-клиент на основе правил для платформы iOS/macOS. Он полностью совместим с конфигурацией Clash Premium и поддерживает правила набора правил, подключения по требованию, группу политик SSID, MitM, анализ HTTP, перезапись сценариев JavaScript и другие богатые функции. Это лучший выбор для правил Clash на платформе iOS. Stash использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2023Разработчик: © 2024 Stash Networks LimitedПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25563CABD09EDE4B9AA81F63CF639B43307F879B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706318   (113647) от 12.03.2024
+
+John A. Showler - Swinging Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Life (3:51)
+02. Swinging Doors (3:23)
+03. Nothing Changes (5:39)
+04. Elige Vitam (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84324561B6429E24944F9FAE84013ECB846B1D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706201   (113648) от 12.03.2024
+
+Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uptown Jazz (3:28)
+02. Time Travel (4:11)
+03. Peace In The Melody (3:13)
+04. Funky Smooth (2:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706290   (113649) от 12.03.2024
 
 Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +84,7 @@ Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113649.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ The Dirty Doves - Tunes & Tribulations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113650.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113651.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113652.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113653.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Vinegar 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113654.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113654.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113655.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113656.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113656.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ QOwnNotes 24.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113657.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113657.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ magnet:?xt=urn:btih:384C932C1614F9A54B2C182229C21AA48DB40D4A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113658.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113658.jpg" />
 </div>
 
 
@@ -265,7 +343,7 @@ Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113659.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113659.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ VA - Вот какая любовь. Песни Романа Майорова (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113660.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113660.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Badhoven - Rock Thru Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113661.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113661.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ magnet:?xt=urn:btih:BB12BA448DC6E801FC8F3C44AC12AC3CFE32CEE5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113662.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113662.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ magnet:?xt=urn:btih:B625C3F6F2F471D0ACA08CCB6F719141C5E6600E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113663.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113663.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113664.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113664.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Boxy SVG 4.26.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113665.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113665.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Alice Cooper - The Sound Of A (2018) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113666.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113667.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113667.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Indigo Flood - You To Me Are The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113668.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113668.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113669.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113669.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ VA - Игра в четыре руки. Песни Аркадия Укупник
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113670.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113670.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113671.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_113671.jpg" />
 </div>
 
 
@@ -594,85 +672,6 @@ magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA75A5E19FDFECC501A6AD312E57AD4FE6306D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706245   (113672) от 12.03.2024
-
-Bex Marshall - Fortuna (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preaching To The Choir (3:40)
-02. Dirty Water (5:27)
-03. I Can't Look You In The Eye (Remastered) (3:22)
-04. 5 AM (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326F63D12EEE69619B9F091214315149A5053F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706402   (113673) от 12.03.2024
-
-Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15A8944494F44786B83B712CB37AE570A290740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706054   (113674) от 12.03.2024
-
-ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
-02 - Когда-нибудь. (М. Минков - А. Макаревич)
-03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
 ```
 
 

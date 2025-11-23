@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54237.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54237.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54238.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54238.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54239.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54239.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FanControl V192 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54240.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54240.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9DC0388B8D4247F8DAD016F6DF4A0E16AF4A11B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54241.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54241.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DBFBB8BB08AADDD0CD0C4DF24BA49F174C34B927
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54242.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54242.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Deep Collective: Another Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <O
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54243.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54243.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:47842D9EF7A61CE6B384B3393CDF7A13124C325E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54244.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54244.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9DF7C5BBFBF21AEFF1EC58CA4C5CAEFF17A5B81B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54245.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54245.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ PhotoRoom v4.9.9 b1431 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54246.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54246.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:477BED41D0ECBC68592D2E3D3E0C1FD53A4F95E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54247.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54247.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D1F8AE52F252575424622F16C99194F5F39ACB82
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54248.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54248.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:96E03D1A065E74EBB43FD2AB44600888620CD2BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54249.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54249.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurod
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54250.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54250.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54251.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54251.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D73CA3A33366EF6524F01F2CFC638C806A4043B4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54252.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54252.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Scott Hamilton - From The Beginning (1977, 1978) 2CD, 2002, Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54253.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54253.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54254.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54254.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:847B2DC0F12204AA0ED746B0A743F637260AD241
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54255.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54255.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:F6A4226E4E8E47AF41DDD3AFD2D4A1AECDE504B4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54256.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54256.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54257.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54257.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:EA83B355A54490835129DD959B51C0137BD865D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54258.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54258.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:B25F212B8FE10D5FD5F8EB223051EDC9439CC428
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54259.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54259.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:DEB0A3CA3B741751C9720B6229AAF2644CC68F3E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54260.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54260.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ IObit Driver Booster Pro 11.5.0.83 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54261.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54261.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Opera One 110.0.5130.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54262.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_54262.jpg" />
 </div>
 
 

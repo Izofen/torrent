@@ -6,7 +6,7 @@ n-Track Studio Suite 10.1.0.8705 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106753.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106753.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FanControl V195 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106770.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106770.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:59C0C01DDA48C3F15C802157E21659710A822685
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106781.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106781.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EAF147815F93FDC282ABE9BEEDB6E6969E9891E8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106782.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106782.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Photo Supreme 2024.2.0.6544 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106783.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106783.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Allavsoft Video Downloader Converter 3.27.3.8952 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106790.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106790.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Q-Dir 11.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106791.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106791.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Vov Sticky Notes 9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106793.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106793.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Mullvad Browser 13.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106795.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106795.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DesktopOK 11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106796.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106796.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ eM Client Pro 10.0.3123.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106801.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106801.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Aiseesoft Video Converter Ultimate 10.8.50 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106802.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106802.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PDF Shaper Ultimate 14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106803.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106803.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ reaConverter Pro 7.818 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106804.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106804.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AIMP 5.30 Build 2560 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106810.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106810.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0709) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106815.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106815.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wise Care 365 Pro 6.7.4.649 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106820.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106820.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Microsoft .NET 6.0.32 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106822.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106822.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Tixati 3.26 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106823.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106823.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Wise Disk Cleaner 11.1.3.829 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106824.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106824.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106830.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106830.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ TapinRadio 2.15.97.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106853.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106853.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Subtitle Edit 4.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106855.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106855.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Balabolka 2.15.0.873 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106856.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106856.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106857.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106857.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kdenlive 24.05.2 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106858.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_106858.jpg" />
 </div>
 
 

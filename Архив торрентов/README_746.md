@@ -1,3 +1,75 @@
+###  Публикация: 1194372   (154943) от 25.12.2017
+
+Volume2 1.1.5.403 RC + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Volume2 — альтернативный регулятор громкости, который полностью заменяет стандартный регулятор громкости Windows и обеспечивает простую настройку горячих клавиш и событий мыши.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34F1A8802DFFA1127538C025C6B3A541EFBA90C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676646   (154945) от 14.11.2023
+
+PotPlayer 231113 (1.7.22038) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194545   (154953) от 25.12.2017
+
+RAM Saver Professional 17.9 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154953.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: русский/английский/украинский/белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C1E5DABAAA698786838C1EF30844752459756D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518367   (154954) от 19.12.2021
 
 Serato DJ Pro Suite 2.5.8 (x64) RePack by VR [Multi]
@@ -6,7 +78,7 @@ Serato DJ Pro Suite 2.5.8 (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154954.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154954.jpg" />
 </div>
 
 
@@ -30,7 +102,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154956.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154956.jpg" />
 </div>
 
 
@@ -54,7 +126,7 @@ Permute 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154957.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154957.jpg" />
 </div>
 
 
@@ -79,7 +151,7 @@ VA - The Best Of Suanda True 2016 (Mixed By Mark W) (2016) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154960.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154960.jpg" />
 </div>
 
 
@@ -106,7 +178,7 @@ AOMEI Backupper Technician Plus 5.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154964.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154964.jpg" />
 </div>
 
 
@@ -130,7 +202,7 @@ Audacity 3.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154975.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154975.jpg" />
 </div>
 
 
@@ -154,7 +226,7 @@ One Switch 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154979.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154979.jpg" />
 </div>
 
 
@@ -178,7 +250,7 @@ magnet:?xt=urn:btih:5EC6D082329E880B28AA97BECCFC39009136E158
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154987.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154987.jpg" />
 </div>
 
 
@@ -204,7 +276,7 @@ AOMEI Backupper Pro 6.8.0 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154988.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154988.jpg" />
 </div>
 
 
@@ -228,7 +300,7 @@ magnet:?xt=urn:btih:CD1454DE73FE0ED985CD650A768CC1740219595C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154990.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154990.jpg" />
 </div>
 
 
@@ -254,7 +326,7 @@ Vivaldi 5.0.2497.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154995.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_154995.jpg" />
 </div>
 
 
@@ -278,7 +350,7 @@ TechSmith SnagIt 2020.0.3 Build 4960 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155009.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155009.jpg" />
 </div>
 
 
@@ -302,7 +374,7 @@ MediBang Paint Pro 28.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155013.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155013.jpg" />
 </div>
 
 
@@ -326,7 +398,7 @@ Viber 7.9.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155018.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155018.jpg" />
 </div>
 
 
@@ -350,7 +422,7 @@ ProduKey 1.91 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155026.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155026.jpg" />
 </div>
 
 
@@ -374,7 +446,7 @@ magnet:?xt=urn:btih:8256CA33D7986F0E9D416E98F772E1594BCA3D25
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155043.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155043.jpg" />
 </div>
 
 
@@ -398,7 +470,7 @@ Chaotica 2.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155047.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155047.jpg" />
 </div>
 
 
@@ -422,7 +494,7 @@ GarageSale 8 v8.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155060.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155060.jpg" />
 </div>
 
 
@@ -446,7 +518,7 @@ Espresso 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155081.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155081.jpg" />
 </div>
 
 
@@ -470,7 +542,7 @@ Blender 4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155096.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155096.jpg" />
 </div>
 
 
@@ -496,7 +568,7 @@ LibreWolf 108.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155100.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155100.jpg" />
 </div>
 
 
@@ -522,7 +594,7 @@ FxFactory Pro 8.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155109.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155109.jpg" />
 </div>
 
 
@@ -547,7 +619,7 @@ Templates for Pixelmator by GN 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155114.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_155114.jpg" />
 </div>
 
 
@@ -560,80 +632,6 @@ Templates for Pixelmator by GN - идеальный инструмент пол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:910CA916D7363B8E04B4BE12B6EE900FA2D5E365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549469   (155120) от 27.12.2014
-
-Emika - Сборник 16 Релизов (2 LP, 14 EP) (2009-2014) [MP3|320 кб/с]<Electronic, Trip-Hop, House, Dubstep, Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Э́ма Джо́лли (Ema Jolly), более известная как Э́мика (Emika) — английская певица и электронный музыкант чешского происхождения, в настоящее время проживающая в Берлине. Её дебютный эпонимический альбом вышел в октябре 2011 года на Ninja Tune и привлёк внимание музыкальной прессы. (c)WikiЖанр: Electronic, TechnoПродолжительность: 00:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5163FF8DFC55A26E2FD3043C75DD94E0CC8C2DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433944   (155122) от 22.12.2020
-
-Downie 4 v4.1.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CBC2E8ED73234B32516A4B425CC384D9D83342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085803   (155127) от 22.12.2016
-
-Инферно / Inferno (2016) WEB-DLRip [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некий миллиардер в порыве искреннего человеколюбия решает убить половину населения планеты. В своей уютной лаборантской он выводит особый штамм смертельного вируса, способного заразить 95 процентов людей за пару суток. Будучи не в силах упустить красоту момента, он зашифровывает точные координаты пакета с адским варевом в "Инферно" - первой части "Божественной (   Читать дальше...   )Производство: США, Япония, Турция, Венгрия, Columbia Pictures, Imagine Entertainment, LStar CapitalЖанр: Боевик, Триллер, Драма, Криминал, ДетективРежиссер: Рон ХовардАктеры: Том Хэнкс, Бен Фостер, Сидсе Бабетт Кнудсен, Фелисити Джонс, Ирфан Кхан, Омар Си, Ана Улару, Ката Сарбо, Ида Дарвиш, Вольфганг ШтегеманПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4700868810A7ADB4F75B08612B2B8EDA4BF8145
 ```
 
 

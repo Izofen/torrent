@@ -6,7 +6,7 @@ DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98137.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98137.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98138.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98138.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98139.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98139.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98140.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98140.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|25
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98141.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98141.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98143.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98143.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98145.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98145.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98149.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98149.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:545C96F06B3CDDF8FF5224D70ED4290FD844BB56
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98152.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98152.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lojaz - Полный бак (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98154.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98154.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:AF73A25B7159D1BF409B7347864D715C0F83E22E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98155.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98155.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:739ECB56010723974B87E8B303597317802C5AB8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98161.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98161.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:A0343078155069B8BD16A86E5A985FDE281CE715
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98162.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98162.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E54F127EFCA45BE75629D7F811E21030C239605C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98164.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98164.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ DJ Kocmoc - Dutch compilation vol.1 (14.03.2012) [MP3|320 кб/с]<Dutch House, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98167.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98167.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3FF8447AFFA99A83CE8E6497B9BF0E0905DAC3B5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98169.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98169.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98180.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98182.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98184.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:4306838ABECF0985F62477629CD28220D9E13BEB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98187.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98187.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:0E471EEE9D4D51823A87EC466D93314A83B04C04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98190.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98190.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A8F9E8F46E38DD19F3AF312A523CE1AAB7073A8E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98194.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98194.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Chris Coco - Lazy Summer Vol. 2 (2011) [MP3|320 кб/с]<Electronic, Deep H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98198.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98198.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Glassball - Psy-Fi Full On (03.01.2012) [MP3|320 кб/с]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98206.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98206.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ magnet:?xt=urn:btih:58A3A96094E1222DC004A0F856EAEDCDDC180484
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98207.jpg" />
+  <img src="http://84.39.252.114/public/picture/002/save_picture_98207.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Primal Rock Rebellion - Awoken Broken (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98208.jpg" />
+  <img src="http://84.39.252.114/picture/005/save_picture_98208.jpg" />
 </div>
 
 

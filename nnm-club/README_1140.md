@@ -6,7 +6,7 @@ Telegram Desktop 5.10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29993.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29993.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6C8DE1511CD6EED0F86F4C8C9F20CD2CDFB4C80F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29994.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29994.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:86EC67231D95062AD4BB1C47FF37B33AA9466A17
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29995.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29995.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Neuron - Compilation 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29996.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29996.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:103C121BD9576A3C1AC794A1AFAC3D9EE007F3A8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29997.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29997.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:CF088CA5CB837F959D60DC93FA51E7E967CCAEBD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29998.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29998.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29999.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_29999.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30000.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30000.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30001.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30002.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30002.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7312A4E88751A46172364A5C1B53B5ED069AE3CB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30003.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30003.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C85F7F0D97892297813F4EAF81C28E83A7DF7FC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30004.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30004.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30005.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30005.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:C02BC0B0CD465A5CA83D73D3B8E288B1D9AB8C65
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30006.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30006.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Slow Deep House Music Mix (2025) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30007.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30007.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:0ED50F0E0E5DEB16D9F3B08A4889E264F1AF7F08
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30008.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30008.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dream Theater - Midnight Messiah (2025) EP [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30009.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30009.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:9EC9BB334CBFA92D9A8205F0D82D8392176ABC39
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30010.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30010.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Grave Digger - Bone Collector (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30011.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30011.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Deep-House Hunters, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30012.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30012.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:BB9E6D7D6378380C446BEC10E72F9B4FE076A594
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30013.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30013.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:002ADCD22A78E65F17BE0A71C53C4AFF39FF7A00
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30014.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30014.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:5B0B26F08F38D2E2E1EB85DDD3F36FD02A76A038
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30015.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30015.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B83662F86CC9005D81E06D03E4601ECD3CB1E4AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30016.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30016.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:3C826AE38104C906A58B03D0B01D3452A43ADB1B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30017.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30017.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:977B40E0BF6078308A103B4ECC757F311AB3934B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30018.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_30018.jpg" />
 </div>
 
 

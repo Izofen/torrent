@@ -6,7 +6,7 @@ Arturia - Pure LoFi 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20269.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20269.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Arturia - Pigments 6.0.3 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20271.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20271.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Audiority Complete Effects Bundle 2025.4.16 STANDALONE, VST, VST 3, AAX, CLAP (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20471.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20471.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kazrog - Retro STA-LEVEL 1.0.0 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20475.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20475.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ BlepFX - Filtrr 1.0.0 VST 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20484.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20484.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ GiliSoft Video Converter Discovery Edition 12.9.0 Pro RePack (& Portable) by elc
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20529.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20529.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Mensla - Stereo Tool 1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20739.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20739.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Steinberg - HALion 7 7.1.30 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20887.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20887.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.4.2.0 + Portable (unofficial) [Multi
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20894.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20894.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Chasys Draw IES 5.35.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20991.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_20991.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ XnConvert 1.105.0 + Portable (x64) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21054.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21054.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Blender 4.4.1 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21176.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21176.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Blender 4.2.9 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21280.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21280.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ActivePresenter Pro Edition 9.3.0 (x64) RePack (& Portable) by elchupacabra [Mul
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21362.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21362.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VideoSolo Video Converter Ultimate 2.3.52 RePack (& Portable) by TryRooM [Multi/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21373.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21373.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ MakeMKV 1.18.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21380.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21380.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Topaz Photo AI Pro 3.6.2 (x64) [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21381.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21381.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AnyMP4 Video Converter Ultimate 8.5.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21453.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21453.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Infected Sounds - Sphinx 7.0.3 VSTi 3 + Expansions [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21835.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_21835.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Serif Affinity Photo 2.6.2.3228 RePack (& Portable) by elchupacabra [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22114.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22114.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Forever 89 - Topos 1.0.0 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22497.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22497.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Adobe Premiere Pro 2025 25.2.0.147 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22664.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22664.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ FotoSketcher 3.98 Final + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22836.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22836.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Spotify 1.2.59.515 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22871.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_22871.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fors - Sala 1.0 VST 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23001.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23001.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Supertone Clear 1.1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23089.jpg" />
+  <img src="http://84.39.252.114/public/picture/001/save_picture_23089.jpg" />
 </div>
 
 
